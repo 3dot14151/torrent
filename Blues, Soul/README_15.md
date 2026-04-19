@@ -1,3 +1,32 @@
+###  Публикация: 907118   (641843) от 10.06.2015
+
+Snowy White - Highway To The Sun (1994), Reissue/2010, Repertoire Records [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway to the Sun (04:57)
+02. Can't Find Love (05:36)
+03. Burning Love (05:08)
+04. Loving Man (04:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59481CC08D0E4568F39D80B5AD366229BE801664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032834   (641798) от 09.07.2016
 
 Jeff Beck - Loud Hailer (2016) [MP3|256 Kbps] <Blues Rock>
@@ -725,35 +754,6 @@ Jazz Gillum: The Essential (2CD) (2003) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ED60F94AA3C80FF6F5935947B70E54018679F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908116   (634258) от 14.06.2015
-
-Johnnie "Geechie" Temple - The Essential (2003) 2CD[MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lead Pencil Blues (3:06)
-02.  New Vicksburg Blues (2:48)
-03.  When The Breath Bids Your Girlfriend's (2:41)
-04.  Big Boat Whistle (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42C205FCFFD8B683169F6670226BA06811B5C58
 ```
 
 https://mybot314.ru/tekegram_catalog/

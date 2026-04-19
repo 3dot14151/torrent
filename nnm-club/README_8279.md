@@ -1,25 +1,25 @@
-###  Публикация: 1284159   (730094) от 20.02.2019
+###  Публикация: 1399603   (732972) от 01.08.2020
 
-VA - The Journey: The Best Remixes Vol.01 (2019) [MP3|320 Kbps] <Progressive House, Trance>
+Kenny Barron - At The Piano (1981) 2015, Elemental Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Electronic
->>House
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. J.Weo - Lazy Weekend (Soty & Seven24 Remix) 06:20
-02. Moussa Clarke - Astra Aurora (Nio March Remix) 05:08
-03. ZANIO - Will (I-Vision Remix) 08:11
-04. Sunlight Project - Back To Me Somehow (Kana 'Back 2 The 80s' Remix) 06:27(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:42:28
+01. Bud-Like [6:08]
+02. The Star Crossed Lovers [8:47]
+03. Misterioso [7:53]
+04. Calypso [4:09](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BA452B5E6402697CCC70C725628383E0467D8DD
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284151   (730093) от 20.02.2019
+###  Публикация: 1399527   (732971) от 01.08.2020
 
-VA - Trance Mission (2019) [MP3|320 Kbps] <Trance>
+Ensiferum - Iron (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mindsoundscapes - Grasping Life (Radio Cut) 03:19
-02. Dreamy - Scar (Radio Cut) 04:04
-03. George Harrold - Ayuhuasca (Radio Cut) 03:46
-04. Artra & Holland - Mountains (Radio Edition) 03:11(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:23
+01. Ferrum Aeternum (03:28)
+02. Iron (03:53)
+03. Sword Chant (04:45)
+04. Mourning Heart - Interlude (01:24)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:53:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBD118563DEB4DB153A16205026B7B1433B306A4
+magnet:?xt=urn:btih:14A0D15671984CBB48C77CC2EA148FDD8E347D25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,81 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284305   (730092) от 20.02.2019
+###  Публикация: 1399627   (732970) от 01.08.2020
 
-OCRKit 19.2.15 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730092.jpg" />
-</div>
-
-
-###  Подробнее
-
-OCRKit представляет собой простое и рациональное приложение для конвертирования файлов формата PDF и графических изображений в PDF-файлы с возможностью поиска по тексту на компьютерах Macintosh. В приложении OCRKit задействована технология оптического распознавания знаков (OCR, Optical Character Recognition), позволяющая распознавать текст в рамках графического изображения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2019Разработчик: ExactCODE GmbHПоддерживаемая ОС: macOS 10.6 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED016427561B1ED932D7B4E099B829D83B347E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284195   (730091) от 20.02.2019
-
-Keytty 1.2.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте мышью с помощью клавиатуры!
-Перемещение, клик, прокрутка, перетаскивание и многое другое с помощью нескольких нажатий клавиш.Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: KeyttyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55683A37DAD0DFEC5B9CAFC1C2A56B8979C47DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284116   (730090) от 20.02.2019
-
-Radare - Im Argen (2015) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Experimental>
+Kenny Barron & Mark Sherman - Interplay (2015) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Please Let Me Come into the Storm / Luke (10:06)
-02. Das einsame Grab des Detlef Sammer (4:09)
-03. Burroughs (6:36)
-04. The Queue (4:22)(   Читать дальше...   )Производство: Golden Antenna Records - GOLDEN-034Жанр: Doom Jazz, Dark Jazz, Experimental, RockПродолжительность: 00:35:11
+01. Afternoon in Paris [6:12]
+02. Venture Within [7:43]
+03. Dear Old Stockholm [4:53]
+04. Darn That Dream [7:37](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B8F360CAF4F2E96D5AAE98CF1B611A34FAB5494
+magnet:?xt=urn:btih:E8789552E2030C18C50204C04D82AC14611CD534
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284197   (730089) от 20.02.2019
+###  Публикация: 1399630   (732969) от 01.08.2020
 
-Биатлон. Кубок Мира 2018-2019. 8-й Этап. Солт-Лейк Сити - Солджер Холлоу (США). Одиночная смешанная эстафета. Супермикст (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+John Lewis & The American Jazz Orchestra - Ellington Masterpieces (1989) EastWest [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732969.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17 февраля 2019 года, воскресенье. 20:10 МСК
-Кубок Мира по биатлону сезона 2018-2019.
-Этап 8. Солт-Лейк Сити - Солджер Холлоу (США):
-Одиночная смешанная эстафета. СупермикстТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:06:22
+01. Sepia Panorama [3:43]
+02. Johnny Come Lately [3:29]
+03. All Too Soon [4:07]
+04. Ko-Ko [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B2121C6672E8C8A95892B6197A76B72FD3F2A13
+magnet:?xt=urn:btih:04B1825C4CC8FD9B70610036B1B4E3A8D3E93892
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,27 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284325   (730088) от 20.02.2019
+###  Публикация: 1399329   (732968) от 01.08.2020
 
-Vellum 2.5.1 [En]
+Lyonen - This Is Lyonen (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
-
-Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: 180gПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+01. Revelation (04:40)
+ 02. Lyonen (04:54)
+ 03. No Borders (04:53)
+ 04. Nehme Die Sunde (03:23)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C0F32BC35F38274B41A9699CD0FA666122A958F
+magnet:?xt=urn:btih:50B3DAC3E4BB7B7E301E2C3932C2058501C1C91D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284208   (730087) от 20.02.2019
+###  Публикация: 1399280   (732967) от 01.08.2020
 
-VA - Colorful Downbeats Vol . 2 (2019) [MP3|320 Kbps] <Chillout, Downtempo>
+Cheesing Gweilo - Oriental Adventures... (2020) (Powered By Rice) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 
->>Electronic
->>Easy listening
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. GMO - Journey into Sound (7:24)
-02. Zen Baboon - Full Moon (Nibana Remix) (9:22)
-03. Kill The Geek - High and Low Places (5:48)
-04. Koan - Dazed (6:56)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:14:32
+01. Hello Sir (02:57)
+ 02. Wild Ducks And Low Flying Doves (04:08)
+ 03. L.B.F.M. (05:26)
+ 04. Slow (04:48)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:49:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B75DCE6CBE1224ECEB6322A72D546F7E4D09D333
+magnet:?xt=urn:btih:EF2B11C15E461C704F20A9322EA8A157F6602647
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +172,251 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284122   (730086) от 20.02.2019
+###  Публикация: 1399669   (732966) от 01.08.2020
 
-Au Pairs - Sense And Sensuality (1982) Remaster, 2002, Castle Music [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Post Rock>
+Алексей Вязовский | Невероятные приключения Мии. Новые приключения Мии. Книга 2. (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории космических приключений девочки Мии. Простая и немного наивная детская фантастика в антураже будущего.Жанр: Детская литература/Фантастика/ПриключенияПродолжительность: 03:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B373160A994364BB23E9F8CE8A8CCDA508943E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399610   (732965) от 01.08.2020
+
+Land of Talk - Indistinct Conversations (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diaphanous
+02. Look To You (Intro)
+03. Look To You
+04. Weight Of That Weekend(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399618   (732964) от 01.08.2020
+
+!!! (Chk Chk Chk) - Certified Heavy Kats (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do the Dial Tone (04:05)
+02. Maybe You Can’t Make It (03:44)
+03. Tighten the Grip (03:33)
+04. Let It Fall (03:53)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399597   (732963) от 01.08.2020
+
+Старый Лев / Le Lion Devenu Vieux (1932) DVDRip [H.264] [hand made colored]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый король Лев подвергается издевательствам со стороны своего окружения. Вспоминает как в молодости он выкрал свою невесту-львицу. В конце-концов он умирает всеми забытый.Производство: ФранцияЖанр: Кукольный, СказкаРежиссер: Владислав СтаревичПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 00:08:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399606   (732962) от 01.08.2020
+
+Northlane - Alien (2019) Deluxe Edition, 2020 [MP3|320 Kbps] <Progressive Metalcore>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Details Matter [00:04:05]
+02 Bloodline [00:03:25]
+03 4D [00:04:11]
+04 Talking Heads [00:03:50](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399715   (732961) от 01.08.2020
+
+Eclipse - Eclipse (1976) LP [MP3|320 Kbps] <Electronic, Prog Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vision Interieure (10:50)
+02. Le Reve De John W (6:26)
+03. T'aime (Voix) (0:59)
+04. La Derniere Fois (3:08)(   Читать дальше...   )Жанр: Electronic, Prog RockПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399520   (732960) от 01.08.2020
+
+Dizzy - The Sun and Her Scorch (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worms (02:05)
+02. Sunflower (03:34)
+03. Good And Right (03:35)
+04. The Magician (03:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399665   (732959) от 01.08.2020
+
+Алексей Вязовский | Невероятные приключения Мии. Невероятные приключения Мии. Книга 1. (2020) [MP3]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая и немного наивная детская фантастика в антураже будущего. Космические приключение девочки Мии.Жанр: Детская литература/Фантастика/ПриключенияПродолжительность: 06:02:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399465   (732958) от 01.08.2020
+
+The Psychedelic Furs - Made of Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stepping Out of Line (6:01)
-02. Sex Without Stress (4:32)
-03. Instant Touch (3:00)
-04. That's When Its Worth It (4:07)(   Читать дальше...   )Жанр: Alternative Rock, Punk, Post RockПродолжительность: 00:42:24
+01. The Boy That Invented Rock & Roll (03:36)
+02. Don't Believe (03:45)
+03. You'll Be Mine (04:47)
+04. Wrong Train (04:12)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:51:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20D6FFCF41C3F55F69DE880E1F7DCAC925D11609
+magnet:?xt=urn:btih:DBA13DF7700192A7EE359ED220C9C66AB46E8416
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +424,137 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284126   (730085) от 20.02.2019
+###  Публикация: 1399658   (732957) от 01.08.2020
 
-Au Pairs - Playing with a Different Sex (1981) Reissue, 1992, RPM Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Post Rock>
+Владислав Крапивин | Дело о ртутной бомбе (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Митя Зайцев был несправедливо обвинен в ложном сообщении о террористическом акте. И кто знает, чем бы закончилось «дело о ртутной бомбе», если бы вовремя не пришла помощь…Жанр: Детская литература/ПриключенияПродолжительность: 03:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8597B49AF76D92CDE7355DA6DE4B6F106A8A6828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399367   (732956) от 01.08.2020
+
+Damnation Angels - Fiber of Our Being (2020) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than Human (04:43)
+ 02. Railrunner (06:35)
+ 03. Fiber of Our Being (04:58)
+ 04. Our Last Light (04:14)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04D033B63FAD13E5AE6EF137CAC0805E688C6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399668   (732955) от 01.08.2020
+
+Формула 1. Сезон 2020. Этап 4. Гран-при Великобритании. Свободная практика 3 (01.08.2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Великобритании. Свободная практика 3
+Арена: Автодром Сильверстоун (Сильверстоун, Великобритания)
+01 августа 2020 года, пятница. 13:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32191206FFC48CD0B988E6D85FB16DC8A78B4A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399666   (732954) от 01.08.2020
+
+Формула 1. Сезон 2020. Этап 4. Гран-при Великобритании. Свободная практика 3 (01.08.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Великобритании. Свободная практика 3
+Арена: Автодром Сильверстоун (Сильверстоун, Великобритания)
+01 августа 2020 года, пятница. 13:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0D5A5CC5F27F9C02E181C34A4E653142537593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399605   (732953) от 01.08.2020
+
+Meta 1.9.6 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We're So Cool (03:29)
-02. Love Song (02:51)
-03. Set-Up (03:21)
-04. Repetition (Written-By)Жанр: Alternative Rock, Punk, Post RockПродолжительность: 01:11:31
+Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
+С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Он поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, ID3v2.4, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.06.2020Разработчик: Benjamin JaegerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0898ED1E72BF6FC80D97DB5012B16A54EEC78336
+magnet:?xt=urn:btih:B737001C23361FB29B2A854D10E12AC2DDF2AD6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,84 +562,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127986   (730084) от 23.04.2017
+###  Публикация: 1399411   (732952) от 01.08.2020
 
-Luke Sellick - Alchemist (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (1:01)
-02. Q-Tippin (6:45)
-03. Brothers (4:48)
-04. Hymn (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEF24C15CC2EC89FF23C65CAB99F4690D4D1B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128054   (730083) от 23.04.2017
-
-Главное. Итоговая программа (23.04.2017) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждое воскресенье в 18.00 ведущая программы Ника Стрижак подводит информационные итоги недели. В этом ей помогают авторитетные собеседники, ведущие авторских рубрик и команда корреспондентов Пятого канала.В этом выпуске: Расстрел французских выборов. За два дня до голосования в сердце Парижа убивают полицейских. Власть беспомощна перед разгулом террора. С чем идут на участки французы? За кого будет голосовать сытый истеблишмент и кому отдадут свои голоса те, кто пережил атаки в Париже и Ницце?
-Американский слон в посудной лавке. Можно ли считать импульсивное поведение Трампа новым (   Читать дальше...   )Телекомпания: Пятый каналЖанр: ТелепередачаПродолжительность: 01:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A946A0E24A47E11C0D9C9E9C2EA6D9EDA741017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127895   (730082) от 23.04.2017
-
-Night Demon - Darkness Remains (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Lionheart - The Reality Of Miracles (2020) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome To The Night (3:53)
-02. Hallowed Ground (3:24)
-03. Maiden Hell (2:46)
-04. Stranger In The Room (4:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:53
+01. Salvation (00:55)
+ 02. Thine Is the Kingdom (04:24)
+ 03. High Plains Drifter (03:54)
+ 04. The Reality of Miracles (04:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B63A91344598BD8088D6E8E40730859457757A0
+magnet:?xt=urn:btih:2ADD5665FE102930A2E79AE3186F37A0DBC826A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,28 +591,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128065   (730081) от 23.04.2017
+###  Публикация: 1399709   (732951) от 01.08.2020
 
-Bert Wray Blues - Gut Bucket Radio (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
+Черстин Лундберг Хан | Миндальное сердце (2018) [MP3]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Midwood Blues (3:30)
-02. Just Like Johnny Winter Did (3:49)
-03. Whiskey in My Coffee Cup (4:32)
-04. Drinking a Beer (4:59)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:30:33
+У Оскара есть всё: замечательные родители, лучший друг Хьюго и весёлая подруга Бие. Но сам Оскар страстно мечтает о собаке. В его сердце есть заветный уголок, словно специально отведённый для верного лохматого друга. Но мама ждёт ребёнка, и родители слушать не желают ни про каких собак. А тут ещё и Бие с Хьюго начинают вести себя крайне странно… Книга о том, как (   Читать дальше...   )Жанр: Детская литература/ПриключенияПродолжительность: 03:17:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED2950AA2FAB0B7AA2358AF1EDB7A87795636E6F
+magnet:?xt=urn:btih:D9208F6C60514A0C6D41BA64FBCB14065D0966E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,25 +617,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127998   (730080) от 23.04.2017
+###  Публикация: 1399697   (732950) от 01.08.2020
 
-Ученым удалось измерить уровни корреляции Белла в квантовой системе, состоящей из 500 тысяч атомов
+Формула-3. Сезон 2020. 4-й Этап. Гран-при Великобритании. Гонка 1 (01.08.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Поговорим
->>DailyTechInfo
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ученые-физики из Стэнфордского университета, возглавляемые Марком Касевичем (Mark Kasevich) успешно провели измерения параметров так называемой корреляции Белла (Bell correlation) в самой большой на сегодняшней день квантовой системе, которая состояла из 500 тысяч атомов, охлажденных до температуры в 25 микроКельвинов. Присутствие корреляций Белла в системе указывает (   Читать дальше...   )
+2-й чемпионат ФИА Формула-3. Сезон 2020 года
+01 августа 2020, суббота. 12:25 МСК
+4-й Этап. Гран-при Великобритании. Сильверстоун (Великобритания)
+Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:55:20
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:262307BFB0685C038119F4440737883D54A356B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,25 +646,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127974   (730079) от 23.04.2017
+###  Публикация: 1399601   (732949) от 01.08.2020
 
-Георгий Краснов | Операция «Сломанная трубка» (1982) [DJVU]
+Карл Ясперс | Философская вера (2008) [MP3]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повести современного чувашского писателя из жизни красных следопытов.Жанр: Детская прозаФормат: DJVU
+"СМЫСЛ И НАЗНАЧЕНИЕ ИСТОРИИ" ("Vom Ursprung und Ziel der Geschichte", 1949) - произведение Ясперса. Ясперс выдвигает концепцию всемирно-исторического процесса, ориентированную на обнаружение его единства. Данное единство трактуется не как результат саморазвертывания некоей тотальности по жесткой схеме, но как общий итог смысловых проблем человека. (   Читать дальше...   )Жанр: Философия, ИсторияПродолжительность: 05:58:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E7935A102319CE06964E9EE6CA5EAAFC5D49949
+magnet:?xt=urn:btih:240EBDFC2E2C4821388B7691B7755C3D056C5AB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,25 +672,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127906   (730078) от 23.04.2017
+###  Публикация: 1399684   (732948) от 01.08.2020
 
-Журнал | Домашние цветы №2 (113) (февраль 2017) [PDF]
+Формула 1. Сезон 2020. Этап 4. Гран-при Великобритании. Квалификация (01.08.2020) HDTV [H.264/1080i-LQ]
 
->>Журналы
->>Домоводство (журналы)
+>>Спорт и активный отдых
+>>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для настоящих любителей комнатных цветов. На страницах издания вы узнаете как добиться более быстрого и пышного цветения, защитить любимые растения от болезней и вредителей, размножить наиболее простым и эффективным способом. Своим личным опытом выращивания и ухода за цветами делятся цветоводы-любители и профессионалы — кандидаты и доктора биологических наук.Жанр: ЦветоводствоФормат: PDF
+Гран-при Великобритании. Квалификация
+Арена: Автодром Сильверстоун (Сильверстоун, Великобритания)
+01 августа 2020 года, пятница. 16:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:06:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2B9BC32F252BB86DE7B8A527A7F2885ED6354D5
+magnet:?xt=urn:btih:FDBD7DB1B9EB881C596F6E96ECB53F56AF5CE9F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,243 +700,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128160   (730077) от 23.04.2017
+###  Публикация: 1399335   (732947) от 01.08.2020
 
-VA - Big House Beats - Audio Luxury Remixes (2017) [MP3|320 Kbps] <Deep House>
+Black Veil Brides - Re-Stitch These Wounds (2020) [MP3|320 Kbps] <Hard Rock>
 
->>Electronic
->>House
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deeppirate feat. Vilia - Love (Audio Luxury Remix) 05:40
-02. Stereopie - L.U. (Audio Luxury Remix) 06:14
-03. Anturage feat. Leusin - Moth (Audio Luxury Remix) 06:52
-04. Sergey Silvertone - On This World (Audio Luxury Remix) 07:36(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E69C63B38DB2E0E60FB372D9A5E83D9FD08693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127665   (730076) от 23.04.2017
-
-Ученые создали надежные полупроводниковые источники абсолютно идентичных единичных "квантовых" фотонов
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одним из элементов будущих квантовых компьютеров являются матрицы надежных источников единичных фотонов, при помощи которыми кодируется передаваемая и обрабатываемая информация. Большинство ученых считают квантовые точки различных типов идеальными кандидатами на "должность" таких источников. Однако исследователи из университета Цукубы (University of Tsukuba), (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128024   (730075) от 23.04.2017
-
-Газета | Наша Дача №1 (630) (2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730075.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Наша Дача» - газета является официальным печатным Союза садоводов России. Газета затрагивает все области, так или иначе связанные с садоводством, огородничеством, ландшафтным дизайном и здоровьем человека. Постоянные рубрики издания: Дачные советы, Огород без хлопот, Цветы у дома, Наш сад, Домашнему мастеру, Домашние питомцы, Здоровье дачника, Кулинарные шедевры, (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21D59A18266C997DCEEE9E47CF4727ACDE7E184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128103   (730074) от 23.04.2017
-
-Танцуют все! (2017.04.23) SATRip (сезон 1, выпуск 6)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730074.jpg" />
-</div>
-
-
-###  Подробнее
-
-На телеканале "Россия" стартует новый суперпроект "Танцуют все!"
-Лучшие танцевальные коллективы со всей страны начинают танцевальный марафон. Они выйдут на сцену, чтобы удивить и поразить зрителей и доказать всей стране, что они настоящие профессионалы! Мы увидим танцы, которые волнуют весь мир, танцы, которые хотят танцевать все!
-Каждую неделю (   Читать дальше...   )Телекомпания: РоссияЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84314740029B80B125F9668E2E4B7704AD15BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127908   (730073) от 23.04.2017
-
-Журнал | Домашние цветы №3 (114) (март 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для настоящих любителей комнатных цветов. На страницах издания вы узнаете как добиться более быстрого и пышного цветения, защитить любимые растения от болезней и вредителей, размножить наиболее простым и эффективным способом. Своим личным опытом выращивания и ухода за цветами делятся цветоводы-любители и профессионалы — кандидаты и доктора биологических наук.Жанр: ЦветоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37ADB4A448B3ECE36F8DB6E7BFE95B24908C9DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127897   (730072) от 23.04.2017
-
-Labyrinth - Architecture Of A God (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот прогрессив-пауэр-металлический проект горячие итальянские парни основали в 1991 году. Как водится, поначалу это была обычная гаражная банда, пытавшаяся играть андеграундный металл. Спустя несколько лет чуваки поднабрались опыта и музыкального мастерства и в 1994 году записали свою первую демку "Midnight Resistance". Эта работа получила хорошие отклики (   Читать дальше...   )01. Bullets (6:56)
-02. Still Alive (4:49)
-03. Take On My Legacy (4:05)
-04. A New Dream (5:23)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0615A8A29FD86C1F816FAC70F89489600C4C30DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127912   (730071) от 23.04.2017
-
-VA - Illusions Of Dreams: Relax Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. St Project - Have You Seen the Sea
-002. Jason Baldwin - Block Mobile
-003. Harmony Nature Sounds Academy - Healing Water Energy
-004. George Jeffrey - Forever Yours(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F41B6FDD95947B8202FE0B0C21312D51B4EF47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128063   (730070) от 23.04.2017
-
-Richie Kotzen - Wave Of Emotion (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Affair (3:14)
-02. Wave Of Emotion (3:02)
-03. Stoned (3:41)
-04. Degeneration (4:34)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, FusionПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714DB9C619172225FA4732D5CCB6C19FD74D5A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127666   (730069) от 23.04.2017
-
-Инфракрасный инструмент, созданный для самого большого в мире "солнечного" телескопа, "увидел" свои первые лучи света
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730069.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время в районе Халеакала, Мауи, Гавайи, ведется строительство нового "солнечного" телескопа Daniel K. Inouye Solar Telescope (DKIST), который, согласно планам, начнет работать в 2020 году. Основой этого телескопа станут два сложных и чувствительных инфракрасных инструмента, разработанные и изготовленные специалистами Института астрономии Гавайского (   Читать дальше...   )
+01. The Outcasts (Reborn) (00:31)
+ 02. We Stitch These Wounds (03:59)
+ 03. Beautiful Remains (04:14)
+ 04. Children Surrender (03:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:44
 
 ## Скачать торент
 ```bash

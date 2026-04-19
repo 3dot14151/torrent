@@ -1,3 +1,250 @@
+###  Публикация: 386720   (469420) от 12.09.2011
+
+Avril Lavigne - Wish You Were Here (2011) HDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469420.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Wish You Were Here» — третий сингл с четвертого альбома Аврил Лавин Goodbye Lullaby. Впервые о песне как о сингле упоминалось в телефонном интервью, когда Аврил находилась в Германии на ежегодной выставке-показе «The Bread & Butter Surepshow».Жанр: ВИДЕОКЛИПРежиссер: Марк УэббАктеры: Avril LavigneПродолжительность: 00:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B771C69AEB95AFCC549FC08C2956D446281469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 702256   (467982) от 22.09.2013
+
+Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UFO - Boogie
+02. The Move -When Alice Comes Back To The Farm
+03. Emerson, Lake & Palmer - Take A Pebble
+04. Emerson, Lake & Palmer- Knife Edge(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53D3226700106C02CAFF6960AE690A0C833CD52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 702720   (467961) от 22.09.2013
+
+Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curved Air - It Happened Today
+02. Soft Machine - Composition Based On Three Tunes
+03. Curved Air - Vivaldi
+04. Yes - I've Seen Good People ( Part 2: All Good People )(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FC468F4A1718F52E61081731EFB6FA4FAC9406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548590   (467683) от 18.09.2012
+
+Secret - Poison (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5B27756C5716CCD2675A95E804DDDA3FBDDBBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548587   (467674) от 18.09.2012
+
+MC Yankoo feat. SHA - Afterparty (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEB27F771F800363F459902DB3342CCFB8988ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548586   (467209) от 18.09.2012
+
+DJ King Serenity feat. Boonty Rayne Swagger - Body Dance (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B76D6B9B20CA9DB56CCAC6D17EA8A94ABD1F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703041   (465825) от 23.09.2013
+
+Beat Club - Progressive Times - Vol 6. 1971-72 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucifer's Friend - Ride The Sky
+02. Warhorse - Ritual
+03. Frumpy - Take Care Of Illusion
+04. Fleetwood Mac - Dragonfly(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452DD195556A2771DC78517003453EE898A801CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940046   (464299) от 26.09.2015
+
+VA - Осенний марафон № 193 / Видеоклипы (Презент Русских Новинок) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (23.09.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. Emin - Забыть тебя (ПРЕМЬЕРА!) (00:04:37)
+2. Laura Grig - Про любовь (ПРЕМЬЕРА!) (00:03:46)
+3. Stacy - Не делай мне больно (ПРЕМЬЕРА!) (00:03:35)
+4. Ustinova - Когда мы уйдём (ПРЕМЬЕРА!) (00:03:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA098C31EEF857B7917C768FDB9F6A760C2CE4EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703115   (462962) от 24.09.2013
+
+Ляпис Трубецкой - Месяц (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462962.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 сентября на сайте журнала Rolling Stone состоялась премьера клипа группы «Ляпис Трубецкой» под названием «Месяц». Одноименная песня войдет в первый белорусскоязычный альбом «Ляписов» «Грай», который будет презентован 30 ноября большим сольным концертом в Вильнюсе.
+«Месяц» – это очередная работа украинского клипмейкера Александра Стеколенко, который плотно сотрудничает (   Читать дальше...   )Жанр: RockПродолжительность: 00:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BA6C9260470EBD7D833723303D67F59D689665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941426   (462055) от 27.09.2015
 
 VA - Осенний марафон № 194 / Видеоклипы (Зарубежный Коктейль Танцевальных Новинок) (2015) WEBRip [H.264/1080p-LQ]
@@ -454,258 +701,6 @@ ForeverЖанр: Музыкальное видео, клипыПродолжит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:306E5501764217F58C6D943866D58D2EFD984FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321667   (456447) от 25.08.2019
-
-Сборник клипов - Golden Hits 90s Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456447.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые и фишкастые клипы лихих 90х. Ремастеринг видео и звука. Это 1я часть. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Golden Hits 90s - Intro
-01. La Bouche - Be My Lover
-02. Backstreet Boys - Everybody
-03. Haddaway - Who Do You Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC64B7979DA0FC84CB11D2A8BCAD4E57EE403C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694859   (456154) от 27.09.2013
-
-LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маргарэт Лиэнн Раймс (Margaret LeAnn Rimes, род. 28 августа 1982 года) — американская исполнительница в стиле кантри, которая известна тем, что начала серьёзную музыкальную карьеру уже в 11 лет, а в 14 лет выиграла свою первую «Грэмми».
-Трек - (Не Можешь Биться с Лунным светом), саунтрек к фильму «Бар „Гадкий койот“»Жанр: PopПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA435889FAD4151E93E3021B9E4469BAB16A2B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389049   (456112) от 18.09.2011
-
-ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456112.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Could you believe” — отражает нынешнее состояние музыканта, чувства, стиль. Прошлогодняя пластинка была наполнена легкой печалью с грусть, в этом году атмосфера сместилась в сторону летнего хауса, который напоминает большую сладкую вату розового цвета, также свой отпечаток оставляет слащавый голосок. Андре всего умел красиво обработать вокал: агрессивно, эротично, (   Читать дальше...   )Производство: Kontor Records (Германия)Жанр: TranceПродолжительность: 00:03:40 (Official Video HQ) / 00:05:17 (Live @ Club Rain Palms - Las Vegas)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF885A3CD5FB8E4C75993E8697CA519642B67925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550793   (455017) от 23.09.2012
-
-Слэйд / Slade The Complete Video Collection (1971-1982) (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455017.jpg" />
-</div>
-
-
-###  Подробнее
-
-На данной видео коллекции  Slade - редкие видео выступлений группы в телевизионных передачах 70-х годов:
-  - Beat-Club
-  - Musikladen
-  - Disco
-  - Top Of The Pops
-(в хорошем качестве VH1)Slade 71-82
-
-1. Get Down And Get With It (promo) (1971)
-2. Coz I Luv You (Top Of The Pops, 1971)
-3. Hear Me Calling (Beat-Club, 28.11.71)
-4. Look Wot You Dun (promo) (1972)
-5. Mama Weer All Crazee Now (Disco, 09.12.72)
-6. Gudbye T’Jane (TOPPOP, 1972)
-7. Bangin’ Man (Disco, 26.10.74)
-8. Far Far Away (Disco, 01.02.75)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Classic RockПеревод: ОтсутствуетПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B39CC89DA6E7313C75344D858BC74FF972EA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389409   (453773) от 19.09.2011
-
-Миша Маваши - Среди высоток и аллей (2011) [720p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаРежиссер: Миша МавашиПродолжительность: 00:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B33EAB2A34808E042CD1A6040C428671E1BE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389423   (453750) от 19.09.2011
-
-Миша Маваши - Помнить должен (2011) [720p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаРежиссер: Миша МавашиАктеры: Миша МавашиПродолжительность: 00:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0001AE56E6F55B2FD71870EEA9D2247AB3921D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551393   (453457) от 24.09.2012
-
-Galena ft Costi - Chik Chik (Mnogo mi otivash) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D736EF05D0FA48817BF1443B358D8F602FF5644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551385   (453324) от 24.09.2012
-
-Diplo & Datsik feat. Kay - Pick Your Poison (2011) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DubStepПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB504065C09E284A569DEB9588DC5E1893F3536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551388   (453319) от 24.09.2012
-
-Chelsea Bishop - Bad Things (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9FD177EE015E37D8B471FF1BA7C4CD3C54056F
 ```
 
 https://mybot314.ru/tekegram_catalog/

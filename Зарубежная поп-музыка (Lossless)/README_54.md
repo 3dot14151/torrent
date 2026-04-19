@@ -1,3 +1,90 @@
+###  Публикация: 1159619   (484042) от 20.08.2017
+
+The Jungle Giants - Quiet Ferocity (2017) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Your Way Down
+02. Feel the Way I Do
+03. Bad Dream
+04. Used to Be in Love(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F00EA3E2AFB526496D9EE2E3CA176FDFCA988F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055792   (483883) от 24.09.2016
+
+Tom Jones - The Golden Hits (1970) Reissue, 1986, London [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green, Green Grass Of Home
+02. I'm Coming Home
+03. (It Looks Like) I'll Never Fall In Love Again
+04. Not Responsible(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18F66332B9B4F23CCECB2B1C62E317773378C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 821452   (483415) от 16.09.2014
+
+VA - 101 Love Songs: The Greatest Love Songs of all Time (2003) [FLAC|Lossless]<Pop, Rock, Classical , Soul, Funk, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Percy Sledge - When A Man Loves A Woman [02:56]
+02. Ben E King - Stand By Me [02:54]
+03. Phyllis Nelson - Move Closer [04:12]
+04. Al Gree - Let's Stay Together [03:16](   Читать дальше...   )Жанр: Pop, Rock, Classical , Soul, Funk, Jazz |Продолжительность: 05:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B028E75E0EF1FDFEFE3C8EE70B1574067DBE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566453   (482335) от 29.07.2022
 
 Bananarama - Masquerade (2022) [FLAC|Lossless|image + .cue] <Dance-pop, Synth-pop>
@@ -677,95 +764,6 @@ Citizen King - Mobile Estates (1999) [FLAC|Lossless|tracks + .cue] <Hip Hop, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A25CB6748C37039DB1F732E123CBC6B1B60F1D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161225   (469657) от 27.08.2017
-
-VA - Love Songs (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Vogue - Don't Let Go (Love) (4:52)
-02. INXS - Never Tear Us Apart (3:06)
-03. Donna Lewis - I Love You Always Forever (4:00)
-04. a-ha - This Alone Is Love (Remastered 2015) (5:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FDDD23C8A96CAACBC572B65979A46FCF128B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547786   (469551) от 17.09.2012
-
-Carly Rae Jepsen - Curiosity (EP) (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469551.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Call Me Maybe [03:14]
-2. Curiosity [03:26]
-3. Picture [03:04]
-4. Talk To Me [02:52]
-5. Just A Step Away [03:47]
-6. Both Sides Now [03:52]Жанр: PopПродолжительность: 00:20:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245848   (467880) от 08.09.2018
-
-MAGIC! - Expectations (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expectations (02:49)
-02. Core (03:35)
-03. More of You (03:54)
-04. Kiss Me (03:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F3368225ED69453D2CC8A212BFDA20C8778275
 ```
 
 https://mybot314.ru/tekegram_catalog/

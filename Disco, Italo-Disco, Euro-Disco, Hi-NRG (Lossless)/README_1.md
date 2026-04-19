@@ -1,3 +1,148 @@
+###  Публикация: 1452346   (1027719) от 06.03.2021
+
+Genghis Khan - Here We Go (2021) Japan Edition [FLAC|Lossless|image + .cue] <Disco, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Strassen Von Paris [00:04:37]
+02. Moskau [00:04:28]
+03. Afrika [00:03:25]
+04. Istanbul [00:03:49](   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C697D691E26D61135D08ED6DB3C1208B61BE062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453041   (1027228) от 09.03.2021
+
+Aleph - Little Wonder (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire on the Moon (Under the Moon Version) (5:30)
+02. I'm on Fire (Grand Mix Extended Version) (4:45)
+03. Must Be Love (3:50)
+04. Fly to Me (5:28)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492A85AC1BD4D312049A0C9AD435AC565961660C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453040   (1027220) от 09.03.2021
+
+Aleph - Black Out (1988) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Brother (Extended Mix) (6:39)
+02. Fly to Me (D.J. Version) (7:15)
+03. Check It Up (Re-Edit) (6:54)
+04. Just for Love (12'' Version) (6:12)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 02:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B403654C0953B9FA00588E3DC1CD1E5B73B72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453035   (1027218) от 09.03.2021
+
+Amadeus Liszt - La Donna (Original Mike Mareen Master Tape Series) (2019) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Donna (Crazy Disco Version) (6:26)
+02. La Donna (4:46)
+03. Only Time (4:08)
+04. La Donna (Playback with Jingles) (4:46)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91BB36A08ADC84D391BCFE8C91936FD4BFE0850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453033   (1027212) от 09.03.2021
+
+Amadeus Liszt - Win the Race (1987) Singles Collection [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Win the Race (4:05)
+02. La Donna (4:49)
+03. The Devil Wins (3:06)
+04. Sprint (2:25)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987F4D2433E2ABE46109D5F41D1D0DB16D958C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453450   (1026926) от 11.03.2021
 
 Michael Bedford - When Angels Talk (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco>
@@ -598,151 +743,6 @@ VA - Disco 80's Maxi Club Hits, Vol.2 (Remixes & Rarities) (2012) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5409777243F9CEB44467F94AAFD0A42377C0023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466342   (1018554) от 29.04.2021
-
-VA - Disco 80's Maxi Club Hits, Vol.1 (Remixes & Rarities) (2011) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albert One - Heart On Fire (Special Maxi Mix) (5:34)
-02. Baltimora - Living in the Background (Maxi Mix) (6:06)
-03. David Lyme - You Are My Desire (Maxi Mix) (5:57)
-04. Den Harrow - You Have a Way (Maxi Mix) (5:52)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CE55083CD51F4F613F2C772A0A07A955F44EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466503   (1018424) от 30.04.2021
-
-Modern Boots - Tell Me the Reason (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me the Reason You Said Goodbye (Extended Vocal Fantasy Mix) 6:19
-02. A Lonely Romance 6:22
-03. Boulevard of My Dreams (Extended Vocal Fantasy Mix) 7:42
-04. Tears of a Broken Heart (Extended Vocal Fantasy Mix) 5:37(   Читать дальше...   )Жанр: Italo-Disco, Synth-PopПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27F988110CAA8F55290F511269C34225254BE01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466537   (1018421) от 30.04.2021
-
-Nayio Bitz - Selections, Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Disco, Italodisco, Synthwave>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be 4:10
-02. Another You 5:24
-03. Oh My 3:46
-04. Sensational Love 3:46(   Читать дальше...   )Жанр: Electronic, Nu Disco, Italodisco, SynthwaveПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83660E038B316DCA0CD60762C1BCA7CDC73180F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466581   (1018395) от 30.04.2021
-
-Cliff Turner - Moonlight Affair (1986) 2020, United Music Group [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Affair 03:21
-02. Your Love 03:25
-03. A New Way's Born 03:23
-04. Moonlight Affair (Extended Version) 06:12(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 00:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEA5EDC1B515E6629FA001C97ED951FDD0D7C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466998   (1018038) от 02.05.2021
-
-Adriano Celentano - Uh... Uh... (1982) Reissue, 1995, CLAN [FLAC|Lossless|image + .cue] <Disco, Pop, Soundtrack>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giornata nein (04:56)
-02. Niente di nuovo (05:01)
-03. Conto su di te (04:20)
-04. Solo (04:41)(   Читать дальше...   )Жанр: Disco, Pop, SoundtrackПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F453DA0799ADC212C63AC210DF16C17884F9E22
 ```
 
 https://mybot314.ru/tekegram_catalog/

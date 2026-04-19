@@ -1,3 +1,29 @@
+###  Публикация: 1221624   (693081) от 25.04.2018
+
+Текстуры - Texturemate - Rusty Metal 1 Free Texture Pack [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_693081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры.Формат: JPGРазрешение файлов: 3888 x 2592
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEB8252260AC44C37CF3525BB11E41935AC1551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221541   (692981) от 25.04.2018
 
 Текстуры - NNM-Club - Free Various Textures Pack By D. Astakhov-1 - 9613165 [JPG]
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC3506BF9F9771F5D2CB3C43C045C4E2DA5891B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222322   (687478) от 28.04.2018
-
-Текстуры - GraphicBurger - 7 Glitter Textures Vol.1 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные блестящие текстуры с официальной документацией.Формат: JPGРазрешение файлов: 4299 x 3565
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCEC6DD98F80E87EB7288DED89318DED1F8A252
 ```
 
 https://mybot314.ru/tekegram_catalog/

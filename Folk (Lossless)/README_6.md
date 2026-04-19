@@ -1,3 +1,32 @@
+###  Публикация: 1295503   (618797) от 13.04.2019
+
+Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lincoln (3:09)
+02. Newspaper Gown (2:55)
+03. Oh Weather (1:07)
+04. South (3:07)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AA095DF27E681AB80057114E48DB4F93C6F1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295528   (618606) от 13.04.2019
 
 Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydeco, Cajun, Folk>
@@ -722,35 +751,6 @@ Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F245505D8414AC36A474C1CF781DED451C3599C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305571   (556142) от 01.06.2019
-
-Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Silver Lining  (3:51)
-02 - My House  (2:42)
-03 - Merry Go 'Round  (3:29)
-04 - Dandelion  (3:04)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58ED960956602402404E7D8F13AC34CD57599F15
 ```
 
 https://mybot314.ru/tekegram_catalog/

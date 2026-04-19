@@ -1,3 +1,61 @@
+###  Публикация: 1599573   (159637) от 24.12.2022
+
+VA - Nu-Disco & Re-Edits Vol.1 (2022) [MP3|320 Kbps] <Deep Disco, Funky, Soulful, Nu Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chewy Rubs - Strange Love
+02. Chewy Rubs - The Game
+03. Chuggin Edits - I Get Satisfied
+04. Chewy Rubs - Garage Disco (Chewy Rubs Dub)(   Читать дальше...   )Жанр: Deep Disco, Funky, Soulful, Nu DiscoПродолжительность: 03:58:09 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CAB046A74402C296E576E3414426FCB1C1341A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600374   (157618) от 27.12.2022
+
+VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glz, Venessa Jackson - The Night (03:26)
+02. Cocolorez - Supersized (Souxsoul Refix Mix) (06:45)
+03. Vyktor Nova - Funked (06:05)
+04. Jerem A - Let's Work It Out (06:00)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2DDAC22F090F88A5BDD29B2931BD751F3A5FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085603   (156334) от 22.12.2016
 
 VA - ZYX Italo Disco New Generation Bootmix 1-4 (2013-2016) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
@@ -687,64 +745,6 @@ VA - Planet Italo Disco Vol. 7 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:759542577262C161A442436FDC7FDD11401909F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195811   (138838) от 31.12.2017
-
-VA - Cafe Puls Italo Hits '17 (2017) [MP3|320 Kbps] <Italo Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francesco Gabbani - Occidentali's Karma (Radio Edit) 3:32
-02. Umberto Tozzi - Gloria 4:16
-03. Al Bano - Felicita 3:04
-04. Ricchi e Poveri - Mamma Maria 2:47(   Читать дальше...   )Жанр: Italo Disco, PopПродолжительность: 02:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3BD88DB2369ABD79458AD1EE57424DA0C1EC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195734   (138799) от 31.12.2017
-
-VA - I Love Tocata 80's (2012) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138799.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Atlanta  -  Romantic Break  5:06
-02.  Modern Talking  -  You're My Heart, You're My Soul  5:33
-03.  Spagna  -  Easy Lady  6:53(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5071C46F7AE81317BE93C05A4F28FE02EEF132EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

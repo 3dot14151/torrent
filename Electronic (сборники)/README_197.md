@@ -1,3 +1,177 @@
+###  Публикация: 1827473   (188098) от 21.10.2025
+
+VA - Deep House Female Vocal 2 (2025) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188098.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Costa Mee - Deep Inside My Mind (7:50)
+002. Costa Mee, Pete Bellis & Tommy - Left Me In The Rain (5:45)
+003. Stoto - Better Off Alone (5:30)
+004. Costa Mee, Nikko Culture - Around This World (Nikko Culture Remix] (5:25)(   Читать дальше...   )Жанр: HouseПродолжительность: 06:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3B354A872BED984B66FE17417A4FC0C3344292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590753   (187704) от 16.11.2022
+
+George Kopaliani - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So This is Love
+02. In a Heavy Body (Original Mix)
+03. Sunset
+04. Distant(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 03:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E55DD16F667FB72CCCC47DDAAF5D512695C8A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592061   (185167) от 20.11.2022
+
+VA - DOWN LOW 2 (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gandolfi B. - Fucking Party (Original Mix) (5:34)
+02. Gareth Emery feat. Dani Poppitt - Friendly Fires (4:52)
+03. Johny Dark - People Like This (4:50)
+04. Нагора, Железный Акцент - Я вернусь (4:46)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 02:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED7D81714C6767CD12E9048C88B2C6AFA164577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591948   (185136) от 20.11.2022
+
+Korg S - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Highways
+02. Caprice 18
+03. Close Only
+04. Your Magic(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 05:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773E570056950396141C78797FC0E36386D5AB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592066   (185126) от 20.11.2022
+
+Modern Martina - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Improvisation
+02. Where Have You Been
+03. Tonight
+04. Not Together(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBCD3731942F7AAE95F1C76CDCB6549705C9F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663084   (184642) от 27.09.2023
+
+VA - Ambient Ethereal Dreams (2023) [MP3|320 Kbps] <Ambient, Downtempo, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Days - Close The Windows [03:13]
+02. Hollie Kenniff - Carve The Ruins [03:49]
+03. Kjaerleik - Forgotten Youth [02:29]
+04. Helen Money - Abandon [02:42](   Читать дальше...   )Жанр: Ambient, Downtempo, RelaxПродолжительность: 05:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11876EDF5AA56B9740E9526D2FE240C3463C7C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427000   (184454) от 27.11.2020
 
 VA - Tech House Electro Music Fest (2020) [MP3|320 Kbps] <EDM, Techno, Tech House>
@@ -571,180 +745,6 @@ VA - Beatport Deep House: Electro Sound Pack #206 (2020) [MP3|320 Kbps] <Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E05529CF01B33D7666488F97014639EBEF29BC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429850   (175145) от 08.12.2020
-
-VA - Sound Times: Advanced Club House (2020) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оптимистичные релизы электронной танцевальной музыки в сборнике"Sound Times: Advanced Club House" поджидают Вас с нетерпением. Запоминающиеся мотивы, широкое разнообразие вокального сопровождения, глубокий и выверенный инструментал делает  музыку сборника выделяющейся среди тысячи иных схожих релизов.001. Xanti - Namek (Original Mix)
-002. Double Vision It - Bomber (Original Mix)
-003. Kirill Slephua - Alienz Attack
-004. Moiez Ft Larcy - Illusions (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8A3243A8206050F4B6470BF103C533F06F65B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595601   (174931) от 06.12.2022
-
-VA - Christmas Dance Party 2022-2023 (2022) [MP3|320 Kbps] <House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geo Da Silva & Stephan F - Bam Bam Boogie (Extended Mix) (3:35)
-02. Turbotronic - Be My Lover (Extended Mix) (4:09)
-03. FLGTT - I Like To Move It (Extended Mix) (3:47)
-04. Stephan F & Tony T - The Power (Extended Mix) (3:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC4244AF1E2431E1B2F37DDD68757ACDD9766F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430145   (174504) от 09.12.2020
-
-VA - Beatport Clubbing House: Electro Sound Pack #207 (2020) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вам по вкусу качественная электронная музыка, что будет радовать вас где угодно и когда угодно, то лучше что сможем, это порекомендовать вам новый 207-й танцевальный микс от небезызвестного Beatport. Мелодии сборника звучат крайне современно и приятно, в связи с чем он должен быть интересным немалому количеству почитателей танцевальной музыки.001. Stashion - This In The House
-002. Maxx Play - Pop Those Bottles
-003. Grenno - In The Air
-004. Dj Msoja Sa - Helicopter(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE68E4A7DD7F682E9DBCCD261350F56E25E35C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596107   (173924) от 08.12.2022
-
-VA - Paradigm House Sound (2022) [MP3|320 Kbps] <Electronica, Progressive, Tech House, Deep Groove>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ollie S. - Hidden Heat (So.undso Remix)
-02. Phaze Dee - Make out Love (Original Mix)
-03. Rasmus Vels - Pragma (Extended Mix)
-04. Ressonant - Resonant Red Skywalker (Original Mix)(   Читать дальше...   )Жанр: Electronica, Progressive, Tech House, Deep GrooveПродолжительность: 06:12:13 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872BB9553A017F49CBF49FD99FABD86FEE6AEADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967173   (173822) от 20.12.2015
-
-VA - Music For Everyone - Club House Vol.4 (2015) [MP3|320 кб/с] <House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173822.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beltek - Bora Bora (Seaside Edit)
-2. Eche Palante - Your Love Is (Original Mix)
-3. MYNC & Mario Fischetti feat. Deborah Cox - Everywhere (Panda Remix)
-4. Jay Vegas - Say To Ya (Tommy Vercetti Remix)(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 01:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F080E2DBA375648C198EC73989D9868FC9ABBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193881   (173732) от 23.12.2017
-
-VA - NME House Mix: Progressive Edition (2017) [MP3|320 Kbps] <Electro, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173732.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Goraieb - Ayer Se Fue
-002. Da Angerboyz - Infinity
-003. Lank - Something Is Missing
-004. Daniel Dale - CT (Radio Edit)(   Читать дальше...   )Жанр: Electro, Progressive HouseПродолжительность: 11:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDE416A024BEA80363ABEB90AA916DA9AAB3F94
 ```
 
 https://mybot314.ru/tekegram_catalog/

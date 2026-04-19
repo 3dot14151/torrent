@@ -1,3 +1,189 @@
+###  Публикация: 518974   (639111) от 05.07.2012
+
+Sex And The City 2 / Секс в большом городе 2 (2010) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639111.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alicia Keys - Rapture (4:47)
+ 2. Dido - Everything to Lose (4:28)
+ 3. Cee Lo - Language of Love (3:59)
+ 4. Erykah Badu - Window Seat (4:50)
+ 5. Natacha Atlas - Kidda (4:56)
+ 6. Michael McGregor - Euphrates Dream (3:37)
+ 7. Liza Minnelli - Single Ladies (Put A Ring On It) (3:13)
+ 8. Ricki-Lee - Canґt Touch It (2:51)
+ 9. Alicia Keys - Empire State of Mind (Part II) Broken Down (3:33)
+ 10. Jennifer Hudson and Leona Lewis - Love Is Your Color (3:41)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BDA098700CE7F2767FB8EDCA7F01A687DBD074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143016   (639074) от 16.06.2017
+
+Wuauquikuna - The Best of Wuauquikuna (2016) [MP3|320 Kbps] <Native American, Chillout, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way of life (04:47)
+02. Amanecer (06:05)
+03. The last Inka Warriors "Siwar" (04:35)
+04. Sayri Nan (06:25)(   Читать дальше...   )Жанр: Native American, Chillout, WorldПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB91942AB1CE51F11002FD64C024F9DF75D35C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519180   (639003) от 05.07.2012
+
+V.A. - Pedro Del Mar - The Perfect Lounge Collection (3CD) (2012) [FLAC|Lossless]<Chillout, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639003.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:19:19
+
+01. Pedro Del Mar - Playa Del Lounge (intro mix)
+02. Pedro Del Mar & Blue Tente - You Left (Alexei Zakharov Ambient mix)
+03. The Movement - Rainmaker (Chillout mix)
+04. System F - Exhale (Tim Besamusca's Lounge mix)
+05. Steve Forte Rio - Blossom (Lounge mix)
+06. Hysteria - Talking Eyes (Chillout mix)
+07. Eximinds - I Feel You (Chillout mix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 03:55:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033373   (638229) от 11.07.2016
+
+Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638229.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Au Dessous Des Nuages 10:47
+2. Brooklyn 5:19
+3. Movements In Love 8:20
+4. Futura 5:03(   Читать дальше...   )Жанр: Trance, AmbientПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFFD21C3E67A247C59DD83F517F9AABF5753F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033451   (638046) от 11.07.2016
+
+A.R. Rahman - Best Of A.R. Rahman - Nadaan Parindey (2013) [MP3|320 Kbps] <Bollywood>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pappu Can't Dance.mp3
+02 - Saadda Haq.mp3
+03 - Kaise Mujhe.mp3
+04 - Nadaan Parindey.mp3(   Читать дальше...   )Жанр: BollywoodПродолжительность: 01:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBD87C09BBA9A46979E038290F3F4E933A9E702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033381   (637942) от 11.07.2016
+
+Angus & Julia Stone - Angus & Julia Stone (2014) Deluxe Edition [FLAC|Lossless|tracks] <Indie Pop, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A Heartbreak    04:16
+02.  My Word For It    04:08
+03.  Grizzly Bear    04:08
+04.  Heart Beats Slow    04:35(   Читать дальше...   )Жанр: Indie Pop, FolkПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AAC67873E89BCB55E9ADF857842D88669BAB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033573   (637776) от 11.07.2016
 
 ДиДюЛя - Grand Collection (2006) [FLAC|Lossless|image + .cue] <Pop,Instrumental>
@@ -615,192 +801,6 @@ VA - Four Guitars (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Easy Listening
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAD7137FC45F95A5DA08DBEDC0284722F958E95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519849   (635344) от 07.07.2012
-
-VA - Песни кубанских казаков (2002) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635344.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Из-под течушки. (4:28)
- 2. Ой, в 877 году. (1:52)
- 3. Генерал наш, генерал Кавказский. (2:11)
- 4. У нашего барина. (1:08)
- 5. Вспомним, храбрые кубанцы. (2:51)
- 6. Да кукушечка, моя душечка. (2:08)
- 7. Казаки, казаки. (1:34)
- 8. За Кавказом огни горят. (1:32)
- 9. Из-за леса, леса копий и мечей. (5:26)
- 10. Васенька мой. (3:13)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE56372EC0E20BA4E7CE15ED1C9920003A926F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519981   (635203) от 07.07.2012
-
-VA - Cossacks-Songs and dances of the Don and Cuban Cossacks / Казаки-песни и танцы Донских и Кубанских казаков - 3 Альбома (2008) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635203.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Vocal ensemble from Leningradskaya stanitsa - Zazhurilis chernomortsy (5:55)
- 2. Bayda (4:45)
- 3. A vzhe lit bilsh dvesti (3:57)
- 4. Vy, kubantsy, brattsy-molodtsy (2:49)
- 5. I ne pyut, ne yedyat koni voronye (3:23)
- 6. Zelyonoe zhito, zelene (3:07)
- 7. Cholovik propiv indika (1:49)
- 8. Stradaniya (0:33)
- 9. Korobeyniki (1:14)
- 10. Vocal ensemble from Chelbasskaya stanitsa - Oy, vechora - izvechora (3:49)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFB6CB16596B59B0B7E3C1DFE2D6B39418F890E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033914   (634360) от 13.07.2016
-
-Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image + .cue] <New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Will I Be Faithful? (radio edit)    04:06
-02.  Will I Be Faithful? (forever mix)    04:36
-03.  Will I Be Faithful? (heaven cut)    04:37
-04.  Jonas Song    05:16Жанр: New age, EnigmaticПродолжительность: 00:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531B21B12BADD057382F81A92BC70EDDF9928E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033884   (634311) от 13.07.2016
-
-The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock, Power Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's All In The Head
-02. Just Another Party
-03. Never Take You For Granted
-04. Waiting On The Other Side(   Читать дальше...   )Жанр: Rock, Garage Rock, Power PopПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C989504E5E651A18AABC4B06B130D17AC15DCDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034422   (634309) от 13.07.2016
-
-VA - Legends (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medwyn Goodall - The Legend
-02. Wychazel - Druid's Grove
-03. Medwyn Goodall - The Lands Beyond
-04. Jon Richards - The Triple Goddess(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945A468B1B63DA098F36D1740E4352A96903692C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033878   (634299) от 13.07.2016
-
-Bluchel & Von Deylen - Bi Polar (2004) [FLAC|Lossless|image + .cue]<Electronic, Ambient, Trance>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634299.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gymnopedie No.1 6:11
-2. Etoile Polaire 7:08
-3. Budapest - Bukarest 6:18
-4. Summertime 7:20(   Читать дальше...   )Жанр: Electronic, Ambient, TranceПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AF21B29C1AABADA4D1B6E009193ADBFD67BEF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

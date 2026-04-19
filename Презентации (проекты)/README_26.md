@@ -1,3 +1,107 @@
+###  Публикация: 1028285   (690255) от 22.06.2016
+
+Проекты - VideoHive - Modern Promo - Fashion Opener - 15238886 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Modern Promo - Fashion Opener - современный промо-ролик. Идеально подходит для любого слайд-шоу, а также любого специального мероприятия.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF562A29222FE93CDD40CA364041B6EAC4E10042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134434   (688659) от 15.05.2017
+
+Проекты - VideoHive - Realtor Pro - Real Estate Slideshow - 19841256 [AEP]
+
+>>След.
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Realtor Pro - Real Estate Slideshow - проект для демонстрации и рекламы недвижимости. Будь то отели, гостиницы, кемпинги. Так же отлично подойдет для продажи жилых и не жилых помещений, квартир, домов и пр.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D94F5C907EBC753128B1406DA97CFCA7681F918D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028641   (688402) от 23.06.2016
+
+Проекты - VideoHive - Broadcast Slider [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broadcast Slider - профессиональный пакет для стилизации телепередач.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA151B98269C9CAED1B0B2DE6C843723190DC957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 675278   (688251) от 02.07.2013
+
+Проекты - VideoHive - Paper Cut Out Promo [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для презентации вашего продукта, услуг, приложений и многое другое.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306B89E549ED0B3BDB6F65BF86C4B7D16F3C4A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028595   (688245) от 23.06.2016
 
 Проекты - VideoHive - Sketch Billboard [AEP]
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE8A67192B252C51BC7ED5B1080CC2193E1ED82E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796933   (679472) от 17.06.2014
-
-VideoHive - The Story of a Lifetime - 237806 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679472.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: Этот проект является очень гибким и может быть использован для любой презентацииФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F82EB08D49683E193A5CB558A924D836C607791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797324   (677413) от 18.06.2014
-
-VideoHive - The Astounding Show - 4807161 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677413.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: Шаблон для After Effects CS 5.0 и выше. Full HD динамичный и современный стиль презентации для 16 фото или видео и 35 текстов и длительностью 1 минута. Отлично подходит для как фото/видео галереи, портфолио, фотографов .... и много других потенциальных применений. 5 предустановок цветовой коррекции.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF890E3C1DF29E389D6292B8A1E5E071C15FA0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897836   (677166) от 17.05.2015
-
-Проекты - VideoHive - Retro Opener - 7386935 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Retro Opener проект для создания презентации в стиле ретро.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264598D5C38500FC489FD58C78AF4D477536E0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897846   (677036) от 17.05.2015
-
-Проекты - VideoHive - E-Marketing with Inkman v.1 - 5604860 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677036.jpg" />
-</div>
-
-
-###  Подробнее
-
-E-Marketing with Inkman проект презентация чего-либо.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7555775413EE8E3AA48A7ED0EEC212804AC77681
 ```
 
 https://mybot314.ru/tekegram_catalog/

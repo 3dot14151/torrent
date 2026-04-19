@@ -1,3 +1,29 @@
+###  Публикация: 1790861   (21744) от 11.04.2025
+
+Текстуры - Artnoy - Creative Fabrica - Digital Paper Glitter Iridescent Texture [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с блестящей радужной текстурой.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70832260465AACA7C913CC9593752DF68D035CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790868   (21743) от 11.04.2025
 
 Фоны - Pattern Universe - Creative Fabrica - Cross Stitch Embroidery Digital Papers [JPG]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A16BE4CF0528083E860494410D268E0F9CFF22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792693   (20787) от 20.04.2025
-
-Текстуры - STCrafts - Creative Fabrica - Rainbow Zodiac Texture Digital Paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радужная зодиакальная текстура на цифровой бумаге.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53924DD841078356D46991226062024CBF7FE0C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

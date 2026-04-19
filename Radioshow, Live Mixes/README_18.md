@@ -1,3 +1,235 @@
+###  Публикация: 1445723   (238213) от 06.02.2021
+
+VA - Markus Schulz & Dan Thompson - Global DJ Broadcast (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyau & Albert – Runaway Girl
+02. Zack Evans – Skyborne
+03. DIM3NSION – I Fake A Smile
+04. F4T4L3RR0R – NovaЖанр: Trance, Progressive TranceПродолжительность: 02:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759D698D61C24166552F5FDE024D12CEA349C643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640124   (237633) от 16.06.2023
+
+VA - Armin van Buuren - A State Of Trance 1125 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Andrew Bayer ft. OLAN - Under Pressure (Andrew Bayer & Farius Remix) (ANJUNABEATS)
+02.	Above & Beyond - VLEKNO (ANJUNABEATS)
+03.	UUFO - Energize ARMIND (ARMADA)
+04.	MRPHLNDR - Medusas Mayhem ASOT (ARMADA)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1320699BAA4F7477AC7C5222529A0D6BDA93A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631326   (236373) от 06.05.2023
+
+VA - Armin van Buuren - A State Of Trance 1119 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Williams – The Imperial March (Darth Vader’s Theme / Alex M.O.R.P.H. Intro Edit) (RSO)
+02. Luke Bond X M6 – Nexus (Original Mix) (Armada)
+03. D72 – Our Darkness (Original Mix) (Armada Captivating)
+04. Armin Van Buuren feat. Stuart Crichton – Dayglow (Bryan Kearney Remix)Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459B8F81783DEC875252D4AB6D8FEE28E277F66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536604   (235122) от 12.03.2022
+
+Nicky Romero & Tim van Werd & Timmo Hendriks - Protocol Radio 500 (2022-03-10) [MP3|320 Kbps] <Progressive House, House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicky Romero & Almero - So Much Love
+02. Nicky Romero & Low Blow - Higher
+03. Tommy Trash & Wax Motif - HEX
+04. ID - ID w/Whitney Houston - It's Not Right But It's Okay (Acappella)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F984734EAF19BD414570F1FA2BFBF471879B6CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632841   (234573) от 14.05.2023
+
+VA - Armin van Buuren - A State Of Trance 1120 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane feat. The Mannequin – Summer In E Major (Original Mix) (Modena)
+02. Tune Of The Week: Armin Van Buuren & HRRTZ feat. Julia Church – Fire With Fire (Original Mix) (Armind)
+03. Progressive Pick: BetweenUs – Escape (Original Mix) (Armind)
+04. The Blizzard – Kalopsia (Matt Fax Remix)Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36772CC3C62836E89A96ABC7C53AE3AE60360F95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644905   (232998) от 08.07.2023
+
+VA - Armin van Buuren - A State Of Trance 1128 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Motive (Club Mix) (Future Favorite)
+02. Tyler Jack - We Feel
+03. Dekkai - Firmament
+04. Protoculture - Infinity(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32B9D81B7BE0803EE9B64CAF04FAFF5992F0B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641649   (232796) от 01.07.2023
+
+VA - Armin van Buuren - A State Of Trance 1126 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren – Motive (Armin Van Buuren Club Mix) (Armind)
+02. Armin Van Buuren feat. Sharon Den Adel – In And Out Of Love (Innellea Remix) (Armada)
+03. Armin Van Buuren & The Stickmen Project – No Fun (Öwnboss Remix) (Armada)
+04. Shouse & David Guetta – Live Without Love (Armin Van Buuren Remix) (Hell Beach)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CFC10D0BD741127F7FF83402FE59C0E1C3E51D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646368   (231886) от 16.07.2023
+
+VA - Armin van Buuren - A State Of Trance 1129 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	TUNE OF THE WEEK: Armin van Buuren feat. Sharon Den Adel – In And Out Of Love (Innellea Remix)
+02.	Armin van Buuren – Motive (7 Skies Remix)
+03.	PROGRESSIVE PICK: BetweenUs – Escape
+04.	Alex Sonata & TheRio – Mantra(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98118319C1105CDEE829986393F331A739E30BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643121   (231775) от 01.07.2023
 
 VA - Armin van Buuren - A State Of Trance 1127 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -510,238 +742,6 @@ Classic Essential Mix - это еженедельное радиошоу, где
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B96F339776E2354E569EC0EC13B4FF3641ACF579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827337   (186356) от 21.10.2025
-
-Cosmic Gate - Live @ Tomorrowland Store Rooftop Ibiza, Spain (2025-09-16) [MP3|320 Kbps] <Trance, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joris Voorn - Tomorrow (Sultan + Shepard Remix)
-02. Mahoo – California
-03. Juno - All Alone
-04. Anton Khabbaz - Break From It(   Читать дальше...   )Жанр: Trance, Melodic House, TechnoПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45595F08B71AF72B4C767AB8F3210C0294E27D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664116   (186267) от 24.09.2023
-
-Vintage Culture - Live @ elrow, Ushuaia Ibiza, Spain (2023-09-06) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture - Tudo Bem Tudo Bom
-02. Gala - Freed From Desire (ID Remix)
-03. Kylie Minogue - Can't Get You Out Of My Head (ID Remix)
-04. Jewel Kid, Matt Sassari - Get Down Low(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D43711FF032AC9C5EF1062D4317EE04B89CB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827339   (185705) от 21.10.2025
-
-Matisse & Sadko & Third ≡ Party & DubVision - Tomorrowland Friendship Mix (2025-10-09) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix & Matisse & Sadko ft. BARBZ - Butterflies
-02. Fred again.. & Skrillex & Four Tet & Lil Baby & DubVision vs. The Chemical Brothers & ARTBAT - Baby Again.. vs. Hey Boy, Hey Girl (DubVision Mashup)
-03. Matisse & Sadko & Aspyer - ID
-04. DubVision vs. Martin Garrix & Bebe Rexha - Rise Again vs. In The Name Of Love (   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A528AEF91241311DCC32593C731FF63D50979C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664314   (184853) от 27.09.2023
-
-MORTEN - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] <Dance, Electro Pop, Mainstage>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN - Nothing (Intro Edit)
-02. David Guetta & MORTEN - Bombardment
-03. ID - ID
-04. David Guetta & MORTEN ft. RAYE - You Can't Change Me w/David Guetta & MORTEN ft. RAYE - You Can't Change Me (ALEOS Future Techno Remix)(   Читать дальше...   )Жанр: Dance, Electro Pop, MainstageПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2D93D14738C430F480C0B34EB369337CA03B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665067   (182494) от 30.09.2023
-
-James Hype - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm Controll - My House (In Beginning, There Was Jack... Acappella) w/James Hype - ID
-02. Wildchild - Renegade Master (Acappella) w/Major Lazer & James Hype - Number 1
-03. Raumakustik & Juliet Sikora - Love Shake
-04. Travis Scott ft. Kendrick Lamar - Goosebumps (James Hype Remix)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0848AFA5EB4231B2ADE060F2C3ACC5C4D4D6E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664839   (182376) от 30.09.2023
-
-Lane 8 - Fall 2023 Mixtape (2023-09-20) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Otherwish - ID
-02. Rinzen - ID
-03. Fever Ray - Shiver (Ivory Remix)
-04. Notre Dame - Yumi (Johannes Brecht Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B8B961D2A62DB74014928C9FDCB06E74E4BE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665074   (182334) от 30.09.2023
-
-Armin van Buuren - Live @ Ushuaïa Ibiza, Spain (2023-09-24) [MP3|320 Kbps] <Mainstage, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. Trevor Guthrie - This Is What It Feels Like (Armin van Buuren 2023 Remix)
-02. Achilles & DJ Fluke & Steeper vs. David Guetta & Bebe Rexha - Tomorrow vs. I'm Good (Achilles Mashup)
-03. Armin van Buuren ft. Anne Gudrun - Love Is A Drug
-04. Armin van Buuren - Motive (Armin van Buuren Club Mix)(   Читать дальше...   )Жанр: Mainstage, TranceПродолжительность: 02:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301C5363F1F075C873517D40FC519924FB279489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667048   (178357) от 06.10.2023
-
-Markus Schulz - Global DJ Broadcast World Tour (X-Demon Wroclaw, Poland) (2023-10-05) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyma - Chordial
-02. Pryda - Hiidden
-03. Boris Brejcha - Wormhole
-04. Rebuke & Anyma - Syren(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D29CE51E04E2BE542BE7B4D70DA8582D4A65202
 ```
 
 https://mybot314.ru/tekegram_catalog/

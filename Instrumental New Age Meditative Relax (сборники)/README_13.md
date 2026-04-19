@@ -1,3 +1,32 @@
+###  Публикация: 1067879   (382645) от 31.10.2016
+
+VA - Acoustic Covers for Weddings (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo – A Sky Full of Stars
+ 02. Max Tanner – The One
+ 03. Landa – Your Song
+ 04. Henrietta Adewole – Run Away With Me(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEAFF69FA6D08E380695803878B37D02C9E8FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949078   (379146) от 22.10.2015
 
 VA - Волшебные Инструментальные Мелодии (2015) [MP3|320 кб/с]<Instrumental, Pop>
@@ -714,35 +743,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:865E333634F330408252ED07EC257424604D294E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075718   (318534) от 23.11.2016
-
-VA - Piano Music for Concentration (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toni Verde - Under My Skin
-02. Leading - Landscape
-03. Toni Verde - Good Vibrations
-04. LifeBlood - Essence(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E072C2C063F3175DBA00ABDC92449957928EB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

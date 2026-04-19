@@ -1,3 +1,203 @@
+###  Публикация: 339639   (666030) от 21.05.2011
+
+VA - Chinese Zodiac Signs - A Music Carnival of Twelve Animals (2000) [APE|Lossless]<Chinese Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_666030.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Vigilant Rat
+2. The Mild Open-Minded Ox
+3. The Mighty Tiger
+4. The Tender Rabbit
+5. The Imperial Dragon
+6. The Perceptive Snake
+7. The Free Unfettered Horse
+8. The Persevering Goat
+9. The Naughty Monkey
+10.The Noble Discipline Rooster(   Читать дальше...)Жанр: Chinese EthnicПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340336   (663658) от 23.05.2011
+
+Teruhisa Fukuda - Shakuhachi Kinko School (2003) [FLAC|Lossless]<Classical music of Japan>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663658.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hifumi - Hachigaeshi No Shirabe
+2. Mukaïji-Reibo
+3. Kokû-Reibo
+4. Shin-Kyorei/Introduction
+5. Sôkaku-Reibo
+6. Yobikaeshi-Shika No TônéЖанр: Classical music of JapanПродолжительность: 1:12:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340182   (663532) от 23.05.2011
+
+Xiao Ying - The art of the Chinese harp (2004) [MP3|192-320 kbps]<folk, ethnic.instrumental>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring on Snowy Mountains
+02. Thoughts
+03. Liu Yang River
+04. Moon Over Western River
+05. Harvest Drumming
+06. Waters and Mountains
+07. Lotus (традиционная)
+08. Shifting Curtains
+09. Autumn Moon Over Han Palace
+10. Family Warmth(   Читать дальше...)Жанр: folk, ethnic.instrumentalПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B7C20EAE1320DD3BDEC647672C3247BFBC7E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340327   (662515) от 24.05.2011
+
+Zhao Jiazhen - Masterpieces of the Chinese Qin from the Tang Dynasty to Today (2009) [FLAC|Lossless]<Chinese Traditional Music, Guqin, Qin>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 广陵散 Guangling
+02. 关山月 The Moon on Guanshan
+03. 捣衣 Clothes Beating
+04. 幽兰 Orchid
+05. 良霄引 Tune for a Peaceful Night
+06. 潇湘水云 Mist and Cloud over Xiao-Xiang Rivers
+07. 欧鹭忘机 Ou Lu Forgetting
+08. 夜深沉 Night Thoughts
+09. 渔樵问答 Dialog Between Fisherman and Woodcutter
+10. 梅花三弄 Three Variations on Plum Blossom(   Читать дальше...)Жанр: Chinese Traditional Music, Guqin, QinПродолжительность: 1:11:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341267   (661531) от 25.05.2011
+
+Lee Hyo Lee - 4 albums + Single (2003-2010) [FLAC|Lossless]<K pop,dance,hip-hop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_661531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 톡톡톡
+ 02. 잔소리
+ 03. 그녀를 사랑하지 마
+ 04. 톡톡톡 PART IIЖанр: K pop,dance,hip-hop,balladПродолжительность: 00:15:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514014   (659115) от 23.06.2012
+
+VA - Band Dream Garden I-III (2009) [MP3|320 кб/с]<Instrumental, Ethnic, New age>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659115.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:00) 01. Hua hao yue yuan ye
+(4:53) 02. I Believe
+(4:13) 03. Chun guang mei
+(5:05) 04. Dong feng po
+(3:36) 05. Ning Xia
+(3:29) 06. tian ye jing qiao qiao
+(4:10) 07. Bo li bei
+(3:43) 08. Shu bo te yao lan qu
+(3:51) 09. Feng shou ge
+(4:12) 10. Shan liang de ri zi(   Читать дальше...   )2009Жанр: Instrumental, Ethnic, New ageПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3942710AD0A082A551514B504AE8E0AB7C436A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938324   (656636) от 19.05.2018
 
 SawanoHiroyuki[nZk] - 2 альбома + 7 синглов (2014-2018) (FLAC|tracks] <J-Rock, J-Pop, Electronic>
@@ -593,179 +793,6 @@ VA - Xiu Shen Yang Xing Yin Yue Xi Lie (5CD) (2008) [MP3|320 кб/с]<Instrument
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:521932CBF23D28D6076D258488CD92C80A8080CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034467   (634041) от 13.07.2016
-
-Mari Natsuki - 13 Chansons (1998) [FLAC|Lossless|tracks + .cue] <Bossa Nova, Contemporary Jazz>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All About Me
-02. Gorilla
-03. Les Musiciens
-04. My Favorite Things(   Читать дальше...   )Жанр: Bossa Nova, Contemporary JazzПродолжительность: 0:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB0C4DD718C578E775D161F80074954BFA554D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229067   (631817) от 03.06.2018
-
-Susheela Raman - Ghost Gamelan (2018) [FLAC|Lossless|WEB-DL|tracks] <Ethnic, Folk, Jazz>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tanpa Nama (feat. Samuel Mills & Gondrong Gunarto)
-02. Beautiful Moon (feat. Samuel Mills & Gondrong Gunarto)
-03. Annabel (feat. Samuel Mills & Gondrong Gunarto)
-04. Sphinx (feat. Samuel Mills & Gondrong Gunarto)(   Читать дальше...   )Жанр: Ethnic, Folk, JazzПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C6FC5F9904F7A6FF8227F57B428DC419ACB314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908449   (631705) от 15.06.2015
-
-Vallendusk - Homeward Path (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631705.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Windswept Plain
-2. Earth Serpent
-3. The Anchors
-4. The Wayfarers(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8251B8871B86B98F5FFE1FF8E1DF203B8280F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035198   (628274) от 16.07.2016
-
-Band-Maid - Brand New MAID (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal, J-Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. the non-fiction days [0:04:43.74]
-02. LOOK AT ME [0:03:59.41]
-03. ORDER [0:03:23.49]
-04. Brand-New Road [0:03:54.70](   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, J-RockПродолжительность: 0:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C8A869A8FD74A84C670BCF2EAEC51F3BB6F57F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294480   (627882) от 08.04.2019
-
-Yoko Oginome - Dancing Hero The Archives (2017) Single [MP3|320 Kbps] <j-pop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627882.jpg" />
-</div>
-
-
-###  Подробнее
-
-ダンシング・ヒーロー(Eat You Up) <オリジナル・ヴァージョン> (3:47)
-ダンシング・ヒーロー(Eat You Up)-Modern Version- (4:04)
-ダンシング・ヒーロー(Eat (   Читать дальше...   )Жанр: j-popПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A37DE258E1A008274307D6761D8FAB4C48E96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035609   (626238) от 17.07.2016
-
-Loudness - Samsara Flight: 35th Anniversary (2016) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Doctor
-02. Crazy Nights
-03. In The Mirror
-04. S.D.I.(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:51 + 01:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D69FC9AEFD4DE556B4398179CAEA3429D4F1932
 ```
 
 https://mybot314.ru/tekegram_catalog/

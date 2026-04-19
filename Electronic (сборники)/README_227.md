@@ -1,3 +1,177 @@
+###  Публикация: 1816881   (3896) от 07.09.2025
+
+VA - Vocal Techno & Progressive 2025 [MP3|320 Kbps] <Vocal Techno & Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RY XCassian - Lençóis (Love Me) - Cassian Remix (4:14)
+02. Deneubourg - What You Need (5:53)
+03. Luca Pink - Find Love (5:06)
+04. Miss Monique - All I Got (5:04)(   Читать дальше...   )Жанр: Vocal Techno & ProgressiveПродолжительность: 03:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:176E0BDB7E770E17D9F03B179FC86F72B58CF7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817476   (3475) от 10.09.2025
+
+Xezzo - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Already
+ 02 - After You
+ 03 - Trouble
+ 04 - Memories(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB704C46E1B42E43EF60EEEDC4CD12DE64DCF10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817594   (3347) от 11.09.2025
+
+Xezzo - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Special
+ 02 - Time
+ 03 - Morocco
+ 04 - Cosmos(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8BCEDFFF7A5616EBC3F22814769EBC1F1028B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817648   (3199) от 12.09.2025
+
+VA - Night Rider 9 (2025) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. deadmau5 - 8ths (6:11)
+02. OMER DEEP - Medusa (3:09)
+03. Agents Of Time - Zodiac (5:42)
+04. Tinlicker - Never Let Me Go (5:37)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4C8676E3AD74F1F2B570A20C3F2AF2CCC62083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817757   (3149) от 12.09.2025
+
+Xezzo - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Night Rides
+ 02 - Feelings
+ 03 - In the Morning
+ 04 - Rose(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CDB31E637DE95D589816ADF461B758A43AF32A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817939   (2992) от 13.09.2025
+
+VA - Club Beats (2025) [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies, Calum Scott - Where Are You Now - Deluxe Mix (4:14)
+02. Mau P - Drugs From Amsterdam (3:55)
+03. Chrystal, NOTION - The Days - NOTION Remix (3:53)
+04. Peggy Gou - (It Goes Like) Nanana - Edit (3:51)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 04:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42F3C3298D958ED1ECAE26BEBFD5C40319A8E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818186   (2785) от 14.09.2025
 
 VA - Record Super Chart 13.09.2025 [MP3|320 Kbps] <Pop, Dance>

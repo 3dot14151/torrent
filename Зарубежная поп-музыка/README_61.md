@@ -1,3 +1,61 @@
+###  Публикация: 1583057   (314121) от 13.10.2022
+
+VA - Mega Hits Autumn/Fall 2022 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gestört aber Geil - Thank You (03:17)
+02. Imagine Dragons - Bones (02:45)
+03. Makar - Mood (02:31)
+04. Felix Jaehn - Call It Love (02:34)(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF96BEFFF8210BA68E78B9F9B478D7246816A0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076206   (313878) от 25.11.2016
+
+Kylie Minogue - Kylie Christmas (2016) [MP3|320 Kbps] <Christmas, Traditional Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  It's The Most Wonderful Time Of The Year 02:44
+02.  Santa Claus Is Coming To Town (Feat. Frank Sinatra) 02:15
+03.  Winter Wonderland 01:52
+04.  Only You (With James Corden) 03:04(   Читать дальше...   )Жанр: Christmas, Traditional PopПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD59C81841CBAD8C38896019BDB980D1D843542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594863   (313847) от 25.11.2015
 
 V/A - Bravo Hits Сollection (Bravo Hits, Bravo Black Hits, Bravo The Hits, Bravo Hits Special) (1991-2015) [MP3|192, 320 кб/с]<Pop, Dance, R&B, Rock, Hip-Hop>
@@ -719,64 +777,6 @@ Konrad Plaickner & His Orchestra - Atlantic Crossing (1981) LP [MP3|320 Kbps] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE9B5CCF70D801733607AB9BA957C36774A5F249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261548   (303479) от 11.11.2018
-
-VA - DJ Hitparade Jubiläeumsedition: 40 Größe Hits Aus 10 Jahren (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Der Letzte Tag Im Paradies (DJ Mix Extended)
-02. Fantasy - Darling (Foxmix)
-03. Andreas Martin - Ich Fang Dir Den Mond (Fox Fun Mix)
-04. Christian Anders - Gespensterstadt 2009 (3select-Rmx)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A54C367A68447F517E1132BD4671B9EA73C0E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333437   (303417) от 25.10.2019
-
-Nick Kamen - 4 Albums (1987-1992) Collection [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1987 - Nick Kamen
-1988 - Us
-1990 - Move Until We Fly(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 02:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5893C300577F18F1A19D1A6D541DA40C8E0144CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

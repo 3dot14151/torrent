@@ -1,3 +1,61 @@
+###  Публикация: 1222251   (687110) от 28.04.2018
+
+VA - Female Vocal Trance (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic feat. Ana Criado - Ask Me Anything 3:10
+02. 4 S'trings feat. Fenna Day - Everybody's Gotta Learn Sometime 3:13
+03. Katty Heath - Connection Through Sound 3:57
+04. Steve Allen feat. Sue McLaren - Old Flame 3:20(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9DB37642DD560D4582F2C70EED20EAD100A764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289743   (684332) от 17.03.2019
+
+VA - I Love Trance Ocean (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kayat - Nordwind (Touchstone Remix) 8:22
+02. Matteo Marini - I Want To Believe (Original Mix) 7:58
+03. Kessler - Blue Velvet (Original Mix) 7:23
+04. Andy Viva - This Is My Life (Radio Edit) 3:34(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveTranceПродолжительность: 01:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A6927FFF2D84EC5966702B5A6856971C125FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289750   (684231) от 17.03.2019
 
 VA - I Love Hard Trance (2019) [MP3|320 Kbps] <Trance, PSY-Trance>
@@ -685,64 +743,6 @@ VA - Black Hole Trance Music 03-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0436AC52B44599AEA45E7D87C61689337F8ABD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137604   (665314) от 28.05.2017
-
-Robert Miles - Remember Robert Miles (2017) [MP3|320 Kbps] <Trance, Dream House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Children (Dream Version) 7:06
-02.  Fable (Message Version) 6:25
-03.  Children (Message Version) 6:51
-04.  One And One (Radio Version) (feat. Maria Nayler) 4:01(   Читать дальше...   )Жанр: Trance, Dream HouseПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1CCBDD702EDDBFEAA7023047E455D6A2C70F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225035   (662921) от 13.05.2018
-
-VA - Total Trance Selections Vol. 11 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duncan Newell - Gibbo (Radio Edit)
-02. Josa - Nebula (Original Mix)
-03. Gelvetta - Princess Asia (Original Mix)
-04. Axel Walters - New Line (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5990E302E12BA5D01EE6137CBCAD5474A611FFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

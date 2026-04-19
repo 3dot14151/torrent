@@ -1,3 +1,226 @@
+###  Публикация: 1189009   (272054) от 04.12.2017
+
+VA - Animelo Summer Live 2005 -THE BRIDGE- (2005) [MP3|112 Kbps] <JPop, JRock, Anison>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animelo Summer Live 2005 - Opening
+02. Masami Okui&Nana Mizuki - TRANSMIGRATION
+03. Masami Okui - Rinbu-revolution
+04. Masami Okui - MC 01(   Читать дальше...   )Жанр: JPop, JRock, AnisonПродолжительность: 03:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E6244395B2990C14C71DB00DBE023231E56C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265320   (271862) от 30.11.2018
+
+DOLL$BOXX - Дискография (2012-2017) [MP3|320 Kbps] <Hard-rock, Kawaii metal, Electro-pop>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard-rock, Kawaii metal, Electro-popПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9979ABCA24E2D53C9EA00C7B4CDDF99BF7BFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219136   (266485) от 06.12.2018
+
+Yoshida Brothers - Prism (2009) [FLAC|Lossless]<Японские национальные инструменты с современной аранжировкой>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The National Anthem (Greenwood)
+02. Seven (Yoshida/Inoue)
+03. One Long River (Hoop)
+04. Red Bird (Akai Tori) (Yoshida/Inoue)(   Читать дальше...   )Жанр: Японские национальные инструменты с современной аранжировкойПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13DEAA419DFE6E06D18531134CA97BF7AFB2D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503713   (259843) от 31.05.2012
+
+John Chen - Songs From Within (1999) [MP3|320 кб/с]<Instrumental, Guitar>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259843.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:48) 01. Reposedly
+(4:48) 02. Autumn Water
+(5:18) 03. Five Elements
+(4:57) 04. From Within
+(4:20) 05. Thoughts of Zen
+(5:07) 06. Essence
+(5:40) 07. Without Intent
+(2:57) 08. Destiny
+(5:00) 09. Quietly
+(5:08) 10. From Within(   Читать дальше...   )1999Жанр: Instrumental, GuitarПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FDE015CCA7171393D3D9E2B8960F8A714B28E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503313   (259592) от 30.05.2012
+
+John Sposito St. James Music - Ouroboros (1999) [MP3|320 кб/с]<New age>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259592.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:06) 01. Ouroboros
+(2:36) 02. Ring
+(3:54) 03. Zen Garden
+(2:44) 04. Japanese
+(3:51) 05. Version
+(1:09) 06. Ram
+(2:30) 07. Laboratory
+(2:43) 08. India
+(3:12) 09. Underground
+(2:11) 10. Deserts(   Читать дальше...   )1999Жанр: New ageПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E161141A8754581601686EF780EDB1A7987F86BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498608   (256094) от 20.05.2012
+
+Desecravity - Implicit Obedience (2012) [FLAC|Lossless]<Technical Brutal Death Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Unknown (1:46)
+02. Enthralled In Decimation (3:04)
+03. Immortals Warfare (3:29)
+04. Demonize The Old Enemy (5:31)
+05. Hades (4:12)
+06. Condemnation (3:17)
+07. The Collapse Of Religion (4:02)
+08. Extinction With Hatred (3:48)
+09. Dark Dimension (3:25)2012Жанр: Technical Brutal Death MetalПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497145   (254060) от 18.05.2012
+
+Rainbow - Over The Rainbow (2012) [MP3|320 кб/с]<К-Pop, Dance>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A (エー)
+02. マッハ (Mach)
+03. ガナガナGO! (Gonna Gonna GO!)
+04. Kiss! Kiss! Disco!
+05. Touch me, Feel me, Love me
+06. Alright
+07. ノット ユア ガール (Not Your Girl)
+08. Energy
+09. Hello
+10. ゴシップガール (Gossip Girl)2012Жанр: К-Pop, DanceПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A4A2F463F0CCE34CF8B2869A261AB309008871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621343   (245073) от 25.03.2023
 
 Babymetal - The Other One (2023) [FLAC|Lossless|WEB-DL|tracks] <J-Metal, Modern Metal>
@@ -593,214 +816,6 @@ Stygian Riverside - 6 альбомов (2008-2011) [FLAC|Lossless] <Touhou, Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34B64710E3C1087DFCADA5B8E92237A616BE2122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965279   (227414) от 13.12.2015
-
-Galneryus - Under The Force Of Courage (2015) [MP3|320 кб/с] <Neo-Classical Metal, Power Metal, Symphonic Metal, Melodic Metal>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227414.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Premonition
-2. The Time Before Dawn
-3. Raise My Sword
-4. The Voice Of Grievous Cry(   Читать дальше...   )Жанр: Neo-Classical Metal, Power Metal, Symphonic Metal, Melodic MetalПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A5840585B8D5EC5AC2E6A9F6A8B139BAEFABAD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735058   (227312) от 19.12.2013
-
-AncientChronicle - 7 альбомов (2008-2010) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Instrumental>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2008.08.16 (ANCCD-002) Fantasy Moonlight - Drastic Preterite. (C74)
-2008.11.02 (ANCCD-003) Tooi Sora wo Yuku - Voyage Note. (Kouroumu 4)
-2009.03.08 (ANCCD-901) Koji Genteishou - “Ancient Chronicle” Number 1. (Reitaisai 6)
-…
-2009.12.30 (ANCCD-004) Harukaze to Tsukiyo to Tomo ni - Nocturnal Upper-Eastward. (C77)
-2010.03.14 (ANCCD-904) Koji Genteishou - “Ancient Chronicle” Number 4. (Reitaisai 7)
-2010.08.14 (ANCCD-005) Retrospective Romance (C78)Тип издания: DoujinЖанр: InstrumentalФормат: Touhou InstrumentalПродолжительность: 00:03:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4AC2DE7B3CCA8CEBB18BEE49AC8EE3EA67B443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587118   (222708) от 10.12.2012
-
-EGOIST (chelly) - 1 альбом, 3 сингла (2011-2012) [MP3|320 кб/с]<J-Pop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222708.jpg" />
-</div>
-
-
-###  Подробнее
-
-AlbumЖанр: J-PopПродолжительность: 00:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9338EBF039E12B04EE23C67062131AB9AD13E8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586621   (222559) от 10.12.2012
-
-EXILE - 18 альбомов, 41 сингл (2001-2012) [MP3|128-320 кб/с]<J-Pop, J-R&B>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222559.jpg" />
-</div>
-
-
-###  Подробнее
-
-AlbumsЖанр: J-Pop, J-R&BПродолжительность: 00:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24D9E1B7FDF4FAB99BD984D7EEE69357A4A4FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736901   (222444) от 21.12.2013
-
-Dame AGE inc. — Touhou Kouma Ginyuuroku (2010) Touhou Instrumental /Doujin/ [FLAC|Lossless] <J-Pop, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222444.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:19] 01. IZNA - 紅い牙の痕
-[03:11] 02. IZNA - 上海スイーツOh.Lady! -Flat out mixSPL~
-[02:55] 03. IZNA - 妖精乱舞
-[03:23] 04. IZNA - 独書館奏文
-[05:13] 05. IZNA - 摂氏－⑨℃
-[03:51] 06. IZNA - サクラチルТип издания: DoujinЖанр: J-Pop, J-RockФормат: Touhou InstrumentalПродолжительность: 00:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294796BB4411A4B8ADF781D63BCCA24912CD00CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736897   (222013) от 21.12.2013
-
-D.N.A. Softwares - 2 альбома (2009-2010) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Trance, Electronic, J-Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2009.08.15 (DNAS-MJST) 東方幻想麻雀オリジナルサウンドトラック (C76)
-2011.12.30 (DNAS-MJ3S) Musicale Jubilance (C81)Тип издания: DoujinЖанр: Trance, Electronic, J-MetalФормат: Touhou InstrumentalПродолжительность: 00:03:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39C3DA9B4AD9A1CDB69F82DDD254A3397E12F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736899   (221978) от 21.12.2013
-
-Sun Flower Field - 4 альбомa (2009-2011) [FLAC|Lossless] <Touhou, Vocal, Instrumental, Doujin Ongaku, J-Pop, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221978.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:19] 01. Sun Flower Field - 幻想の世界へ
-[03:36] 02. 姫 - ストレイ・ガール
-[03:31] 03. clame - JUNCTION
-[02:54] 04. clame - 神社から始まる大騒動 - Album mix.
-[04:02] 05. mineko - TRIP
-[04:13] 06. clame - Blow my mind - Album mix.
-[03:41] 07. 姫 - Sun Flower Field - Album mix.
-[04:01] 08. mineko - 彼の岸に咲く花
-[05:16] 09. mineko - Motherland - Album mix.
-[04:52] 10. 姫 - 星空ドライブ(   Читать дальше...   )Жанр: Touhou, Vocal, Instrumental, Doujin Ongaku, J-Pop, J-RockПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A938DAEA635B1356FF5D09913F32BB186B2DEB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

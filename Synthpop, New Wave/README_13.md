@@ -1,3 +1,32 @@
+###  Публикация: 1697397   (118929) от 06.02.2024
+
+Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Warriors
+02.  Dead Star
+03.  New Adventure
+04.  Sky Orbit(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C33DAAC8E9AE622427987DD24EEF4CFE79AA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697671   (118775) от 07.02.2024
 
 Laserdance - The Guardian Of Forever (1995) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
@@ -740,41 +769,6 @@ Bertine Zetlitz - Electric Feet (2012) [MP3|320 кб/с]<Synth-Pop, Acid Jazz, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F298D2BD57B278C6E162E36F6ED5237D78B67C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458625   (79326) от 01.03.2012
-
-Miike Snow - Miike Snow (2009) [MP3|320 кб/с]<Electro-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animal 04:22
-02. Burial 04:20
-03. Silvia 06:25
-04. Song for No One 04:09
-05. Black & Blue 03:39
-06. Sans Soleil 04:25
-07. A Horse is Not A Home 04:11
-08. Cult Logic 03:54
-09. Plastic Jungle 03:52
-10. In Search of 05:14(   Читать дальше...   )2009Жанр: Electro-popПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51C742ABD9BF5DE14B347DEA735FB40ACB98096
 ```
 
 https://mybot314.ru/tekegram_catalog/

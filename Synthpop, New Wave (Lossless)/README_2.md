@@ -1,3 +1,90 @@
+###  Публикация: 1461175   (1021950) от 09.04.2021
+
+W O L F C L U B (Wolfclub) - Just Drive - Part 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Drive (feat. Summer Haze) (3:32)
+02. A Sea of Stars (feat. Dora Pereli) (3:19)
+03. Fever Dream (feat. Dora Pereli) (3:57)
+04. Shoulder Blades (4:32)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B825EEBD8445F877FE7103D07AAF5AABE8B22A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461155   (1021936) от 09.04.2021
+
+VA - Pure Synthpop, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Parker feat. Doubleboy - End of The Night (Original Mix) (3:57)
+02. Freeweights - True To My Game (Original Mix) (4:24)
+03. W O L F C L U B - Summer Lights (Original Mix) (3:13)
+04. Arcade High - The Last Picture Show (Original Mix) (5:26)(   Читать дальше...   )Жанр: Synthpop, RetrowaveПродолжительность: 01:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5492A4DB3A08508BFAA9498AB3BAC119700884DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461153   (1021921) от 09.04.2021
+
+New Arcades - Returning Home (The Instrumentals) (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Movies (3:22)
+02. Into the Unknown (3:53)
+03. If Only You Could See (4:17)
+04. Further (4:00)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31181C064C353840A4FFDF906CC9E7B39D405CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461865   (1021628) от 11.04.2021
 
 Junior Boys - Collection 5 Releases (2004-2016) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Indie Pop>
@@ -658,93 +745,6 @@ Alphaville - Salvation (1997) Reissue 2000, Metropolis Records [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD27FB51CD789F28C36903233BA671F0679C6271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354808   (986975) от 23.01.2020
-
-Pet Shop Boys - Hotspot (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will-o-the-wisp
-02. You are the one
-03. Happy people
-04. Dreamland (feat. Years & Years)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F289E7D50E4A9F2AA00FA0B36ACD1D8763EFB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740903   (985891) от 01.01.2014
-
-Depeche Mode - Happiest Boys (1999) [#BRONS 376, Unofficial Remix Compilation] [FLAC|Lossless]<Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World in my Eyes (Dub '99) (8:15)
- 02. It's no Good (Shuffle Mix) (6:33)
- 03. Walking in my Shoes (Moonlight Mix) (6:45)
- 04. Happiest Girl (Pump Up The Beat Mix) (8:34)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0425DA166925F8FB9B83425CCBCD1A21C4D06692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355173   (984744) от 25.01.2020
-
-Pet Shop Boys - Hotspot (2020) 2CD Special Edition [FLAC|Lossless|tracks + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Will-o-the-wisp
-02. You are the one
-03. Happy people(   Читать дальше...   )Жанр: Synthpop |Продолжительность: 01:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D216F7121C249B88E1843E2AB1A8A903BC239D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

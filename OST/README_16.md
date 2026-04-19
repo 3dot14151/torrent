@@ -1,3 +1,32 @@
+###  Публикация: 1250600   (424608) от 28.09.2018
+
+Henry Jackman - Хищник / The Predator (2018) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival
+02. Discovery
+03. Rory
+04. Project Stargazer(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739DADB5545B139AC00A893F2592A77A2ABFD12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166809   (419723) от 19.09.2017
 
 Trevor Rabin & Harry Gregson-Williams - Enemy of the State (1998) [MP3|320 Kbps] <Score>
@@ -729,35 +758,6 @@ Various Artists - Lock, Stock & Two Smoking Barrels (Expanded) (1999) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A5D69D0AEC8478570FE3D98138817750088CA7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168914   (401216) от 29.09.2017
-
-Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unleashed (feat. Merethe Soltvedt) [05:25]
-02. One Above All (feat. C.C. White & Felicia Farerre) [03:49]
-03. Impossible (feat. Merethe Soltvedt) [08:55]
-04. Rune (feat. Uyanga Bold) [03:34](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 03:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DCD735EA65BD086F5C246400152F1B9EDE0E92
 ```
 
 https://mybot314.ru/tekegram_catalog/

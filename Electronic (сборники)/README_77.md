@@ -1,3 +1,61 @@
+###  Публикация: 1530223   (729681) от 10.02.2022
+
+VA - Сегодня на радио хиты FM Vol.12 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konfuz - Пропал интерес (1:48)
+02. Артур Пирожков, Клава Кока - Хочешь (2:01)
+03. Graham Lake - FOCUS (2:06)
+04. Markul, Джарахов - Я в моменте (2:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43DB9172F05D3156EF3EAFCBC278D356DD68138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022353   (729001) от 02.06.2016
+
+VA - Sensual Steps: Relax Compilation (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729001.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maremare - That Beach Is Mine
+002. Diamans - Reach Heavens (Chillout Mix)
+003. Don Gorda Project - Sunbrella
+004. Seven24 - The Journey (Chris Wonderful Remix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9A059C1787C17CF9D49F0C64E46FDA668D86D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022485   (728997) от 02.06.2016
 
 VA - LUXEmusic Топ Май (2016) [MP3|128-320 кб/с] <House Music, Mash Up, Pop>
@@ -687,69 +745,6 @@ VA - Melodic & Deep: Vocal House Mastermix (2019) [MP3|320 Kbps] <Vocal, Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7358231684DF8FB26D768D091BA2727169F5C857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326333   (726166) от 21.04.2011
-
-VA - Дискотека Klub from AGR (2011) [MP3|320 kbps]<Pop, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alisiya - Колыбельная (Dj Pomeha Remix)
-02. Baby Alice - Pina Сolada Boy (Greysound Remix)
-03. Cutline - Let Me Go (Original Mix)
-04. Инфинити - Когда уйдешь (Privin & Reznik remix)
-05. sunny - Пилигрим
-06. Andy Stroke - Give Me A Sign Disco Lovers (Wicked Djs Rmx)
-07. Kerli - Army Of Love (WaWa Club Mix)
-08. Morandi - Rock The World
-09. Julia Lasker - Очень Заводит Меня (Dj Kirill Clash, Dj Night & Dj Dmitry Nema Remix)(   Читать дальше...   )Жанр: Pop, ClubПродолжительность: 06:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1AC9630C6394273F3372419528C4AB103383E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218000   (725293) от 08.04.2018
-
-VA - House of Mass Audience (2018) [MP3|320 Kbps] <Funky, Club, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Coda - Atraxa 7:56
-02. Betoko - Phantasy (Monkey Brothers Remix) 6:10
-03. Basil O'glue - Gigant (Styller Remix) 7:14
-04. Claudio Cornejo & Bastian Mark - Journey To The Pyramid (Berni Turletti Interpretation Mix) 8:37(   Читать дальше...   )Жанр: Funky, Club, Future HouseПродолжительность: 03:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFFDBBFDB524BDDE91BE49862471C4A31D4E760
 ```
 
 https://mybot314.ru/tekegram_catalog/

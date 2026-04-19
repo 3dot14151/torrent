@@ -1,3 +1,32 @@
+###  Публикация: 1115054   (829780) от 16.03.2017
+
+Диско-группа Русский Стилль - Одинокая брюнетка (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокая брюнетка
+02. Не мой мальчик
+03. Вечер
+04. Просто ночь(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706D5C0C1DB7AF36C89E51A7DD5927D9BC70C58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380988   (829738) от 05.05.2020
 
 RASA - Рашн Карантин (2020) Single [MP3|320 Kbps] <Pop>
@@ -612,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_813476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_813476.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98202D066250D24ECD79BE8891FEF266628F7BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384850   (800849) от 22.05.2020
-
-Ёлка - Past Perfect (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я не такая, как вы!
-2. Синтетический мир
-3. Изоляция
-4. Красная роза(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17788CDA0B3AD45DFAECE9EF9D1F709EBA805DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

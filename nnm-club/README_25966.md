@@ -1,25 +1,24 @@
-###  Публикация: 1761799   (36471) от 22.11.2024
+###  Публикация: 1757298   (39230) от 26.10.2024
 
-Mur - Mur (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Progressive Death Metal, Post Metal>
+VFX Grace | Blender Creature Effects - The Complete WorkFlow - Modeling (2024) PCRec [AD] [EN / EN, CN Sub]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eldhaf (9:04)
-02. Múr (5:52)
-03. Frelsari (4:07)
-04. Vitrun (9:38)(   Читать дальше...   )Жанр: Atmospheric Progressive Death Metal, Post MetalПродолжительность: 00:54:25
+Вы когда-нибудь мечтали создать реалистичных персонажей в Blender? В этом курсе в качестве примера используется евразийский волк, и вы шаг за шагом научитесь создавать кинематографичную и реалистичную модель евразийского волка.
+
+В разделе "Моделирование" мы расскажем вам обо всём процессе, начиная с поиска и анализа референсов и заканчивая созданием высокореалистичной (   Читать дальше...   )Производство: VFX GraceЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 10:50:58Реклама: Присутствуют сторонние наложения
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:341EAA206DDC6E80EBF45FC9CF5DE651E10BA3D3
+magnet:?xt=urn:btih:FBBDBBB9D486D36CBD6446885141AD0AD39484E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761850   (36470) от 22.11.2024
+###  Публикация: 1708337   (39228) от 26.10.2024
 
-Mell Vf - Queen Of My Castle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
+Smart Tools v2.1.14 mod by Balatan [Ru/Multi]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. New Beginnings (1:45)
-02. Queen of my Castle (3:12)
-03. Crazy (3:19)
-04. Be As One (3:16)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:41:00
+Smart Tools® это набор инструментов состоящий из 6 индивидуальных приложений. Он имеет 6 комплектов состоящих из 15 инструментов. Одним словом, всё-в-одном.Тип издания: ModРелиз состоялся: 24.10.2024Разработчик: Android boy's LabПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский/ Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DDAA0A10B81E50CCAA15B9D587AA3AE2E2B72B8
+magnet:?xt=urn:btih:6853E2CCF88F4A42766FE460A763588B055E549B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761737   (36469) от 22.11.2024
+###  Публикация: 313212   (39227) от 26.10.2024
 
-RetroVision - More Bass More Good, ADE, Netherlands (2024-10-18) [MP3|320 Kbps] <Bass House, Big Room>
+Демоны войны / Demony wojny wedlug Goi (1998) DVDRip
 
->>Electronic
->>Radioshow, Live Mixes
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. RetroVision - ID
-02. Skrillex & Mr. Oizo ft. Missy Elliott - RATATA w/RetroVision - ID
-03. Benny Benassi pres. The Biz - Satisfaction w/Dog Blood - Break Law (ID Remix)
-04. RetroVision - Take Me Higher w/Gotye ft. Kimbra - Somebody That I Used To Know (Acappella) w/RetroVision & Seth Hills - Bass w/Katy Perry ft. Snoop Dogg - California Gurls (Acappella)Жанр: Bass House, Big RoomПродолжительность: 01:11:26
+Подразделение польских солдат-миротворцев майора Келлера дислоцировано в одной из «горячих точек» бывшей Югославии. Приказ командования категоричен и предельно ясен: никакого вооруженного вмешательства в конфликт! Но когда майор узнает о том, что в соседнем горном районе разбился вертолет с польскими военнослужащими, он, пренебрегая инструкциями, решает любой ценой (   Читать дальше...   )Жанр: Военный, боевик, драмаАктеры: Богуслав Линда, Збигнев Замаховский, Тадеуш Хук, Мирослав Бака, Артур Жмиевски, Олаф Любашенко, Дэнис Делич и др.Перевод: Профессиональный (двуголосый закадровый, русский)Формат: AVIПродолжительность: 01:33:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2821C7D8D316A03D63DE7790E10685180F770BF
+magnet:?xt=urn:btih:D1E8623B8B2EBEBD0D79BAD2A248A3BC5CC2EC7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,547 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761222   (36468) от 22.11.2024
+###  Публикация: 1739676   (39226) от 26.10.2024
 
-Power Tale - Огненный Бог Марранов (2019) [FLAC|Lossless|image + .cue] <Heavy, Power Metal Opera>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36468.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-1 Испытание
-2-2 Придёт Час
-2-3 Ведомый Зарёй
-2-4 Ястреб Взлетает(   Читать дальше...   )Жанр: Heavy, Power Metal OperaПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F28065F7250CEE59F44506B3A6474642294CE92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761831   (36467) от 22.11.2024
-
-Mystery Moon - Shine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36467.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Now's The Time (7:16)
-• 02. Shine (4:09)
-• 03. The Hidden Magic (4:23)
-• 04. The Mystery (4:44)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC13C4FC7F1F3044C30CC6EF5F0481662C92EAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761796   (36466) от 22.11.2024
-
-Luminare Christmas! - Mistletoe Madness (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Light That Shines (4:09)
-02. Mistletoe Madness (2:35)
-03. Oh Holy Night (4:31)
-04. Carol of the Bells (3:50)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E81EBA33F3D52E6308FAB24C27DFE56B836905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761778   (36465) от 22.11.2024
-
-Van Zant - Always Look Up (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awesome God (4:45)
-02. Stand Up (4:59)
-03. Warrior (4:08)
-04. There You Are (3:47)(   Читать дальше...   )Жанр: Southern Rock, Melodic RockПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18F6EB4AAAE79B7A5155DE708DF215244EE2389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761868   (36464) от 22.11.2024
-
-Viktoria Tolstoy - Stealing Moments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Love Song (2:27)
-02. Good and Proper End (4:43)
-03. Wherever You're Going (4:08)
-04. Hands Off (4:24)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B33866885584658166657BEEE8676190405ADBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761865   (36463) от 22.11.2024
-
-Ancient - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ancient — норвежская блэк-метал-группа из Бергена, образованная в 1992 году.1994 - Svartalvheim
-1995 - Trolltaar (EP)
-1996 - The Cainian Chronicle
-1997 - Mad Grandiose Bloodfiends(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 07:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EFEA486C8A12D06E97629472130E5B6657367E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761895   (36462) от 22.11.2024
-
-Dawn Of Destiny - IX (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mortem Vidi
-02. A Child's Hand
-03. Alive
-04. Crown Of Creation(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A9133B8505CA014F87A150439C5AD993A36BD31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761663   (36461) от 22.11.2024
-
-Storace - Crossfire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Screaming Demon (3:43)
-02. A New Unity (0:49)
-03. Rock This City (3:55)
-04. Adrenaline (4:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7656623FE9B8C4CF1401FB5083A029EBADD96415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761614   (36460) от 22.11.2024
-
-Fellowship - 3 Albums (2022-2024) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Up Your Hearts (Again) [04:48]
-02. Victim [05:23]
-03. The Bitter Winds [05:30]
-04. Dawnbreaker [05:18](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 3CD, 02:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22C01A5D22E8BA9EF70AF71A8B3D8F47A8C9C1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761774   (36459) от 22.11.2024
-
-Sunstorm - Restless Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Stand For You (3:29)
-02. Love's Not Gone (4:26)
-03. Hope's Last Stand (3:32)
-04. Shot In The Dark (4:16)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAF8815E2A23546DA892B9B85469339C2E5B785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761696   (36458) от 22.11.2024
-
-VA - 21 Winners: Fabulous 50's (2001) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Early R&B, Early Pop/Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pat Boone - Ain't That a Shame (2:21)
-02. The Platters - The Great Pretender (2:37)
-03. Bill Doggett - Honky Tonk, Pt. 1 (3:03)
-04. George Hamilton IV - A Rose and a Baby Ruth (2:23)(   Читать дальше...   )Жанр: Rock & Roll, Early R&B, Early Pop/RockПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D3747F84531E639E2F87855DBD9B015985FADB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761793   (36457) от 22.11.2024
-
-Tygers Of Pan Tang - Animal Instinct (2008) Reissue, 2024, Mighty Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Candy (4:22)
-02. Cry Sweet Freedom (4:19)
-03. Live For The Day (4:32)
-04. Let It Burn (4:07)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32319A0D8D7EF055FEECAFF780C2C51EC4024E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761920   (36456) от 22.11.2024
-
-Black Pumas - Live from Brooklyn Paramount (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic, Alternative Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fire (Live from Brooklyn Paramount) [4:41]
-02 - I'm Ready (Live from Brooklyn Paramount) [4:54]
-03 - Gemini Sun (Live from Brooklyn Paramount) [5:28]
-04 - Know You Better (Live from Brooklyn Paramount) [7:56](   Читать дальше...   )Жанр: Psychedelic, Alternative Rock, Indie RockПродолжительность: 01:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E84A560C80334AB48B6EEA46AFEE24855DF03D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761892   (36455) от 22.11.2024
-
-VA - We Love Dance 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Combo, Maureen Sky Jones & DJ Nicolas - Last Night The Dj Saved My Life (02:16)
-02. Deep Emotion - Everything (03:01)
-03. Teknova - On the Dancefloor (02:11)
-04. JLUIS - About U (02:49)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7162765236F4C4BBE6530CD3666344CB38A2B28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761875   (36454) от 22.11.2024
-
-Die For My Sins - Scream (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Scream
-2. Time
-3. Still Alive
-4. Waiting For Your Hero(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A82E9ACA09B4853A549F996CEC360F346E26F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761767   (36453) от 22.11.2024
-
-VA - Armin van Buuren - A State Of Trance 1200 (Vinyl Special) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synergy – Hello Strings
-02. Probspot – Blueberry
-03. Filterheadz – Yimanya
-04. St. John vs. Locust – Mind Circles (Perry O’Neil Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B4D8199374CC7A2A4FCF4F95DDDC016B1258F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761792   (36452) от 22.11.2024
-
-The Smoothies - It's Christmas Around the World: A Cozy Soulful Christmas (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Joy in NYC (2:35)
-02. Home for Christmas (2:40)
-03. Waiting for You Christmas Eve (2:24)
-04. Love in Paris at Christmas Time (2:04)(   Читать дальше...   )Жанр: SoulПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99C5CB6FD9ADEE24B1B8798F8D1EB24D056339E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761789   (36451) от 22.11.2024
-
-Motley Crue - Dr. Feelgood (1989) 35th Anniversary, Remaster, 2024,  BMG Rights Management (US) LLC [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Glam metal, heavy metal, hard rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.n.T (Terror 'n Tinseltown) (0:43)
-02. Dr. Feelgood (4:50)
-03. Slice Of Your Pie (4:31)
-04. Rattlesnake Shake (3:40)(   Читать дальше...   )Жанр: Glam metal, heavy metal, hard rockПродолжительность: 01:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA08DB1FF5F85A529C56C9CB1436F8E6C0BFD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761827   (36450) от 22.11.2024
-
-Глаза без лица / Les yeux sans visage / Eyes without a Face (1960) BDRip [H.264] [VO]
+Граф Монте-Кристо / Le comte de Monte-Cristo (1954) BDRip [H.265/1080p] [10-bit]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм по одноимённому роману Жана Редона... Полиция находит труп в реке и приглашает доктора Женессье, у которого недавно пропала дочь Кристиан, на опознание. Убитый горем отец организует похороны, но на самом деле, девушка жива, а Женессье вот уже несколько месяцев пытается восстановить её изуродованное лицо. Его помощница Луиза заманивает в поместье девушек, которым (   Читать дальше...   )Производство: Франция, Италия / Champs-Élysées Productions, Lux Film S.p.a.Жанр: ужасы, драмаРежиссер: Жорж ФранжюАктеры: Пьер Брассёр, Алида Валли, Жюльет Майниель, Эдит Скоб, Франсуа Герин, Александр Риньо, Беатрис Альтариба, Шарль Блаветт, Клод Брассёр, Мишель ЭчеверриПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:30:21
+По доносу собственных друзей, Эдмон Дантес, был признан виновным в государственной измене и заключён в зловещий замок Иф. Ему суждено было умереть в заточении, но судьба сводит юношу с другим заключённым — аббатом Фариа, который перед смертью раскрывает Дантесу тайну о несметных сокровищах, спрятанных на затерянном в море острове Монте-Кристо и подсказывает идею (   Читать дальше...   )Производство: Франция, Италия / Cineroma, Fono Roma, La Société des Films Sirius, Les Productions Jacques Roitfeld, Lux Film S.p.a.Жанр: драма, мелодрама, приключенияРежиссер: Робер ВернэАктеры: Жан Маре, Лия Аманда, Даниэль Ивернель, Фолько Люлли, Франс Асслен, Люсьен Блондо, Андре Бруно, Жак Кастело, Роже Пиго, Паоло СтоппаПеревод: ДублированныйЯзык озвучки: русский, французскийСубтитры: русскиеПродолжительность: 03:09:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD792A46CB5EBC6DE6E63D171B32A9F10AA14A81
+magnet:?xt=urn:btih:ABADB21033E3185D8CCCEE42C4DAC14148A83B75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761776   (36449) от 22.11.2024
+###  Публикация: 1757154   (39225) от 26.10.2024
 
-Ferry Corsten - Connect (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Аркейн / Лига Легенд / Arcane: League of Legends (2021) UHD BDRip [H.265/2160p] (сезон 1, серии 1-9 из 9) [4K, HDR, Dolby Vision P8, 10-bit]
 
->>Electronic
->>Trance
+>>Мультфильмы
+>>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ferry Corsten & Tom Westy - Back To Life (Extended Mix) [5:33]
-02. Ferry Corsten - Connect (Extended Mix) [5:35]
-03. Ferry Corsten feat. Chris Howard - Where The Mountains Grow (Extended Mix) [6:30]
-04. Ferry Corsten feat. MERYLL - Chain Reaction (Extended Mix) [5:11](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:28:24
+Мультсериал по вселенной игры League of Legends, созданный к десятилетию игры. История разворачивается в утопическом краю Пилтовере и жестоком подземном мире Зауне и рассказывает о становлении двух легендарных чемпионов Лиги и о той силе, что разведёт их по разные стороны баррикад.Производство: США, Франция / Fortiche Production, Riot GamesЖанр: мультфильм, фантастика, фэнтези, боевик, драмаРежиссер: Паскаль Шаррю, Жером Комбе, Арно ДелордАктеры: Хейли Стайнфелд, Миа Синклер Дженнесс, Элла Пёрнелл, Кэти Льюнг, Кевин Алехандро, Гарри Ллойд, Токс Олагундойе, Джейсон Спайсэк, Джейби Бланк.Перевод: Дублированный (Iyuno-SDI Group)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английскиеПродолжительность: ~00:40:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E597D24E6829B6DB58C2E7A9F29576E7CFB4B2B6
+magnet:?xt=urn:btih:FAFD4D96DBE301A2C3078A5961FADDE0FD66E56D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761779   (36448) от 22.11.2024
+###  Публикация: 1757221   (39224) от 26.10.2024
 
-Bette Midler - Sings The Rosemary Clooney Songbook (2003) [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Jazz>
+Сабрина / Sabrina (1954) BDRip [H.264/1080p] [Handmade correction AI]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bette Midler - You’ll Never Know (1:44)
-02. Bette Midler - This Ole House (3:03)
-03. Bette Midler with Barry Manilow - On a Slow Boat to China (2:32)
-04. Bette Midler - Hey There (3:31)(   Читать дальше...   )Жанр: Pop, Vocal, JazzПродолжительность: 00:30:51
+В роскошной усадьбе на западном берегу Лонг-Айленда обитало семейство миллионеров Лэрраби. Отец, мать и два сына. Старший - Лайнус - умный, младший - Дэвид - красивый. В Дэвида была безответно влюблена юная дочь шофера семьи Сабрина. Чтобы "излечить" дочь от любовной лихорадки, отец отправляет её в Париж в школу поваров. Через несколько лет домой возвращается (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драма, мелодрама, комедияРежиссер: Билли УайлдерАктеры: Хамфри Богарт, Одри Хепберн, Уильям Холден, Уолтер Хэмпден, Джон Уильямс, Марта Хайер, Джоан Вос, Марсель Далио, Марсель Хиллэр, Нелла УолкерПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:53:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1A0BD3765EF8687B361C707E41E76CB6A3B92DE
+magnet:?xt=urn:btih:92623410B0D4E75232184121CD4CFCF4DE2F83F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761721   (36447) от 22.11.2024
+###  Публикация: 1757348   (39223) от 26.10.2024
 
-Alice Cooper - Muscle Of Love (Expanded) (1973) Reissue, Remastered, 2024, Warner Records LLC [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock >
+XtraTools Professional 24.10.1 [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1:
-01. Big Apple Dreamin' (Hippo) (2024 Remaster) (5:10)
-02. Never Been Sold Before (2024 Remaster) (4:28)
-03. Hard Hearted Alice (2024 Remaster) (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:20:41
+XtraTools — это универсальный инструмент для оптимизации системы MS Windows, который заботится о каждом аспекте работы вашего компьютера - от оптимизации реестра и удаления ненужных программ, настроить ваши сетевые подключения для увеличения скорости оперативной памяти. Это компактный инструмент с интуитивно понятным интерфейсом, который дает вам полный контроль (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:366626F42E24167B70B0C37C003E781968FF8F03
+magnet:?xt=urn:btih:CE6993DF8E925D142F7979B6374B6C39CDE879BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,27 +182,498 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 418601   (36446) от 23.11.2024
+###  Публикация: 1757233   (39222) от 26.10.2024
 
-Николай Носов | Приключения Незнайки (Радиоспектакль) (2007) [MP3, Ирина Мазинг и др.]
+Real Guitar / Уроки игры на гитаре v8.32.1 Mod by MustHave [En]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Николай Николаевич Носов (1908–1976), русский советский прозаик, драматург. Н.Н. Носов начал публиковать рассказы в 1938 году «Затейники», «Живая шляпа», «Огурцы», «Чудесные брюки», «Мишкина каша», «Огородники», «Фантазёры» и др., напечатанные главным образом в «малышовом» журнале «Мурзилка».
-Наибольшую известность и любовь (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаПродолжительность: 01:11:46
+Real Guitar предоставляет все необходимые инструменты для овладения искусством игры на гитаре на вашем смартфоне или планшете. Теперь вы можете легко играть любую музыку где угодно! Почувствуйте ощущения от игры на гитаре в настоящей группе!Тип издания: PremiumРелиз состоялся: 24.10.2024Разработчик: Kolb AppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:780FEF798AC285D585CB607BEAB75C00A495C06B
+magnet:?xt=urn:btih:3A7A1B17F70BD9F51B1754D3DC87A5931A93F761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757279   (39221) от 26.10.2024
+
+Вы так прекрасны / Je vous trouve tres beau (2005) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилой крестьянин Эме Пигрене потерял жену, но страдает не столько от самой потери, сколько от огромного количества работы на ферме, которую он просто не в состоянии делать сам. Эме решает обратиться в брачное агентство, где ему дают весьма дельный совет: чем искать французскую крестьянку, лучше прокатиться в Румынию. Там полно замечательных и работящих девушек, (   Читать дальше...   )Производство: Франция / Gaumont, Ciné Cinémas, Film Par Film, France 2 CinémaЖанр: мелодрама, комедияРежиссер: Изабель МергоАктеры: Мишель Блан, Медея Маринеску, Владимир Йорданофф, Бенуа Туржман, Ева Дарлан, Элизабет Коммелен, Валери Боннетон, Жюльен Кафаро, Валентин Траверси, Рафаэль ДюфурПеревод: профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: русские (К. Семенюк), французскиеПродолжительность: 01:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD232C66AE68AA34BD54546240CEC3B896B708BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757257   (39220) от 26.10.2024
+
+(Linux) Old World (2022) [Ru/Multi] (1.0.74622/dlc) Unofficial
+
+>>*Nix Игры
+>>Native *Nix Games
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Old World - это историческая стратегия, в которой вы управляете империей на протяжении нескольких поколений. Удастся ли вам оставить после себя великое наследие в эпоху великих царей и цариц? Заключайте браки ради политической выгоды, растите наследников и выстраивайте отношения со знатными семьями вашего царства. Ибо в жестоком, неумолимом мире монархов нет ничего (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mohawk GamesЖанр: Стратегия, ИсторическаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB963C7439D7EBE4ED5F4CA6573DF0FDE9315F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739288   (39219) от 26.10.2024
+
+The Great Rebellion (2024) [Multi] (1.13) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39219.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Great Rebellion - экшен с олдскульной пиксельной графикой и динамичным геймплеем для любителей быстрых сражений, где на кону стоит ваша жизнь. Добро пожаловать в суровый мир будущего, оказавшийся в руках технократической элиты. Обладатели несметных богатств готовы пойти на любые жертвы, чтобы достичь цифрового бессмертия и выйти за пределы человеческих тел. Человек (   Читать дальше...   )Тип издания: LicenseРазработчик: KvltgamesЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AEBD50279F7BE75330CBBF927731652C061E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757283   (39218) от 26.10.2024
+
+З.Н. Быков (ред.) | Бытовая мебель русского классицизма конца XVIII - начала XIX веков (1954) [PDF, DOC]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание включает 53 таблицы, состоящие из фотографий с натуры и обмерных чертежей бытовой мебели конца XVIII — начала XIX вв., наиболее интересной с художественной стороны и характерной по своим стилевым особенностям. Таблицы сопровождаются пояснительным текстом и аннотациями, в которых кратко изложены сведения о каждом предмете. В описании представлены столы, стулья, (   Читать дальше...   )Жанр: мебель, альбом, историяИздательство: Государственное издательство литературы по строительству и архитектуреФормат: PDF, DOCКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2858B7D2692556A69D232C5C2C076198A5A51D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722030   (39217) от 26.10.2024
+
+NG: Расследования Авиакатастроф / Mayday / Air Crash Investigation (2024) HDTV [H.264/1080p] (сезон 24, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реконструкция реальных воздушных катастроф, интервью с авиационными специалистами и очевидцами происшествий.Производство: Канада, Cineflix Productions, National GeographicЖанр: документальный, история, реальное ТВ, катастрофы, криминалРежиссер: George D'AmatoУчастники: Jonathan Aris, Kayley Thomas, Thomas Moore, Geraint Herbert, Brian McDermid, Alison Campbell, Arturo Paredes Polanco, Zachary Amzallag, Brian Cook, Samantha EspieПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: Cерии по 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DD4CA9AE4B9E1867EB2814AA759AC295238E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757013   (39216) от 26.10.2024
+
+ChrisPC Win Experience Index 7.24.1023 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39216.jpg" />
+</div>
+
+
+###  Подробнее
+
+ChrisPC Win Experience Index - бесплатная утилита, с помощью которой можно самостоятельно измерить системный индекс производительности в Windows (в последних версиях Windows разработчики отказались от графической формы этого инструмента).
+Значительно расширяет возможности стандартного индекса. Обладает простым понятным интерфейсом, быстро устанавливается и не требует (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B023449F8CD3B90C787768901C13FA56DA175F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757238   (39215) от 26.10.2024
+
+Основы компьютера: руководство v7.0 Mod by vadj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение содержит статьи, связанные с компьютерными технологиями.
+В приложении присутствуют 4 раздела:
+1. Аппаратное обеспечение 🖥️
+2. Сборка ПК ⚙️(   Читать дальше...   )Тип издания: ModРелиз состоялся: 25.10.2024Разработчик: SergeyV Apps & HandbooksПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA578FE7AB3EEAABA453206883D6E8E38691DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757227   (39214) от 26.10.2024
+
+Разрушительница / The Demolitionist (1995) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие этого женского варианта "Робокопа" происходит в неопределенном будущем. Из тюрьмы прямо во время собственной казни сбежал опаснейший преступник Грико, возглавляющий разгул преступности в городе. Он убивает следившую за ним симпатичную блондинку-полицейскую, но ученый дал ей новую жизнь в экспериментальном проекте "Лазарь". Мстительница, (   Читать дальше...   )Производство: США, Канада / A-Pix Entertainment Inc., Le Monte Entertainment, Planet ProductionsЖанр: ужасы, фантастика, боевик, триллерРежиссер: Роберт КуртцманАктеры: Николь Эггерт, Брюс Эбботт, Сьюзан Тиррелл, Питер Джейсон, Сара Даглас, Ричард Грико, Андраш Джоунс, Хезер Лэнгенкэмп, Дэвид Энтони Маршалл, Джек Нэнс, Джозеф Пилато, Том Савини, Нилс Аллен СтюартПеревод: Двуголосый профессиональный (ДТВ, ЕА)Язык озвучки: русский, английскийСубтитры: английскийПродолжительность: 01:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E284B9259D520963A369CC2F45FF51DD855F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757216   (39213) от 26.10.2024
+
+Кровавая вечеринка / The Slumber Party Massacre (1982) BDRip [H.265/1080p] [10-bit] [Shout Factory Remastered]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока родители в отъезде, старшеклассница Триш с подругами решает устроить вечеринку с ночёвкой. Она даже не догадывается, что маньяк по имени Расс Торн, который в 1969 году убил пять человек и недавно сбежал из психиатрической лечебницы, уже вооружился дрелью с огромным сверлом и подкрадывается всё ближе.Производство: США / Santa Fe ProductionsЖанр: ужасыРежиссер: Эми Холден ДжонсАктеры: Мишель Майклс, Робин Стилл, Майкл Виллелла, Дебра Делисо, Эндри Онор, Джина Смика Хантер, Дженнифер Мейерс, Джо Джонсон, Дэвид Миллберн, Джим БойсПеревод: многоголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: украинские, английские (SDH)Продолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A406063DA87BD8A6C19028E05EF15734528C0D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757236   (39212) от 26.10.2024
+
+Ночной поезд / Night Train (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы спасти жизнь своего маленького сына, хрупкая девушка Холли вынуждена взяться за очень опасное дело — перевозку запрещенных веществ в своем мощном грузовике. Агенты ФБР уже вышли на след и пытаются поймать Холли с поличным.Производство: США / Rebelle Rouser, Rolling Thunder FilmsЖанр: боевик, триллерРежиссер: Шэйн СтэнлиАктеры: Даниэль С. Райан, Диора Бэрд, Джозеф Д. Рейтман, Иван Сергей, Абрахам Бенруби, Кевин Джой, Пол Хаапаниеми, Томас Нельсон, Джо Ландо, Брент БэйлиПеревод: Дублированный (Видео Продакшн)Язык озвучки: русский, английскийСубтитры: русский, английский (SDH)Продолжительность: 01:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF9B8AB186256D187F0389220B012797B0A0E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757215   (39211) от 26.10.2024
+
+Антирадар HUD Speed v68.3 Mod by 0x7d [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антирадар HUD Speed – это цифровой спидометр с функцией предупреждения о превышении ограничения скорости и об опасностях на дороге: камеры, Стрелки, Автодории, посты и прочее.
+HeadUp Display (HUD) – это возможность использовать ваш телефон или планшет как проекционный дисплей. Просто положите устройство под лобовое стекло и вы увидите проекцию скорости и предупреждений (   Читать дальше...   )Тип издания: ProРелиз состоялся: 25.10.2024Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDFFACDCE9AB778A34048961F9BD53350A173DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757288   (39210) от 26.10.2024
+
+Вы так прекрасны / Je vous trouve tres beau (2005) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилой крестьянин Эме Пигрене потерял жену, но страдает не столько от самой потери, сколько от огромного количества работы на ферме, которую он просто не в состоянии делать сам. Эме решает обратиться в брачное агентство, где ему дают весьма дельный совет: чем искать французскую крестьянку, лучше прокатиться в Румынию. Там полно замечательных и работящих девушек, (   Читать дальше...   )Производство: Франция / Gaumont, Ciné Cinémas, Film Par Film, France 2 CinémaЖанр: комедияРежиссер: Изабель МергоАктеры: Мишель Блан, Медея Маринеску, Владимир Йорданофф, Бенуа Туржман, Ева Дарлан, Элизабет Коммелен, Валери Боннетон, Жюльен Кафаро, Валентин Траверси, Рафаэль ДюфурПеревод: профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: русские (К. Семенюк), французскиеПродолжительность: 01:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73AE1B965C4BFC270B6A01451BCA7D01FB06BAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757173   (39209) от 26.10.2024
+
+Сергей Бубновский | Колени и стопы без боли. Как сохранить и восстановить подвижность суставов в домашних условиях (2024) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга доктора Бубновского посвящена здоровью колена и стопы. Вы узнаете, стоит ли принимать хондропротекторы для восстановления суставов, как связано здоровье сердца и состояние стопы, почему не стоит спешить с операцией на колене и как правильно вернуть подвижность в домашних условиях. Более 40 упражнений для дома и зала помогут навести функциональный порядок (   Читать дальше...   )Жанр: Медицина и здоровьеИздательство: ЭксмоФормат: FB2, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D353303F589318710154637048385EC94003E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757209   (39208) от 26.10.2024
+
+The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крадитесь, воруйте и стреляйте в мире The Lamplighters League! Переиграйте врагов и спасите мир в этой пошаговой стратегии! Harebrained Schemes отправят вас в мир 1930-х, который вот-вот поработит тиранический культ «Опальные». Тысячи лет их планы сдерживали ученые, известные как «Лига фонарщиков». Лучших из лучших среди них уже давно нет, и вся надежда теперь на (   Читать дальше...   )Тип издания: LicenseРазработчик: Harebrained SchemesЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CBCB1264A4393C9BCB320A95C37D9B262AAED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514832   (39207) от 26.10.2024
+
+Мужчины не плачут (2020) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья на грани развода после смерти сына. Приход бывшей подруги сына позволил родителям поговорить.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Галина МасленниковаАктеры: Александр Наумов, Светлана Тимофеева-Летуновская, Алина КирилинаСубтитры: английские (хардсаб)Продолжительность: 00:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1F362A5324FB2706C443D40559A1F74AA0B827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756781   (39206) от 26.10.2024
+
+Привидение / Ghost (1990) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Влюблённая пара Сэм и Молли возвращается домой после приятного вечера, когда на них нападает грабитель. Защищаясь, Сэм погибает и становится призраком. Он узнаёт, что его смерть не была случайной, а над его возлюбленной нависла смертельная опасность. Чтобы предупредить Молли, Сэм начинает обход практикующих медиумов и, о чудо! - находит женщину, которая действительно (   Читать дальше...   )Производство: США / Paramount Pictures, Howard W. Koch ProductionsЖанр: мелодрама,фэнтези,триллер,драмаРежиссер: Джерри ЦукерАктеры: Патрик Суэйзи, Деми Мур, Вупи Голдберг, Тони Голдвин, Стэнли Лоуренс, Кристофер Дж. Кин, Сьюзэн Бреслау, Мартина Дэйнан, Рик КлеберПеревод: Дублированный (IVI, СТС), Многоголосый (Premyer, UPR CEE, Karusel, CTC, Kinomaniya), Двухголосый (GoodTimeMedia, PozitivMultimedia_DDV), Авторский (A.Mihalyov)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A324B5F2E599C6AC8C6A187C80D736CDD91E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757185   (39205) от 26.10.2024
+
+The Axis Unseen (2024) [Ru/Multi] (1.01) Repack seleZen
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39205.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Axis Unseen - это игра в жанре хэви-метал хоррор от одного из разработчиков Skyrim и Fallout. Найдите стрелы, напитанные силой стихий. Устройте охоту на чудовищ из древних легенд в открытом мире. Но помните - любой охотник может стать добычей. Устройте охоту на древних чудищ. Ищите их по запаху и следам крови. Учитывайте направление ветра и не дайте им учуять (   Читать дальше...   )Тип издания: RepackРазработчик: Just Purkey GamesЖанр: Экшены, Ролевые игры, СимуляторыЯзык интерфейса: Русский, Английский, Японский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83155819E69A08ED897019285CA76A3E7C36F226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757250   (39204) от 26.10.2024
+
+Super Dark Deception (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ретро-версия популярной хоррор-игры Dark Deception. Она переносит знакомый геймплей в мир пиксельной графики, добавляя новые элементы и сохраняя атмосферу ужаса оригинала. В этой игре вам предстоит пройти через ряд опасных лабиринтов, убегая от преследующих вас монстров. Ваша главная цель - выжить и собрать все необходимые предметы на уровне. По мере прохождения (   Читать дальше...   )Тип издания: RepackРазработчик: Glowstick EntertainmentЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F08193551096E3576E501B2B31495C81367C5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

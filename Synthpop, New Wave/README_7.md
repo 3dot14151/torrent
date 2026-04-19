@@ -1,3 +1,32 @@
+###  Публикация: 1316854   (503971) от 28.07.2019
+
+Yello - 3 Editions (2012, 2017) Remixes [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - The Key To Perfection
+2017 - Frautonium (The Andrew Weatherall Remixes)
+2017 - Limbo (The Remixes)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:945B6C03A4AF07020E30F6DB3EA705820F95E443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565210   (496648) от 22.07.2022
 
 Bellatrix - Travel (2022) [MP3|320 Kbps] <Spacesynth>
@@ -716,35 +745,6 @@ Sandra - Curated By Blank & Jones – So80s (Soeighties) Presents Sandra, 2CD (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E209CC2FDCDF72104258A5419487690CE3946314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572212   (423517) от 26.08.2022
-
-A-Ha - Headlines And Deadlines: The Hits Of A-Ha - 2 (1992) [OGG Vorbis|485 Kbps] <Electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move To Memphis
-02. I've Been Losing You
-03. The Living Daylights
-04. Crying In The Rain(   Читать дальше...   )Жанр: New Wave, Synth-pop, Soft RockПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD57BA9B8D8506B924390CBDDDDBD8F77A6FEE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

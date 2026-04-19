@@ -1,3 +1,30 @@
+###  Публикация: 1225437   (660722) от 15.05.2018
+
+Текстуры - Creative Market - Vector Marble Textures - 624686 [EPS, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры в векторе и не только с официальной документацией, обычные и в инверсионном цвете с прозрачным фоном.
+Автор: GhostlyPixels.Формат: EPS, PNGРазрешение файлов: 8000 x 6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11B8F265F6C38E529EAF2C53452B7FEE7C5C41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225415   (660715) от 15.05.2018
 
 Фоны - Creative Market - 10 Jeans Denim Background Textures - 2200474 [JPG]
@@ -657,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BB61F31847164FCD8E033A02CFEDAFF0AA1521E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031655   (651122) от 04.07.2016
-
-Текстуры - Abstract Grunge background collection [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет текстур для вашего творчества.Формат: JPGРазрешение файлов: 4000x3000 - 5000х5000 / 300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253AB36326B1156E8760BB72E640FAA376E68A7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

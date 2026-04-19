@@ -1,3 +1,61 @@
+###  Публикация: 1152844   (563299) от 24.07.2017
+
+Rosebud - Discoballs (A Tribute To Pink Floyd) (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have A Cigar (4:20)
+02. Free Four (3:31)
+03. Summer 68 (3:56)
+04. Interstellar Overdrive (4:43)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F506173B365C27DB91ECFA1BE65669B91CFB9F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045024   (562979) от 21.08.2016
+
+Britney Spears - Glory (2016) Deluxe Version [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation (3:18)
+02. Make Me... (feat. G-Eazy) (3:51)
+03. Private Show (3:54)
+04. Man On The Moon (3:46)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF82A9E6ACF1AC5ADB9689C8F6603600CF7DE12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153176   (561615) от 25.07.2017
 
 Men At Work - 3 Albums (1981-1985) CD [MP3|320 Kbps] <Electronic, New Wave, Pop Rock, Synth pop>
@@ -687,64 +745,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D0D998AF44C492ACBE27D0649738A5D5E3C6913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308628   (553775) от 15.06.2019
-
-VA - No Schlager No Party (Von Discofox bis Mallorca - Die besten Hits 2019 im Mallorcastyle bis zum Karneval, Fasching und Oktoberfest 2020) (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kay Dörfel - Malinconia
-02. Michael Fischer - Unser Moment
-03. Justin Winter - Die Spannung steigt
-04. Neon - 100.000 Volt(   Читать дальше...   )Жанр: PopПродолжительность: 04:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C7607719DEA357F8ABF8FBCB84C3ABB807801F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308399   (553746) от 15.06.2019
-
-VA - Discofox Stars (Die besten Schlager Hits 2019 für deine Fox Party) (2019) [MP3|320 Kbps] <Disco, Schlager & Volksmusik, Neue Deutsche Welle>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Fischer - Unser Moment
-02. Neon - 100.000 Volt
-03. Andreas Lawo - Verlorenes Glück
-04. Axel Fischer - Bella Ciao (Radio Edit)(   Читать дальше...   )Жанр: Disco, Schlager & Volksmusik, Neue Deutsche WelleПродолжительность: 04:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268796B36713B43C50583192E743B423EDE1E6E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

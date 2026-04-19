@@ -1,3 +1,73 @@
+###  Публикация: 608553   (993423) от 25.01.2013
+
+V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Dub - Insensatez (How Insensitive)
+02. Celso Mendes ft. Lua - Fotografia (Diva Mix)
+03. Karen Souza - Corcovado (Quiet Nights Of Quiet Stars)
+04. Lila ft. Rhythmic Control - Aquarela (Brazilian Tradition Mix)
+05. Aural ft. Ituana - Amanha Talvez
+06. Urban Love ft. Moana - Samba De Uma Nota So
+07. Lalann - Seguir No Caminho
+08. Sound Behaviour - Fixacao (Outro Lado Remix)
+09. Karen Souza - Do You Really Want To Hurt Me
+10. Os Alquimistas - Aguas De Marco (Unconscious Edit)(   Читать дальше...   )Жанр: Bossa, Chillout, LoungeПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611149   (989089) от 30.01.2013
+
+Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfidia
+02. Roma Nun Fa' La Stupida Stasera
+03. Champagne
+04. Anema E Core
+05. Quizas, Quizas, Quizas (duet with Jennifer Lopez)
+06. Era Gia Tutto Previsto
+07. Tristeza
+08. La Vie En Rose (contains exerpts performed by Edith Piaf)
+09. Corcovado (duet with Nelly Furtado)
+10. Sara Settembre (September Morn)(   Читать дальше...   )Жанр: Vocal, BalladПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 434927   (985265) от 11.01.2012
 
 Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005) [FLAC|Lossless]<Indian Classical, Bansuri Flute, Meditation, Relax>
@@ -685,64 +755,6 @@ Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CA93F6F11CAEFCDDCBBAFB6EC7D0551665966AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203275   (788122) от 02.02.2018
-
-Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Divorce Me C.O.D.
-2. Deep South
-3. Blue Smoke
-4. So Round, So Firm, So Fully Packe(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D976318DDDFA61E510B8C29CEB16D7753CD21534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124071   (785927) от 10.04.2017
-
-Mixed Choir под управлением М. Попсавова - Страстная пятница - Bulgarian Orthodo (1993) [FLAC|Lossless|tracks + .cue] <Orthodox Liturgy>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Great Litany (Velika ektenia) [6'13"]
-02. Good-Looking Joseph (Blagoobraznii Jossif) [8'05"]
-03. Grave-Wailing (Nadgroben plach) 20:44
-04. Eulogitarium [06:16](   Читать дальше...   )Жанр: Orthodox LiturgyПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270A002BEE164A55CEDD39D4B10834C02C581B6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

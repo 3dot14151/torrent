@@ -1,22 +1,49 @@
-###  Публикация: 1851210   (1055093) от 31.01.2026
+###  Публикация: 1853381   (1056730) от 14.02.2026
 
-Великая стена / The Great Wall (2016) BDRip [AV1/1080p-LQ]
+Михаил Алексеев | Неожиданный шанс (Книга 4). Время «Ч» (2025) [MP3, Игорь Гмыза]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастический роман о противостоянии с теми, кто пришел из другого мира. Битва за сохранение всего, что было построено.
+Боялся ли этого дня Фомичев? Боялся! И оглядываясь на пройденный путь, отчетливо осознавал, чего достиг. И дело даже не в титуле «Царь». Дело в том, ЧТО он и его люди смогли здесь построить. Иллюзий он не испытывал и был уверен, что любая власть (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 12:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D18DDA2C6BED27F216A72A7DA3D93FE551B512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853470   (1056729) от 14.02.2026
+
+Слепое правосудие / Blind Justice (1994) WEB-DLRip [H.264] [DVO]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Великую стену воздвигли, чтобы оградить Поднебесную от любых угроз, но с таким врагом не сталкивались даже самые отважные ее защитники. Если вторжение не остановить — мир будет уничтожен.Производство: США, Китай, Гонконг, Австралия, Канада, Япония / Atlas Entertainment, China Film Group Corporation, Kava Productions, Le Vision Pictures, Legendary PicturesЖанр: фэнтези, боевик, триллер, приключенияРежиссер: Чжан ИмоуАктеры: Мэтт Дэймон, Тянь Цзин, Педро Паскаль, Лу Хан, Уиллем Дефо, Энди Лау, Эдди Пэн, Нуман Акар, Кенни Лин, Ханьюй Чжан, Вики Юй, Лю Бин, Кай Чжэн, Джонни Чикко, Чэни Чэнь, Кэрри Ван, Сюань ХуанПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:43:03
+Погруженный в свой собственный Ад, ослепший во время войны стрелок Кэнан, скитаясь по Южным Территориям, сталкивается с бандой Алакрана и сержантом армии США Хастингом, вступившими в смертельную схватку за груз серебра. Слепец, не принимаемый в расчет ни той, ни другой стороной, железной рукой вершит Правосудие...Производство: США / Home Box Office (HBO), Original FilmЖанр: боевик, драма, вестернРежиссер: Ричард СпенсАктеры: Арманд Ассанте, Элизабет Шу, Роберт Дави, Адам Болдуин, Иэн Макэлхинни, Дэнни Нуччи, М. К. Гейни, Титус Уэлливер, Джек Блэк, Майкл О’НилПеревод: Двуголосый профессиональный (НТВ+)Язык озвучки: Русский, английский, немецкийСубтитры: Английские (SDH)Продолжительность: 01:28:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9560A7C77F14B8817F2B27D1E0B4F021386EA94
+magnet:?xt=urn:btih:557721AC2B4FCD7D4FF350AC31705BB6CE61F664
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851229   (1055092) от 01.02.2026
+###  Публикация: 1853382   (1056728) от 14.02.2026
 
-Krita 5.2.15 Portable by 7997 [Multi/Ru]
+Аврора Стил | Песнь четырех Эпох (Книга 1). Хроники последнего лета (2025) [MP3, Ольга Сулковская]
 
->>Мультимедиа и Графика
->>Графические редакторы
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Krita – профессиональный бесплатный растровый графический редактор как для любителей, так и для профессиональных художников и иллюстраторов, использующих графические планшеты в процессе создания цифровой живописи как в домашних условиях, так и в игровых студиях, в VFX мастерских и дизайн-студиях.
-Программа имеет широкий функционал. Редактор поддерживает многослойную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Первая часть стимпанк-романа погружает читателя в удивительный мир, где паровые машины сражаются с древней магией за право определять судьбу человечества. В центре повествования – величественная Лорганская империя, где технологический прогресс достиг своего пика, но древняя магия всё ещё хранит свои тайны. На фоне надвигающейся природной катастрофы, грозящей уничтожить (   Читать дальше...   )Жанр: ФэнтезиИздательство: ЛитРесПродолжительность: 12:44:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E56F13F196EEADA28928989EBC92A462DE31C9AF
+magnet:?xt=urn:btih:B9F1F58FF49B226BD4D7062640924B9407C59078
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,79 +77,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851230   (1055091) от 01.02.2026
+###  Публикация: 1853365   (1056727) от 14.02.2026
 
-Flip PDF Plus Corporate 7.11.9 Portable by 7997 [Multi/Ru]
+Юрий Москаленко | Сила магии (Книга 8 часть 1). Герцог Тиру (2025) [MP3, Пожилой Ксеноморф]
 
->>Утилиты, Офис, Интернет
->>Офисное ПО
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Flip PDF Plus Corporate - профессиональная версия нашей мощной программы Flip PDF с множеством функций. С помощью Flip PDF можно конвертировать обычный формат PDF в потрясающие буклеты с удивительной покадровой анимацией. Flip PDF предлагает быстрый и легкий способ конвертировать обычные PDF файлы в потрясающие буклеты с эффектом перелистывания страниц и изумительным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08AE3DC448830872C3784158A28D5AE6A2EAA1F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851110   (1055090) от 01.02.2026
-
-РедСофт, Юлия Немыкина | Расширенное администрирование RedOS (2026) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись онлайн курса "Расширенное администрирование RedOS", включая презентации и приложенные платформой электронные книги в формате pdf. Также подойдет тем кто просто желает улучшить свои навыки администратора Linux систем.Производство: РедСофтЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 20:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3573E01FC05E295AB1C21FDD509C7123C6371476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851152   (1055089) от 01.02.2026
-
-Chrissy LeMaire, Brandon Abshire | AI for Everyday IT. Accelerate workplace productivity (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Automate and accelerate your everyday IT tasks with instant solutions!
+– …нет, мама, парни однозначно решили по своим делам, в новогодние праздники, посетить свой город и заодно до Древних проехаться.
 
-What if you never had to write another after-incident report, piece of boilerplate code, or a performance review from scratch ever again? Use AI tools like ChatGPT, Claude, Gemini, and Copilot right, and you’ll take back hours of your time—and more! AI for Everyday IT reveals how you can automate (   Читать дальше...   )Жанр: Artificial Intelligence, Natural Language Processing, Computer Network AdministrationЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+– А девчонки с ними? – говорит старая герцогиня Тиру.
+(   Читать дальше...   )Жанр: Боевое фэнтези Героическое фэнтезиИздательство: ЛитРесПродолжительность: 05:16:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95C8A222D340088909F97EC3C81A5BF59F3AEA15
+magnet:?xt=urn:btih:68DCED6261820EB256D8D0244A4780DB4FFC15F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851154   (1055088) от 01.02.2026
+###  Публикация: 1853363   (1056726) от 14.02.2026
 
-Ю. Недре, А. Базанов | S(crum)-Light. Понятный путь управления проектами (2023) [PDF, EPUB]
+Юрий Москаленко | Сила магии (Книга 7 часть 2). Путь одарённого. Наследники древних родов (2025) [MP3, Пожилой Ксеноморф]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Зачем нужен S(crum)-Light? Чтобы облегчить жизнь. S(crum)-Light не подразумевает сложной (да и вообще, какой-либо) философии. S-Light - это набор простых правил, выполнения большинство из которых не является обязательным. Любая команда, может взять минимальные элементы S-Light (список задач, разработчиков и дейли) и у них уже будет S-Light. Дальше, они могут, как (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDF, EPUBКачество: OCR, Изначально электронное (ebook)
+Бугрятся мышцы, натруженные за день под её умелыми руками. Тепло дозировано подать. Теперь растереть всё. Слышится вздох наслаждения. Ну, вот, наконец-то, а-то всё никак этого упрямца не удаётся в постель затянуть. А ведь это приказ, недвусмысленный приказ господина, затащить этого тупого вояку в кроватку и соблазнить своими великолепными формами. Ведь вся армия (   Читать дальше...   )Жанр: Боевое фэнтези Героическое фэнтезиИздательство: ЛитРесПродолжительность: 05:13:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:236DD085FEF0DBE13240BCDC7ADF5B5914E67893
+magnet:?xt=urn:btih:A651FF1D80B5F0B663CAF2D8FA6F2036CF646528
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,351 +132,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851155   (1055087) от 01.02.2026
+###  Публикация: 1853362   (1056725) от 14.02.2026
 
-Лао Альфред | Это не бред, это Чат! Как говорить с ИИ, получая и результат, и удовольствие (2025) [PDF, FB2, EPUB]
+Юрий Москаленко | Сила магии (Книга 7 часть 1). Путь одарённого. Наследники древних родов (2024) [MP3, Пожилой Ксеноморф]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056725.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мануал нового поколения в формате бизнес-эссе, для продвинутых и начинающих.
-30 небольших глав, читающихся на одном дыхании.
-Эта книга не с готовыми промптами, а с методологией «на блюдечке».
-Почти в каждой главе примеры и упражнения.(   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A5110E5DCA9596ED4F6C878C5286EE3334C578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851156   (1055086) от 01.02.2026
-
-Дэниел Джексон | Концепции дизайна. Как проектировать ПО, которое работает (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему так много программ остаются несовершенными? Почему до сих пор не существует системного и масштабируемого подхода к созданию удобного, надежного и безопасного ПО?
-Познакомьтесь с нестандартным подходом к проектированию ПО, который построен на концепциях. Дэниел Джексон доказывает, что любую программную систему следует рассматривать как набор взаимодействующих (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF07DCE72A5EEB6F654C22DF3E2996A52DA7F590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851162   (1055084) от 01.02.2026
-
-Андрей Верин | Диалоги с ИИ. Путеводитель по искусственному интеллекту (2024) [PDF, EPUB]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто лучше самого себя может рассказать о себе? Конечно, никто. Поэтому этот мир искусственного интеллекта был написан самостоятельно ИИ. Откройте для себя, как ИИ книга формирует нашу повседневную жизнь, работу и общество. От этих дилемм до прогнозов на будущее — эта книга предлагает глубокий анализ и практические примеры, помогающие каждому понять и научиться взаимодействовать (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700C1427F2C3CC96CDE82FEEF245A96F7B0BD66B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851171   (1055083) от 13.02.2026
-
-Максим Мамаев | Компиляции циклов [2 цикла] (2023-2026) [FB2, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Максим Курбанович Мамаев (18 августа 1992 г.)
-Современный российский писатель, работающий преимущественно в жанрах фэнтези, LitRPG и постапокалипсиса. Стиль-сочетание боевого фэнтези, магических систем, социальных интриг и динамичного сюжета.
-Отличительные черты творчества автора это длинные циклы с регулярным выпуском томов, фокус на выживание, борьбу за ресурсы, (   Читать дальше...   )Жанр: Попаданцы в магические миры, Бояръ-Аниме, Боевое фэнтези, ФэнтезиИздательство: СамиздатФормат: FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C272429BEEDC44BD7BDAA02F9C0055ABF9860A18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851180   (1055082) от 01.02.2026
-
-Peter von Oven | Learning VMware Workstation for Windows. Implementing and Managing VMware’s Desktop Hypervisor Solution. Volume 1 and 2 [2 книги] (2023-2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master VMware Workstation to create and run virtual machines, containers, and Kubernetes clusters simultaneously on physical devices without having to reformat or dual boot the underlying device. This book provides a practical, step-by-step guide to creating and managing virtual machines using VMware Workstation, a software solution that provides a type-2 hypervisor, (   Читать дальше...   )Жанр: Cloud Computing, Software Development, Operating SystemsЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B7731223C966BC473A4E3ED66FDEA3394BAA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851183   (1055081) от 01.02.2026
-
-М.В. Новосадова | Справочник IТ-терминов (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены основные IТ-термины в области разработки, тестирования, системного администрирования, облачных вычислений.
-Для начинающих IТ-рекрутеров и всех, кто интересуется информационными технологиями.Жанр: Компьютерная литератураИздательство: Инфра-ИнженерияФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E058649F9B5EB077582FE6C4CC9F39223E3227EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851184   (1055080) от 01.02.2026
-
-Натан Козыра, Мэтт Батчер, Мэтт Фарина | Go на практике. 2-е изд. (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итак, вы освоили азы Go, что дальше? Чтобы создавать надежные и готовые к использованию Go-приложения, вам нужно научиться реализовывать конкурентность, налаживать сетевые взаимодействия, получать доступ к файлам, использовать такие нативные протоколы передачи данных, как gRPC и TCP/REST, а также разбираться во множестве практических нюансов. В этой книге приводятся (   Читать дальше...   )Жанр: Компьютерная литература, Веб-программирование,  Язык GoИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2C8F11B469259537F5B92852DF97ED35456830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851187   (1055079) от 01.02.2026
-
-Dan Gookin | Tiny C Projects (2023) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn the big skills of C programming by creating bite-size projects! Work your way through these 15 fun and interesting tiny challenges to master essential C techniques you’ll use in full-size applications.
-In Tiny C Projects you will learn how to:
-Create libraries of functions for handy use and re-use
-Process input through an I/O filter to generate customized output(   Читать дальше...   )Жанр: C Programming Language, Microsoft Programming, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624623BEC6988762DFF2480B92D38DD91084BC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851188   (1055078) от 01.02.2026
-
-Ш. Бхуян, Т. Исаченко | Генеративный ИИ. С обучением больших языковых моделей (LLM) для джунов (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это практическое руководство по созданию приложений на основе генеративного искусственного интеллекта и больших языковых моделей (LLM). Особое внимание уделяется прикладным аспектам: промпт-инжинирингу, работе с локальными LLM, тонкой настройке моделей на частных данных и созданию автономных AI-агентов. Приводятся примеры реальных решений, таких как интеллектуальная (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: Бомбора, ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055D869BFF82A70DE0818A0A04714372B54DC593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851189   (1055077) от 01.02.2026
-
-Jens Gustedt | Modern C. Covers the C23 standard. 3rd Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Discover the full power of modern C programming, with an inside look at the new C23 standard.
-For programs that need to be small, fast, and reliable, C is the gold standard. Whether you’re writing embedded code, low-level system routines, or high-performance applications, C is up to the challenge. This unique book by Jens Gustedt, a member of the ISO C standards (   Читать дальше...   )Жанр: C Programming Language, Software Design & Engineering, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDE2518C6550E6D63613E7236821CA766229DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851191   (1055076) от 01.02.2026
-
-Зандер Брамбо | Программирование в Roblox. Сделать игру – проще простого. Создание игр с помощью Roblox Studio и языка программирования Lua от «А» до «Я» (2022) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055076.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге описывается работа на развлекательной платформе Roblox – от программирования в Roblox Lua до создания игр в жанре обби и «Королевская битва». Подробно рассмотрены возможности Roblox Studio, приёмы изменения настроек игры, сценарии программирования. Читатель сможет выполнить практические упражнения, используя примеры кода, и узнает, как достичь максимальной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7861015407A0779607B8891DE2559000A3351F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851195   (1055075) от 01.02.2026
-
-Brian Beuken | The Fundamentals of C/C++ Game Programming. 2nd Edition (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055075.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book gives novice coders an understanding of the methods and techniques used in professional games development. Projects are designed to help develop and strengthen problem solving and basic C/C++ skills. This book also helps develop familiarity with Microsoft Visual Studio’s ability to target and use fixed/restricted hardware, which are key skills in console (   Читать дальше...   )Жанр: Rendering & Ray Tracing, Game Programming, Graphics & Multimedia ProgrammingЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41A1250071F3A466E3D131B9AFA663217087B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851203   (1055074) от 01.02.2026
-
-РедСофт, Николай Краев | Основы администрирования RedOS (2025) PCRec [RU]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс основ администрирования RedOS, подойдет эникеям и начинающим сисадминам.
+«Хел влюблённо смотрит на лицо улыбающейся во сне супруги. Какое же счастье, что ему удалось вырваться из-под опеки графа и теперь он уже сам…
 
-1. Введение
-2. Установка RedOS(   Читать дальше...   )Производство: РедСофтЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:08:25
+Откидывается на подушку.
+(   Читать дальше...   )Жанр: Боевое фэнтези Героическое фэнтезиИздательство: ЛитРесПродолжительность: 05:22:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB6E00E21224BEABED9485527502F667E8331C26
+magnet:?xt=urn:btih:E19C8BB044DE8BE819706D4CE811E5726D8956E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,27 +161,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851202   (1055073) от 01.02.2026
+###  Публикация: 1853356   (1056724) от 14.02.2026
 
-Annegret Junker | Mastering Domain-Driven Design. Collaborative modeling with domain storytelling, event storming, and context mapping (English Edition) (2025) [PDF] [EN]
+Феликс Кресс, Сергей Каспаров | Проект Аномалия (Книга 1). СТАТУС: Пробуждение (2025) [MP3, Александр Авгур]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mastering Domain-Driven Design provides a comprehensive guide to understanding and implementing DDD, an approach to software development that helps you tackle complex projects by aligning your code with the core business concepts.
-
-The book explains the process for designing and modernizing software applications, applying Domain-Driven Design methods to all design (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Software Design, Testing & Engineering, Internet & TelecommunicationsЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+Только очутившись на дне ямы, начинаешь ценить солнце…
+Только умирая - начинаешь ценить все проявления жизни…
+Только потеряв…
+Херня всё это!(   Читать дальше...   )Жанр: РеалРПГ, Боевое фэнтези, Героическое фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 08:04:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A7ACB256B6A2BEB9BD07ADECA5ECA34E2BAA43B
+magnet:?xt=urn:btih:AF97C32D042075BDE4F35DFEB3232234BF8DB348
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,27 +190,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851204   (1055072) от 01.02.2026
+###  Публикация: 1853357   (1056723) от 14.02.2026
 
-Jerome Gotangco, Luca Berton | Red Hat Enterprise Linux 9 for SysAdmins. A technical guide for building secure production systems using RHEL 9 administration (English Edition) (2025) [PDF] [EN]
+Феликс Кресс, Сергей Каспаров | Проект Аномалия (Книга 2). СТАТУС: Адаптация (2025) [MP3, Александр Авгур]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Red Hat Enterprise Linux (RHEL) is the de facto standard for Linux in the enterprise and the latest version (RHEL 9) offers the best of open-source software to date with the stability and security provided by the biggest name in open-source, Red Hat.
-
-The book begins with an introduction to RHEL 9's features, architecture, and its role in the open-source ecosystem, (   Читать дальше...   )Жанр: Linux Programming, Linux & UNIX Administration, Linux Networking & System AdministrationЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+Только очутившись на дне ямы, начинаешь ценить солнце…
+Только умирая - начинаешь ценить все проявления жизни…
+Только потеряв…
+Херня всё это!(   Читать дальше...   )Жанр: РеалРПГ, Боевое фэнтези, Героическое фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 08:18:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:557995A1F61EA5177D892B97FCAA57942658EA49
+magnet:?xt=urn:btih:1F58C1BD91F7DB499B6BA7BD0BFBDA2AB3E53B5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,25 +219,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851205   (1055071) от 01.02.2026
+###  Публикация: 1853348   (1056722) от 14.02.2026
 
-Robin Nixon | Learning PHP, MySQL & JavaScript. A Step-by-Step Guide to Creating Dynamic Websites. 7th Edition (2025) [PDF, EPUB] [EN]
+Герман Романов | Генерал (Книга 2). Война все спишет (2025) [MP3, Михаил Золкин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический роман, переосмысливающий события русско-японской войны 1904 года через призму альтернативного развития истории.
+Продолжение романа «Злой гений Порт-Артура».
+Май – июль 1904 года. Война с Японией начинает принимать совсем иной ход событий, не тот, что знаком нам всем по истории. Необъяснимые поражения русского флота на море и особенно армии на суше, что (   Читать дальше...   )Жанр: фантастика, Попаданцы, Альтернативная историяИздательство: Аудиокнига (АСТ)Продолжительность: 08:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35F22EF7A572FB767ED26DE9D6BFA51DF2473AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853346   (1056721) от 14.02.2026
+
+Герман Романов | Цусима (Книга 2). «Помни войну» (2025) [MP3, Александр Иванов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение романа «Горе побежденным». Цусима для экипажей кораблей под Андреевским флагом уже не станет символом разгрома и позора русско-японской войны 1904-1905 гг. Вот только как избежать поражения, обусловленного самим ходом истории, и которое ввергнет Россию в смуту, что растянется долгими годами?! А ведь тогда ход истории не был предопределен одними лишь объективными (   Читать дальше...   )Жанр: Альтернативная история, Историческая фантастика, Морские приключения, ПопаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 07:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA45FDB063B6C2237DF717A8CBCF951DA8D83809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853345   (1056720) от 14.02.2026
+
+Валерий Рубанцев | Если бы у Диофанта был компьютер. Решаем исторические задачи по математике (2026) [PDF]
 
 >>Компьютерная литература
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1056720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Build interactive, data-driven websites with the potent combination of open source technologies and web standards, even if you have only basic HTML knowledge. With the latest edition of this popular hands-on guide, you'll tackle dynamic web programming using the most recent versions of today's core technologies: PHP, MySQL, JavaScript, CSS, HTML5, jQuery, Node.js, (   Читать дальше...   )Жанр: PHP Programming, MySQL Guides, Introductory & Beginning ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Книга Валерия Рубанцева «Если бы у Диофанта был компьютер» посвящена решению классических исторических математических задач, прежде всего диофантовых уравнений, с использованием современных компьютерных алгоритмов и программирования. Она предлагает новый взгляд на задачи древности, сочетая историю математики с практическими навыками вычислений, что делает ее полезной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED285EE72CAB1A7B32194BD359F50EAAF4145B03
+magnet:?xt=urn:btih:77ECAD8121E1CDFE07A61B47B03B88ADAC310B6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,25 +299,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851206   (1055070) от 01.02.2026
+###  Публикация: 1853344   (1056719) от 14.02.2026
 
-Joos Korstanje | Advanced Forecasting with Python. Mastering Modern Forecasting Techniques with Machine Learning and Cloud Tools. Second Edition (2025) [PDF, EPUB] [EN]
+Вадим Панов | Зандр (Сборник) (2026) [MP3, Александр Слуцкий]
 
->>Компьютерная литература
->>Программирование
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Advanced Forecasting with Python, Second Edition, is a comprehensive and practical guide to mastering modern forecasting techniques using Python. Designed for data scientists, analysts, and machine learning practitioners, this updated edition bridges the gap between classical forecasting models and cutting-edge, AI-powered techniques that are reshaping the field.Жанр: Artificial Intelligence, Statistics, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Эпоха Света изменила планету до неузнаваемости. Городские ландшафты стали вулканами, горы превратились в моря, а цветущие поляны обратились в пустыни. Земля трансформировалась в Зандр — выжженную каменистую пустошь, ставшую новым пристанищем для людей, чудом переживших ужасную войну: они стали жесткими, ожесточенными, озлобленными, но все еще стремящимися сохранить (   Читать дальше...   )Жанр: ФантастикаИздательство: ЛитРесПродолжительность: 12:39:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD96263C0513578142DB7B6EEB58E66A64F4EF8E
+magnet:?xt=urn:btih:E9D1D6A7E4FB32E9CB86454B20FC72DE757F9395
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,28 +325,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851207   (1055069) от 01.02.2026
+###  Публикация: 1853340   (1056718) от 14.02.2026
 
-Marco Peixeiro | Time Series Forecasting Using Foundation Models (2026) [PDF] [EN]
+Сергей Протасов | Цусимские хроники (Книга 8). Нам бы день простоять, да ночь продержаться! (2025) [MP3, Игорь Пронин]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Make accurate time series predictions with powerful pretrained foundation models!
+Русский флот у берегов Японии – впереди решающее сражение!
 
-You don’t need to spend weeks—or even months—coding and training your own models for time series forecasting. Time Series Forecasting Using Foundation Models shows you how to make accurate predictions using flexible pretrained models.
-(   Читать дальше...   )Жанр: Data Processing, Computer Programming Languages, Python ProgrammingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+Русским хватило смелости и даже наглости сунуть голову в пасть дракона, издыхающего, но все еще смертельно опасного. Флот смог прорваться в Токийский залив и даже дотянуться до Йокосуки. Пусть снова не так, как виделось в планах, но все же… Русские полки сошли на японскую землю, и до столицы Страны восходящего (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастика, Военная фантастика, Военные приключения, Историческая фантастика, Попаданцы, Русско-японская войнаИздательство: Аудиокнига (АСТ)Продолжительность: 15:49:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:988E3A6B1D1A71788F730DEEE2DA52A31204C667
+magnet:?xt=urn:btih:CBEDA76A0C79E85A2C67A4CEF2E9DA0B08A20BC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,27 +353,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851209   (1055068) от 01.02.2026
+###  Публикация: 1853339   (1056717) от 14.02.2026
 
-Joseph Schmuller | Statistical Analysis with Python For Dummies. 1st Edition (2026) [PDF, EPUB] [EN]
+Виктор Молотов, Александр Лиманский | Анатомия Тьмы (Книга 5). Проклятый Лекарь (Том 5) (2025) [MP3, Саня БтрЪ]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wrangle stats as you learn how to graph, analyze, and interpret data with Python
-
-Statistical Analysis with Python For Dummies introduces you to the tool of choice for digging deep into data to inform business decisions. Even if you're new to coding, this book unlocks the magic of Python and shows you how to apply it to statistical analysis tasks. You'll learn to (   Читать дальше...   )Жанр: Mathematical & Statistical Software, Statistics, Python ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Аннотацию заподозрили в использовании некромантии... И теперь она на разборках в стенах Инквизиции. Нет, ну вы представляете! Теперь Святославу нужно быть крайне осторожным, чтобы не пойти по ее стопам... И случайно не подмять под себя еще и инквизиторов!Жанр: фэнтези, боевик, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 08:10:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42E34C3883E5017C8F32EC4A52712BC69ED5612E
+magnet:?xt=urn:btih:2C1325BA2BC42EF1BF6D4FB8F18AB2FDAE451BB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,28 +379,318 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851212   (1055067) от 01.02.2026
+###  Публикация: 1853197   (1056716) от 14.02.2026
 
-Nicole Koenigstein | Transformers in Action (2026) [PDF, EPUB] [EN]
+Михаил Усачев | Сокрытый Легион (Книга 2) (2025) [MP3, Денис Борисов]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Understand the architecture that underpins today’s most powerful AI models.
-
-Transformers are the superpower behind large language models (LLMs) like ChatGPT, Gemini, and Claude. Transformers in Action gives you the insights, practical techniques, and extensive code samples you need to adapt pretrained transformer models to new and exciting tasks.
-(   Читать дальше...   )Жанр: Data Processing, Natural Language Processing, Computer ScienceЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Как много фильмов о конце света вы видели? Как много книг читали? Как много историй слушали и как много раз об этом мечтали? А что бы вы сказали, если бы всё это стало реальностью? Я бы сказал..... Восхитительно!!Жанр: РеалРПГ, Постапокалипсис, Боевая фантастикаИздательство: ЛитРесПродолжительность: 08:54:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6DFFA9E47B05B701FCA5B79E35C57EF62707100
+magnet:?xt=urn:btih:BA5687782EF91E5514D217ADB30C3F3118FEF412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853196   (1056715) от 14.02.2026
+
+Михаил Усачев | Сокрытый Легион (Книга 1) (2025) [MP3, Денис Борисов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как много фильмов о конце света вы видели? Как много книг читали? Как много историй слушали и как много раз об этом мечтали? А что бы вы сказали, если бы всё это стало реальностью? Я бы сказал..... Восхитительно!!Жанр: РеалРПГ, Постапокалипсис, Боевая фантастикаИздательство: ЛитРесПродолжительность: 08:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85647582E8ED1BD211D3FF4EC8B0BB5804EE54CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853084   (1056714) от 14.02.2026
+
+Сергей Вишневский | Мой Советский Союз Магических Республик (Книга 1) (2025) [MP3, Александр Мирошниченко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь задумывались, что можно сделать обычной трансмутацией? Помимо учебных заданий на практике.
+Или может быть пытались покрасить пятиэтажку распределяющим жидкость приемом Васнецова через руны?
+Нет?
+А вот Семен с Кириллом да.(   Читать дальше...   )Жанр: Фэнтези, ПопаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 09:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35260DBA23ACC1F99C8ED8477663F308523F227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853087   (1056713) от 14.02.2026
+
+Алекс Ройтблат | 69 способов восполнить жизненную энергию (2025) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энергия – самый главный жизненный ресурс. Мы растрачиваем его ежедневно, но умеем ли восстанавливать? Автор книги дает простые и доступные каждому способы восполнения энергии. Открывай на любой странице и применяй.Жанр: Популярная психология, саморазвитие / личностный ростИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A229314EE816A889A33B2EDAC5B0BBBB7602674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853335   (1056712) от 14.02.2026
+
+Вадим Фарг | Изменивший империю (Книга 7). Последний рубеж (Том 1) (2025) [MP3, Дейв]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я бы хотел сказать, что враг повержен. Слишком долго мы к этому шли, и нам, наконец-то удалось свергнуть Тарникова. Вот только ни его демона, ни его самого найти так и не получилось. Они словно в воду канули.
+И из этого чёртового омута выбирается всё больше тварей, с которыми мне бы не хотелось встречаться. Но разве Вселенная когда-нибудь интересовалась моим мнением? (   Читать дальше...   )Жанр: ФэнтезиИздательство: ЛитРесПродолжительность: 05:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A039DE51A0DEF195E04883D2F1769AF938FCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853333   (1056711) от 14.02.2026
+
+Вадим Фарг | Изменивший империю (Книга 5). Новая ступень (Том 2) (2025) [MP3, Дейв]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крысы всегда бегут с тонущего корабля. Вот только в подобной ситуации у меня возникают вопросы не к грызунам, а к капитану. Как он допустил, чтобы его судно потерпело аварию? Откуда у него вообще растут руки, и в какой заднице находится его голова?
+Князь Тарников желал построить свою империю на несчастье простого люда. Но споткнулся о небольшую ступень. Новую ступень, (   Читать дальше...   )Жанр: ФэнтезиИздательство: ЛитРесПродолжительность: 07:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F4A841F065EA5DD2D37C7820A4D510CB3EFCA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853332   (1056710) от 14.02.2026
+
+Вадим Фарг | Изменивший империю (Книга 3). Первый шаг (Том 3) (2024) [MP3, Дейв]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бои у Русого состоятся уже через неделю, а я ещё не подготовился. Смирнов недоволен моим поведением. Князь собрался посетить свои владения, что тоже неспроста. Да и других проблем хватает.
+Но что делать, когда на меня навалилось столько всего, что я не успеваю? Может, отступить?
+Самый простой вариант, но не в моём случае. Мор никогда не сдавался и доводил всё до (   Читать дальше...   )Жанр: Боевое фэнтезиИздательство: ЛитРесПродолжительность: 07:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C8A3995C7D9E3C90126EA43B7548A0AD5A39A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853192   (1056709) от 14.02.2026
+
+Лис Северный | Мимик! Мимик нового Мира (Книга 2) (2026) [MP3, Александр Мирошниченко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исекай бывает разным. В моём случае история отличается от привычной. Я вернулся из иного мира, сохранив некие магические способности или же системные навыки, пробыв в коме всего каких-то несколько дней своего мира… В "ином мире" прошло гораздо больше… И вот я снова в теле себя прежнего, в теле пацана, который прошёл через многое, но всё же… добился своего. (   Читать дальше...   )Жанр: фантастика, фэнтези, LitRPGИздательство: Аудиокнига своими рукамиПродолжительность: 13:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC82FC639EB3782CCAEB233BDF27B4D4CCD19CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853191   (1056708) от 14.02.2026
+
+Лис Северный | Мимик! Мимик нового Мира (Книга 1) (2025) [MP3, Александр Мирошниченко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исекай бывает разным. В моём случае история отличается от привычной. Я вернулся из иного мира, сохранив некие магические способности или же системные навыки, пробыв в коме всего каких-то несколько дней своего мира… В "ином мире" прошло гораздо больше… И вот я снова в теле себя прежнего, в теле пацана, который прошёл через многое, но всё же… добился своего. (   Читать дальше...   )Жанр: Фантастика, фэнтези, LitRPGИздательство: Аудиокнига своими рукамиПродолжительность: 12:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214F62B9B384F0E5BB6E4492884013CE7F954C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853184   (1056707) от 14.02.2026
+
+Артём Мичурин | Еда и патроны (Книга 3). Песни мертвых соловьев (2024) [MP3, Александр Степной]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056707.jpg" />
+</div>
+
+
+###  Подробнее
+
+После короткой, но убийственной глобальной ядерной войны 2012 года прошло больше сорока лет. Арзамас-16 отстроили заново. В 2053 году он уже представлял собой средней руки город с несколькими предприятиями и почти дармовой рабочей силой. И если за неделю необременительной работы рядовой лац, то есть обычный здоровый человек, получал двадцать монет, то мутант мог (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 11:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E53E7F4681F94214082F58F2E86CF37FB3C8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853183   (1056706) от 14.02.2026
+
+Артём Мичурин | Еда и патроны (Книга 2). Ренегат (2024) [MP3, Александр Степной]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056706.jpg" />
+</div>
+
+
+###  Подробнее
+
+За семьдесят лет, что прошли со времени глобального ядерного Апокалипсиса, мир до неузнаваемости изменился. Изменилась и та его часть, что когда-то звалась Россией. Города превратились в укрепленные поселения, живущие по своим законам. Их разделяют огромные безлюдные пространства, где можно напороться на кого угодно и на что угодно. Изменились и люди. Выросло новое (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 13:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7DDAE4C8E88029C67E8FF0B1552C4B3FDBB96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853317   (1056705) от 14.02.2026
+
+Константин Назимов | Клан для Антиквара (Книга 2) (2025) [MP3, Константин Назимов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я — антиквар, искатель не только старинных вещичек, но и обладающий магической силой. А еще могу сам создать артефакты, но на этом дело не ограничивается. Оказавшись в другом мире, нашел свое место и этому рад. Да, есть проблемы и враги, которых предстоит наказать так или иначе, а мой клан возродить, чтобы тот занял достойное место. Но ведь привык и людям помогать, (   Читать дальше...   )Жанр: фэнтези, ПопаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 09:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D1B54418226F8D1B3650E92D28B438F2E583E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

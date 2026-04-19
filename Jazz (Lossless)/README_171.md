@@ -1,3 +1,61 @@
+###  Публикация: 1159952   (480081) от 22.08.2017
+
+Gil Evans - Live At The Public Theater New York 1980, Vol. I and II (1994) 2CD, Evidence Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Progressive Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480081.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Anita's Dance [17:12]
+02. Jelly Rolls [04:48]
+03. Alyrio [03:15](   Читать дальше...   )Жанр: Post-Bop, Progressive Jazz, Big BandПродолжительность: 01:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD047ACE3324E80772269DA1FD9F2FABC9810FC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938798   (480007) от 19.09.2015
+
+Noemi Nuti - Nice to Meet You (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infanzia
+02. Echoes of Rio
+03. Doralice
+04. Vista(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71780854F2484390B8DF4A6D35AA3DB397604943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938515   (479995) от 19.09.2015
 
 Charles Lloyd - Nirvana (1968) /2014, Sony Music/ [FLAC|tracks+.cue]<Post-Bop>
@@ -687,64 +745,6 @@ Nils - Alley Cat (2015) [FLAC|Lossless]<Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C34C6EC457D178FB1385BDB26193F1FFD8527799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057186   (477721) от 27.09.2016
-
-Art Blakey And The Jazz Messengers - Reflections In Blue (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Reflections In Blue [04:49]
- 02.E.T.A. [05:00]
- 03.Say, Dr. 'J' [09:03]
- 04.Mishima [06:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06104A44C8FFF81C3B74AEF181BF40FDD35BFFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057044   (477714) от 27.09.2016
-
-Iiro Rantala, Lars Danielsson, Peter Erskine - How Long Is Now? (2016) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage (4:22)
-02. How Long Is Now (4:03)
-03. Snapchat (4:14)
-04. Taksim By Night (4:54)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22F11608792E225A94520DDC4D3BF28942976E02
 ```
 
 https://mybot314.ru/tekegram_catalog/

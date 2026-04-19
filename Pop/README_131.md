@@ -1,3 +1,293 @@
+###  Публикация: 1537156   (669321) от 15.03.2022
+
+VA - Mastermix Pro Disc 256 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charli XCX - Good Ones
+02. Doja Cat - Need To Know
+03. Drake feat. Future & Young Thug - Way 2 Sexy
+04. Fred again.. - Billie (Loving Arms)(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:17:29 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3349B717D1192D4A9ED3DB9F96277C6F62329FEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137300   (669300) от 25.05.2017
+
+Script - Electronic And Spatial (unknown) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Script - редкое французское космическое диско высшей категории конца 70-х. Прозорливый меломанский глаз сразу обнаружит здесь обработки знаменитых мелодий группы Space и сольно Didier Marouani, Space Art, композиции из фильмов "Звездные Войны", "Стар Трек" и другие необходимые для коллекции вещи. Год выпуска ориентировочно - 1979.01. Star Wars (4:04)
+02. 2001 A Space Odissey (4:18)
+03. Star Trek (2:44)
+04. The Eve Of The War (The War Of The Worlds) (3:35)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, AmbientПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6EEC59811ADCF988F0EFA1454891DF50E919545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537179   (669260) от 15.03.2022
+
+VA - Mastermix Pro Disc 258 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACRAZE feat. Cherish - Do It To It
+02. Adele - Easy On Me
+03. ArrDee - Flowers (Say My Name)
+04. Beyonce - Be Alive (Original Song from the Motion Picture King Richard)(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:16:12 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4971316C51384A8C8D20DD9E004D3E817DC5C4EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137033   (669215) от 25.05.2017
+
+Dionne Warwick - The Real... Dionne Warwick (2015) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Easy Love
+2. Love Power
+3. Heartbreaker(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 03:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F70D395A0D2B3C3120B16F57E6D694B26A885E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137240   (669141) от 25.05.2017
+
+Blonde On Blonde - Blonde On Blonde (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Fever (3:34)
+02. Staying Alive (4:13)
+03. Ma Baker (4:43)
+04. Substitute (3:14)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD6C4A7A5C0A6639F3D2987276BB14B43440F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291641   (668805) от 25.03.2019
+
+VA - 100 Greatest Breakfast Songs (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668805.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rudimental feat. Jess Glynne, Macklemore & Dan Caplen - These Days 3:32
+002. Jess Glynne - Hold My Hand 3:47
+003. Clean Bandit feat. Anne-Marie & Sean Paul - Rockabye 4:10
+004. Panic! At The Disco - High Hopes 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 05:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB09DBFEEFCB2A8BF1D162527F5D19BA2D1A722E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291571   (668802) от 25.03.2019
+
+Jessica Williams - Queen Of Fools (1979) Harem Records, Reissue CD, 1994 [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of Fools (8:25)
+02. Save The Last Dance For Me / Save It Baby, I Wanna Dance (9:08)
+03. Gambling On Your Love / Gambling Suite (7:53)
+04. Love Masterpiece / I Need You Baby (7:55)Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02505D73D257CF2E4AD886F688052BD106584C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291643   (668801) от 25.03.2019
+
+Philharmonic 2000 - Disconcerto (1976) LP [MP3|320 Kbps] <Modern Classical, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disconcerto (2:35)
+02. Swan Song (3:36)
+03. G-String Boogie (3:19)
+04. Paradise Lost (3:20)(   Читать дальше...   )Жанр: Modern Classical, DiscoПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B856C73D17BFDEBAF5559AE57EA824A1797A757D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291584   (668793) от 25.03.2019
+
+Sidney Barnes - Foot Stompin' Music (1978) LP [MP3|320 Kbps] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foot Stomp'n Music (3:40)
+02. Love In The Moonlight (3:46)
+03. Get On Up And Dance To The Boogie (Or The Boogie Man Will Get Cha) (5:15)
+04. Disco Queen Dance With Me (6:17)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C164A764966753B47AC1DDA560D36616CFDBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031380   (668773) от 03.07.2016
+
+Omer Ozgur - As Is (2009) Reissue, 2016 [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Feeling
+02. Always Been This Way
+03. Don't Let Them
+04. Whom Should I Trust(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189F9511EC98BA5429529A619A1E208FFCFA1587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291538   (668681) от 25.03.2019
 
 VA - 100 Greatest Love Songs (2019) [MP3|320 Kbps] <Pop>
@@ -455,296 +745,6 @@ VA - Mastermix Pro Disc 260 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:631730BCA8F465460E3B43A43D625A312D681D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537506   (667835) от 16.03.2022
-
-VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tame Impala - Eventually (5:18)
-02. Glass Animals - Heat Waves (3:58)
-03. Sean Paul - No Lie (3:41)
-04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F79A18FB470249B9E8355054A4C7213105700E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137317   (667821) от 26.05.2017
-
-The Tee Cee's - Disco Love Bite (1978) LP [MP3|320 Kbps] <Electronic,Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Love Bite (8:16)
-02. The Machine (6:45)
-03. Solid And Cool (7:57)
-04. Ecstasy (7:59)Жанр: Electronic,Funk-Soul, DiscoПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A2B96D839759E538C8CC30CDF01D8B7001ADF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137626   (666716) от 27.05.2017
-
-VA - Disco Spatial (1978) 2 LP [MP3|320 Kbps] <Electronic, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mc Lane Explosion - Oxygene (Long Version) (8:04)
-02. Mc Lane Explosion - Magic Fly (Long Version) (6:50)
-03. Mc Lane Explosion - Fire Land (4:12)
-04. Mc Lane Explosion - Accidental Lover (Long Version) (10:50)(   Читать дальше...   )Жанр: Electronic, Space-DiscoПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A246A405ACA1A419F9BEEA5892B60C5FC06AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137704   (666221) от 27.05.2017
-
-Shakira - El Dorado (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Enamoré
-02. Nada
-03. Chantaje (Ft. Maluma)
-04. When A Woman(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4308CC023328717E4B6658763845EF47E862E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224463   (666059) от 10.05.2018
-
-The Pointer Sisters - In Concert (2007) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Happiness
-2	Automatic
-3	Fairytale
-4	Slow Hand(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23354BEC31696FA2FD4CB482A13E08D47E678B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137728   (665565) от 28.05.2017
-
-The Wonder Band - Stairway To Love (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stairway To Love Medley (16:30)
-- Intro: Stairway To Heaven
-- Stairway To Heaven
-- Stairway To Love(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2ED7A2EC269D21A95B987907B5640D4144E93C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137744   (665561) от 28.05.2017
-
-Alex Maxwell - Signs + Lie To Me (2016-2017) 2EP [MP3|320 Kbps] <Alternative Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665561.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Signs (EP):
-01. Signs
-02. People Are Strange
-03. Letting You Know(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C264184A7FB7237A651AECB334DDDCADD277175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224676   (664868) от 11.05.2018
-
-John Travolta - John Travolta (1998) 2001 Compilation, Reissue [FLAC|Lossless|image + .cue] <Ballad, Rock & Roll, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.		All Strung Out On You
-2.		Big Trouble
-3.		Greased Lightnin'
-4.		Let Her In(   Читать дальше...   )Жанр: Ballad, Rock & Roll, Pop RockПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF11DD7CCA0A81B840E2251F78A48CBEF310412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224539   (664863) от 11.05.2018
-
-VA - Beautiful Mornings - Mesmerizing Soulful Pop Vocals (2018) [MP3|320 Kbps] <Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Godfrey - Life Is An Open Door
-02. Angela Predhomme - Extra Day
-03. Tony Sway - She's Right Here
-04. Chris Warne - The Wall(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 03:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946C0006724AF14AAC766AA221CF5D982519F376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224631   (664862) от 11.05.2018
-
-The New Seekers - The Best Of The New Seekers (2000) [FLAC|Lossless|image + .cue] <Pop, Ballad, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664862.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I get a little sentimental over you
-  2. You won't find another foll like me
-  3. Fire and rain
-  4. All Right My Love(   Читать дальше...   )Жанр: Pop, Ballad, Easy ListeningПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADDD03B60C8C36A747369B3BC7A2B47BC02B8C34
 ```
 
 https://mybot314.ru/tekegram_catalog/

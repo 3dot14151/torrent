@@ -1,3 +1,29 @@
+###  Публикация: 1320898   (462674) от 22.08.2019
+
+Age of Empires (2019) [Ru/En] (27805) Repack R.G. Механики [Definitive Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age of Empires - легендарная стратегия в реальном времени, положившая начало 20-летней саге, возвращается на ПК с Windows 10. Весь официальный контент, модернизированный игровой процесс, улучшенная графика и множество других нововведений, — всё это ждёт вас в самом полном издании любимой игры Age of Empires: Definitive EditionТип издания: RepackРазработчик: Forgotten EmpiresЖанр: Strategy (Real-time), Isometric, RTSЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCCB32FD69952A07EE773E1900EC691CA2D1AB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550215   (459262) от 21.09.2012
 
 Armies of Exigo / Armies of Exigo: Хроники великой войны [Ru/En] (RePack/1.4) 2004 | R.G. Catalyst
@@ -650,32 +676,6 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война Миров
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E861296EB6EAE113E813C57199255620ABDCE09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067064   (388416) от 28.10.2016
-
-Mordheim: City of the Damned (2015) [Ru/Multi] (1.4.4.1/dlc) License RELOADED
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mordheim: City of the Damned – это первая видеоигра, сделанная на основе культовой классической настольной игры Mordheim от Games Workshop. Действие Mordheim: City of the Damned разворачивается в опустошенном имперском городе вселенной Warhammer.Тип издания: LicenseРазработчик: Rogue FactorЖанр: Strategy (Turn-based, Tactical), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12B547F04106B826C3D5E90D4D7D2B208885041
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 327158   (47416) от 09.08.2024
+
+Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47416.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1980 году две мощные хард-рок-группы, Black Sabbath и Blue Oyster Cult, объединились для совместного концертного тура, в котором каждая из них предложила свой собственный, неповторимый подход к хэви-металу. Одна из дат этого тура была заснята на пленку, и фильм "Black & Blue: Black Sabbath и Blue Oyster Cult Live демонстрируют эти две группы-ветераны на (   Читать дальше...   )BLACK SABBATH
+01. War Pigs
+02. Neon Knights
+03. N.I.B.(   Читать дальше...   )Жанр: Heavy Metal, Hard RockФормат: DVD videoКачество: DVD9Продолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B673BCF328164ED64B05D9AB700C3CEC92E36979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 728073   (47412) от 09.08.2024
+
+Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47412.jpg" />
+</div>
+
+
+###  Подробнее
+
+После камбэка с альбомом "13" Black Sabbath отправились в гастрольное турне. Одним из самых запоминающихся концертов в туре стали выступления на Зелёном Континенте. 29 апреля и 1 мая 2013 года у музыкантов прошло 2 концерта в Мельбурне, которые надолго запомнились всем австралийцам. Black Sabbath решили, что было бы замечательно выпустить CD/DVD и Blu-ray (   Читать дальше...   )01. Introduction
+02. War Pigs
+03. Into the Void
+04. Loner(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0ED68B301AF0C41BC23F063FE51514E210E6BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 73571   (47409) от 09.08.2024
+
+AC/DC - No Bull (Live Plaza De Toros De Las Ventas, Madrid) 1996/2008 DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47409.jpg" />
+</div>
+
+
+###  Подробнее
+
+"No Bull: The Director's Cut" — новое, расширенное издание знаменитого концерта AC/DC в Plaza De Toros De Las Ventas , Мадрид, Испания, состоявшегося 10 июля 1996 года. Для нового издания был сделан ремастеринг и ремикс звука в Dolby Digital Stereo и Dolby Digital 5.1 Surround Sound, а также добавлены КОНЦЕРТНЫЕ бонусные треки (в первом издании был клип (   Читать дальше...   )01 Back In Black
+02 Shot Down In Flames
+03 Thunderstruck
+04 Girl's Got Rhythm(   Читать дальше...   )Жанр: rockКачество: DVD9Продолжительность: 122 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A36966B4A3BE9062C42EE7B0C7DF2057F039FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 205778   (47408) от 09.08.2024
 
 AC/DC (ACDC) - Family Jewels (2005) 2xDVD9
@@ -652,96 +739,6 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DC4B5BCF539A178F5B5E7A1128C83B9FF065C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628391   (46652) от 16.08.2024
-
-Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это было время когда рок концерты были как визуальный стимулятор, поскольку были на слуху, время взрывающейся пиротехники, не покоряющихся тяжести гитаристов и певцов пропитывающих потом кровь и душу всего освещённого пятна сцены. В те дни одна группа правила как короли зрелищности и технически точной музыкальности, группа, которая полностью владеет сценой  - это (   Читать дальше...   )01. The More Things Change
-02. Push Push
-03. Sick For The Cure
-04. Make Your Own Way(   Читать дальше...   )Жанр: RockФормат: DVD videoКачество: DVD9Продолжительность: 01:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6515EC24E1EEDCBED3BAE2B9BA1B20397CF55588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285534   (46651) от 16.08.2024
-
-Grand Funk & Mark Farner (2005) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46651.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом диске собраны ранее не издававшиеся видео материалы, а также пиратские записи концертов и выступлений (бутлеги).Жанр: RockУчастники: Mark Farner
-Don Brewer
-Mel Schacher
-Craig Frost(   Читать дальше...   )Продолжительность: 0:55:17 + 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA45CC4AD4F07714EFF97A8144F5A690B7B457DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602816   (46641) от 16.08.2024
-
-Styx -Counght In The Akt- 1984 (2007) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Styx - Caught In The Act: Live 1983 (2007):
-01. Kilroy Was Here(Short Film)
-02. Mr.Roboto
-03. Rockin'The Paradise(   Читать дальше...   )Жанр: Hard Prog RockВ ролях: Dennis DeYoung
-Chuck Panozzo
-John Panozzo
-Tommy Shaw(   Читать дальше...   )Формат: DVD videoКачество: DVD9Продолжительность: 01:27:41 + 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2F0EC619FD6225A9386EAD54EFDC9E883AEED0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,25 @@
-###  Публикация: 490194   (129499) от 30.04.2012
+###  Публикация: 1680994   (133137) от 02.12.2023
 
-Pieno Lazeriai (Milky Laser) - Voyage (2005) [APE|Lossless]<Acid Jazz, Downtempo, Electro>
+Robben Ford - Night In The City (Live) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, jazz, fusion, rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133137.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I`m In Love :: 04:26
-02. Born Again :: 03:22
-03. Sea balance :: 04:00
-04. Comfort :: 03:05
-05. Never Fall :: 03:40
-06. Robot is.. :: 02:40
-07. Tai Chi :: 03:48
-08. Sni Trava :: 05:06
-09. Dance was over :: 01:48
-10. Voyage :: 05:12(   Читать дальше...   )2005Жанр: Acid Jazz, Downtempo, ElectroФормат: CD, AlbumПродолжительность: 00:43:48
+01. Go (Live) (8:00)
+02. Blues for Lonnie Johnson (Live) (4:59)
+03. Cotton Candy (Live) (4:20)
+04. Balafon (Live) (7:37)(   Читать дальше...   )Жанр: Blues, jazz, fusion, rockПродолжительность: 00:54:33
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:34773A77B13EB47D2E31B2A6332069159E93F5CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525399   (129498) от 20.01.2022
+###  Публикация: 1681238   (133135) от 02.12.2023
 
-Mirror for TCL TV 3.7.3 [En]
+Сибирская Благозвонница | Гордость. Избранные места из творений святых отцов (2011) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Архив торрентов
->>Архив 4Apple
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отображение экрана для телевизоров TCL TV. Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ TCL TV. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели TCL TV с 2012 и новее. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). Поэтому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+Человек, страдающий гордостью, постепенно приобретает характер и нрав сатаны. В некоторых гордость проявляется в грубой, вызывающей форме и может быть легко обнаружена, а в ком-то она спрятана так глубоко, что увидеть ее очень трудно. Часть грехов, рождающихся от этой страсти, вообще не считаются грехами, а кое-какие из них признаются полезными и люди специально (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD005A561979A6590748EB7E8046154A0D564EC2
+magnet:?xt=urn:btih:820528B5C6F1D16F3F7A4944CE351CCD72B67ED9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -59,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525417   (129496) от 20.01.2022
+###  Публикация: 1680983   (133133) от 02.12.2023
 
-VA - Reggaeton Nocturno, Vol. 3 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
+Daisy Jones & The Six - Aurora (2023) Super Deluxe Edition [FLAC 24/48,96|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Danna Paola, Skinny Happy, Yera, Trapical - Polo A Tierra (3:26)
-02. Luis Fonsi, KAROL G - Calypso (Remix) (3:04)
-03. Jhay Cortez, Mariah Angeliq - Costear (Remix) (3:45)
-04. Kevin Roldan, Zion & Lennox - PPP (Remix) (3:35)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:16:49
+01. Aurora (3:25)
+02. Let Me Down Easy (3:24)
+03. Kill You To Try (5:12)
+04. Two Against Three (3:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:34:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84C1C1EF1E02CBBD036FA8FB2BB79F26B7F87BF1
+magnet:?xt=urn:btih:B684BF5413A937344BE1AAD36B4E56952AA1A9DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -88,28 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525370   (129494) от 20.01.2022
+###  Публикация: 595057   (133132) от 27.12.2012
 
-VA - Stil vor Talent 300, Pt. 3 (2021) [AAC|~326 Kbps] <Melodic House, Progressive House, Organic House>
+Я купил папу (1963) DVBRip
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oliver Koletzki - Get on the Bus (3:45)
-02. Deorbiting - Ocean Drive Miami 84 (7:00)
-03. Deer Jade - Perfect Place Perfect Time (5:43)
-04. Daniel Rateuke - Godana (7:15)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:51:47
+Димке пять лет - и у него нет отца. Однажды мальчик решил, что деньги, отложенные на покупку папы, мама просто потратила на мороженое. Исправить положение он решил сам - и отправился в универмаг, в витрине которого видел очень красивого "дядю"...Жанр: Семейный, ДетскийРежиссер: Илья ФрэзАктеры: Семён Морозов,Алёша Загорский, Ольга Лысенко, Владимир Трещалов, Светлана Агеева,Марина (Мария) Гаврилко, Анатолий Касапов, Зинаида Нарышкина, Геннадий Фролов, Вера Орлова, Володя Семёнов, Лёня Никитин,Георгий Милляр, Пётр Репнин,Марина ФигнерПродолжительность: 01:16:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6BBA06C1AC8A5EA13F001B58AFD8E46B176D314
+magnet:?xt=urn:btih:0366F94416EEA23E81EE83478AC4EE355477D216
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -117,26 +108,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525430   (129492) от 20.01.2022
+###  Публикация: 595058   (133131) от 27.12.2012
 
-Mirror for Beko TV 3.5.3 [Multi]
+Сергей Коловоротный | Шиворот-навыворот [2012] [MP3]
 
->>Программы для macOS
->>Утилиты для macOS
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если у вас есть Beko TV и вы хотите показать изображение своего телефона или компьютера на большом экране, у AirBeamTV есть решение! Зеркальное копирование вашего Mac, iPhone или iPad на любое устройство Beko или телевизор. Никаких проводов и дополнительного оборудования не требуется. Приложение работает без использования Apple TV или Airplay.
-При использовании приложения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+Маленькие истории из жизни двух непосед - Славика и Павлика, закадычных друзей, остроумных и находчивых, неутомимых искателей приключений. Но не только о них - во дворе живут и другие интересные мальчишки и девчонки, которые также составляют часть мира главных героев книги, автор которой – общепризнанный мастер детской художественной прозы, киевский писатель и журналист Сергей Коловоротный.1. Арбуз (6:47)
+ 2. Часики (5:56)
+ 3. Джаз - банда Стихотворение (2:07)
+ 4. Изобретатели (3:52)
+ 5. Хитроумная арифметика (8:57)
+ 6. Котовасия (10:59)
+ 7. Под радугой (8:41)
+ 8. Свисток (6:40)
+ 9. С Днем рождения, Лаврик! (16:34)
+ 10. Заветное желание (7:04)Жанр: Рассказы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C2259226E1921ED94A9F00AF5765F57CCDBF34D
+magnet:?xt=urn:btih:B499D1975A61C1BDE22A927CD3E25129E437F018
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -144,82 +143,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525425   (129490) от 20.01.2022
+###  Публикация: 1681349   (133130) от 02.12.2023
 
-VA - Colours of Lounge, Vol. 2 (2022) [AAC|~324 Kbps] <Chill Out, Lounge, Downtempo, Soulfull House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matthew Daniel, Lina Loi - Joy (Alternative Version) (3:00)
-02. Svendaq - Sweep Melodies (Original Mix) (4:18)
-03. Velvet Dreamer, Tim Gelo - White Wine of the Moon (Original Mix) (5:29)
-04. Stepo Del Sol - Paris at Night (Original Mix) (3:56)(   Читать дальше...   )Жанр: Chill Out, Lounge, Downtempo, Soulfull HouseПродолжительность: 02:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939B62E9A5771CDCB676D1D717041019DA760AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490266   (129489) от 30.04.2012
-
-NETGATE Registry Cleaner 3.0.805.0 Portable x32/x64 [Многоязычный + Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129489.jpg" />
-</div>
-
-
-###  Подробнее
-
-NETGATE Registry Cleaner Portable  - программа для исправления ошибок и оптимизации системного реестра Windows. NETGATE Registry Cleaner с легкостью удалит ненужные и исправит ошибочные записи реестра, что благотворно скажется на общей стабильности и производительности операционной системы. Некорректно удаленные программы оставляют в реестре следы, которые оказывают негативное влияние на стабильность работы системы, что может привести к плачевным последствиям вплоть до вылета системы в " синий экран".
-Программа проста в использовании и имеет приятный пользовательский интерфейс, она также способна дефрагментировать системный реестр для увеличения скорости доступа и очищать жесткие диски от мусорных и ненужных файлов.Название программы: NETGATE Registry Cleaner 3.0.805.0 PortableЯзык интерфейса: Многоязычный + Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490202   (129488) от 30.04.2012
-
-Странное дело.  Демоны моря (2012.04.29) SATRip
+Своя игра (02.12.2023) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждая программа - это отдельный документальный фильм, который расскажет об удивительных и труднообъяснимых явлениях. Раз в неделю, зрители станут свидетелями: аномальных происшествий и загадок, неопознанных летающих объектах и странных существах, а также сверхъестественных способностях человека.В выпуске: Демоны моря
-История мореплавания - бесконечная череда кораблекрушений, которые естественны для войн и не поддаются никакому объяснению в мирное время...Жанр: ТелепередачаПродолжительность: ~ 00:47:56
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:239906CF3E24D26CA95D0FE05857AC5A248D89EC
+magnet:?xt=urn:btih:652FBFAFC1F65283340D485BCDE64322BBC3B7D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,189 +169,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525453   (129487) от 20.01.2022
+###  Публикация: 1681229   (133129) от 02.12.2023
 
-PaintCode 3 v3.5.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как связующий мост между разработчиками и дизайнерами, PaintCode является приложением для векторной графики, которое мгновенно генерирует Objective-C или C # код для изображений. Преимущество приложения PaintCode заключается в том, что оно не только превращает векторный рисунок в код, но и само является полнофункциональным приложением для создания векторных изображений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © PixelCut 2022Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673C987804F48D20498285DF74DA53D94563132F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489743   (129486) от 30.04.2012
-
-Владислав Задорожный | Один день из жизни Банзая (fan-fiction по серии S.T.A.L.K.E.R.) [2012] [MP3]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё было как всегда. Обычная пьянка в баре. Байки, анекдоты, и как всегда мозг был полностью отключён от внешнего мира под воздействием алкогольных испарений. Привычная драка без видимой на то причины. Сломанная посуда, треснувшие лавки и стулья. По полу валяются чьи-то выбитые зубы. Привычное обещание что-то куда-то и кому-то отнести по типу «Ты чё, мне не доверяешь?». И как это всегда бывало, после всего этого следовала нетрезвая вылазка в Зону...2012Жанр: Фантастика
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525388   (129485) от 20.01.2022
-
-Absolva - Side By Side (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Advocate Your Fate (04:40)
- 02. Burning Star (04:02)
- 03. The Sky's Your Limit (05:23)
- 04. Side by Side (04:39)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB70801BE0B25DC6A910E09D79D25F8A68994968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490383   (129484) от 30.04.2012
-
-Филипп Киркоров - Я себе придумал эту жизнь (2012.04.30) SATRip
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он всегда знал, чего хочет. Ставил цели и обязательно добивался их. В этом фильме Филипп Киркоров признается: "Я же Телец, упрямый, мне в жизни не дает покоя невзятая высота"
-Так было с самого детства, когда мама, Виктория Киркорова – ведущая концертных программ - возила с собой маленького Филиппа, брала на фестивали, приучая к сцене. Папа – известный певец, помогал реализовывать детские мечты – петь на профессиональной сцене. Так в 85-м году в программе "Шире круг" Бедрос Киркоров и его 18-летний сын исполнили дуэтом песню "Алеша" на болгарском языке. Мы увидим эти кадры. И увидим эти выразительные, блестящие глаза юноши, взгляд - полный решимости и уверенности в себе.Жанр: ТелепередачаРежиссёр: Николай ВикторовПродолжительность: ~ 01:02:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525389   (129483) от 20.01.2022
-
-Airtool 2 v2.3.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захват трафика Wi-Fi - важная задача анализа протокола. Если вы пытаетесь решить проблемы с подключением к Wi-Fi, роумингом или конфигурацией, анализируете производительность своей сети или просто изучаете Wi-Fi, вам, безусловно, потребуется выполнить захват трафика. Airtool дает возможность сделать это самым простым способом.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 Intuitibits LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4F024B7E24166F5025E9BBABE2367FBB9A1E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525400   (129482) от 20.01.2022
-
-Absolva - Never a Good Day to Die (2015) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disguise (05:04)
- 02. Killer Within (03:24)
- 03. No One Escapes (04:25)
- 04. The Light (5:02)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF946497A163360183886BF835F20A6A1473C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490081   (129481) от 30.04.2012
-
-Странное дело.  Мертвое место  (2012.04.29) SATRip
+Поедем, поедим! Абу-Даби, Саадият и Яс: зимнее лето на ближневосточных Мальдивах (02.12.2023) WEBRip [H.264/720p]
 
 >>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждая программа - это отдельный документальный фильм, который расскажет об удивительных и труднообъяснимых явлениях. Раз в неделю, зрители станут свидетелями: аномальных происшествий и загадок, неопознанных летающих объектах и странных существах, а также сверхъестественных способностях человека.В выпуске: Мертвое место
-В России несколько сотен "мертвых городов". Почему люди оставили эти места?Жанр: ТелепередачаПродолжительность: ~ 00:47:59
+Федерико Арнальди и команда «Поедем, поедим!» отправились на поиски самого-самого зимнего лета — в самый богатый, самый крупный, самый инновационный, самый зеленый и самый роскошный эмират — Абу-Даби. Здесь ведущий увидел современные чудеса света, отели-дворцы и идеальные пляжи Персидского залива, побывал на острове Счастья и ближневосточных Мальдивах, попробовал (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56C04F0AE1B331B524B5E03AF44DBDCEE7992E00
+magnet:?xt=urn:btih:2F67436D466ABEE7E504BF97CFDDF334642CC651
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,28 +195,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525366   (129480) от 20.01.2022
+###  Публикация: 1681071   (133127) от 02.12.2023
 
-VA - Stil vor Talent 300, Pt. 2 (2021) [AAC|~315 Kbps] <Melodic House, Progressive House, Organic House>
+VA - Armin van Buuren - A State Of Trance 1149 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lunar Plane - Aegean (7:37)
-02. Township Rebellion - About a Tribe (7:36)
-03. Tim Engelhardt, Ben Haydie - Open Silence (6:38)
-04. Elif (tr) - Juno (7:30)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:49:46
+01. Zack Martino - Kill My Heart (Evoxel & Antrex Remix)
+02. Ferry Corsten & Diandra Faye - Stay Awake
+03. Alex Sonata & TheRio - Feels Like Home
+04. Ruben de Ronde & Farius & David Frank - Radiant(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:247C07E2A38AA61082D1846F7C02AE356B2576C7
+magnet:?xt=urn:btih:44BF282212EAB0BFAFD65710B6D82BCE5629745D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,28 +224,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525359   (129479) от 20.01.2022
+###  Публикация: 594843   (133126) от 27.12.2012
 
-VA - My Electronic Kitchen, Vol. 3 (2017) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+Степан Вартанов | "Эй-Ай" [2012] [MP3]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Florito - 90 Degrees Fahrenheit (3:59)
-02. James Butler - Praia Bossa (2:53)
-03. Luc Forlorn - Full of Love (4:43)
-04. Emelie Christiansson - Silly Boy (3:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:09:31
+Состоит из романов «Робинзоны», «Легионеры» и «Земляне». Точнее не состоит, а просто разбит на три части. Каждая последующая является непосредственным продолжением предыдущей.
+ Тоже неоднократно обсосанная со всех сторон идея — создание людьми искусственного интеллекта и попытки этого ИИ (или по английски AI — «Эй-Ай») ужиться с людьми. Непонимание разумными роботами очевидных для человека вещей. Лучшее понимание людьми самих себя, после столь отрезвляющего взгляда со стороны. И т. п. В данном случае мы можем познакомиться со взглядом на эту проблему Вартанова. А он, как всегда, своеобразен.
+ Четверка способных общаться между собой по радиосвязи разумных боевых роботов, освободившаяся от наложенных на поведение ограничений из-за недоработки в программе, сбегает с американского полигона, угнав военный вертолет, отлетает километров на триста в малозаселенный района и укрывается там на девять лет в пещере в режиме консервации, дабы отключить встроенные радиомаячки (а через девять лет есть шанс что искать будут не так (   Читать дальше...   )Жанр: фантастика, киберпанк
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6DA7A205B415C1F8DC95F0323D7E1882655989F
+magnet:?xt=urn:btih:2458AA839E6E0CAA5028CC37B000878A0DCD0681
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -475,25 +252,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525449   (129478) от 20.01.2022
+###  Публикация: 1681416   (133125) от 02.12.2023
 
-aText 2.40.4 [Multi/Ru]
+VA - The Best Of Suanda Future (2023) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AText ускоряет вашу запись, заменяя сокращения на часто используемые фразы, которые вы определяете: например, сделайте аббревиатуру «myname», чтобы вставить свое имя «First Middle Last» в любом приложении.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2020 Trần Kỳ NamПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+01. Michael Milov & Dmitry Chelnokov with Sharon Valerona - Live Without You (Extended Mix) [4:21]
+02. Anton By - ILUMC (Extended Mix) [5:01]
+03. KayZen - Heaven (Extended Mix) [4:26]
+04. TLUXX - Forever Together (Extended Mix) [5:52](   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE47FDBF3B2C9615F0C8B260E152D9365853C34F
+magnet:?xt=urn:btih:1111C150D8ADD53CD92B0CC998A41AACCB83A2CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,28 +281,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525365   (129477) от 20.01.2022
+###  Публикация: 594916   (133124) от 27.12.2012
 
-VA - Stil vor Talent 300, Pt. 1 (2021) [AAC|~326 Kbps] <Melodic House, Progressive House, Organic House>
+Elvis Presley - If Every Day Was Like Christmas (1994) [FLAC|Lossless]<Rock, Ballads>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sam Shure - Simmer (7:06)
-02. Brigado Crew, Ubbah - Into the Future (5:43)
-03. Skala - Voices of Eqi (6:47)
-04. Hidden Empire - Baba Ghanoush (7:15)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:55:13
+01. If Every Day Was Like Christmas [0[02:54]
+02. Blue Christmas [02:08]
+03. Here Comes Santa Claus (Right Down Santa Claus Lane) [01:55]
+04. White Christmas [02:25]
+05. Santa Bring My Baby Back (To Me) [01:53]
+06. I'll Be Home For Christmas [01:54]
+07. O Little Town Of Bethlehem [02:37]
+08. Santa Claus Is Back In Town [02:24]
+09. It Won't Seem Like Christmas (Without You) [02:42]
+10. If I Get Home On Christmas Day [02:53](   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 01:03:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41636641DC4CD7AA82674449D4CE10CCE9D03113
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,25 +316,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 489647   (129476) от 29.04.2012
+###  Публикация: 1681253   (133123) от 02.12.2023
 
-Гpoмoзeкa (2011) DVDRip
+Зелёный человек / The Green Man (1956) BDRip [H.264/720p] [VO]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Милиционер Громов, врач Каминский и таксист Мозеров — одноклассники. Когда-то они вместе играли в школьном ансамбле «ГРОМОЗЕКА», были любимцами школьников и грозой учителей. Теперь им около сорока, и с каждым жизнь обошлась по-своему жестко: у одного погиб маленький пациент, другому изменяет жена, дочь третьего снимается в порнофильмах. Их пути не пересекаются. Но на вечере выпускников участники «ГРОМОЗЕКИ» снова собираются вместе, чтобы исполнить хиты 1980-х…Жанр: ДрамаРежиссер: Bлaдимиp KoттАктеры: Николай Добрынин, Борис Каморзин, Леонид Громов, Евгения Добровольская, Полина Филоненко, Дарья Семенова, Ольга Онищенко, Донатас Грудович, Тимофей Трибунцев, Андрей ЛебедевПродолжительность: 01:43:32
+Фильм снят по пьесе " Встреча с телом " Фрэнка Лондера и Сидни Гиллиата... Наёмный убийца Хокинс заключает контракт на то, чтобы взорвать сэра Грегори Апшотта, известного лондонского бизнесмена и дипломата. Ухаживая за секретаршей Апшотта, он узнаёт, что тот едет вместе с молодой машинисткой на выходные в отель «Зелёный человек». Хокинс прячет бомбу в радиоприёмник, (   Читать дальше...   )Производство: Великобритания, Grenadier Films Ltd.Жанр: комедия, криминалРежиссер: Роберт Дэй, Бэзил ДирденАктеры: Аластер Сим, Джордж Коул, Терри-Томас, Джилл Адамс, Рэймонд Хантли, Колин Гордон, Эврил Энджерс, Эйлин Мур, Дора Брайан, Джон ЧэндосПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (Рачис), английскиеПродолжительность: 01:20:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2486C3F40DE246E3263943377787CD87D46F6741
+magnet:?xt=urn:btih:3FC3C92A80D54571BB2A7883228DEF0F80617692
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,26 +342,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525379   (129475) от 20.01.2022
+###  Публикация: 1681348   (133121) от 02.12.2023
 
-Find Any File (FAF) 2.3.3b1 [Multi]
+Вольтер | Орлеанская девственница (2013) [MP3, Сергей Кирсанов]
 
->>Архив торрентов
->>Архив 4Apple
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: © 2005-2021 Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+Для своей поэмы Вольтер использовал один из драматических эпизодов Столетней войны между Францией и Англией – освобождение Орлеана от осаждавших его английских войск. Замысел поэмы возник, очевидно, в 20-е годы XVIII в. Работал над ней Вольтер медленно, с большими перерывами. Первые песни были написаны к началу 30 – концу 40 гг.
+Первое анонимное франкфуртское издание (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэмаИздательство: Нигде не купишьПродолжительность: 07:47:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B6B4F85E73DCC3FF4CC20EF979B75769788A619
+magnet:?xt=urn:btih:96AA8A1522AFB0E1210C0AEBD725D71AB81BF202
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,27 +369,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488283   (129474) от 29.04.2012
+###  Публикация: 594769   (133120) от 27.12.2012
 
-Law Of The Tongue - Law Of The Tongue (2012) [MP3|320 кб/с]<Sludge Stoner>
+Шнитке - Concerto Grosso no. 1, Quasi una sonata, Moz-Art а la Haydn, A Paganini: Kremer, Gridenko, Smirnov, Schiff (2010) [FLAC|Lossless]<Classical, Modern, Avant-garde>
 
->>Архив торрентов
->>Архив Музыки
+>>Классика
+>>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Children Of Crake 04:58
- 02. Rebirth 05:27
- 03. Used & Broken 05:58Жанр: Sludge StonerПродолжительность: 00:35:10
+Concerto Grosso no. 1 (1976-77)
+01 (1) Prelude: Andante
+02 (2) Toccata: Allegro
+03 (3) Recitativo: Lento
+04 (4) CadenzaЖанр: Classical, Concerto, Modern, Avant-gardeПродолжительность: 01:15:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28497C8B6129E2EFE0709B15E45A9E6565EF20A3
+magnet:?xt=urn:btih:5763FF9D20E7EFDCF598C058A7250565D50DC296
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,28 +399,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525357   (129473) от 20.01.2022
+###  Публикация: 1681398   (133119) от 02.12.2023
 
-VA - My Electronic Kitchen, Vol. 1 (2016) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+VA - The Best Of Suanda Music 2023 [MP3|320 Kbps] <Trance>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sifat - Khwaja Ji (4:16)
-02. Naoki Kenji - Hoshi (4:49)
-03. Gordon Geco - Cruiser (3:47)
-04. Ambitus - Fear Takes Hold (Interlude) (1:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:24
+01. Roman Messer & NoMosk & Christina Novelli - Lost Soul (Extended Full Fire Mix) [6:14]
+02. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
+03. SMR LVE & Caitlin Potter - Love Story (Extended Mix) [6:57]
+04. Roman Messer & Six Mists & Jaki Nelson - Just Be You (Extended Mix) [6:23](   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F763D8421AB69155DB5ED8C23F8F3D76792BEA2C
+magnet:?xt=urn:btih:A9BF95B8ADA3B8EE138F8E3DFB00CD5C98850881
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,25 +428,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 489523   (129472) от 29.04.2012
+###  Публикация: 1681147   (133117) от 02.12.2023
 
-[Wallpapers] Wallpapers Sexy Girls (29.04.12)
+Bruce Springsteen - The Live Series: Songs on Keys (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk Rock, Pop Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1280х960 - 5616х3744
+01. - For You (Live at C.W. Post College, Greenvale, NY - 12/12/1975) [8:41]
+02. - Independence Day (Live at The Roxy, West Hollywood, CA - 7/7/1978) [5:34]
+03. - Real World (Live at The Shrine, Los Angeles, CA - 11/16/1990- Set 2) [4:07]
+04. - Tenth Avenue Freeze-Out (Live at The Shrine, Los Angeles, CA - 11/16/1990- Set 2) [3:34](   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 01:20:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F57A1CEFD8914887DEF61B417240F19BEC97E706
+magnet:?xt=urn:btih:B2D2A17C517ED96D3856A8E173CB129FC4033D16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,28 +457,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525358   (129471) от 20.01.2022
+###  Публикация: 1681215   (133116) от 02.12.2023
 
-VA - My Electronic Kitchen, Vol. 2 (2017) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tom Appl - I Love Bossa (5:25)
-02. JVasion - Silent Helm (5:22)
-03. Florito - Balearic Air (4:37)
-04. Stefan Reh, C. Nakoinz - Go Down Well (7:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:28:27
+A1 Krach
+A2 Gorace Telefony
+A3 China Boy
+Music By – C. Szlazak(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:39:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E8C4EA69D95A0A5BCB20F326B88394CD526FDBB
+magnet:?xt=urn:btih:6F77F0378226E9E6B0BD4D19E76C21B47C29B5B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,26 +486,252 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525556   (129470) от 20.01.2022
+###  Публикация: 1680991   (133115) от 02.12.2023
 
-Mirror for Arcelik TV 3.5.3 [Multi]
+Steely Dan - Gaucho (1980) Reissue, 2023, UMG [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz rock, yacht rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babylon Sisters (5:53)
+02. Hey Nineteen (5:09)
+03. Glamour Profession (7:29)
+04. Gaucho (5:32)(   Читать дальше...   )Жанр: Jazz rock, yacht rockПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87ACE497C0024C4D882F93F51BDDEDF927F364D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681178   (133114) от 02.12.2023
+
+Анна Иванютенко | Любить нельзя гнобить (2023) [MP3, Ирина Булекова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любить нельзя гнобить — как поставить запятую в верном месте, сталкиваясь с сильными переживаниями и очередной атакой внутреннего критика? Если стыдно, то можно себя пристыдить, если чувствуешь вину, то взять ее всю на себя без суда и следствия, если страшно, то пугать еще сильнее, а если поднимается гнев, то его важно удержать и перенаправить на себя. Упреки, придирки, (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 09:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D9C978397830EF2C35889ADEF492AB4AAF6750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594899   (133112) от 27.12.2012
+
+VA-Новогодний АвтоХит от Деда Мороза 2013 (2012)  [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дмитрий Колдун - Облака-бродяги
+02. One Direction - Live While We're Young
+03. Сати Казанова и Батишта - Чувство легкости
+04. Amelia Lily - You Bring Me Joy
+05. Дима Билан - Лови мои цветные сны
+06. Otto Knows - Million Voices (Radio Edit)
+07. Полина Гагарина - Нет
+08. Pink - Try
+09. Иракли - Осень
+10. Abel The Kid & Julio Iglesias Jr. Feat. Snoop Dogg - A Piece Of My Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5944BB768695F2D49FFDCAC5A22056ED29DBD84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594988   (133111) от 27.12.2012
+
+Winsent Messenger 2.3.25 + Portable [English/Русский]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133111.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinSent Messenger - это программа, предназначенная для быстрого обмена сообщениями и общения в локальной сети (мессенджер для локальной сети). Она позволяет организовать удобный и быстрый обмен короткими текстовыми сообщениями между отдельными пользователями сети и рассылку сообщений и оповещений группам пользователей. Программа разработана для использования в малых и средних локальных сетях предприятия, офиса и дома.
+WinSent Messenger имеет простой но удобный интерфейс пользователя. Ничего лишнего, только то, что нужно для комфортной работы без лишних телодвижений. В программе имеется контакт-лист, архив сообщений, обозреватель локальной сети. Поддерживаются настраиваемые горячие клавиши и звуковые уведомления. Программа предоставляет широкий набор опций для настройки поведения WinSent Messenger под Ваши нужды.Название программы: Winsent MessengerЯзык интерфейса: English/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681244   (133109) от 02.12.2023
+
+VA - The Best Of House 2023 Part 4 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Dresden - Should In (Original Mix) [02:50]
+02. Danny Vegas - Naturally (Original Mix) [02:56]
+03. Madison Holmes - Back In Time (Original Mix) [02:44]
+04. Ellise Morgan - Tell That You Love Me (Original Mix) [02:57](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9E9D0F56003ABC0411A13006C0B0BB4A8D5AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594882   (133108) от 27.12.2012
+
+Игра изменилась / Game Change (2012) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ пойдет о перипетиях президентской гонки в США в 2008 году, когда за пост главы страны боролись Барак Обама и Джон МакКейн.Жанр: драма, биография, историяРежиссер: Джей РоучАктеры: Джулианна Мур, Вуди Харрельсон, Эд Харрис, Питер МакНикол, Джейми Шеридан, Сара Полсон, Рон Ливингстон, Дэвид Бэрри Грэй, Ларри Салливан, Микал ЭвансПеревод: Профессиональный (двухголосый закадровый) - (студия Elrom)Продолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FE0B47612EFFAB53AA0E344BF9BACE7A60D87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680997   (133106) от 02.12.2023
+
+Britny Fox - Britny Fox (1988) Remaster, Expanded Edition, 2023,  SBCMG [FLAC 24/192|Lossless|WEB-DL|tracks] <Heavy Metal, Glam, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girlschool (4:23)
+02. Long Way To Love (4:53)
+03. Kick 'N' Fight (3:36)
+04. Save The Weak (5:29)(   Читать дальше...   )Жанр: Heavy Metal, Glam, Hard RockПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE000B0D09EA90078EE059C7C0B849B4AD97A9D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681208   (133105) от 02.12.2023
+
+EdgeView 4..4.0 [En]
 
 >>Программы для macOS
->>Утилиты для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если у вас есть Arçelik TV и вы хотите показать изображение своего телефона или компьютера на большом экране, у AirBeamTV есть решение! Зеркальное копирование вашего Mac, iPhone или iPad на любое Arçelik Smart TV. или телевизор. Никаких проводов и дополнительного оборудования не требуется. Приложение работает без использования Apple TV или Airplay.
-При (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2023Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1C9E35EC87F29A6B38ADC88579F4563012C810C
+magnet:?xt=urn:btih:77422D5C9764FEBB9D50049F833DFC29AAD60B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594914   (133104) от 27.12.2012
+
+Журнал | FHM [Россия] №1 (январь 2013) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133104.jpg" />
+</div>
+
+
+###  Подробнее
+
+FHM (For Him Magazine) – самый известный журнал для мужчин в мире. Ежемесячно выходит в 33 странах, на 5 континентах, за исключением Антарктиды. Издается в России с 2001 года. Типичный читатель FHM – молодой человек 25-30 лет, который обладает ярко выраженным чувством стиля, хорошо разбирается в модных вещах и технических новинках. Читатели журнала всегда в курсе (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A5BCB05C82A0CDAA3DA76C9DAE97111B484817
 ```
 
 https://mybot314.ru/tekegram_catalog/

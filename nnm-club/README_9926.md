@@ -1,74 +1,22 @@
-###  Публикация: 1540267   (654025) от 29.03.2022
+###  Публикация: 1539608   (657278) от 26.03.2022
 
-K-Lite Codec Pack Update 16.9.3 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654025.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76E9E7E1513BECEFDA3A69E6E6B741E18EED564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540235   (654024) от 29.03.2022
-
-Эмили Бликер | Когда вся твоя жизнь - ложь (2020) [MP3, Анастасия Дадыко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лиллиан Линден – лгунья. В глазах общества она – отважная женщина, выжившая после крушения самолета. Но она лжет – своей семье, своим друзьям и всему миру – с тех самых пор, как спасательный вертолет унес ее и еще одного выжившего, Дейва Холла, с необитаемого острова в Тихом океане. Лжет с тех самых пор, как они стали национальными героями и любимцами всевозможных (   Читать дальше...   )Жанр: ДетективПродолжительность: 13:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7351CF3523D20271460F2E93C6BEDD1C4F3F0092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540380   (654023) от 29.03.2022
-
-Константин Паустовский | Читаем сами без мамы. Тёплый хлеб (2020) [PDF]
+Лисса Леменкюлер | Снежик, или Чудо в переулке Синичек (2022) [FB2, EPUB, MOBI]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книгу вошли две сказки знаменитого писателя К. Паустовского «Тёплый хлеб» и «Дремучий медведь». Истории о том, как природа и животные помогают добрым и отзывчивым и наказывают злых и сердитых непременно понравятся юному читателю. В книге использованы иллюстрации прекрасного художника-классика А. Сазонова. Книжки из серии «Читаем сами без мамы» можно брать с собой (   Читать дальше...   )Жанр: Детская литература, СказкаФормат: PDF
+Существуют ли волшебные существа? Девятилетний Оле, например, читал о снежном человеке. Но он и не подозревал, что может однажды столкнуться с таким чудом… Пока к нему в комнату порывом ветра не занесло Снежика! Ох, как же пушистик любит поесть: со стола тут же исчез папин кофе, а из холодильника – весь сыр. И всё же Снежик очень смешной и классный. Оле даже взял (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Ксения ЧесноковаФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0ACE7D44AA86B33F2882438426E189049DC6A7B1
+magnet:?xt=urn:btih:28859E5929714E5A04485271B57AE88CDD6E07DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140784   (654022) от 08.06.2017
+###  Публикация: 1539630   (657277) от 26.03.2022
 
-Баскетбол. НБА 2016-2017. Восточная конференция. Финал. Бостон Селтикс – Кливленд Кавальерс (2017) IPTV [H.264/1080p-LQ]
+Сергей Непушкин | Улька (2017) [MP3, Татьяна Янчук (jantat)]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-НБА 2016-2017. Восточная конференция. Финал
-1-й матч  17.05.2017 - Бостон Селтикс – Кливленд Кавальерс
-2-й матч  19.05.2017 - Бостон Селтикс – Кливленд Кавальерс
-3-й матч  21.05.2017 - Кливленд Кавальерс – Бостон Селтикс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:43:09 - 02:15:13
+Ежик и человек. История одного лета.Жанр: Детская литература, РассказПродолжительность: 00:12:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B8A690274FA833166F10D2D09277257E4C4585E
+magnet:?xt=urn:btih:6544CFF1322DD6D7C45335F6A9BBF90FE4535897
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140953   (654021) от 08.06.2017
+###  Публикация: 1539614   (657276) от 26.03.2022
 
-Harry Allen - Here's To Zoot (2001) Novus J [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+Бенуа Грело | Солнечный камень. Книга 3 (2022) [FB2, EPUB, MOBI]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Cover the Waterfront [5:07]
-02. Stars Fell on Alabama [4:27]
-03. Spring Is Here [4:48]
-04. I Cried for You [4:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:30
+Эко и его друзьям удалось найти два волшебных камня – Океанский и Лунный. И теперь они отправились на Солнце, чтобы завершить свою миссию. Однако они и предположить не могли, что завладеть Солнечным камнем практически нереально… Что ж, значит, придётся совершить подвиг!Жанр: Детская литература, ФантастикаПеревод: Е.А. МуравьеваФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:181791E099714C6C0ECEEB3F26D27962106936D1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,28 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140890   (654020) от 08.06.2017
+###  Публикация: 1539589   (657275) от 26.03.2022
 
-VA - Heavenly Tears (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+The Urban Sea - Fall Back To Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Electronic
->>Easy listening
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  The Sura Quintet - I Won't Forget You  5:01
-02.  York - Burning Flame  6:46
-03.  Physical Dreams - Return To Innocence  5:13
-04.  VLVTG - Somebody  2:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:51
+01 - Apocalypse (00:04:51)
+02 - Smoke Alarm (00:03:17)
+03 - Silver Tongue (00:05:06)
+04 - Like a River (00:04:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:653D396065D18593DC586C3568ACB02B119B2285
+magnet:?xt=urn:btih:E014D1BDFB29E6823FFF95FB62BF426413DD2737
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140959   (654019) от 08.06.2017
+###  Публикация: 1539660   (657274) от 26.03.2022
 
-Harry Allen - Once Upon A Summertime (1999) Novus J [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+Сто к одному (20.03.2022) SATRip [H.264/480p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Girl From Ipanema [6:05]
-02. Song Of The Jet [5:11]
-03. Caminhoz Cruzados [6:31]
-04. Agua De Marco [5:07](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:09:26
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0EDD15090D4B1099A80AD266A490EFCBE2D4607
+magnet:?xt=urn:btih:69F8E2317A8902EC82597E673F43C7529E90AC9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,28 +131,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140913   (654018) от 08.06.2017
+###  Публикация: 1539626   (657273) от 26.03.2022
 
-VA - Recoverworld Trance Sessions 17.03 (2017) [MP3|320 Kbps] <Trance>
+Хоккей. НХЛ 2021-2022. Филадельфия Флайерз - Колорадо Эвеланш (25.03.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
 
->>Electronic
->>Trance
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Emad Ebeat - Goddess In The Rain (08:00)
-02. Soul Entity - Inside The Mountains (06:29)
-03. Ciro Visone - Someone Save Me (06:29)
-04. Madwave - Mayhem (07:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:25
+26 марта 2022, суббота. 04:00 МСК
+Стадион: Болл-Арена (Денвер, США), 18 051 зритель (99% при вместимости 18 147)
+Главный судья: Кендрик Николсон (Милвертон, Канада); Главный судья: Брайан Почмара (Детройт, США)Телекомпания: ALTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:09:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:757867BBF349015233CC7C6B0BFA7388C69C08C9
+magnet:?xt=urn:btih:98B2A404B1A748A11341E872AE6CA16016F67FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,28 +159,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140987   (654017) от 08.06.2017
+###  Публикация: 1539655   (657272) от 26.03.2022
 
-VA - Throwback EDM Tracks (2017) [MP3|320 Kbps] <Progressive House>
+Meat Loaf - Couldn't Have Said It Better (2003) 2CD, Special Edition [FLAC|Lossless|image + .cue] <Rock, Hard-Rock, Metal>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Meltdown – Free 03:53
-02. 2 Steps Up – Finally 03:51
-03. Conscious Funk – Infinity 03:59
-04. Underground Spell – Born Slippy 05:21(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:37:32
+1. I Would Do Anything for Love (Video From Meat Loaf Storytellers DVD)
+2. Kiss Is a Terrible Thing to Waste (Video From Meat Loaf Storytellers DVD)
+3. Did I Say That (Video)
+4. Two Out of Three Ain't Bad (Meat Loaf Storytellers CD)Жанр: Rock, Hard-Rock, MetalПродолжительность: 00:57:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:897C773B2F6C708F40D116C2647061F41EEE61BE
+magnet:?xt=urn:btih:C1F8BD85241F948499155252A6C4AABF565AB29F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,25 +188,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140705   (654016) от 08.06.2017
+###  Публикация: 1539581   (657271) от 26.03.2022
 
-Г. Александров | Филосовские предшественники марксизма (1939) [DJVU]
+The Legendary Pink Dots - The Museum of Human Happiness (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Experimental>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящее издание посвящено характеристике учений философских предшественников марксизма. В книге рассматриваются французский материализм XVIII века, немецкий классический идеализм, учения Людвига Фейербаха, формирование филoсофских взглядов Маркса и Энгельса.Жанр: История, политология, философияФормат: DJVU
+01 - This Is The Museum (00:07:10)
+02 - There Be Monsters (00:06:10)
+03 - Cloudsurfer (00:06:12)
+04 - Cruel Britannia (00:04:36)(   Читать дальше...   )Жанр: Psychedelic Rock, ExperimentalПродолжительность: 01:06:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57AFA6F615B565264A407CF166CCE547726A0B91
+magnet:?xt=urn:btih:5BEE9AB02BFE0BCA8985C703A86BAF948D12C57F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,28 +217,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140897   (654015) от 08.06.2017
+###  Публикация: 1539432   (657270) от 26.03.2022
 
-VA - Balearic Dinner Vol.1: Island Chill Dream Dinner Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Lacuna Coil - Comalies (2002) Limited Edition [FLAC|Lossless|image + .cue] <Gothic Metal>
 
->>Electronic
->>Easy listening
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Luc Forlorn - Take Me Home  4:28
-02.  Zeequencha - So Alive  7:15
-03.  Taste Of Dream - Sweet Falling  5:28
-04.  Tonica Rara - Como Antes  4:41(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:30
+01. Swamped
+02. Heaven's A Lie
+03. Daylight Dancer
+04. Humane(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:56:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B01F35B090479B4584E80CC4BE981FB6DA26FC39
+magnet:?xt=urn:btih:7EA367397B10134F80A357B8FCEA5DF53DBBCFDE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,28 +246,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140837   (654014) от 08.06.2017
+###  Публикация: 1539579   (657269) от 26.03.2022
 
-Баскетбол. Евролига 2016-2017. Финал 4-х. Стамбул (Турция). Финал. Фенербахче (Турция) – Олимпиакос (Греция) (21.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+King Mountain - Tempest at the Gate (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657269.jpg" />
 </div>
 
 
 ###  Подробнее
 
-21 мая 2017 года, воскресенье. 21:00 МСК
-Евролига 2016-2017. Финал 4-х. Стамбул (Турция).
-Финал
-Фенербахче (Турция) – Олимпиакос (Греция)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:33
+01 - Soul Sacrifice (00:05:50)
+02 - Tempest at the Gate (00:03:29)
+03 - Burning Walls (00:04:05)
+04 - King of the Mountain (00:06:12)(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:40:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:391ECBDA716305F17B25093A4A35E724EEC84AF9
+magnet:?xt=urn:btih:8ADA4BD62E725AF8F1104299C94ACB29AECD7831
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,25 +275,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540414   (654013) от 29.03.2022
+###  Публикация: 1539748   (657268) от 26.03.2022
 
-Lungo 2.0.5 [En]
+Fat Larry's Band - Lookin' For Love (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 
->>Программы для macOS
->>Утилиты для macOS
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lungo предотвращает засыпание Mac и затемнение экрана.Тип издания: macOS SoftwareРелиз состоялся: 29.03.2022Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский
+01. Lookin' For Love (5:32)
+02. Here Comes The Sun (5:22)
+03. Last Chance To Dance (5:21)
+04. Like To Get To Know You Better (5:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC589A95A91686DA1F171CD607E197FE53444C5A
+magnet:?xt=urn:btih:630C572B327D20C8A1EB49E28D31B8DD7BDFC10E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,26 +304,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540345   (654012) от 29.03.2022
+###  Публикация: 1539662   (657267) от 26.03.2022
 
-Петр Волцит | Моя первая книга обо всём на свете. Почему зебры полосатые? (2020) [PDF]
+Сто к одному (26.03.2022) SATRip [H.264/480p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7C5712535BD40038476138C11C877C0D2C4240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539682   (657266) от 26.03.2022
+
+Meat Loaf - Bat Out Of Hell III The Monster Is Loose (2006) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard-Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Monster Is Loose [00:07:12]
+02. Blind As A Bat [00:05:50]
+03. It's All Coming Back To Me Now [00:06:05]
+04. Bad For Good [00:07:32](   Читать дальше...   )Жанр: Rock, Hard-Rock, MetalПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63137F5D311E05BE6A75E4583F018FCA0C3AA45C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539544   (657265) от 26.03.2022
+
+VA - Another Dimension: Psy Trance Compilation (2022) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657265.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отличие от хауса, техно, и других стилей танцевальной электронной музыки, психоделический транс имеет под собой большую эзотерическую основу. Такая музыка придает ощущение легкости и полета, что очень благоприятствует как пассивной, так и активной медитации.001. Apollon - Happy Person
+002. Grouch - Indifference
+003. VORG - Munin
+004. Elegy - Deus Ex Machina(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 13:07:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539719   (657264) от 26.03.2022
+
+Генри Саттон | Гром среди ясного неба (2010) [MP3, Георгий Попов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман американского писателя Г.Саттона «Гром среди ясного неба» рассказывает об эпидемии, вызванной утечкой бактериологического вируса с одной из военных баз США, о возможных страшных последствиях гонки вооружений, затеянной крупнейшими державами.Жанр: ДетективПродолжительность: 11:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15733164D0FC54A13B2F829FE6683FBBBCE57363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539700   (657263) от 26.03.2022
+
+Антон Залыгин | Почемучкины книжки. Каких размеров Вселенная? (2018) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Удивительно устроена природа: только что мы видели прекрасную бабочку – и вдруг она сложила крылышки и стала незаметна! Многие звери, птицы, рыбы умеют так слиться с окружающей средой, что их сразу не найдёшь. О секретах их маскировки расскажет книга Петра Волцита «Почему зебры полосатые?».
-Для младшего школьного возраста.Жанр: Детская познавательная и развивающая литератураФормат: PDF
+Объекты, которые нас окружают, бывают очень разных размеров, поэтому человек придумал единицы измерения – чтобы измерять всё подряд и сравнивать. В этой книге мы рассмотрим разные объекты и представим их ни много ни мало в масштабах Вселенной! Начнём мы с самых маленьких из них: микроорганизмы, клетки живых организмов, атомы, электроны, затем рассмотрим объекты покрупнее: (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D9C69F477831A56B745E16510F630FE3C68C90D
+magnet:?xt=urn:btih:69A88E9FD2456DFAC4B0F5E163EBA9AC703BF9B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,25 +440,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540313   (654011) от 29.03.2022
+###  Публикация: 1539533   (657262) от 26.03.2022
 
-apulSoft FX Bundle 03.2022 VST, VST3, AAX (x86/x64) [En]
+Камбрия Брокманн | Скажи мне всё (2022) [MP3, Светлана Радужная]
 
->>
->>
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор из четырёх(apTrigga3, apQualizr2, apShaper, apUnmas) FX плагинов от apulSoft, которые разнообразят ваши миксы и придадут им уникальное и неповторимое звучание.Язык интерфейса: Английский
+«Притворяйся», – всегда учил ее отец. Для нее это стало заклинанием. Притворяйся хорошей и правильной. Дружелюбной и искренней. Заводи друзей. Именно они помогут тебе идти дальше, веря, что ты любишь их. И пусть никто никогда не узнает, какая ты есть на самом деле… Малин, поступившая на первый курс престижного колледжа Хоторн, принята в компанию «золотой молодежи». (   Читать дальше...   )Жанр: ДетективПродолжительность: 13:39:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:991E91E6C4A45F522311CFA53BDB24006098B8CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,28 +466,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540016   (654010) от 29.03.2022
+###  Публикация: 1539550   (657261) от 26.03.2022
 
-VA - Arab Hits (2022) [AAC|~321 Kbps] <House, Pop, Folk>
+Живая еда с Сергеем Малозёмовым (26.03.2022) SATRip
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Khaled - Didi (5:02)
-02. Rachid Taha - Ya Rayah (6:15)
-03. Tawsen, Manal, ElGrandeToto - Safe Salina (Moroccan Remix) (3:03)
-04. Nancy Ajram - Oul Tani Eyh (4:08)(   Читать дальше...   )Жанр: House, Pop, FolkПродолжительность: 01:53:47
+Родниковая, талая, дождевая и бутилированная вода! Какую действительно стоит пить, а в какой может скрываться опасность?
+Сушеное манго — мы привезли образцы из России мексиканским экспертам! Чем обрабатывают этот модный сухофрукт?
+Как способно навредить рафинированное подсолнечное масло? Можно ли избежать опасности?
+А также — меньше есть хорошо для здоровья, не всякий (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8F5175A91A18359E0B996099A18611F5602E65B
+magnet:?xt=urn:btih:3CF177AD20634ADE1D55E358D3B9110B6EDD7544
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,273 +495,226 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540277   (654009) от 29.03.2022
+###  Публикация: 1539685   (657260) от 26.03.2022
 
-ApowerREC 1.5.6.18 RePack (& Portable) by elchupacabra [Multi/Ru]
+Meat Loaf - Bat Out Of Hell II Back Into Hell (2006) Deluxe Edition, 3CD [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard-Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bat Out Of Hell (Live From The United States / 1993 / Remastered 2006) [00:11:13]
+02. You Took The Words Right Out Of My Mouth (Live From United States / 1993 / Remastered 2006) [00:06:35]
+03. Heaven Can Wait (Live From United States / 1993 / Remastered 2006) [00:04:47]
+04. All Revved Up (Live From USA / 1993 / Remastered 2006) [00:07:54](   Читать дальше...   )Жанр: Rock, Hard-Rock, MetalПродолжительность: 3 CD, 04:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A37B62FF443F82D93359C0E889A97741D8F6602C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 343051   (657257) от 29.05.2011
+
+Discovery: Северное море (7 серия) / The North Sea (2009) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_657257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа рассказывает о людях, чья жизнь неразрывно связана с Северным морем: профессиональных рыбаках, нефтяниках, морских инженерах, капитанах портов и представителях спасательных служб.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC9DC5CB754BD06FB0CE4DB1DB487DD756B0A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342801   (657250) от 29.05.2011
+
+Discovery: Северное море (6 серия) / The North Sea (2009) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_657250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа рассказывает о людях, чья жизнь неразрывно связана с Северным морем: профессиональных рыбаках, нефтяниках, морских инженерах, капитанах портов и представителях спасательных служб.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCDD446A08685796B906C916F4329E4FD8F573C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515008   (657237) от 25.06.2012
+
+Symfonia - In Paradisum (Japan Edition) (2011) [MP3|320 кб/с]<Melodic Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fields Of Avalon (05:09)
+02. Come By The Hills (05:01)
+03. Santiago (05:54)
+04. Alayna (06:17)
+05. Forevermore (05:31)
+06. Pilgrim Road (03:37)
+07. In Paradisum (09:35)
+08. Rhapsody In Black (04:34)
+09. I Walk In Neon (05:44)
+10. Don't Let Me Go (03:57)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0221B95A958C5F75D4191CA38B1F75E7953B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514376   (657236) от 25.06.2012
+
+DJ Kocmoc - RED STATION vol.5 (3.06.2012) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657236.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Absurd & C.A.2.K. - Trannsformation (Original Mix)
+ 2. Paperclip & MJ Free Feat. Thesys - Digital Machinist (Original Mix)
+ 3. Noisia & The Upbeats - Dustup (Original Mix)
+ 4. Noisia - Tryhard (Original Mix)
+ 5. C-Sonix - From Another Planet (Original Mix)
+ 6. Current Value - Harm (Original Mix)
+ 7. Forekast - The Arrival (Original Mix)
+ 8. N.Phect - Lotus (Original Mix)
+ 9. Nais - 1001 Nights (Original Mix)
+ 10. Agressor Bunx - Konflict (Original Mix)(   Читать дальше...   )3.06.2012Жанр: Drum & BassПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A2E1256F8F4934FEAB5062AE44210811D6E9AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515321   (657234) от 25.06.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №81 (2012.06.25) (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657234.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9C932105DF744293AA3433CFB6DDD2F7FC74D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515365   (657231) от 25.06.2012
+
+Вечерний Ургант. Выпуск №33 (2012.06.25) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1223943C01ED98DE8D0CCEBE5F207763AEB36DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515225   (657230) от 25.06.2012
+
+Wise Registry Cleaner 7.32 Build 470 Final + Portable [Multi(Rus)]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ApowerREC - это программа которая может записывать что угодно на вашем экране, включая ваши действия на рабочем столе, видео в прямом эфире, веб-встречи, переговоры в онлайн чатах и так далее. Вы можете захватывать свою работу на полном экране или в специально настроенной области вместе со звуком, софт способен поддерживать синхронизацию видео с аудио потоком, это (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD95DC6067FFC8C707B7F19F082931EA6E8BD305
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540323   (654008) от 29.03.2022
-
-VA - Lounge Atmosphere, Vol. 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weathertunes – Take It Easy (Original Mix) (04:08)
-02. The Strike Boys – Cocaine Is a Sin (Original Mix) (04:34)
-03. Bossasonic – Sunday Afternoon Party (Original Mix) (03:32)
-04. Martin Liege – Time to Chill (Original Mix) (03:16)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:14:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540181   (654007) от 29.03.2022
-
-VA - Monsters of Metal (2022) [MP3|320 Kbps] <Metal, Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mastodon - Teardrinker
-02. Manowar - Blood of the Kings
-03. Lamb Of God - Ghost Walking
-04. Pantera - 5 Minutes Alone(   Читать дальше...   )Жанр: Metal, RockПродолжительность: 03:34:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539600   (654006) от 29.03.2022
-
-Whitney Houston - I Will Always Love You: The Best Of Whitney Houston (2021) [AAC|~329 Kbps] <Dance, Pop, R&B>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Give Good Love (4:36)
-02. Saving All My Love for You (3:57)
-03. How Will I Know (4:33)
-04. Greatest Love of All (4:49)(   Читать дальше...   )Жанр: Dance, Pop, R&BПродолжительность: 02:26:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540182   (654005) от 29.03.2022
-
-Ангелос Ангелопулос | Объединит ли атом мир? Экономические, социальные и политические аспекты (1957) [DJVU]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший профессор Афинского университета Ангелос Ангелопулос в своей книге рассматривает влияние атомной энергии на экономическую, социальную и политическую жизнь общества.
-Автор — сторонник мирного использования атомной энергии. Вся его книга пронизана мыслью о том, какие блага принесет мирное использование атомной энергии человечеству. Ангелопулос выступает за мирное (   Читать дальше...   )Жанр: история, дипломатия, политология, физика, империализмПеревод: М. Баринова и Н. МакароваФормат: DJVU
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540349   (654004) от 29.03.2022
-
-Geraldine Hunt - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеральдина Хант - американская R&B певица. Родилась 10.02.1945 в Сент - Луисе, штат Миссури, США. В первой половине 70-х годов она выпустила несколько синглов на Roulette Records, которые сегодня являются частью мифа о северной соул-сцене. Во второй половине 70-х  работала в Канаде с продюсером Тони Грином.
-Наиболее известна по диско-классике "Can't Fake (   Читать дальше...   )01. Hot Blooded Woman (4:02)
-02. Baby You're Dynamite (4:24)
-03. Cause Of Love (4:32)
-04. Dancing Teaser (3:21)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540348   (654003) от 29.03.2022
-
-И.В. Резько | Отличная энциклопедия. Животные (2013) [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654003.jpg" />
-</div>
-
-
-###  Подробнее
-
-На планете Земля обитает огромное количество различных животных. Одни населяют сушу, другие — моря и океаны, третьи большую часть времени проводят в воздухе. О самых интересных из них расскажет настоящее издание. На его страницах юные читатели найдут много увлекательной информации об образе жизни и среде обитания животных, об их повадках и питании. Каждая статья (   Читать дальше...   )Жанр: Энциклопедия, Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540241   (654002) от 29.03.2022
-
-Моя любимая словно цветок сакуры / Sakura no Yona Boku no Koibito / Love Like the Falling Petals (2022) WEB-DLRip [DVO]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харуто Асакура знакомится с парикмахершей Мисаки Ариакэ и влюбляется в неё. Наблюдая, как Мисаки усердно трудится, чтобы добиться успехов в профессии, почти отказавшийся от своей мечты Харуто решает всё-таки стать фотографом. А вскоре парень узнает, что у Мисаки неизлечимое заболевание, из-за которого она стареет в 10 раз быстрее. На основе романа Уямы Кэйсукэ "Sakura (   Читать дальше...   )Производство: Япония, Toho Studios, NetflixЖанр: Драма, мелодрамаРежиссер: Ёсихиро ФукагаваАктеры: Накаджима Кенто, Мацумото Хонока, Нагаяма Кенто, Сакурай Юки, Янаги Сюнтаро, Вакацуки Юми, Канамэ Джун, Масима Хидэкадзу, Оикава МицухироПеревод: Двуголосый любительский (АрхиAsia)Субтитры: отсутствуютПродолжительность: 02:09:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539809   (654001) от 29.03.2022
-
-Rhino Bucket - 10 albums, 12 CD (1990-2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы понять, что такое "Rhino Bucket", достаточно сказать, что они похожи на " AC/DC " периода Бона Скотта. Эта калифорнийская команда была сформирована в 1987 году выходцем из Финляндии вокалистом Джорджем Доливо, гитаристом Грегом Филдсом, басистом Ривом Даунсом и экс-барабанщиком " Warrior " Лайэмом Джейсоном. Имен для группы было (   Читать дальше...   )--------------------------
+Wise Registry Cleaner - бесплатная утилита для чистки реестра Windows. Программа сканирует реестр и ищет в нем некорректную и устаревшую информацию, после удаления которой операционная система работает более быстро. После того, как программа проанализирует проблемы вашей системы, вы можете сами просмотреть каждую найденную неполадку и посмотреть ее детальное описание. Имеется возможность автоматической корректировки таких проблем. Все изменения, внесенные программой в реестр, могут быть отменены за два клика мышью. Также стоит отметить, что интерфейс программы переведен на множество языков, включая русский язык.
 
-01. Hello Citizens (4:03)
-02. Everything You Do (3:15)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 09:07:39 |
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540417   (654000) от 29.03.2022
-
-Firetask - Project-oriented GTD Task Management 4.6.10 [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firetask позволяет занятым людям выполнять задачи в стиле Канбан. От записи ваших мыслей и управления вашими личными делами до организации и сосредоточения внимания на ваших самых важных задачах, Firetask уникальным образом сочетает в себе Канбан и GTD .
-Грамотное планирование является если не гарантом успешности, то, как минимум, эффективным средством достижения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27.03.2022Разработчик: © 2022 Elemental Tools GmbHПоддерживаемая ОС: OS X 10.15 +Язык интерфейса: Русский, Английский и др.
+При первом запуске утилита предлагает сделать резервную копию всего реестра, чтобы при необходимости его восстановить. В отличие от многих других подобных приложений, данная программа разделяет найденные ошибки реестра на безопасные, которые можно удалять, не опасаясь, что это нанесет вред системе, и такие ошибки, которые могут повлечь за собой нестабильную работу операционной системы. Удаленная информация (   Читать дальше...   )Название программы: Wise Registry CleanerЯзык интерфейса: Multi(Rus)
 
 ## Скачать торент
 ```bash

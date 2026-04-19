@@ -1,3 +1,32 @@
+###  Публикация: 1465471   (1019150) от 26.04.2021
+
+Bill Evans - The Complete Fantasy Recordings (1973 - 1979) 9CD, 1989, Fantasy [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019150.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Mornin' Glory [5:48]
+02. Up with the Lark [6:48]
+03. Yesterday I Heard the Rain [6:33](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 10:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0768CFE112A72E2C530F8FB747DE1804656B7E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465490   (1019147) от 26.04.2021
 
 Jeff Kashiwa - Sunrise (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -716,35 +745,6 @@ Acker Bilk - The Magic Clarinet Of Acker Bilk (1986) [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:284ECEB6DC6E9BCAC5F445A6DD85E65C65EEE35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468018   (1017247) от 07.05.2021
-
-VA - Smooth Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larry Carlton - It's a Groove Thang
-02. George Benson - Down Here On the Ground
-03. George Duke - Love Can Be So Cold
-04. Bob James & Earl Klugh - Movin' On(   Читать дальше...   )Жанр: JazzПродолжительность: 03:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D679D81BE3888BA66AE5A130849479872F3DA2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

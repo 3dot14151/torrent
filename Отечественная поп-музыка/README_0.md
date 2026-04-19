@@ -1,3 +1,32 @@
+###  Публикация: 1615392   (1037773) от 25.02.2023
+
+VA - Romantic Collection: Лирика (1999) [OGG Vorbis|480 Kbps] <Pop, Folk, World, & Country>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Несчастный Случай-Генералы Песчаных Карьеров
+02 - Алсу-Зимний Сон
+03 - Моисеев Борис-Глухонемая Любовь
+04 - Пугачёва Алла-Не Отрекаются Любя(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB0C143EC757E40B39B97A2EF3C92EC56F5CFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444879   (1034181) от 03.02.2021
 
 Mia Boyka & Би-2 - Последний герой (2021) Single [MP3|320 Kbps] <Pop>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46ADB37BE1EA3A360D764E014E307871C5A2B61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455042   (1017179) от 07.05.2021
-
-VA - Маска. Выпуск 1-12 (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017179.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Заяц - Белая ночь
-2. Крокодил - Uptown Funk
-3. лама - Ave Maria
-4. Крокодил - Вдвоём(   Читать дальше...   )Жанр: PopПродолжительность: 05:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F259C4F10FBA049B6D848FDABBF91C7CC98395
 ```
 
 https://mybot314.ru/tekegram_catalog/

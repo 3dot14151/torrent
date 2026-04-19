@@ -1,3 +1,61 @@
+###  Публикация: 1342049   (225969) от 01.12.2019
+
+Weapons Of Peace - Weapons Of Peace (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roots (Mural Theme/Many Rains Ago (Oluwa) (3:59)
+02. City (4:49)
+03. Space Child (3:36)
+04. Just Can't Be This Way (Ruth's Song) (5:52)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEFC07AB062E52BD19D9F800568BE61862AA263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342301   (225878) от 01.12.2019
+
+Slang - Slang (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Space Rock, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Guitar / Pinch Roller (Medley) (8:07)
+02. Please Don't Say You Love Me (7:15)
+03. Believe Me (6:42)
+04. Love Is Love (4:28)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Space Rock, DiscoПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12729EE8554A840F79CE477A1A04044021F833F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342040   (225394) от 01.12.2019
 
 Margaret Singana - Tribal Fence (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Afrobeat, Disco>
@@ -690,64 +748,6 @@ Blue System - Here I Am (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC240FA638920FF4361604266B41CEF3DA9C84AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588268   (191809) от 03.11.2022
-
-Blue System - Body To Body (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body To Body (Radio Version)
-02. Only With You (Radio Version)
-03. For The Children
-04. It's For You(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5E3EB3180E1E2E63708624D9D789F985801400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588411   (191644) от 04.11.2022
-
-Blue System - X - Ten (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Mabuse
-02. If There Is A God In Heaven
-03. How Will I Know
-04. Goodnight Marielin(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0504CB6AABC0C3E6DDC292053F8FEC38CA974190
 ```
 
 https://mybot314.ru/tekegram_catalog/

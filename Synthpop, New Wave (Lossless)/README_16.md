@@ -1,3 +1,90 @@
+###  Публикация: 1574710   (381558) от 07.09.2022
+
+Purple Fog Side & Elsehow - How To Disappear (2022) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Post-Punk, Dreampop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To the Moon and Back (00:05:46)
+02 - Running on My Mind (00:04:19)
+03 - State of Grace (00:05:33)
+04 - Shading a Life (00:05:20)(   Читать дальше...   )Жанр: New Wave, Post-Punk, DreampopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFAD724A6971D67C5179E9A79E1C72644A29101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326980   (380914) от 22.09.2019
+
+VA - The Best Electronic Album In The World... Ever! (2019) 3CD Box Set [FLAC|Lossless|tracks + .cue] <Synth-Pop, Electro, Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Human League - The Sound Of The Crowd (4:08)
+02. Soft Cell - Tainted Love (2:40)
+03. Visage - Fade To Grey (3:48)
+04. Heaven 17 - Temptation (3:34)(   Читать дальше...   )Жанр: Synth-Pop, Electro, DanceПродолжительность: 03:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DCEBE668E1918ECD672DF274ABFC195704E136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253848   (379410) от 11.10.2018
+
+The Midnight - Kids (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Youth (03:09)
+02. Wave (04:31)
+03. Kids (Prelude) (02:13)
+04. Lost Boy (04:37)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA3358CC7E9AFF40ABD94C1681BFF2E9FEF738F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574787   (379227) от 08.09.2022
 
 Blondie - Against The Odds 1974-1982 (2022) 8CD Box Set, Deluxe Edition [FLAC|Lossless|tracks] <New Wave, Punk, Synth-pop>
@@ -664,93 +751,6 @@ Scandroid - Scandroid (2016) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE91BE630528828E53159541094614A77DB96E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257277   (345492) от 26.10.2018
-
-Scandroid - Dreams In Monochrome (2018) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterglow (Michael Oakley Remix) (3:36)
- 02. Rendezvous (VHS Dreams Remix) (3:52)
- 03. Monochrome (Sunset Neon Remix) (3:34)
- 04. Time Crime (Turboslash Remix) (4:13)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE5483AE89A454B4A8ABAD11720D99D3FA52B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578771   (340817) от 25.09.2022
-
-Alphaville & Deutsches Filmorchester Babelsberg - Eternally Yours (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth Wave, Symphonic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Machine - Symphonic Version [00:04:46]
-02. Summer in Berlin - Symphonic Version [00:05:17]
-03. Big in Japan - Symphonic Version [00:05:17]
-04. Dance with Me - Symphonic Version [00:05:30](   Читать дальше...   )Жанр: Synth Wave, SymphonicПродолжительность: 01:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA965744ACAC495F35CFF53E8F71F1A42FB8E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419171   (339871) от 28.10.2020
-
-R°A - Space Melody (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander (5:35)
-02. Very Nice (4:19)
-03. Space Melody (Flemming Dalum Instr. Remix) (5:16)
-04. Clock War (5:28)(   Читать дальше...   )Жанр: Italo-Disco, Synthpop, New WaveПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0098ACE257E4703621A905BBE1FB1CD8EC62F1BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

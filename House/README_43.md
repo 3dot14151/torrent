@@ -1,3 +1,177 @@
+###  Публикация: 1153740   (557082) от 28.07.2017
+
+VA - Ibiza Summer Party 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filatov - Back In The Love (Swanky Tunes remix)
+02. Seal De Green - Those Days (original mix)
+03. Hlasznyik & Danev - Let's Go To The Party Beach (original mix)
+04. Royal Gigolos - California Dreamin' (Tek-House extended)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF37E665F5DAE6CDA60A8E5BD98878FBBE9467D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045879   (556981) от 25.08.2016
+
+VA - Deep Chill Autumn Skies (2015) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Morais - Deep Chill | Autumn Skies (Non Stop Mix)
+02. Alex Morais - Love & Music (Original Mix)
+03. Adam Byrd - Light Makes Me Calmer (Original Mix)
+04. MotiBo - Satin Sunrise (MotiBo Remix)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903B86D82213FDD613136C3B41DEBE83E547B91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045771   (556978) от 25.08.2016
+
+VA - Amnesia Ibiza 2016 (Mixed by Mar-T, Hector Couto, Betoko) (2016) 3 CD [MP3|320 Kbps] <House, Tech House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moderat – Eating Hooks (NGHT DRPS Remix)
+02. Awanto 3 – Star Butchers (Darling Edit)
+03. Stereociti – Interstellar Substance
+04. Shadow Child – Lullaby(   Читать дальше...   )Жанр: House, Tech House, TechnoПродолжительность: 03:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C3FD2AD06F071E0F536BB20EA7AC95B08A0BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046072   (556923) от 25.08.2016
+
+VA - Sensual Deep House (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yves Taylor - Incomparable Breeze - Tony Morgan Mix
+02. Lorenz Carlton - Melody Cool - Francoise Demegni Mix
+03. Rich Romeo - Select All - Supalady Mix
+04. Frank Lovenue - Falstaffs - Motel Rex's Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4B990C0B781334721DFDA9B1EFB8C1B5800840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305526   (556450) от 31.05.2019
+
+VA - House Of Ibiza (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hector Moralez & Tommy Vercetti  -  Countdown (Original Mix)
+02.  Kruse & Nuernberg  -  Summer Sanctuary (Original Mix)
+03.  Mood Ll Swing  -  Sunlight In My Eyes (Satoshi Fumi Re-Edit)
+04.  Roter & Lewis  -  Get Out Of My Life (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 04:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83EA3D0D4C807419991381BF3B74DAF64477947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236002   (556226) от 15.07.2018
+
+VA - Running Music 2018 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mydca - Everybody (Melbourne Freaks Sports Remix)
+02. Mykel Mars - Give Me the Sunshine (Kiss Audio Edit)
+03. Tiziara - I Need the Music (Radio Version)
+04. Fun Till Six - Harlequin (Edit)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C8DEB9E6F6D97A49E92C5AD1F7098D1DAE7B31D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305969   (555939) от 02.06.2019
 
 VA - EDM Revolution 2019: Best Anthems For Party & Clubbing (2019) [MP3|320 Kbps] <House, Club, Dance>
@@ -574,180 +748,6 @@ VA - Ibiza Cocktail Time (50 Deep-House Warm Ups) Vol.4 (2018) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47FBF621C57DBEE115DBBB6099FD3C9CD0F0ECB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309708   (549604) от 21.06.2019
-
-VA - Chill House Ibiza 2019 (2019) [MP3|320 Kbps] <House, Chill House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adonai - Say (Edit Mix)
-02. Guilhem Mariposa & Idiocrate - Dawn (Original Mix)
-03. Takticals feat. Simply Oktaver - Just For One Day (Beach Mix)
-04. Ben Brummitt - A Story To Be Told (Edit Mix)(   Читать дальше...   )Жанр: House, Chill House, Deep HouseПродолжительность: 02:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A50C4D714B593A02F92900F98CC4E85987532E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310012   (548841) от 22.06.2019
-
-VA - Airbeat One Dance Festival (2019) [MP3|320 Kbps] <House, Trance, Electronic, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548841.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01.  Airbeat Inc.  -  Run With You (Airbeat One Anthem 2019)
-02.  Martin Garrix feat. Bonn  -  No Sleep(   Читать дальше...   )Жанр: House, Trance, Electronic, DanceПродолжительность: 03:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78332F88B979DF2E85E903529768126BD5D27B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238077   (548832) от 27.07.2018
-
-VA - Top Dance Hits 2018 [MP3|320 Kbps] <Progressive House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geo Da Silva - Summertime (Radio Edit)
-02. Federico Seven - Stereo (Radio Edit)
-03. Fedo Mora feat. Alba Kras and Tony T - The Only One (Original Mix)
-04. Michael Fall feat. Jodie Topp - Sunshine (Radio Edit)(   Читать дальше...   )Жанр: Progressive House, Big RoomПродолжительность: 01:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949F85BBCAAE99DA29B70A46FAE1CA3FD23FE1AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047845   (548423) от 31.08.2016
-
-VA - Closing Parties (2016) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Casta - Venomous
-02. David Cheeky - Consequences
-03. Stereometric - Abgemacht
-04. Jordi Svit - Big Daddy(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3829D0CC5371E570C46FE44DF75012A8F55B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048277   (547409) от 01.09.2016
-
-VA - Pure Ibiza - The Ultimate Deep House & Nu Disco Collection (2016) [MP3|320 Kbps] <Deep House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrey Exx - Touch Me (5:55)
-02. Selda - The Rain (Zenker Club Mix) (4:46)
-03. Zito - Amazing (Zito's HU On The Rocks Mix) (6:20)
-04. Disco Dice - NYC (Mann & Meer Remix) (5:42)(   Читать дальше...   )Производство: Attractive MusicЖанр: Deep House, Nu DiscoПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4CC6B87098BD0980A553006A35A051D92B06DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238376   (547132) от 29.07.2018
-
-VA - Dance Solution Summer Compilation 2018 [MP3|320 Kbps] <Hard House, Hands Up, Hard Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ceres - You Know (Original Mix) 7:09
-02. DJ DBC - Coming Back To You (Original Mix) 4:50
-03. Head Horny's - Your House Is Mine (Original Mix) 6:30
-04. Danny Kobe - What We Wanna Do (PoKy3o FX Remix) 7:19(   Читать дальше...   )Жанр: Hard House, Hands Up, Hard DanceПродолжительность: 01:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FA229970A41E7108CAD07DD092232B7804AF0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

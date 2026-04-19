@@ -1,3 +1,32 @@
+###  Публикация: 1168547   (408847) от 24.09.2017
+
+Klaatu - Klaatu / Hope (1976-77) Reissue, 2000, BGO Records [MP3|320 Kbps] <Art, Psych-Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408847.jpg" />
+</div>
+
+
+###  Подробнее
+
+'76 - Klaatu [00:36:57]
+01. Calling Occupants of Interplanetary Craft
+02. California Jam
+03. Anus of Uranus(   Читать дальше...   )Жанр: Art, Psych-Prog RockПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818FF94C56C7A775DEF4A1DA67586246A95F7E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168467   (408781) от 24.09.2017
 
 Flash And The Pan - 6 Albums (1978-1992) CD Collection [MP3|320 Kbps] <Electronic, Rock, Pop>
@@ -740,41 +769,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6470FA12BD2BB5AC0109455D746F2B47D7D795DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569752   (390880) от 04.11.2012
-
-Madness - Oui, Oui, Si, Si, Ja, Ja, Da Da (2012) [MP3|320 кб/с ]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390880.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. My Girl 2 (2:51)
- 2. Never Knew Your Name (3:28)
- 3. La Luna (3:38)
- 4. How Can I Tell You? (3:18)
- 5. Kitchen Floor (3:21)
- 6. Misery (3:16)
- 7. Leon (4:48)
- 8. Circus Freaks (3:15)
- 9. So Alive (2:58)
- 10. Small World (3:46)(   Читать дальше...   )Жанр: Pop-Rock,Ska Revival,New WaveПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E09AEED2B3B9CC95E08270AAFDEE589A1F6186C
 ```
 
 https://mybot314.ru/tekegram_catalog/

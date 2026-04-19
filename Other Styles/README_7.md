@@ -1,3 +1,176 @@
+###  Публикация: 1116520   (1007872) от 06.07.2021
+
+Jivan Gasparian \Дживан Гаспарян - 33 Masterpieces (2010) 3CD Limited Edition [FLAC|Lossless|image + .cue] <Armenian Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007872.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Duduk & Orchestra - World Music
+CD2 - Duduk - Love Music
+CD3 - Duduk - Soul MusicЖанр: Armenian FolkПродолжительность: 02:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32143BED5B1F74459B40F34AD47F612E88D61DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788862   (1007838) от 06.07.2021
+
+Дживан Гаспарян - 5 альбомов (2004) [MP3|224 Kbps] <Instrumental, Ethnic>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джива́н Арамаи́сович Гаспаря́н (арм. Ջիվան Գասպարյան; 12 октября 1928, деревня Солак, Армения) — всемирно известный армянский музыкант и композитор, знаток армянской национальной музыки, мастер игры на дудуке. Народный артист Республики Армения. Профессор Ереванской (   Читать дальше...   )01. Zucchabar Gladiator Soundtrack
+02. To The River
+03. With This Love
+04. Fallen Star(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D1F90CA9D92D9F64936020FC216FF5A188DD14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483144   (1007170) от 11.07.2021
+
+Kárpátia (Karpatia) - Csatazaj (2021) [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harcoljatok! (2:20)
+02. Hópehely (3:45)
+03. Páncélos menetinduló (3:08)
+04. A köddel jövök (3:12)(   Читать дальше...   )Производство: Exkluziv Music Kiadó – EMK 069Жанр: Folk RockПродолжительность: 00:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC94F09E45906E774CC20B899034192CD340BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480651   (1007159) от 11.07.2021
+
+Machu Picchu - La Colegiala (1990) Reissue, 1997,  Vilma [FLAC|Lossless|tracks + .cue] <World Music, Panflute, Folk, Native American, New Age>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007159.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	La Colegiala 	4:12
+2 	El Gavilan 	2:25
+3 	Cancion Para Manuel 	4:40
+4 	Rosenda 	5:20(   Читать дальше...   )Жанр: PachangaПродолжительность: 1:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A49ABC54B11983A684DBC4BBF3DB6B3C9D490F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483117   (1007142) от 11.07.2021
+
+INXS - WRATH (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Pop Rock, New Wave>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guns In The Sky (2:21)
+02. Suicide Blonde (3:52)
+03. Burn For You (4:57)
+04. Viking Juice (3:13)(   Читать дальше...   )Производство: UMG Recordings, Inc.Жанр: Alternative Rock, Pop Rock, New WaveПродолжительность: 00:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2251B3082306A7CC1556E97778AF6308EDF2130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483118   (1007139) от 11.07.2021
+
+INXS - ORIGINAL SIN (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Pop Rock, New Wave>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Sent (3:16)
+02. Devil Inside (2017 Remaster) (5:13)
+03. Original Sin (5:16)
+04. Kick (2017 Remaster) (3:14)(   Читать дальше...   )Производство: UMG Recordings, Inc.Жанр: Alternative Rock, Pop Rock, New WaveПродолжительность: 00:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B395A7DFC90BCCDE90E5DF42A7454A0A4E29C964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483706   (1006644) от 15.07.2021
 
 David Wilson - Dreams Of Hollywood Nights (1999) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
@@ -568,180 +741,6 @@ George Winston - -A Memorial Benefit (2020) Special Edition [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:857F027BD24875181F9CCED9B20B6A78A0B5B295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350150   (1003243) от 06.01.2020
-
-Кай Метов - Для тебя и о тебе (Инструментальный альбом) (2013) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Pop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тема любви (3:24)
- 02. Дорога к твоему сердцу (3:49)
- 03. Сны о тебе (4:53)
- 04. Женская непредсказуемость (3:36)(   Читать дальше...   )Жанр: Instrumental, Piano, PopПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83DCDFA61E72FD4D39CF78FC0DDAD1D5457A00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350688   (1002942) от 07.01.2020
-
-Modern Spirit - Infinite Wisdom (2019) [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Preparation (04:24)
-02. Epiphany (05:12)
-03. Resurrection (06:37)
-04. Hope (05:38)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7840141A0243FD684BD8D1085E0E9F261E88A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349994   (1002510) от 09.01.2020
-
-Films - A Forbidden Garden (2013) (Ricco) [FLAC|Lossless|tracks] <Instrumental, Experimental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002510.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bubbles 	2:54
-2. Lost Field 	3:36
-3. The Door 	1:20
-4. Golden Wind 	4:22(   Читать дальше...   )Жанр: Instrumental, ExperimentalПродолжительность: 41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321CB13B889FA98FA1FEC909CBAED234311470DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349995   (1002504) от 09.01.2020
-
-Films - Messenger (2010) (Midi Creative) [FLAC|Lossless|tracks + .cue] <Instrumental, Experimental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002504.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prologue 	1:02
-2. Water Horse 	6:22
-3. Liz & Lilly 	1:43
-4. Little Forest 	5:37(   Читать дальше...   )Жанр: Instrumental, ExperimentalПродолжительность: 34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA9655EE8C36B78C127E198B390D67CEB2B52BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350628   (1002467) от 09.01.2020
-
-Gandiva - Jago jharna (2016) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jago jharna jago (3:34)
-02. Param pitare (5:41)
-03. Aum dhatre namaha (5:11)
-04. Mау i have a god-beauty (4:51)(   Читать дальше...   )Жанр: Mantras, Meditative, EthnicПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437B47AE295C5458CDE8DBB3C19BBFBC3E124682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493343   (1002458) от 09.08.2021
-
-Igor Presnyakov - Acoustic Rock Ballad Covers (2011) [MP3|~190 кб/с (V2)]<istrumental, guitar, acoustic, easy listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002458.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 -	Nothing Else Matters
-  2 -	Brothers In Arms
-  3 -	Californication
-  4 -	Don't Cry(   Читать дальше...   )Жанр: istrumental, guitar, acoustic, easy listeningПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B3F33DF487B80E2765F57DEF2796450C37054C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1114390   (831968) от 15.03.2017
+
+VA - Record Super Chart #478 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  3:20
+02.  Klaas - Riot (Extended Mix)  4:00
+03.  Ofenbach - Be Mine (Amice Remix)  3:23
+04.  Consoul Trainin - Take Me To Infinity (Amice Remix)  4:44(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2659C848B786B430F12047F24D230780988661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501971   (831749) от 12.10.2021
+
+VA - Beatport Chill House: Sound Pack #355 (2021) [MP3|320 Kbps] <Chill, Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831749.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lisa Lerkenfeldt - Champagne Smoke
+002. Floex - The Light
+003. Jon Sweetname - Flor Del Sol
+004. Nightdrive - Behind The Cloud(   Читать дальше...   )Жанр: Chill, Deep House, ElectroПродолжительность: 08:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E48004DE2E2530344CC1A0A100D1D23345E878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380638   (831669) от 04.05.2020
 
 VA - Illusion Sound: Bassline World Mix (2020) [MP3|320 Kbps] <Bassline, D&B>
@@ -687,64 +745,6 @@ VA - Club Dance Ambience Vol.64 (2016) [MP3|320 кб/с] <House, Electro House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E8CC57ABBB1153765E6E57D2A5FE02B654507B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115150   (828044) от 17.03.2017
-
-VA - Bass Sound Clinic: Drum & Bass Vol.1 (2017) [MP3|320 Kbps] <Drum And Bass, Dubstep, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Foreign Beggars - Apex (Dirtyphonics Remix)
-002. Martin Garrix - Animals (Instant Party! Remix)
-003. 1.8.7. Deathstep - Defcon (Cruel Reaction Remix)
-004. 3D Stas - Blind Drive (Rusty K Remix)(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, ElectroПродолжительность: 09:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A990DE8AEF86439750177004BCC45B2E9A177664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378875   (827740) от 06.05.2020
-
-VA - Carried away by space (2020) [MP3|320 Kbps] <Trance, Dance, House, Epic Rock>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - I Live For That Energy
-02. Gaia - Tuvan
-03. Tiesto - Adagio For Strings
-04. Andy Moor - K Ta(   Читать дальше...   )Жанр: Trance, Dance, House, Epic RockПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A99EED874A4F47E62C9712A64AED48A55015376
 ```
 
 https://mybot314.ru/tekegram_catalog/

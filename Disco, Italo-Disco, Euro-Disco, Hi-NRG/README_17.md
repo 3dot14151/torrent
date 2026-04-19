@@ -1,3 +1,61 @@
+###  Публикация: 1140557   (655882) от 06.06.2017
+
+Love Robot - Love Robot (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Robot (11:26)
+02. Robot Song (5:12)
+03. Yellow Robot (4:11)
+04. Slaves Of Pleasure (5:06)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45181CED47F8B2D51FC1F4E1F6301C166AA444AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140700   (654937) от 07.06.2017
+
+Evidence - The Evidence (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Evidence (dangerous version) (7:32)
+02. Come Into My Life (8:12)
+03. The Evidence (normal version) (5:50)
+04. Explosion Of A Planet (3:15)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337FA916367D2C9CC4ECA9E79BB25F018157C900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141063   (653948) от 08.06.2017
 
 Mc Lane Explosion - Space Music (1977) LP [MP3|320 Kbps] <Electronic, Ambient, Synth-pop, Disco>
@@ -687,64 +745,6 @@ Quango & Sparky - Disco (1980) [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF47EC241FB029882ECE92E9317F962B7278BC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228146   (637379) от 31.05.2018
-
-C.C. Catch - Hits & More (2017) Compilation [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backseat Of Your Cadillac (New Version (3:24)
-02. You Can Be My Lucky Star (Long Mix Version) (5:05)
-03. Are You Man Enough (Maxi Mix Version) (5:56)
-04. Soul Survivor (Maxi Mix Version) (5:03)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BD7E73EEAA95F363C9A6A3402D66A25B0D4F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143320   (637332) от 17.06.2017
-
-Anita Ward - Songs Of Love (1979) Reissue CD, 2013, Big Break Records [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ring My Bell (8:10)
-02. Sweet Splendor (3:51)
-03. There's No Doubt About It (3:51)
-04. You Lied (4:58)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BE6F8927EB0574062DEE722903615B8031FAF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

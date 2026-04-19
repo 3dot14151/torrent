@@ -1,3 +1,32 @@
+###  Публикация: 1301273   (585269) от 11.05.2019
+
+Professor Trance & The Energisers - Shaman's Breath (2002) [FLAC|Lossless|image + .cue] <Tribal, Trance, House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585269.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Spirit Catcher (3:31)
+2. Kozuma (7:41)
+3. Xingu (7:29)
+4. Energise (6:29)(   Читать дальше...   )Жанр: Tribal, Trance, HouseПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC7D8FD4D78F2CAF155DC76DAD51619CFB5D1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301641   (584092) от 12.05.2019
 
 Physical Dreams - Only Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
@@ -708,35 +737,6 @@ VA - Afterdark 001 - Buenos Aires (Mixed & Compiled by Sneijder) (2018) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E59D6BED48AF3A992790EEE9675CC1B56D84D00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406910   (470563) от 05.09.2020
-
-VA - Beautiful Vocal Trance: Chapter 5 (2020) [FLAC|Lossless|tracks] <Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Costa feat. Ana Criado - The Secret Garden (Original Mix)
-02. Aurosonic feat. Stine Grove - In Euphoria We Rise (Original Mix)
-03. Dark Matters feat. Jess Morgan - I Don't Believe In Miracles (Shogun Remix)
-04. Beat Service feat. Cathy Burton - Love Is Your Home (Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175EC7247BD86FAB8F1D28DC89C6963806C787C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1584788   (224535) от 19.10.2022
+
+Belinda Carlisle - A Place On Earth · The Greatest Hits (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Is A Place On Earth
+02. I Get Weak
+03. Circle In The Sand
+04. Leave A Light On(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714980479131A990B04E7126E96E6AB8E4C8CD07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584849   (224514) от 19.10.2022
+
+Selena Gomez - Revival (2015) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival
+02. Kill'em With Kindness
+03. Hands To Myself
+04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D82959A2E28A82A626E587936842D95A75514F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269134   (223263) от 13.12.2018
 
 VA - 90's Running Songs (2018) [MP3|320 Kbps] <Pop>
@@ -705,64 +763,6 @@ Joe Dassin - Grand Collection (2001) [MP3|320 кб/с]<Chanson, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E21F8D2FBFE3681E484CCF53E30E9368A55E45B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585855   (219608) от 24.10.2022
-
-VA - Ballermann Fruehlingsalarm (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kreisligahelden - Heute wird der Helm lackiert
-02. Marry - Wir feiern den DJ
-03. Bierkapitдn - Schere Stein paar Bier (Schnick Schnack Schluck)
-04. Nancy Franck - Korken knallen(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:04:34 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99129056BFFA2C83714E01960F874C743C3C173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585870   (219565) от 24.10.2022
-
-VA - Ballermann: Die Mallorca Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tobee - Mallorca Kinder
-02. Ina Colada - Anna-Marie
-03. Nancy Franck - Korken knallen
-04. Kreisligahelden - Heute wird der Helm lackiert(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:06:06 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256A79790F8A26F3B0175037EFB57DA5E8FB538F
 ```
 
 https://mybot314.ru/tekegram_catalog/

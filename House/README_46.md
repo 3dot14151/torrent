@@ -1,3 +1,177 @@
+###  Публикация: 1156913   (526455) от 09.08.2017
+
+VA - Vibes Del Mar (50 Progressive House Tunes) (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcelos Pi, Swooney - Live (Alex Greed Remix)
+02. Max Lean - Dreamer (PROMI5E Remix)
+03. POINT BLVNK, TAAMY - Full Smash (Original Mix)
+04. Mark Bale, Lost Identity - Get Ready (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27B1228CA3C9322A8B0C60834CA5990DE2E8ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156962   (526444) от 09.08.2017
+
+VA - Global Player Saint Tropez 2017, Vol.1 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York – What are we waiting for
+02. Goose Bumps , Jason Caesar – This Life (Funkerman Remix)
+03. HP Vince – Shut Up
+04. Andy B. Jones, Matty Menck – World To Life (Radio Edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E03C325AB1C4F1243DC8373877FC20E5D9E57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156877   (526400) от 09.08.2017
+
+VA - Ministry Of Sound - Chilled House Ibiza (2017) 2CD [MP3|320 Kbps] <Chill House, Lounge>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526400.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. It Ain't Me - Kygo & Selena Gomez
+2. Scared To Be Lonely (Julien Earle Remix) - Martin Garrix & Dua Lipa
+3. Places - Martin Solveig feat. Ina Wroldsen(   Читать дальше...   )Жанр: Chill House, LoungeПродолжительность: 02:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F70196E0D00F8CCDE07AEE7C6D0431CBCCCF91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053405   (526111) от 17.09.2016
+
+VA - Pure Deep Sexy Vol.2 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Popart - Florescent Love (Miguel Campbell remix) 05:42
+02. Kop Afro Soul - Love Alive (feat Siya - Kop Afro Soul dub mix) 07:56
+03. The Defloristics - And She (feat Gary Poole - Rob Hardt Electrified mix) 05:25
+04. Knor - Don't Go (Canson remix) 07:01(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BE7AC7559D59DB25BFFA37C4691D60C068CB5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157152   (525523) от 11.08.2017
+
+VA - Ibiza House Party 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melbourne Freaks - Deep Deep Down (Extended Mix)
+02. DJ Absinth - Revolution (Radio Version)
+03. Mykel Mars - White Beach
+04. Michael Ruland - Dreamer (Single Version)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988700FFA3D11C607139651F30F89F7B01B086B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157345   (525230) от 12.08.2017
+
+VA - Progressive House Nation Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Million Faces - Miami (Oldschool Mix)  6:00
+02.  N-!-C-K - Upload (Original Mix)  3:43
+03.  Neptun 505 - Lunar (Original Mix)  8:54
+04.  A.C.N. & Double Amp - I'm A Liar (Original Mix)  5:49(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A15EAF2F7BE690AE06293D00FAA95AE435C3CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157728   (524775) от 13.08.2017
 
 VA - Deep House Holiday 2017 [MP3|320 Kbps] <Funky, Club House>
@@ -577,184 +751,6 @@ VA - Future House (2019) [MP3|320 Kbps] <House, Progressive House, FutureHouse, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7FA1DAFB3B7EB77C4DCC31F83A777824FFE608F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315827   (510978) от 22.07.2019
-
-VA - Like A Summer Day, Vol. 3 (2019) [MP3|320 Kbps] <House, Deep House, Indie Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510978.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Walter N. – Dubai Beach (05:02)
-2. Marco Malinverno – Heart Breaker (05:57)
-3. Living Large – Lacetti (04:44)
-4. Junior D – Gold Lounge (05:15)(   Читать дальше...   )Жанр: House, Deep House, Indie DanceПродолжительность: 05:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6659880C5EA2A6780AFB8DC0D47EFBDDFF6809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538199   (510444) от 22.08.2012
-
-Hard Bass School - Album (2012) [MP3|320 кб/с]<Pumping House / Hardbass>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Bass School - Album (2012)
-
-Год: 2012
-Жанр: Pumping House / Hardbass
-Продолжительность: 00:56:40Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Intro (0:31)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33328E6AEF4EC494E626E1A07247C9172365C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932834   (508245) от 30.08.2015
-
-VA - Progressive Essentials 02 (2015) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.SWIFT - Weekend Day (Bee Hunter Remix) (05:36)
-02. Wayward Brothers feat. Ange - Space (Markus Hakala Remix) (05:52)
-03. Jagin - October (Original Mix) (06:37)
-04. In5um - Window (Denis Neve Remix) (07:16)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921D9D42811714E4933CD449F3D1CCC1B70D2BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316436   (505970) от 26.07.2019
-
-VA - Summer Party 2019 [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norah B. & Lorenz Koin - Don't Break My Heart (Radio Edit) 3:28
-02. Rene Rodrigezz feat. Lova - Stand My Ground (Original Mix) 3:06
-03. Teknova - Dragostea Din Tei 2K19 (Original Mix) 3:16
-04. Mad Fiftyone & Federico Seven - Una Canzone Che Fa (Radio Edit) 2:41(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92ED24BFEF974E4C5C1A856AA429140548F9366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316714   (505220) от 27.07.2019
-
-VA - Ice Cream 2019 [MP3|320 Kbps] <House, Deep  House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Miller - Shining 2019 (It's A Miller Time) (Extended MIx) 3:25
-02. My Dirty House - Smoking Barrels (Original Mix) 3:36
-03. Call Me Yogo - Summer Days (Original Mix) 3:28
-04. MAP - Lose Control (Original Mix) 3:06(   Читать дальше...   )Жанр: House, Deep  HouseПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F29D341746357790A443C3111D0C41F53F7A3B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316810   (504140) от 28.07.2019
-
-Motivation Sport Fitness - Dance Booty Workout Motivation (2019) [MP3|320 Kbps] <Deep House, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mom Fitness 02:39
-02. Workout Is My Therapy 02:17
-03. White & Red Lies 02:42
-04. When Party Is Over 04:12(   Читать дальше...   )Жанр: Deep House, Progressive, DanceПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E445685EC31A7D9AA91F654B1F41774E5F920ED0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1257130   (347371) от 25.10.2018
+
+VA - When Night Meets House (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aqua Sin Gas - Follow Me
+002. Felon Ft. Notelle - Ive Been Hoping
+003. Mor Avrahami - Kumei (Original Club Mix)
+004. Nicola Fasano - Finally(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 11:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA53CDA022A898DA5D9AA3DCC587B9A1AE819F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953759   (346972) от 05.11.2015
+
+VA - Sad Voice Of The City (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346972.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Project Blue Sun - Save Me 06:35
+002. Wesley Colon - Westerly Westerner 05:31
+003. Bencenzi - Vista 05:48
+004. Mykel Mars - A New Life - Remix 06:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CE2A46C8859977A08C21493E815E8F8BE73C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179586   (346963) от 01.11.2017
+
+VA - Medusa: Psy Goa Trance (2017) [MP3|248-320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346963.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ellinio & DJ Bim - Burning Spear
+002. Norma Project - Billions Of Stars
+003. S-Range & Zen Mechanics - Boom (Zen Mechanics Remix)
+004. Zyce - Stereo Space (Zyce & Flegma Remix)(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F75C30C5E502765D717C3BF6E69958B4A21001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953735   (346835) от 05.11.2015
+
+VA - Extra House (episode 7) (2015) [MP3|320 кб/с]<Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blondee, Veselina Popova - 7 Hours (Love Mix) (05:20)
+02. Boral Kibil - Aurora (08:21)
+03. Manga - Cevapsiz Sorular (Mahmut Orhan Remix) (06:23)
+04. Martin Kremser - Pluviophile (Studio Deep Remix) (07:24)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 02:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C40CA95D4E8F8AF35AA1F3AB667B9B24187104E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179666   (346589) от 01.11.2017
+
+VA - Русские Диджеи & Дискотеки от Ovvod7 - 03 (2017) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Грув - Берегись Автомобиля 2:49
+02.  D.J. Savage - Зимний Сон 4:43
+03.  Vengerov & Fedoroff - Здравствуйте я Ваша тетя 2:58
+04.  DJ Нил feat. X-Mode - La Peregrinacion (Животные) 3:01(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812E8655542B67B3E6750B34C72D5E0A8AF52DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579839   (346402) от 24.11.2012
+
+VA - DeepEmotions - Car Dubstep Vol.7 (2011) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nina Simone - Feeling Good (Fytch Remix)
+02. Dj Sammy - Heaven (Deckscar Remix)
+03. David Guetta - Love Don't Let Me Go (Fytch's Superman Remix)
+04. The Noisy Freaks and Neus Feat. Nalesia - Game Over (Original Mix)
+05. High Rankin - In Hell (Original Mix)
+06. Josh Money - Let Go With You (Original Mix)
+07. Hirshee Vs. Dawn Penn - You Don't Love Me (Hirshee's Drumstep Mix)
+08. Feed Me feat. Hadouken - Trapdoor (Original Mix)
+09. Harper Hero - Speak It (Original Mix)
+10. Helicopter Showdown feat. Messinian - Great Escape (Original Mix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D270674A94D0A043D5BE25C8A64B30D73ECD1D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580286   (346274) от 24.11.2012
 
 VA - New Blood Of Dubstep Vol. 3 (2012) [MP3|320 кб/с]<Dubstep>
@@ -596,186 +776,6 @@ VA - Listen To Your Heart: Vocal House Session (2020) [MP3|257-320 Kbps] <Vocal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B2FAFCA11226E150F505502ABB79450FBB2158A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418952   (344431) от 26.10.2020
-
-VA - Open Air House (2020) [MP3|320 Kbps] <Club, Dance, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344431.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Francesco Gomez - No More (Original Radio Edit)
-002. Daniele Cognata - Don't You Feel (Original Mix)
-003. Dave Jayden - Get Get Down (Original Mix)
-004. Agawe - Confused Karma(   Читать дальше...   )Жанр: Club, Dance, Future HouseПродолжительность: 08:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0B8329EDED890CBD521833F473A8D53E5C77A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418955   (344422) от 26.10.2020
-
-VA - The Music Liveshow (2020) [MP3|320 Kbps] <Vocal, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344422.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Channel East - Our Love
-002. Earth N Days - Give Me Your Love
-003. Andrew Spencer - You And Me
-004. Mat Gudelis - Drop The Beat(   Читать дальше...   )Жанр: Vocal, Deep HouseПродолжительность: 07:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA1B8A697C1961CF6AAA865ABE9218E9CE4153D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418945   (344307) от 26.10.2020
-
-VA - Beatport Electro House: Sound Pack #192 (2020) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamer - Capo Legend
-02. Mirko And Meex - Time Out
-03. Nimbuster - Shimmer
-04. Shiffer - Gallows Bird(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 08:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208A64E0B1555F6004087E14F1A148684D3EE05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418407   (344302) от 26.10.2020
-
-VA - Beatport Electro House: Sound Pack #191 (2020) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344302.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aus Aus - The Good Life
-002. Chilling Glow - Funkin' For Detroit
-003. Falstronic - Strike Force
-004. Nifiant - Hook Sunset(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 09:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD595AD1C3E9344F1E3BD46056530B8C159EF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418946   (344301) от 26.10.2020
-
-VA - Beatport Trance: Electro Sound Pack #190 (2020) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344301.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Structural Mind - Contreboost
-002. Jaytech - Lunero
-003. Cosmic & Nilson - See The Light
-004. Adrenalinn Drum - Acid Dog(   Читать дальше...   )Жанр: TranceПродолжительность: 08:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E37CFC3710F2976008C67FB888EDB63AA1F370A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580330   (343472) от 25.11.2012
-
-VA - Big Sound Collection (2012) [MP3|320 кб/с]<Deep House, Dubstep, Trance, Drum and Bass, Progressive House, Tech House, Techno, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Dahlback - Zeus (Original Mix) (05:26)
-02. Digitalism - Zdarlight (Fedde Le Grand & Deniz Koyu Remix) (06:23)
-03. Florence, The Machine - You've Got the Love (Addictive Elements Remix) (06:16)
-04. Charli XCX - You're The One (Loadstar Remix) (05:03)
-05. Nervo - You're Gonna Love Again (Richello Remix) (05:46)
-06. Greg Van Bueren & Jeroenski - Your Mind Is Twisted (The Cube Guys Remix) (07:23)
-07. Totally Enormous Extinct Dinosaurs - Your Love (Mark Knight Remix) (08:40)
-08. AlunaGeorge - Your Drums, Your Love (The Prototypes Remix) (03:12)
-09. Dada Life - You Will Do What We Will Do (Album Verison) (03:16)
-10. Fabo - You Want It (Toucan Remix) (06:28)Жанр: Deep, Dubstep, Drum and Bass, Progressive House, Tech House, Techno, Electro House, TranceПродолжительность: 78:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86596CFDD9FC6A26B26F43CBDC8D52A00F69E50
 ```
 
 https://mybot314.ru/tekegram_catalog/

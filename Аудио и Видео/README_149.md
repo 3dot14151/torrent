@@ -1,3 +1,177 @@
+###  Публикация: 1545777   (609753) от 22.04.2022
+
+VA - Beluga Lounge, Vol. 2 (2012) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J'Unique - Eine sekunde (Faris al-hassoni timecode mix) (6:26)
+02. 351 Lake Shore Drive - Provençale (Hotel Del Mar Edit) (5:10)
+03. Johannes Huppertz, Twila.too - Sapristi (4:48)
+04. Euphonic Traveller - Loungin @ la rue boissy d anglais (6:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2FC9AB26E1BA63403E3E98E5B26CCDECB71A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545779   (609752) от 22.04.2022
+
+VA - Beluga Lounge, Vol. 3 (2013) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cardinal Zen - Summer Solstice (4:48)
+02. Barclay & Cream - Natural Thing (Alexander Metzger Mix) (5:16)
+03. Northbound - Twice the Day (4:34)
+04. Guenter Haas - Cienfuegos (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93A89A6035DE27CB2DF2A584A306165ED284EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545999   (609741) от 22.04.2022
+
+VA - We Chill del Mar, Vol. 2 (2014) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ms. Jones and the Fireflies - Inception of Life (Birdy Monster People Mix) (5:23)
+02. Restless Mind - Chill Fever (Chill Del House Edit) (5:05)
+03. Pink Cookies - Clouds but No Sky (Shake in Harlem Mix) (6:02)
+04. Untited Basement Chiller - After Work (Jo Low Edit) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433ABE8FB191339438998A76A7FFDC8FEA83F1D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545786   (609739) от 22.04.2022
+
+VA - Chillout Room Session #2 (2012) [AAC|~293 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antibe Coast - Stile moderno (4:41)
+02. Jazz Nature - Consumato (5:04)
+03. Free South Project - Riflesso (5:07)
+04. Purechill - Un attimo (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61636D37F17CCD2273671C0209B4456BC656EF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546009   (609634) от 22.04.2022
+
+VA - Cigar Lounge, Vol. 1 (2015) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rainer Schnelle - White Wine (Underscore Version) (1:40)
+02. Omaya - Silence (3:29)
+03. Van Young - 'Em Be Myo (4:53)
+04. Body Talkers - Let the Music Be Your Guide (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134BE0C4204072C672258691BED5C44E49D64B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545775   (609633) от 22.04.2022
+
+VA - Beluga Lounge, Vol. 1 (2011) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqualise, Jane Henley - Lost in the Sea (8:46)
+02. Albert St.Barth - Cafe au lait (Deluxe Lounge Mix) (5:52)
+03. Josephine Sinclar - Sommernachtstraum (Kiss and Blow Mix) (7:11)
+04. Smooth Deluxe - El Ritmo (Private Gossip Edit) (5:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0A985E0072C8CF3E920FE977070EAA1F9BDF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545789   (609631) от 22.04.2022
 
 VA - We Chill del Mar, Vol. 1 (2013) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
@@ -539,166 +713,6 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [1080p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FD69444A4D8DB9329AAFEE5AA994BC3F053D833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231358   (606888) от 17.06.2018
-
-Код 211 / 211 (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский код 211 — ограбление банка. Такой сигнал получает офицер Чандлер во время своей смены. Он бросается на место событий, чтобы не позволить преступникам сбежать с добычей.Производство: США / 211 Productions, Millennium Films, Nu Image BulgariaЖанр: Боевик, Драма, ИсторияРежиссер: Йорк ШеклтонАктеры: Николас Кейдж, Софи Скелтон, Майкл Рейни мл., Дуэйн Камерон, Уэстон Кейдж, Кори Хардрикт, Ори Феффер, Марк Баснайт, Аманда Серни, Майкл БеллисариоПеревод: Многоголосый (профессиональный, закадровый) (MUZOBOZ)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B383BCEAA69674B9F492B89E78CFB48B7BC88BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231333   (606878) от 17.06.2018
-
-Заводной апельсин / A Clockwork Orange (1971) BDRip [720p]  ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606878.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме был произведен исчерпывающий анализ причин преступности среди молодежи, нетерпимости нового поколения к привычным моральным ценностям и жизненным устоям современного общества.
-Безжалостный лидер банды подростков, совершающей убийства и изнасилования, попадает в тюрьму и подвергается специальной обработке по подавлению подсознательного стремления к насилию. (   Читать дальше...   )Производство: Великобритания, США / Warner Bros. PicturesЖанр: Фантастика, Драма, КриминалРежиссер: Стэнли КубрикАктеры: Малкольм МакДауэлл, Патрик Мэги, Майкл Бейтс, Уоррен Кларк, Эдриенн Корри, Карл Дюринг, Пол Фэррел, Клайв Фрэнсис, Майкл Говер, Мириам Карлин, Джеймс МаркусПеревод: Профессиональный, многоголосый (закадровый), Авторский (одноголосый, закадровый)Субтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 02:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4247720853FB668B2B08F4EB22D3ED1B8C7C4D54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231275   (606773) от 17.06.2018
-
-Тренер  (2018) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футболист национальной сборной Юрий Столешников в ответственный момент не забивает пенальти. После досадной ошибки Столешников покидает сборную, завершает карьеру и становится тренером маленькой провинциальной команды. Именно с этим клубом Столешникову предстоит совершить чудо и вновь поверить в себя.Производство: РоссияЖанр: Драма, спортРежиссер: Данила КозловскийАктеры: Данила Козловский, Владимир Ильин, Андрей Смоляков, Ольга Зуева, Ирина Горбачева, Виктор Вержбицкий, Мария Лобанова, Павел Ворожцов, Игорь Гордин, Александр Ильин мл.Перевод: (Не требуется)Субтитры: НетПродолжительность: 02:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505C8C4B2CC5F39ED6AE942D04EB6C20BEC1C4A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751835   (606743) от 28.06.2015
-
-Bear McCreary - Черные паруса / Black Sails (2014) [AAC|WEB-DL|256 кб/с]<Score>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Theme from Black Sails
- 02 - Nassau Shores
- 03 - L'urca de Lima
- 04 - The Banner of Captain Flint(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0415B471FA7D91682D445DC888CE9FC0D975F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297164   (606563) от 20.04.2019
-
-Рождённый стать королём / The Kid Who Would Be King (2019) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повседневные проблемы 12-летнего Алекса отходят на второй план после того, как он находит легендарный Экскалибур. И теперь, когда меч короля Артура оказывается в руках самого неудачливого подростка в Британии, начинается грандиозное приключение, в ходе которого Алекс и его друзья должны остановить злую средневековую волшебницу Моргану и не дать ей уничтожить мир.Производство: Великобритания, США / Big Talk Productions, TSG Entertainment, Working Title FilmsЖанр: Фэнтези, боевик, приключения, семейныйРежиссер: Джо КорнишАктеры: Луис Эшборн Серкис, Денис Гоф, Дин Чауму, Том Тейлор, Рианна Доррис, Нэйтан Стюарт-Джарретт, Нома Думезвени, Ребекка Фергюсон, Марк Боннар, Энгус ИмриПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781E69A01FCF1FCE959BDBC0552CF948794B77B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297154   (606562) от 20.04.2019
-
-Рождённый стать королём / The Kid Who Would Be King (2019) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повседневные проблемы 12-летнего Алекса отходят на второй план после того, как он находит легендарный Экскалибур. И теперь, когда меч короля Артура оказывается в руках самого неудачливого подростка в Британии, начинается грандиозное приключение, в ходе которого Алекс и его друзья должны остановить злую средневековую волшебницу Моргану и не дать ей уничтожить мир.Производство: Великобритания, США / Big Talk Productions, TSG Entertainment, Working Title FilmsЖанр: Фэнтези, боевик, приключения, семейныйРежиссер: Джо КорнишАктеры: Луис Эшборн Серкис, Денис Гоф, Дин Чауму, Том Тейлор, Рианна Доррис, Нэйтан Стюарт-Джарретт, Нома Думезвени, Ребекка Фергюсон, Марк Боннар, Энгус ИмриПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03BD092B9D708EFEB80D5FB6EC2D71EE0586BD12
 ```
 
 https://mybot314.ru/tekegram_catalog/

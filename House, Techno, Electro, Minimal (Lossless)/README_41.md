@@ -1,3 +1,206 @@
+###  Публикация: 1316522   (505975) от 26.07.2019
+
+Pantha Du Prince - Diamond Daze (2003) [FLAC|Lossless|tracks + .cue] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suzan (08:03)
+02. St.Denis Bei Licht  (06:16)
+03. The Right For Romance (06:00)
+04. Satin Drone (06:00)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08249BBAA10129AD090C83248F2FF2EC0439D96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316450   (505974) от 26.07.2019
+
+Raz Ohara And The Odd Orchestra - Kisses (2008) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kisses (Over Temperature Vocal Mix)
+02. Kisses (Over Temperature Instrumental Mix)
+03. Kisses (Pantha Du Prince Remix)
+04. KissesЖанр: Tech HouseПродолжительность: 00:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296C33E2358E7C02C88251E41AF3544FF0BA02C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316707   (505219) от 27.07.2019
+
+Sam KDC - Omen Rising (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. False Awakening (04:40)
+ 02. Trial By Fire (05:32)
+ 03. Breaching The Void (07:04)
+ 04. Into The Ground (06:00)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C87268AEB12568046C52109C415E47DDA79A873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070063   (504220) от 28.07.2019
+
+Abstraxion - Discography 19 Releases (2006-2019) Biologic Records [FLAC|Lossless|tracks] <Techno, Electro, House, Abstract, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Vulture (04:47)
+ 02. Black Vulture (Black Merlin Remix) (07:35)
+ 03. Deleuze Fight (04:50)
+ 04. Deleuze Fight (Interstellar Funk Remix) (05:04)(   Читать дальше...   )Тип издания: WebЖанр: Techno/ElectroПродолжительность: 00:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181B8F96A7FB04FA9FAF29C19FDD4E1EADA6EA6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317258   (502517) от 30.07.2019
+
+SIM80 - Kinetic Origins (2019) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delta City OCP (06:09)
+ 02. Medbay (06:39)
+ 03. Quadratic Helm (05:52)
+ 04. Reflex AI (06:07)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1932F9E3E192B8C2323264082DBBFE079E82C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317417   (501457) от 31.07.2019
+
+Underworld - Drift Episode 3 "Heart" (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid House, Future Jazz, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dune (10:32)
+02. Custard Speed Talk (09:43)
+03. This Must Be Drum Street (05:55)
+04. Pinetum (12:09)(   Читать дальше...   )Жанр: Techno, Acid House, Future Jazz, ExperimentalПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47121C860685707A227379F7C6F8E8A7A55D46B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317458   (501382) от 31.07.2019
+
+VA - Joey Negro presents Ibiza 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Z Factor & Joey Negro - Gotta Keep Pushin' (Grant Nelson Radio Edit) (4:29)
+02. Mistura feat. Angela Johnson - Do You Love Me? (Joey Negro Radio Edit) (4:29)
+03. Bob Sinclar & Dimitri From Paris feat. Byron Stingily - Love Is the Answer (Club Edit) (6:30)
+04. Bobby D'Ambrosio feat. Michelle Weeks - Moment of My Life (Joey Negro Radio Edit) (4:54)(   Читать дальше...   )Жанр: Electro, House, Nu-DiscoПродолжительность: 03:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D7A37B3445ABFC2E76C12D3A14F49EC41774F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564371   (500592) от 18.07.2022
 
 VA - Northern Summer (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
@@ -538,206 +741,6 @@ VA - Hamburg Elektronisch Vol 1-2: Von House Zu House (2011-2012) [FLAC|Lossless
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244392   (482171) от 01.09.2018
-
-Arnaud Rebotini - Flowers For Algernon (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowers For Algernon  (6:35)
- 02. Jacob's Cycle  (6:55)
- 03. My 909  (6:27)
- 04. The Great Frog  (7:06)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B542C5A1B2ECDFA202C13053CC144BD8E0E17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160153   (478204) от 23.08.2017
-
-Roderic - Perfect Mirror Remix (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Sorrow (Dirty Doering remix) (6:20)
- 02. Slowly (Christopher Schwarzwalder remix) (7:43)
- 03. Kissing Into Each Other (Ante Perry remix) (6:48)
- 04. No Name (Franz Alice Stern Latenight mix) (5:17)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941BAF5675683175040E10FF2FAB4792C5FCF5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406249   (477485) от 02.09.2020
-
-VA - Workout Motivation 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Topic - Breaking Me (02:47)
-02. No Others - Broken Strings (03:21)
-03. Meduza - Lose Control (02:48)
-04. Mabel - Don't Call Me Up (03:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDEA2E298E673F303799B7CE735751ABD068A67B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194407   (476850) от 02.09.2020
-
-Steffi - Discography 18 Releases (2009-2020) Ostgut Ton [FLAC|Lossless|tracks+.cue, tracks] <Techno, Electro, House, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L.u.c.a. - Echo 1 (02:31)
- 02. Voiski - Sound Of Distance (05:00)
- 03. STFSHD - 1.5 (04:29)
- 04. Unbalance - Freedom (05:53)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, Electro, House, Tech House, Deep House •Продолжительность: 09:06:06 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0BC5452811D9679EC5F79DE19C4C5E736F6851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567135   (476406) от 01.08.2022
-
-Michael A - Dark Mirror Session, Vol.1 (2022) DJ Session [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Mirror Session, Vol.1 (1:10:03)Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B2CB1C7AD918BD69090D55A411603DA8A11B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160022   (476165) от 24.08.2017
-
-VA - KSHMR - Materia (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  KSHMR & Maurice West - Festival Of Lights (Extended Mix)  4:17
-02.  KSHMR, JDG & Mariana Bo - Kolkata  3:26
-03.  KSHMR & Snails - The Serpent (Extended Mix)  4:17
-04.  KSHMR & No Mondays - Divination (Extended Mix)  4:11(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3218763DC38C4C13733D552CC75CD7FB1DE585D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057339   (475019) от 28.09.2016
-
-VA - Ministry Of Sound: Chilled Electronic 80s (2016) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка формируется по времени и месту её создания ... 80-е годы... это глобальные изменения в политике, технологиях и культуре собрались воедино, чтобы произвести взрыв новых звуков, которые пришли и завоевали целое  поколение. Ministry Of Sound наконец-то (наравне с современной музыкой) бросило всю свою энергию на серию тематических сборников музыки прошлых десятилетий. (   Читать дальше...   )CD1
-01. Black - Wonderful Life  (4:47)
-02. Pet Shop Boys - Love Comes Quickly  (3:37)
-03. Soft Cell - Say Hello, Wave Goodbye  (4:44)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 03:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76433EB9F83F41FF0C843E4E2F1B7341B61948FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

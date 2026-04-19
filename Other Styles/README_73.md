@@ -1,3 +1,182 @@
+###  Публикация: 1031237   (668441) от 03.07.2016
+
+James Last - Instrumental Forever (1998) [APE|Lossless|image + .cue] <Instrumental, Pop, Latin>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A String Of Pearls
+02. Tico Tico
+03. Granada
+04. Brazil(   Читать дальше...   )Жанр: Instrumental, Pop, LatinПродолжительность: 00:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FF4AC862A208E9AE2A516B31FFD8F8A613042C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031247   (668433) от 03.07.2016
+
+Medwyn Goodall - The Dreamworld (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamweaver
+02. Where Imaginations Meet
+03. Orbit
+04. Eye of the Wolf(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC6FFF517AF9E939D491A59ED82A57452AC7508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031221   (668428) от 03.07.2016
+
+Ennio Morricone - Ennio Morricone 2016 Meisterwerke der Filmmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chi mai (from "The Professional" & "Maddalena") [3:35]
+02. Il forte (from "The Good, the Bad and the Ugly") [2:24]
+03. The Good, the Bad and the Ugly (from "The Good, the Bad and the Ugly") [2:42]
+04. Once Upon a Time in the West (from "Once Upon a Time in the West") [3:11](   Читать дальше...   )Жанр: Soundtracks, ScoreПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7AD0AA63AF3694F93C34AB205979027D306F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137518   (667810) от 26.05.2017
+
+Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richter & Woodapple) (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take a Deep Breath - Luke Woodapple
+02. Le Onde - Luke Woodapple
+03. Metamorphosis II - Luke Woodapple
+04. Departure (Lullaby) - Luke Woodapple(   Читать дальше...   )Жанр: Classical, Piano, New AgeПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27117DA459CC6D3842820E0718277DEDB09D227A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339494   (667318) от 20.05.2011
+
+Orquestra Club da Valsa - As Mais Belas Valsas Brasileiras (1999) [MP3|320 Kbps] <Instrumental, Latin, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Velho Realejo 		(03:02)
+02. Deusa da minha rua 		(02:59)
+03. Branca 			(02:48)
+04. Abismo de Rosas 		(03:33)(   Читать дальше...   )Жанр: Instrumental, Latin, Easy ListeningПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CABE22813CF7A4ABC88DB1A5A9C6C2D2326FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511347   (667225) от 16.06.2012
+
+Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimental, Post-Rock, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Closet (13:07)
+02. Pai Nai (01:44)
+03. Early Reptilian Memories (03:20)
+04. Monobrow (08:32)
+05. Half Life (06:55)
+06. Beluga (02:39)
+07. Harpie (06:24)
+08. Vegas Radiation (04:46)
+09. Skin Job (04:20)2001-2005Жанр: Instrumental, Experimental, Post-Rock, AmbientПродолжительность: (00:51:49)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137737   (666771) от 27.05.2017
 
 VA - Buddhatronic The Compilation Vol.2 (2017) [MP3|320 Kbps] <New Age, Chillout, Lounge>
@@ -587,186 +766,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997A501CA5562CD0E290C20FE98E7083ED56AAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139511   (660008) от 02.06.2017
-
-John Barry - The Real... John Barry (2016) 3CD [FLAC|Lossless|tracks + .cue] <Soundtrack, Stage & Screen>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. The James Bond Theme
-2. 007
-3. From Russia With Love(   Читать дальше...   )Жанр: Soundtrack, Stage & ScreenПродолжительность: 02:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D163C8F3B750B453ABE29F482EEBFC83BBA4C7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139395   (660006) от 02.06.2017
-
-Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rupert Gregson-Williams - Amazons of Themyscira (06:48)
-02. Rupert Gregson-Williams - History Lesson (05:16)
-03. Rupert Gregson-Williams - Angel on the Wing (03:45)
-04. Rupert Gregson-Williams - Ludendorff, Enough! (07:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E3208AAC262B98ED367CCBE8842B158B2A9AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139396   (659910) от 02.06.2017
-
-Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|tracks+ .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rupert Gregson-Williams - Amazons of Themyscira (06:48)
-02. Rupert Gregson-Williams - History Lesson (05:16)
-03. Rupert Gregson-Williams - Angel on the Wing (03:45)
-04. Rupert Gregson-Williams - Ludendorff, Enough! (07:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADDB831BFD28C4A9325062B5F02323159DE5DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902762   (659611) от 29.05.2015
-
-Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quixotic (Scattle Remix) [03:52]
-02. Dust (Carpenter Brut Remix) [04:59]
-03. Bloodline (M|O|O|N's Extra Cheese Mix) [06:53]
-04. Roller Mobster (Scattle Remix) [03:59](   Читать дальше...   )Жанр: OSTПродолжительность: 03:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4398509BD462B3276C4A74461882B4064D6278E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514207   (659283) от 23.06.2012
-
-VA - Treme: Music From the Original HBO Series Season 2 (2012) [MP3|320 кб/с]<Jazz, Blues, Folk, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hot 8 Brass Band - New Orleans After The City (4:13)
- 2. Galactic, Juvenile, Dirty Dozen Brass Band - From The Corner To The Block (3:45)
- 3. The Subdudes - Carved In Stone (3:55)
- 4. John Boutté, Michiel Huisman, Lucia Micarelli, Paul Sanchez - Sisters (3:30)
- 5. David Torkanowsky, Lucia Micarelli - Spring Can Really Hang You Up The Most (4:02)
- 6. Tom McDermott, Evan Christopher, Lucia Micarelli - Heavy Henry (3:19)
- 7. Henry Butler - Mama Roux (3:58)
- 8. Kermit Ruffins & The Barbeque Swingers - What Is New Orleans (2:48)
- 9. Rebirth Brass Band - Take It To The Street (3:11)
- 10. DJ Davis & The Brassy Knoll - Road Home (2:42)(   Читать дальше...   )2012Жанр: Jazz, Blues, Folk, SoundtrackПродолжительность: 01:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389D42F07123DC4B3FD930B911EA82CED62B8BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903194   (659214) от 30.05.2015
-
-Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2007) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ikuo Kakehashi - Singanushiga (3:32)
-02. Joe Hisaishi - Prologue - When Madness Sets In (4:22)
-03. Joe Hisaishi - Just Call Me Aloysha (1:09)
-04. Joe Hisaishi - Madman On A Tree (1:17)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544E0A6223E1332AE5E1982EFE9EDACDD8B3D29C
 ```
 
 https://mybot314.ru/tekegram_catalog/

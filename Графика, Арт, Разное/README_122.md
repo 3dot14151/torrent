@@ -1,3 +1,29 @@
+###  Публикация: 1263533   (287827) от 19.11.2018
+
+Обои - Desktop Wallpapers Full HD. Part (335) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C0D829AEA722FED4C69A182358B4ADBB628CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263539   (287822) от 19.11.2018
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (197) [JPG]
@@ -641,32 +667,6 @@ Desktop Wallpapers (4K) Ultra HD. Part (281) [JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67BD3EEB0388BFD50DBC483220EBDDC45B8950EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335659   (285527) от 03.11.2019
-
-Календарь 2020 от РОЗА123 №2 [GIF]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календарь на 2020 год.Формат: GIFРазрешение файлов: 2000x1000-2500x1500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF94EB3969360DA2F20557CD1FB96961634A309
 ```
 
 https://mybot314.ru/tekegram_catalog/

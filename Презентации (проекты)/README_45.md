@@ -1,3 +1,115 @@
+###  Публикация: 833374   (384300) от 22.10.2014
+
+VideoHive - Corporate Timeline - 4518505 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для презентации вашей компании.
+Легко настроить. Плагины не требуются.
+Превью и видеоурок - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544977C6DB7FBEB3035916F499478CC554AE6D3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174949   (382376) от 16.10.2017
+
+Проекты - VideoHive - World Travel - 20198020 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382376.jpg" />
+</div>
+
+
+###  Подробнее
+
+World Travel - это проект с современным плоским дизайном (стиль видео-объяснителя), который может использоваться как   реклама тура (летний/зимний отдых), рекламная акция для авиабилетов и отелей, услуг по бронированию автомобилей, или как международное рекламное агентство!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00C46A984CF72E8E2681D7BEDE7198ACEC7CAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833914   (382328) от 23.10.2014
+
+VideoHive - Particle Impacts - 87589 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для презентации. Более 20 мест для видео и текста.
+Требуются плагины. Превью и видеоурок - в раздаче.
+
+От автора проекта: Trapcode Particular v2 required. (Optical Flares is prerendered but additional file is included for those who have the plug ins and want to modify it.)(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5839E5AAE4BEE4D0408917F62403F8E879B6B660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833880   (382323) от 23.10.2014
+
+VideoHive - Fashion Promo - 95063 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для презентации. 7 мест для видео и более 10 для текста.
+Легко настроить. Пререндеренная версия включена, для неё плагины не требуются. Футажи от Digital Juice.
+Превью и видеоурок - в раздаче.
+(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F5E1F4CD586CA84CD29F4F896FDD5BF9BBBA0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833899   (382195) от 23.10.2014
 
 VideoHive - Fashion Promo 2 - 105206 [AEP]
@@ -581,110 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E7459F3067083E89AFB4B0DDADF516F2DC68664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327547   (374126) от 25.09.2019
-
-VideoHive - Garage - Broadcast Pack - 23472141 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стильный пакет для оформления фото-видео материалов экстремальных видов спорта, автоспорта и пр.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE00307BD2486669686E6B29921883C342E9D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069459   (373047) от 04.11.2016
-
-Проекты - VideoHive - Broadcast TV Graphic Package - 18464820 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Broadcast TV Graphic Package - пакет графических элементов, чтобы покрыть все потребности индивидуальности телевизионного вещания.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AFF2E1B0DD09058CADBEC36A0555E6ADF271E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069444   (373042) от 04.11.2016
-
-Проекты - VideoHive - 2020 Mobile Phones Technology - 1758721 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373042.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 Mobile Phones Technology - презентация инновационных мобильных технологий будущего.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B3401A5F0B537F3323F0B9DEC0449ACC619189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069448   (372698) от 04.11.2016
-
-Проекты - VideoHive - News Plus - Complete Broadcast Package - 13696387 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372698.jpg" />
-</div>
-
-
-###  Подробнее
-
-News Plus - Complete Broadcast Package - пакет графики для новостных и других вещательных каналов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844F1F8CD265E1CEE561920D912485C53EB02A84
 ```
 
 https://mybot314.ru/tekegram_catalog/

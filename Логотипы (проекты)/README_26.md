@@ -1,3 +1,107 @@
+###  Публикация: 1038207   (608244) от 27.07.2016
+
+Проекты - VideoHive - Flip Side Logo Reveal - 15006884 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flip Side Logo Reveal - покажите свой логотип с этим чистым и простым After Effects шаблоном.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241FE743BE7A41FAA52ED6E9F3CC790274BF3F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038178   (608232) от 27.07.2016
+
+Проекты - VideoHive - Blooming Logo - 15214716 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа или слогана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA560C9E98E0D618051ADAB0F443CD4D711F61BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296412   (607904) от 19.04.2019
+
+Проекты - VideoHive - Quick Logo Reveal Pack v.5 - 10399896 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quick Logo Reveal Pack - это 100 анимационных логотипов для представления вашего проекта, компании или бизнеса. В пакете представлены 4 категории, в каждой из которых содержится 25 разновидностей логотипов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6829646DBFCAE3D886DBBDAB74922A3FECB3FBCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038471   (606466) от 28.07.2016
+
+Проекты - VideoHive - Incandescent Epic Reveal - 4134986 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Incandescent Epic Reveal - огонь разрушает поверхность логотипа и раскрывает перегретое ядро. А что еще нужно для эпического образа логотипа? Правильно - хорошая озвучка!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C16AD0D248898188A15A881611D51267C2BDDE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913599   (604776) от 29.06.2015
 
 Проекты - VideoHive - Clean Logo Reveal [AEP]
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D014B231B83CC523E6E548C5F807B6C806B035A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 808107   (590022) от 27.07.2014
-
-VideoHive - [Full Hd] Cinematic Logo Opening - 114252 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Хорошо будет смотреться как начало фильма.  Прожекторы уже отрендерены, поэтому плагин Optical flares не требуется. Но если он установлен, то можно изменять свет по своему желанию.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1246AC7FC7455E7EAB110BEF71A44A083534D9C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916970   (589869) от 10.07.2015
-
-Проекты - VideoHive - Ramadan Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа в арабском стиле. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB42710A49094EAAC6919F767329758AA34FB7B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917175   (589488) от 11.07.2015
-
-Проекты - VideoHive - Ramadan Ident [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ramadan Ident - Профессиональные, чистые, яркие Рамадан-анимации с логотипом.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27505198D99C28043EC40A24B1157CA87802E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 808496   (589157) от 29.07.2014
-
-VideoHive - Cinematic Logo Toolkit Pro - 5624493 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересный проект для обработки вашего логотипа или надписи. Меняйте текстуры, внутренние и внешние обводы и так далее. Вещь нужная в хозяйстве.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F14BCAE3093BD3F67ADB818ADA1C77F23EA1E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

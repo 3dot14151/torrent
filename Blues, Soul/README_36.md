@@ -1,3 +1,32 @@
+###  Публикация: 1668250   (173920) от 12.10.2023
+
+VA - Halloween Blues (2023) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skip James - Devil Got My Woman [05:13]
+02. Howlin' Wolf - Evil (Is Going On) [02:53]
+03. Lightnin' Hopkins - Lonesome Graveyard [05:32]
+04. Bo Diddley - Bo Meets The Monster [03:07](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5109914D0B888F0587E954ABA100C51753E0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430438   (173763) от 10.12.2020
 
 Matt O'Ree Band - 3 альбома (2013-2019) [MP3|320 Kbps] <Blues, Blues Rock, Hammond>
@@ -715,35 +744,6 @@ Fiona Boyes - Professin' The Blues (2016) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82ACBDD11E1173BDD6B26C8845635777D833DD63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518740   (152387) от 21.12.2021
-
-VA - Blues Happy Christmas (2021) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Brown - Santa Claus Go Straight To The Ghetto
-02. Albert King - Santa Claus Wants Some Lovin'
-03. G. Love & Special Sauce - Christmas Cookies
-04. The Singing Contractors - Joy To The World(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8432F82F74BADEAADE083F7963D6665977818D42
 ```
 
 https://mybot314.ru/tekegram_catalog/

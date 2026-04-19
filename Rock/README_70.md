@@ -1,3 +1,32 @@
+###  Публикация: 1333719   (301586) от 26.10.2019
+
+Syrinx - Meteora (1980) LP [MP3|320 Kbps] <Electronic, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syringendrom (5:33)
+02. Metamorphosis (2:49)
+03. Steingarten (5:26)
+04. Pantokrator (3:15)(   Читать дальше...   )Жанр: Electronic, KrautrockПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0961EBEBE6FC5638EA6ED754DE7B412A4306FB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184374   (301276) от 17.11.2017
 
 Jeff Lynne's ELO - Wembley Or Bust (2017) Live [MP3|320 Kbps] <Rock, Progressive Rock>
@@ -722,35 +751,6 @@ Peter Felippi - Blue Light (1982) LP [MP3|320 Kbps] <Electronic, Krautrock, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:807CB125662C9C3F5EAF39244AD242360FA44A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335180   (289427) от 01.11.2019
-
-Zdob si Zdub - Bestiarium (2019) [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289427.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Statu-Palmă-Barbă-Cot
-2. Muma Pădurii
-3. Lupul Solitar
-4. Horea Despre Horea(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0EA40A19FB4A552B06EFCE5B76E3249A3D3CB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

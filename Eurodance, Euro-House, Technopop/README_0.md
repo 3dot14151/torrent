@@ -1,3 +1,32 @@
+###  Публикация: 1004272   (839754) от 05.04.2016
+
+Zodiac - Zodiac (1998) [MP3|320 кб/с] <Electronic, Euro House, Happy Hardcore>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Again    03:39
+02. Every Time I See You    03:06
+03. Make Believe    03:56
+04. All The Things You Do    03:33(   Читать дальше...   )Жанр: Electronic, Euro House, Happy HardcoreПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE88FCA3C9C984D2CF9224469D242FDCDD32EB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113231   (838303) от 11.03.2017
 
 VA - Sport Explosion Spring 2017  [MP3|320 Kbps] <Euro Dance, Pop Dance>
@@ -716,35 +745,6 @@ VA - 90s Dance Hits Vol.1 (2018) [MP3|320 Kbps] <Eurodance, Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7691CC16A6F504F67C13EB79F3C5B6DBA6DB0635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015462   (774834) от 10.05.2016
-
-Chyp-Notic - 2 Albums, 4 Singles & EPs (1990 - 2015) [MP3|320 кб/с] <Electronic, Synth-pop, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing compares 2 U   (4:53)
-02. Don't play my song   (4:17)
-03. Free   (4:33)
-04. Love reaction   (3:56)(   Читать дальше...   )Жанр: Electronic, Euro House, Synth-popПродолжительность: 02:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506D35B69BDA925F8A02D3D94C5CD8DFC34F3E5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

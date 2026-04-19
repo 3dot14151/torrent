@@ -1,156 +1,22 @@
-###  Публикация: 1214723   (763177) от 23.03.2018
+###  Публикация: 1279294   (766739) от 28.01.2019
 
-Векторный клипарт - Happy Easter holiday with eggs and bunny #14 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С праздником Пасхи
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9182E392A9BDA598C22571EDC68E5592B7DC2142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214704   (763061) от 23.03.2018
-
-3D модели - Daz 3D - Wizard Magic Bundle - 50371 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магический набор волшебников для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941E50B48B76665D1FFA9AEFB076D8DB747C3453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017078   (762557) от 16.05.2016
-
-Экшены - GraphicRiver - Liquify Photoshop Action - 9239689 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C305E0BEEDE5141769AA957596A321BAA6F8DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017427   (762556) от 16.05.2016
-
-Экшены - CreativeMarket - 15 Oil Painting Effect Photoshop Act - 406110 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oil Painting Effect - этот экшен был разработан для фотографов и графических дизайнеров.
-Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BABC4E5ADB18D0C3C3C594CC6EF910E01C3AAF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017065   (762551) от 16.05.2016
-
-Экшены - GraphicRiver - Typography 2 Photoshop Action - 12095200 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Типографический эффект из ваших фотографий всего за несколько кликов.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70975B34589B3CEBDEB258FD6136EB0312ABE7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887090   (762070) от 10.04.2015
-
-Шаблоны - Шаблоны PowerPoint / PowerPoint Templates [PPT, PPTX]
+Шаблоны - GraphicRiver - Christmas - 22830318 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766739.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Высококачественные бизнес-шаблоны для PowerPoint, взятые с Creative Market и GraphicRiver.Формат: PPT,PPTXРазрешение файлов: 1280x720 - 1920x1080
+Идеальный дизайн для продвижения вашей рождественской вечеринки.Формат: PSDРазрешение файлов: 1275×1875
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD91D4A0CA976D638AA5D49D52DE97FC84ED26E2
+magnet:?xt=urn:btih:1D356E6580657C3A70AE1E16C85002C1593C7E8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394693   (761961) от 06.07.2020
+###  Публикация: 1279301   (766688) от 28.01.2019
 
-Звуковые библиотеки - Bluezone Corporation - Kosmonaut - Cinematic Ambiences And Sound Effects [WAV]
+Растровый клипарт - Creative Market - Butterfly Illustration Bundle - 1508506 [PSD, PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Космонавт» - новая коллекция звуков окружающей среды, дронов, ударов, звуковых эффектов и многого другого.Формат: WAV
+Сборник из 75 красочных старинных бабочек.Формат: PSD, PNGРазрешение файлов: 1500x1500-1582x2048
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD32115C1CCA231B2CAF30042B97B01FA288D5DD
+magnet:?xt=urn:btih:72C72186665EFB509404477E9F486A94C7B33631
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,52 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280423   (761864) от 02.02.2019
+###  Публикация: 1279291   (766678) от 28.01.2019
 
-Текстуры - Creativetacos - 5 Free Stone Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры под камень. Бесплатно для коммерции и личного пользования.
-Автор: Vladimir RadetzkiФормат: JPGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6795D7293A2468B7ACBFD33C6AC887DDC483997C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394798   (761839) от 06.07.2020
-
-Стили - Psd Editable Text Effect Style Template 18 [PSD]
+Стили - GraphicRiver - 20 3D Retro Photoshop Styles asl.Vol.2 - 22813719 [PSB, ASL]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-9 стилей для текста.Формат: PSDРазрешение файлов: 3000x2000-4000x2000
+20 3D Ретро стилей для текста.Формат: PSB, ASL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C81EB00CED4AA9D2D602F9A57D6AF0EE6A9CF796
+magnet:?xt=urn:btih:783BCC9053F23131A439D846FCDE0BA835DA0D88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,26 +76,372 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394663   (761834) от 06.07.2020
+###  Публикация: 1213948   (766577) от 19.03.2018
 
-3D модели - Daz 3D - Daisy 8 Pro Bundle - 70321 [DUF]
+Растровый клипарт - Happy Easter #03 [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766577.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Daisy 8 для DAZ 3D из категории People.
+Клипарт Пасха для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 131x400-800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9436BF970544B98892A83AE3A38A33FB897C0252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214023   (766533) от 19.03.2018
+
+Экшены - Creative Market - 20 Sunlights with Flares - 1949486 [ATN, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добавьте красивые эффекты к вашим изображениям, используя наши оптически захваченные солнечные лучи с вспышками для фотографов, особенно свадебных, портретных и семейных фотографов.Формат: ATN, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D9E4DD1E47D520F0DDE913383DAD42675EF359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213952   (766531) от 19.03.2018
+
+Растровый клипарт - Painted Lilacs Photoshop Overlays [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766531.jpg" />
+</div>
+
+
+###  Подробнее
+
+50 высококачественных Наложений фотографий, сохраненных в виде прозрачного файла PNG, 300 dpi
+37 нарисованных фото накладок-бордюры, мягкая сиреневая дымка и тона, цветы и лепестки сирени.
+13 сиреневые элементы дизайна, чтобы помочь Вам создать свои собственные накладки
+Будет работать с любой программой редактирования, которая позволяет использовать слои (PS, PSE, (   Читать дальше...   )Формат: PNGРазрешение файлов: 265x291-3450x2400
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970BA3248BE90AB01E07D6DACB7CF5246A8890D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214018   (766527) от 19.03.2018
+
+Растровый клипарт - Rain photoshop overlays overlay [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фото-накладки отлично подходят для создания вам фото более интересными и красивыми.Формат: JPG, PNGРазрешение файлов: 3500x2500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99737D3F567D3071C5B070BEA7A1A3CA38AB4C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393995   (765970) от 02.07.2020
+
+3D модели - KitBash3D - Veh: Drones [FBX, OBJ, C4D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Независимо от того, создаете ли вы современную военную обстановку или футуристические миры, управляемые полицейскими государствами, этот пакет дает вам все элементы дронов, роторы, пропеллеры, карданные подвески, руки и ноги, чтобы вы могли смешивать, сочетать, переставлять и комбинировать Создать свою окончательную армию дронов!.Формат: FBX, OBJ, C4D
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD17E1BABB149EAEDD4B4719D5C266B5246443F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279307   (765959) от 29.01.2019
+
+Стили - Creative Market - Fabric Kingdom Illustrator Edition - 2668563 [AI, PNG, JPG, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Illustrator является моим любимым дизайнерским приложением из всех, так что кто бы сомневался, что я когда-нибудь принесу иллюстрацию для моего Fabric Kingdom! Если вы не знаете, Fabric Kingdom - это мой огромный графический пакет, основанный на моей страсти к стилям слоев и методам, которые они могут использовать в процессе проектирования. И, вот, этот день (   Читать дальше...   )Формат: AI, PNG, JPG, SVG, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF47146EB5D0E4D44FEA1FE2F4EE26873472DF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279306   (765859) от 29.01.2019
+
+3D модели - Car 3D Model Bundle 2018 Vol.3 [*.max, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей автомобилей в количестве 27 шт.
+В каждой папке для каждого авто есть файлы в форматах *.max, OBJ
+Для некоторых авто (не для всех!) есть файлы и в других форматах (Cinema, Blender ...)Формат: *.max, OBJ, FBX, MTL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2562E194059AF302ACC8D093D42A0D4078E56423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214121   (765752) от 20.03.2018
+
+Векторный клипарт - Vector Flowers Collection #43 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Коллекция векторных цветов
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF39385AD71696E0EC417FC964E0081256061318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214125   (765750) от 20.03.2018
+
+Растровый клипарт - Happy Easter #05 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт Пасха для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 116x150-2743x2736
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33EE0BBCE5A0E9D3515B2AF883E4F92E0CC6709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214124   (765746) от 20.03.2018
+
+Растровый клипарт - Tubes #100 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт Tubes для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 97x504-1722x2424
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2366A4D9B78CBFBF7E9DCA1455614A1B36B6118C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214198   (765705) от 20.03.2018
+
+Экшены - GraphicRiver - Watercolor Photoshop Action - 21556118 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Watercolor -простой в использовании экшен фотошоп, превратит ваши фото в акварельное полотно. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C366666E961973B27C6EF60756F9A79AF3BA2145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214207   (765675) от 20.03.2018
+
+Экшены - GraphicRiver - Acrylic - Ink Artist Photoshop Action - 21569061 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acrylic - Ink Artist - данный экшен фотошоп  отлично подойдёт фотографам и графическим дизайнерам. Эти действия профессионально разработаны, чтобы придать вашим изображениям волшебный и замечательный тон, позволяя вам оптимизировать процесс редактирования и улучшить ваши изображения.
+Для достижения наилучших результатов рекомендуется использовать фотографии высокого (   Читать дальше...   )Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8509D1CA3E0458F33185D9ED10672B84A3DFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279677   (765139) от 30.01.2019
+
+Кисти - Cubebrush - 100+ Ultimate Stylized Alpha Pack by J Roscinas [ZBP, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 100 стилизованных альфа-текстур в этом наборе.  Альфы, разработанные специально для стилизации персонажей и активов, текстурирования и лепки.  Пакет содержит мех, камни, скалы, бесшовные текстуры ...Формат: ZBP, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38809D3A79815E34D9C170707B641583CA6214FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214332   (764831) от 21.03.2018
+
+3D модели - Daz 3D - Classic Biker Gear for Genesis 8 Female(s) - 51007 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Classic Biker Gear - замечательный многофункциональный набор. Он тонко обработан и текстурирован по  обычным авторским стандартам BadKittehCo для DAZ 3D из категории People.
 Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04D62A3C0B4150A327D32ED43BC85848E3A4ADD3
+magnet:?xt=urn:btih:3838022C151AB18C3D5D4EEDF78F89111CC934E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,51 +449,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280182   (761740) от 02.02.2019
+###  Публикация: 1214385   (764829) от 21.03.2018
 
-Текстуры - Design Bundles - Hot Foil Stamp Effect Kit for Photoshop [PSD, JPG, ASL, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор текстур, оттисков, Смарт PSD генератор, стилизованные под  фольгу (доступны в 3-х  цветах—золото, розовое золото и серебро) + бесшовные модели текстур матовой чёрной бумаги для Adobe Photoshop CS3+. Бесплатно для коммерции и частного пользования. Материал раздаётся с официальной документацией.Формат: PSD, JPG, ASL, PAT, ANTРазрешение файлов: 2048 x 2048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787C1440D46F887FD6A12FC57FEAFA9DA4982469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215021   (761362) от 24.03.2018
-
-3D модели - Daz 3D - UHD Leather - Shaders and Merchant Resource - 47753  [DUF]
+3D модели - Daz 3D - Vehicles [DUF, EXE]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-UHD Leather - это набор текстур и шейдеров высокой четкости для Iray, которые можно использовать в качестве торгового ресурса для ваших собственных продуктов! Внутри вы найдете 4k 280 карт с черепичными изображениями (diffuse color, diffuse detail, specular, base normal and detail normal), которые используются для создания 112 отдельных кожаных пресетов. для DAZ (   Читать дальше...   )Формат: DUF
+Набор 3d моделей для DAZ 3D - разные виды транспорта из категории Vehicles.Формат: DUF, EXE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A68FE9B3E10720139D9DFA3EC10FF1061A0EB5A7
+magnet:?xt=urn:btih:9030579DF74C5AD1AE7132351BCAAE49FE907B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,255 +475,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215014   (761284) от 24.03.2018
+###  Публикация: 1214498   (764004) от 22.03.2018
 
-3D модели - Daz 3D - UHD Fuzzy Cloth - Shaders and Merchant Resource - 48369  [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761284.jpg" />
-</div>
-
-
-###  Подробнее
-
-UHD Fuzzy Cloth представляет собой набор специальных скриптовых шейдеров, имитирующих реалистичную шерстяную ткань. для DAZ 3D из категории Resource.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1ED8331307CB8028AF209AEA3858E7C941F0847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215136   (761152) от 24.03.2018
-
-3D модели - Daz 3D - Sci-Fi [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D - научная фантастика из категории Structures.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027939A7406966A23AC3CA20772444A640FE34D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215028   (761144) от 24.03.2018
-
-3D модели - CGTrader - Lexus IS F-Sport 2016 3D model [MAX, SKP, 3DS, FBX, OBJ, C4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761144.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D модель Lexus IS F-Sport 2016
-(Max) Version: 2010, Renderer: Default (Scanline)
-(Cinema 4D) Version: 11.5, Renderer: Advanced Renderer 3Формат: MAX, SKP, 3DS, FBX, OBJ, C4D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555719EABE22F61A2F704B56B026E680B84E4FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017535   (760748) от 17.05.2016
-
-Экшены - GraphicRiver - Smoke Exposure Photoshop Action - 14884185 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150D18B40E2612B11CA283C4C697363CFE61C95B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394957   (760263) от 07.07.2020
-
-Векторный клипарт - Treasure island map and pirate party poster template [EPS]
+Векторный клипарт - Happy Easter holiday with eggs and bunny #6 [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Карта острова сокровищ и пиратская вечеринка
-10 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09BD5B799BCA02645F8DA8E858DC9190A072BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280558   (760186) от 03.02.2019
-
-Фоны и наложения - TheHungryJPEG - Neo Random light Overlay 52 - 3518185 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Neo Random light Overlay 52 - Наложения, которые позволяют создавать на фотографии солнечные лучи различных форм, размеров, направлений и цветовых тем. Таким образом, вы можете легко добавить летнее настроение к вашим фотографиям.Формат: JPGРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566B961162B498B1AA5A3700DEBC6F0B8564A23C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394952   (760103) от 07.07.2020
-
-Оверлеи - FilterGrade - 28 Zoo Overlays, Realistic Wild Animal Photoshop Overlay [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы стараемся делать самые лучшие проекты для наших особых клиентов. Мы всегда ищем лучшие в графических работах, потому что вы заслуживаете лучшего.
-В этой коллекции мы подготовили животных дикой природы.
-Есть 28 оверлеев 28 различных типов животных. Лошадей, жирафов, львов, пингвинов, белок, орлов и т. д.Формат: PNGРазрешение файлов: 4000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988A0B21C7C2A45A51BC9603F32E0645D8936377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280580   (760048) от 03.02.2019
-
-Фоны и наложения - Creative Market - 100 Fireworks Overlays - 1608202 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760048.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 Fireworks Overlays - 100 потрясающих реалистичных наложений фейерверков для добавления к вашим изображениям. Придайте своим творениям настроение праздника и торжества.Формат: JPGРазрешение файлов: 2048x3072 - 6016x4016
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA552190E83DCC49FC9432249B112FE3B05F35DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394810   (759986) от 07.07.2020
-
-3D модели - ArtStation - Mega Pack KITBASH 320 DETAILS [FBX, MAX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мега пак 3D-элементов для ZBrush 320шт.Формат: FBX, MAX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D422ECA86C70C1E0148441EFEDA7623C677ED499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215429   (759963) от 25.03.2018
-
-Векторный клипарт - Happy Easter holiday with eggs and bunny #13 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764004.jpg" />
 </div>
 
 
@@ -576,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48648019BC579312DB627405D7871AB46B23B27F
+magnet:?xt=urn:btih:D51C38A58DFBEFDBAF3C85C09513D0C1DA838406
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,15 +503,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215430   (759957) от 25.03.2018
+###  Публикация: 1214500   (764003) от 22.03.2018
 
-Векторный клипарт - Happy Easter holiday with eggs and bunny #8 [EPS]
+Векторный клипарт - Happy Easter holiday with eggs and bunny #10 [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764003.jpg" />
 </div>
 
 
@@ -604,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A4232DA8BDD0913EA2778F8086EF61CB37B8257
+magnet:?xt=urn:btih:C5BE24F192602003B4EA35780A70E934B19D873B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,27 +531,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215427   (759721) от 25.03.2018
+###  Публикация: 1214503   (764000) от 22.03.2018
 
-Векторный клипарт - Certificate and vector diploma design template #57 [EPS]
+Векторный клипарт - Happy Easter holiday with eggs and bunny #5 [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764000.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Шаблоны оформления сертификатов
-11 EPS + previewФормат: EPS
+С праздником Пасхи
+9 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FD05891B5C44D01B6A9A852BF3C3F413ABAA67B
+magnet:?xt=urn:btih:8B16F8964E5CA5854F25C2310AB2CC25810E3CA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,27 +559,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215426   (759714) от 25.03.2018
+###  Публикация: 1214728   (763983) от 22.03.2018
 
-Векторный клипарт - Certificate and vector diploma design template #56 [EPS]
+Векторный клипарт - Different Parrots Set [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763983.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Шаблоны оформления сертификатов
-10 EPS + previewФормат: EPS
+Различные попугаи
+3 AI +TIFF PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE7F4D59349222E4FE9E993AD5A92ADADE8A433C
+magnet:?xt=urn:btih:6BFE4D9C267B265DA852716F62A338B477405D36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,25 +587,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215360   (759534) от 25.03.2018
+###  Публикация: 1214693   (763904) от 22.03.2018
 
-3D модели - Daz 3D - Sci-fi #2 [DUF, EXE]
+3D модели - Daz 3D - Sci-Fi Pilot Outfit for Genesis 8 Female(s) - 51211 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор 3d моделей для DAZ 3D - научная фантастика из категории Robots.Формат: DUF, EXE
+Sci-Fi Pilot Outfit for Genesis 8 Female - милитаризованный костюм в стиле "секси" с жилетом и доспехами. Он поставляется с 7-ю предустановленными текстурами от классических военных до блестящих аниме и полиции будущего. Для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D17972042D7BD207999451BB24AE0E8392EABF99
+magnet:?xt=urn:btih:6FCF8E037F236719D4200486B71653A5DC4D8C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394474   (763500) от 05.07.2020
+
+Футажи - VideoHive - Islamic Calligraphies Motion Graphics Pack - 23477403 [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763500.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Islamic Calligraphies Motion Graphics Pack» - это идеальная коллекция стоковой графики движения, в которой представлены ценные слова в Исламе, выполненные красивыми золотыми штрихами. Пакет содержит следующие слова: “Allah”, “La Galibe Illallah”, “Mashallah”, “Bismillah ar-Rahman ar-Raheem”, “Blank Islamic Circle Frame”, “Mohammad” and Dervish (либо существуй таким, (   Читать дальше...   )Формат: MP4Разрешение файлов: UHD 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B789D3C45F521688CB5B51D781EA25291DE54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214720   (763289) от 23.03.2018
+
+Векторный клипарт - Happy Easter holiday with eggs and bunny #9 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С праздником Пасхи
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C27C301557977089134C3137FFFF9180F438FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279983   (763207) от 01.02.2019
+
+3D модели - TurboSquid - CGAxis Models Volume 39 Christmas - 787973 [V-Ray|*.max, C4D, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763207.jpg" />
+</div>
+
+
+###  Подробнее
+
+GAxis Models Volume 39 - Christmas - коллекция, содержащая 30 высокодетализированных 3D-моделей рождественских украшений. Вы можете найти в нем: различные елки, рождественские венки, настольные украшения и многое другое. Модели из этой коллекции прекрасно подходят для придания вашим проектам визуализации интерьера особого праздничного настроения.Формат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2185E89D5E350FDBB6D47F7D3BAC618AA80ADFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

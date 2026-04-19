@@ -1,3 +1,90 @@
+###  Публикация: 1257277   (345492) от 26.10.2018
+
+Scandroid - Dreams In Monochrome (2018) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterglow (Michael Oakley Remix) (3:36)
+ 02. Rendezvous (VHS Dreams Remix) (3:52)
+ 03. Monochrome (Sunset Neon Remix) (3:34)
+ 04. Time Crime (Turboslash Remix) (4:13)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE5483AE89A454B4A8ABAD11720D99D3FA52B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578771   (340817) от 25.09.2022
+
+Alphaville & Deutsches Filmorchester Babelsberg - Eternally Yours (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth Wave, Symphonic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Machine - Symphonic Version [00:04:46]
+02. Summer in Berlin - Symphonic Version [00:05:17]
+03. Big in Japan - Symphonic Version [00:05:17]
+04. Dance with Me - Symphonic Version [00:05:30](   Читать дальше...   )Жанр: Synth Wave, SymphonicПродолжительность: 01:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA965744ACAC495F35CFF53E8F71F1A42FB8E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419171   (339871) от 28.10.2020
+
+R°A - Space Melody (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander (5:35)
+02. Very Nice (4:19)
+03. Space Melody (Flemming Dalum Instr. Remix) (5:16)
+04. Clock War (5:28)(   Читать дальше...   )Жанр: Italo-Disco, Synthpop, New WaveПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0098ACE257E4703621A905BBE1FB1CD8EC62F1BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330661   (339097) от 11.10.2019
 
 SYNTHEVER - Around The World Hits Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
@@ -658,93 +745,6 @@ Hurts - Desire (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Electronic, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52F29A277473486BE923F4E2081A6A8D0D7086AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259945   (316134) от 05.11.2018
-
-Space - Magic Fly (1977) 1983, Compilation [FLAC|Lossless|image + .cue] <Electronic, Synth-Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316134.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:22] 01. Magic Fly
-[8:20] 02. Carry On, Turn Me On
-[4:24] 03. Air Force
-[6:42] 04. Save Your Love For Me(   Читать дальше...   )Жанр: Electronic, Synth-PopПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B57683BB307399595D5725BD82B7E767B87F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959501   (314831) от 25.11.2015
-
-Parralox - Aeronaut (2015) Limited Edition [FLAC|Lossless|image + .cue]<Electropop, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeronaut
- 02. Atmosphere
- 03. Companion
- 04. Do You Feel What I Feel(   Читать дальше...   )Жанр: Electropop, SynthpopПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D49BAC4F7847F65C813B8A8302051768E8D8A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583224   (314507) от 13.10.2022
-
-St. Lucia - Utopia (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indie>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. () [00:01:06]
-02. Separate World [00:04:52]
-03. Another Lifetime [00:04:37]
-04. Rocket On My Feet [00:04:07](   Читать дальше...   )Жанр: Synthpop, IndieПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6675CC20522AD4E7D6E5F21BBAF452D9F4AEEDEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

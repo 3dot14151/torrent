@@ -1,3 +1,38 @@
+###  Публикация: 492916   (248170) от 06.05.2012
+
+Russ Diapper - Kingsnake (2012) [MP3|~225 кб/с (V1)]<Hard Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trust Me (04:51)
+02. Seven Days (03:33)
+03. Look The Other Way (03:57)
+04. Bird In The Sky (04:12)
+05. Rock And Blues (04:53)
+06. Son Of A Gun (05:52)
+07. Wolf Moon (04:42)
+08. Shotgun (05:30)
+09. Roxy's Dad (04:41)
+10. Motel No-Tell (03:47)(   Читать дальше...   )2012Жанр: Hard Blues RockПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33A067C24C958EC37A3385726B21E69BEE7A3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492258   (247916) от 05.05.2012
 
 Alan Simon - Excalibur III - The Origins (2012) [MP3|320 кб/с]<Folk, Rock, Celtic>
@@ -719,35 +754,6 @@ Ted Nugent - Spirit of the Wild (1995) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02749A4E1468FCDA12E364C7A656F6CB50BFBE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611336   (243960) от 11.02.2023
-
-Strange Omen - Marasma (2023) [MP3|320 Kbps] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Chrome City [00:04:19]
-02 - Dirty Lungs [00:04:34]
-03 - Marasma [00:05:07]
-04 - Thunder of the South [00:04:05](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4DC80E13A326FD2FB83571BD8DAF33332FC39B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -462,6 +462,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537119   (666708) от 17.03.2022
+
+VA - Sunrise Avenue, Vol. 1 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_666708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stewart Ferreira - Movemaker (Original Mix) (3:51)
+02. Mark Mars - Ship's Lounge (Downtown Slow Mix) (3:23)
+03. Breakfast Trim - Dubai Sun (Original Mix) (3:21)
+04. Stephen Aguilar - Africa Time (Original Mix) (3:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FAF36FBF06EB53164204A158275892E5317ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537663   (666704) от 17.03.2022
 
 VA - Eargasm Chill Out, Vol. 1 (An Obsession of Erotic Lounge) (2014) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
@@ -707,32 +736,6 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DD0C2C3CFAA5577BAA66AFA7ADEA1107740676C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900825   (666436) от 23.05.2015
-
-Kingsman: Секретная служба / Kingsman: The Secret Service (2014) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эггси — молодой парень, который прошел службу в морской пехоте и имеет очень высокий уровень интеллекта. Он мог бы добиться многого, но выбрал другой путь и стал мелким преступником. Однажды он знакомится с Гарри Хартом, которому его отец когда-то спас жизнь. (   Читать дальше...   )Производство: ВеликобританияЖанр: Боевик, комедия, криминал, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Сэмюэл Л. Джексон, Марк Стронг, Софи Куксон, Майкл Кейн, София Бутелла, Саманта Янус, Джофф Белл, Марк ХэмиллПеревод: Дублированный (iTunes)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 02:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83CED42CC99F8CAF77C25C38E2EFD6052350C1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

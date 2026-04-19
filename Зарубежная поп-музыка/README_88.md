@@ -1,3 +1,73 @@
+###  Публикация: 465899   (96359) от 11.03.2012
+
+Alex Band - We've All Been There [Deluxe Edition] (2010) [MP3|320 кб/с]<Alt. Rock | Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We've All Been There
+02. What is Love
+03. Tonight
+04. Forever Yours
+05. Please
+06. Will Not Back Down
+07. Euphoria
+08. Never Let You Go
+09. Only One
+10. Leave(   Читать дальше...   )2010Жанр: Alt. Rock | Pop RockПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8370A649AEE91003C5ACE58A50E65253E5FF843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487805   (90663) от 25.04.2012
+
+East 17 - Dark Light (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Get You Off My Mind (Crazy)
+02. Crazy Fool
+03. Nightlife
+04. Counting Clouds
+05. Break Ur Heart
+06. Friday Night
+07. Kiss Of Winter
+08. Broken Valentine
+09. Where Does Love Go
+10. You Must Be An Angel2012Жанр: Pop, DanceПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C90C77BD9B6781A9E05C43F45896A3F2BC821D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481593   (88048) от 12.04.2012
 
 Sandra - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
@@ -830,76 +900,6 @@ Fancy - The Original Hit Collection (2007) [MP3|320 кб/с]<Disco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:686800487AE1B343E3EDA7D1B14F9EFABFC46FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463191   (80695) от 07.03.2012
-
-ABBA - Collected (2011) [MP3|320 кб/с]<Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80695.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Продолжительность:00:55:52
-1. Ring Ring (English Version) (3:08)
-2.  People Need Love (2:45)
-3.  Love Isn't Easy (But It Sure Is Hard Enough) (2:56)
-4.  She's My Kind Of Girl (2:44)
-5.  Waterloo (English Version) (2:46)
-6.  Honey, Honey (2:56)
-7.  Dance (While The Music Still Goes On) (3:13)
-8.  Sitting In The Palmtree (3:40)(   Читать дальше...   )2011Жанр: Pop, DiscoПродолжительность: 03:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0689E137817D4648BBCB1F122EF11CD6BFAD868F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462123   (80282) от 05.03.2012
-
-Mylene Farmer - 8 альбомов (1986-2010) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80282.jpg" />
-</div>
-
-
-###  Подробнее
-
-1986-2010Жанр: PopПродолжительность: 00:48:52
-
-01. Oui mais... non
-02. Moi je veux...
-03. Bleu noir
-04. N'aie plus d'amertume
-05. Toi l'amour
-06. Lonely Lisa
-07. M'effondre
-08. Light Me Up(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

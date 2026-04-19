@@ -1,3 +1,201 @@
+###  Публикация: 1373464   (880139) от 06.04.2020
+
+Babooshka (Александр Константинов) - Православный аватар (2020) [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Babooshka (Александр Константинов) - Православный аватар 2020Жанр: православное дискоПродолжительность: 00:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB7E46994E3E3504777041E353145A204ABB3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104346   (877667) от 16.02.2017
+
+Сборник - Spirit of Freedom (50 clips) (2017) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877667.jpg" />
+</div>
+
+
+###  Подробнее
+
+50 работ, которые притягивают своей мелодичностью и красотой, целительной энергии солнечного света заставляя слушателя замирать и на время отключаться от всех проблем,  Все клипы наполнены мягкими электронными ритмами, и они успокаивают, расслабляют, снимают усталость и дарят надежду... Лучшая фраза, которой я могу описать эти музыкальные клипы, пожалуй будет "охлажденная (   Читать дальше...   )01. Michel Pepe - Divine osmose [05:50]
+02. Al Conti - Anima Aeterna [05:34]
+03. Djeff Z - History [07:45]
+04. Enigma - Amen [04:53](   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 04:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015A3096B4AAB09FDE12309DDFF8E37805648B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264515   (877063) от 23.02.2011
+
+Видеоклипы / Music Videos [MPG] [VCD, SVCD]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lo-Fi. Качество многих клипов (особенно российских) оставляет желать большего, но это всё же лучше, чем совсем ничего.Жанр: Pop, Pop Rock, AlternativeФормат: MPGПродолжительность: 3:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A97DE3F4896393B827DF25616A3FE5E4C96D38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373749   (876708) от 08.04.2020
+
+Alestorm - Treasure Chest Party Quest (2020) WEBRip [H.264/1080p-LQ] <Scottish Pirate Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Napalm RecordsЖанр: Scottish Pirate MetalПродолжительность: 00:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381A29048D189599F81DF0D5E2AF68D8198FAF9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373770   (876619) от 08.04.2020
+
+ILL NINO - 18 Music Videos (2001-2020) WEBRip [H.264/480p/720p/1080p/2160p-LQ] <Nu-Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2001 ILL NINO - God Save Us DVDRip
+002 2001 ILL NINO - Unreal DVDSRip
+003 2001 ILL NINO - What Comes Around DVDRip
+004 2003 ILL NINO - How Can I Live  DVDRip(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8153C1938D383EA8F86D67E88D424363F51366F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373709   (876612) от 08.04.2020
+
+Юлия Чичерина - Фонтан счастья/Рынок-лабиринт (2020) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Юлия Чичерина - Фонтан счастья
+Манасаровар — озеро живой воды, считается источником жизни, максимальная глубина 90 метровЖанр: Альтернативный РокПродолжительность: 00:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768A4D3BC1BCABEA64C3BA2F61A9D3A7E287B3BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643296   (875484) от 13.04.2013
+
+Megadeth - коллекция видеоклипов (1986-2011) [H.264] DVDRip, SATRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Источники видео в основном из DVD, видео адаптировано для экранов 16:9. Звук взят также из DVD - PCM (в нескольких - из CD), сжат во flac; AC3 нормализован.1986 - Peace Sells
+1987 - Wake Up Dead
+1988 - In My Darkest Hour
+1988 - Anarchy In The U.K
+1989 - No More Mr. Nice Guy
+1990 - Hangar 18
+1990 - Holy Wars... The Punishment Due (Director's Cut)
+1991 - Go To Hell
+1992 - Symphony Of Destruction
+1992 - Symphony Of Destruction (Edited Gristle Mix)(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:295E5DC851FD22F3A0162A4CE195D950D0D22436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997146   (875237) от 16.03.2016
 
 Metallica - The Videos 1989-2004 [iTunes M4V Album] (2006) [H.264]
@@ -501,204 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A747708E623B466F9912465BEC4F90D3D016B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376099   (861692) от 16.04.2020
-
-Сборник клипов - Rap & Hip Hop Video Collection от ALEXnROCK часть 2 (2020) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение лучшего, что есть в мировом рэпе и хип хопе. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rap & Hip Hop 2 — Intro
-01. Nelly feat. P. Diddy & Murphy Lee — Shake Ya Tailfeather
-02. 2Pac — California Love
-03. Ice Cube feat. Lil’ Jon & Snoop Dogg — Go to Church(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 02:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C876F8AF3AEA1456F008C2B74CE4B353C3F6C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375893   (860380) от 17.04.2020
-
-Leeched - 6 Music Videos (2017-2020) WEBRip [H.264/1080p-LQ] <Sludge Metal, Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860380.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2017 Leeched - Boar
-002 2018 Leeched - By the Factories
-003 2018 Leeched - Star & Garter
-004 2018 Leeched - The Stone and the Steel(   Читать дальше...   )Жанр: Sludge Metal, MetalcoreПродолжительность: 00:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907CA4F68A95315E73CEA16B6BC4166BAF4C2BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375870   (860370) от 17.04.2020
-
-Igorrr - 7 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ] <IDM, Breakcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860370.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2014 Igorrr - My Chicken's Symphony
-002 2015 Igorrr - Chicken Sonata (Full version)
-003 2017 Igorrr - Cheval
-004 2017 Igorrr - ieuD(   Читать дальше...   )Жанр: IDM, BreakcoreПродолжительность: 00:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E0BE76DD2726499EC756CEA71294D73F86BF7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376040   (860364) от 17.04.2020
-
-Ауткаст - Один из нас (2020) WEBRip [VP9/2160p-LQ] <Alternative/Nu-Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа, образованная из бывших участников AMATORY: Игорь Капранов, Александр Павлов и Дмитрий Рубановский.
-CDA: Ауткаст (2020) Один из нас (Single)Производство: Hangover ProductionsЖанр: Alternative; Nu-MetalПродолжительность: 00:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B92D79E71486F7F734BE2785910502BEE55B6E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498140   (857505) от 26.09.2021
-
-Сборник зарубежных видеоклипов (2021) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка видеоклипов зарубежных исполнителей.1. ABBA - I Still Have Faith In You
-2. Anitta - Loco
-3. Ava Max - Everytime I Cry
-4. Becky G - Green light go(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D41678E7154DA8528587B52DF4119383AF910B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873598   (857390) от 06.03.2015
-
-ABBA - The Definitive Collection (1974-1982) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857390.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Waterloo
-2 Ring Ring
-3 Mamma Mia
-4 SOS(   Читать дальше...   )Жанр: Pop, DiscoРежиссер: Лассе Халльстрём, Челль СундвалльПродолжительность: 02:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8D18401F94B87159FDA3C363B79AD463511553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648033   (855438) от 24.04.2013
-
-Sara Tunes - VIP (2013) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95ED03E71A95153E6443E34ECFC838FC4B43C68
 ```
 
 https://mybot314.ru/tekegram_catalog/

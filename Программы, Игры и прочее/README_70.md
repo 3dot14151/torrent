@@ -1,31 +1,3 @@
-###  Публикация: 1565918   (486286) от 27.07.2022
-
-Скороговорки «Ехалгрека» – Russian Tongue Twisters v1.3.8 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Each tongue twister is accompanied by voice acting and the ability to record and listen to the pronunciation of your voice.
-Work on your pronunciation. Try to articulate each word clearly, slowly, and with consistency. Do this regularly and try to pronounce the sentence by heart.
-It is important to say the tongue twister out loud. Try to memorize the text by heart, (   Читать дальше...   )Тип издания: FullРазработчик: Igor KusovПоддерживаемая ОС: Android 5.0+ (arm-universal)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2992B9E162E249165A87DAFC1FC0D80B5E233FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559964   (486021) от 27.07.2022
 
 ViperFX For Android (V4A) - Большой сборник
@@ -674,6 +646,33 @@ Lesser AudioSwitch - это практическое приложение, ко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F8DB1DF979BECD9601EC072CE1A1B47B99B031F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567751   (470053) от 04.08.2022
+
+Prof Reminder 3.3.5 (Premium) [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напоминание о пропущенных звонках и сообщениях, с поддержкой профилей, гибко настраиваемое.
+Особенно полезна если у вас телефон без светодиодного индикатора.Тип издания: PremiumРелиз состоялся: 10 мар. 2022 г.Разработчик: danila_ruПоддерживаемая ОС: Android 4.3 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731B8FD0CC75AA0725F3CFD302CD2DF51ADD6BF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

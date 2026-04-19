@@ -1,3 +1,32 @@
+###  Публикация: 1278573   (768478) от 26.01.2019
+
+Atom Music Audio - Vortex (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mistake [02:33]
+02. In the Dark Rise [02:29]
+03. Vortex [02:05]
+04. Eternity [02:36](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0C7C4E896D58F9D3BF4B6015463AF86D86E7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278574   (768475) от 26.01.2019
 
 Atom Music Audio - EON (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -710,35 +739,6 @@ Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Or
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9F45408DF2E6ED4821A4A8C15AE8962FA7BFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023707   (719727) от 07.06.2016
-
-Brad Fiedel - The Terminator (Original MGM Motion Picture Soundtrack) (2016) Milan / Remastered [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Main Title 	2:40
-02. 	Terminator Arrival / Reese Chased / Sarah On Motorbike 	7:09
-03. 	Terminator Gets Guns / Search For Sarah 	1:13
-04. 	Reese Dreams Of Future War 	1:51(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671CE556654B703612F6A1D3D64EE453E1CC19AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

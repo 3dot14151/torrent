@@ -1,3 +1,206 @@
+###  Публикация: 1429041   (178362) от 04.12.2020
+
+Мумий Тролль - После Зла (2020) [AAC|~361 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солист (4:02)
+02. Собаки (2:04)
+03. Лира (3:06)
+04. Лето без Интернета (3:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59406759DC7ABBBA97AF9D2C485C479584B5B32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428918   (178352) от 04.12.2020
+
+Алсу - Я хочу одеться в белое (2020) [AAC|~328 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не молчи (3:59)
+02. Вольтер (4:22)
+03. Я хочу одеться в белое (4:51)
+04. Алсу, Микелла - К тебе (4:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF74C56A2E54EF64B01001FB8EB84F492AEE011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429043   (178350) от 04.12.2020
+
+Мумий Тролль - Призраки Завтра, часть 2 (2020) [AAC|~349 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Космические силы (Acoustic) (2:28)
+02. Призраки завтра (Acoustic) (3:39)
+03. Мумий Тролль, Saint Mesa - Ghosts of Tomorrow (3:41)
+04. Charan-Po-Rantan - Cosmic Force (3:33)Жанр: RockПродолжительность: 00:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8A3FD0CB1AB7936EF40E5A09B2C66DA19BB8B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429095   (177701) от 05.12.2020
+
+VA - Winter Lounge Mood: Chillout Your Mind (2020) [AAC|~308 Kbps] <Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mission Brown - Savage (Original Mix) (6:22)
+02. Marga Sol - Follow You (Original Mix) (4:10)
+03. Chillson, Marc Hartman - For a Time (3:20)
+04. Clelia Felix - Keep Watching the Stars (4:17)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B049B7D9C92335013B396E43A53290EC114E7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429097   (177683) от 05.12.2020
+
+VA - All Night Jazz: Chillout Your Mind (2020) [AAC|~317 Kbps] <Lounge, Chillout, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefano Micarelli - La Genesi Del Fraseggio: Another Me, Another You (1:01)
+02. Belinha Bossa Duo - Carinhoso (4:34)
+03. Raquel Silva Joly - Estate (4:26)
+04. Lisa Maroni - Eu Sem Voce (Instrumental) (5:15)(   Читать дальше...   )Жанр: Lounge, Chillout, JazzПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595E479B65063043E9EEA229679F59D7F4443A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429075   (177632) от 05.12.2020
+
+##### - Новые пророки (2020) [AAC|~356 Kbps] <Rock, Alternative>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кибер-диктат (0:55)
+02. Новые пророки (3:35)
+03. Холивар (4:42)
+04. Джохацу (2:48)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6E6629914348A4C5A71E97C197A9E08F261078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429378   (176786) от 06.12.2020
+
+Ночные Снайперы - Remixes (2020) [AAC|~325 Kbps] <Electro, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Актриса (remix) (2:55)
+02. Инстаграм (remix) (4:02)
+03. Раскаленные (remix) (3:58)
+04. Нелюбовь (remix) (3:13)(   Читать дальше...   )Жанр: Electro, PopПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABCA2726E650CFAB08FF409CC1D831C81192998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429582   (176772) от 06.12.2020
 
 Buddha Bar - Buddha-Bar Elements (2020) [AAC|~324 Kbps] <Electronic>
@@ -539,209 +742,6 @@ VA - The Forest Chill Lounge, Vol. 9 (2016) [AAC|~323 Kbps] <Chillout, Lounge, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF0602DD2E7503D76CB1C67E65DA0EA2F2AF15CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430419   (173868) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 11 (2017) [AAC|~313 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Sunrays Melody (Piano Clouds Mix) (5:58)
-02. For Found Future - My Book of Dreams (Far Away Mix) (5:35)
-03. Jazzy System - The Next A (Deep Cool Mix) (6:27)
-04. Jean Mare - Vector (Wide Atmoshere Mix) (5:00)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B54577E7C5B6A91B04EAAFBA94F5B690F016AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430407   (173856) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 15 (2019) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - Breath of Dawn (Atmosphere Voice Mix) (4:34)
-02. Book of Dreams - Master of Voices (Place of Mystic Sounds Cut) (4:19)
-03. Artenovum - Voyage (Enigmatic Spirit Mix) (5:04)
-04. Guardians of Secret - Endless Movements (Alchemy Mix) (5:06)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60603FF8A4D6A55B2CC45F9786A7853E680FC444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430448   (173837) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 8 (2016) [AAC|~323 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lebensart - Eastern Sunset (World Colours Mix) (5:03)
-02. Lebensart - Die Leichtigkeit des Seins (Klangteppich Mix) (5:34)
-03. Buddhatronic - Trance Icon (Modern Deep Choir Mix) (4:28)
-04. Jean Mare - Dandelons in Space (Deep Flow Ambient Lounge Mix) (7:21)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E90F4203C780E602F117450E5D22433073D4BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430412   (173828) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 13 (2018) [AAC|~311 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Deep Siberian Landscape (East River Long Mix) (4:35)
-02. Richard Bonnee - Reflecting (Deep Space Mix) (5:11)
-03. Jean Mare - Ns 10 (Deep Space Late Night Mix) (4:14)
-04. Artenovum - Mystic Island (Chilling Time Mix) (4:32)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D6A56C8A625763A9EEEA800105CFDEA130A7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430409   (173816) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 14 (2019) [AAC|~309 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Dream Away (Deep Moods Chillout Mix) (5:24)
-02. Jean Mare - Light Score (Mystic Downbeat Mix) (4:45)
-03. Richard Bonnee - Cliffhanger (Deep Electronic Cut) (4:45)
-04. Pascheba - Mentira (Mystic Beat Mix) (5:21)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8675E166579C6948E4968780B295132359D74025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430457   (173809) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 6 (2015) [AAC|~305 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Der Moment (Wellness Deluxe Version) (6:33)
-02. Dream Project - Where Are You (Deep Moods Chillout Mix) (4:13)
-03. Jean Mare - Such a Lonely Time (Groovy Downbeat Mix) (4:11)
-04. Bernon - Waterline (Slow Motion Mix) (6:28)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAB91A559A4639EB96B2EEA5D210A64C16B0C29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430466   (173748) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 4 (2014) [AAC|~315 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lebensart - My Forest Time (Mystic Gregorian Voice Mix) (5:24)
-02. Artenovum - Timeline (Ambient Deluxe Mix) (4:58)
-03. Jean Mare - Et Cetera (Opus Chillout Mix) (6:31)
-04. Wallenski - Plektronica, Pt. 1 (7:30)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D903E67E9E0CAA347ECCD24E94672C5B177886
 ```
 
 https://mybot314.ru/tekegram_catalog/

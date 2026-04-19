@@ -1,3 +1,247 @@
+###  Публикация: 1763414   (102802) от 01.12.2024
+
+Ani DiFranco - Evolve (2003) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Jazz>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promised Land (4:30)
+02. In the Way (5:17)
+03. Icarus (4:52)
+04. Slide (3:51)(   Читать дальше...   )Жанр: Folk-Rock, JazzПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBE1D42D6F945FC94769CBC6F17BECC3B61F405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763485   (102798) от 01.12.2024
+
+VA - The Orient Collective: Winter Collection 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalico Jak - Sunlight Through the Treetops (9:04)
+02. Johny - Vasudevaya (5:38)
+03. Indiano - Svadhistana (8:21)
+04. Maris - Arapahoes (6:41)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26B5410614E35299F2B6E39906EF6EA08F82521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763420   (102796) от 01.12.2024
+
+Danny Wright - Curtain Call (1993) [FLAC|Lossless|tracks + .cue] <New Age, Contemporary>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Golden Pond (3:15)
+02. What'll I Do (3:21)
+03. Autumn Leaves (4:10)
+04. Places That Belong To You (4:20)(   Читать дальше...   )Жанр: New Age, ContemporaryПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5857EDE7A4FEFB4F9DE34943D3D9C1EA67BE1FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764196   (102736) от 06.12.2024
+
+Wynonna Judd - Wynonna (1992) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What It Takes (4:18)
+02. She Is His Only Need (4:28)
+03. I Saw the Light (3:55)
+04. My Strongest Weakness (4:21)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E77B7D48BF35A3EE3E73D780683A5512AC55484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491214   (102614) от 02.05.2012
+
+Bob Dylan - World Gone Wrong (1993) [FLAC|Lossless]<Folk, Blues>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Gone Wrong Add trackIn [03:57]
+02. Love Henry [04:23]
+03. Ragged & Dirty [04:09]
+04. Blood In My Eyes [05:04]
+05. Broke Down Engine [03:22]
+06. Delia [05:41]
+07. Stack A Lee [03:50]
+08. Two Soldiers [05:45]
+09. Jack-A-Roe [04:56]
+10. Lone Pilgrim [02:43]1993, Oct 28Жанр: BluesПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490545   (102364) от 01.05.2012
+
+VA - Relax. Anti Stress Vol. 2 (2012) [MP3|320 кб/с]<Relax, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102364.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 7And5 - The Memory (4:07)
+2. 9 In Common - Kid (4:04)
+3. Alvares - Oasis (4:02)
+4. Amir Dj - Bissalama (4:44)
+5. Area 42 - Paradise Lost (Relaxing Chill Mix) - Relaxing Chill Mix (4:14)
+6. Artenovum - Eastside (Groovy Dream Mix) - Groovy Dream Mix (4:33)
+7. Avalon Project - I Can Read Your Mind (Chill Breeze Mix) - Chill Breeze Mix (5:31)
+8. Brahma Singh - Resting Place (6:14)
+9. Brook Sapphire - Be Chilled (Smooth Remix) (3:55)
+10. Caibedo Island - Sensual Bossa - Original Mix (5:02)2012Жанр: Relax, MeditationПродолжительность: 04:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9895AB776287663E1645B246DCE6F08B47246254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822676   (101575) от 08.10.2025
+
+Radio Wolf and Parallels - Proximity (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break The Silence [04:29]
+02. Pure Lies [04:25]
+03. Let Me In [03:53]
+04. Lost Angel [05:08](   Читать дальше...   )Жанр: OSTПродолжительность: 00:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3387063CCDB14FC04E17AEA03A27A3126FA20315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765585   (101411) от 13.12.2024
+
+VA - The Orient Collective: The Guardian (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101411.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Darles Flow - Atreides (5:20)
+2. Florian Gasperini - No Need to Know More (8:00)
+3. Tibetania - Dau Ayuni (6:06)
+4. The Friend - The Road to Egypt (6:36)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C4969557B1D22E1784BAA505C00A5D44D4504F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765892   (101295) от 15.12.2024
 
 VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -564,272 +808,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484991   (89375) от 19.04.2012
-
-Шерлок Холмс: Игра теней / Sherlock Holmes: A Game of Shadows from AGR (2011) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I See Everything
-02. That Is My Curse (Shadows - Part 1)
-03. Tick Tock (Shadows - Part 2)
-04. Chess (Shadows - Part 3)
-05. It's So Overt It's Covert2011Жанр: SoundtrackПродолжительность: 01:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9160CBDD1589153484FFAB4827165532651D3FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484192   (89102) от 17.04.2012
-
-Ивана Купала - дискография (1999-2003) [FLAC|Lossless]<Ethnic, Folk, Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89102.jpg" />
-</div>
-
-
-###  Подробнее
-
-1999-2003Жанр: Ethnic, Folk, PopПродолжительность: 03:55:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482413   (88229) от 13.04.2012
-
-VA - Уличные танцы 2 / Street Dance 2 (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Queen - We Will Rock You (LP & JC Remix)
-02 Angel - Go In, Go Hard (feat. Wretch 32)
-03 Jessie J - Domino
-04 Sunday Girl - High & Low
-05 Rockstar
-06 Dionne Bromfield - Who Says You Can't Have It All
-07 Lloyd Perrin & Jordan Crisp - Invincible (feat. Anwar Burton)
-08 Tyga - Rack City
-09 Bodyrox - Bow Wow Wow
-10 Nicki Minaj - Super Bass(   Читать дальше...   )2012Жанр: SoundtrackПродолжительность: 01:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17CCE7AFE4DD9CAA5A69AA8C3A6FCF3D873E8B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481405   (87868) от 11.04.2012
-
-VA - Шедевры православной музыки (2000) [MP3|320 кб/с]<Церковные песнопения>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. От юности моея
-02. Владыка Дней Моих
-03. Отче Наш
-04. Горе мне
-05. Кресту Твоему поклоняемся
-06. Да исправится молитва моя
-07. Бродил я в далекой чужой стороне
-08. Богородице Дево, радуйся
-09. Свете тихий
-10. Трисвятое(   Читать дальше...   )2000Жанр: Церковные песнопенияПродолжительность: 00:01:15:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480332   (87800) от 11.04.2012
-
-Сёстры Берри – Моё счастье и Субботний вечер (2002) [FLAC|lossless]<Jewish Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain Kik Auf Div
-02. Papirossen
-03. Yuh Mein Tiere Tochter
-04. A Lidele
-05. Chiribim Chiribom
-06. Passver Medley
-07. A Byssele
-08. Yingele Nit Vain
-09. Rumeine
-10. Wie Nemt Men A Byssele(   Читать дальше...   )2002Жанр: JewishПродолжительность: 01:59:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480525   (87506) от 10.04.2012
-
-Michel Teló - Na Balada (2011) [MP3|320 кб/с]<Pop Folk / Sertanejo / World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ai Se Eu Te Pego (2:51)
-02. Humilde Residência (3:13)
-03. Coincidência (3:03)
-04. Vamo Mexe (2:45)
-05. Se Eu Não For (2:50)
-06. Desce do Muro (2:31)
-07. Pra Ser Perfeito (3:07)
-08. Pensamentos Bons (3:21)
-09. Se Intrometeu (2:47)
-10. Te Amo e Open Bar (3:22)(   Читать дальше...   )2011Жанр: Pop Folk / Sertanejo / WorldПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9415CF1EA6D76802DCFAA133426BA20E85836025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479996   (87373) от 09.04.2012
-
-VA - 20 шедевров русского романса (1999) [FLAC|Lossless]<Романсы>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гори, гори моя звезда (Б.Штоколов)
- 02. Я помню вальса звук прелестный (Н.Брегвадзе & М.Джабуа)
- 03. Романс о романсе (В.Пономарева)
- 04. Нищая (А.Малинин)
- 05. Ямщик, не гони лошадей (С.Захаров)
- 06. Сердце на снегу (М.Магомаев)
- 07. Во глубине сибирских руд (Л.Сметанников)
- 08. Старый муж (Песня цыганки) (Н.Раутио)
- 09. Я Вас любил (Ф.Царикати)
- 10. Ночь светла (Т.Синявская)(   Читать дальше...   )1999Жанр: РомансыПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480009   (87305) от 09.04.2012
-
-VA - Русская народная хоровая песня (2000) [FLAC|Lossless]<Русская народная хоровая песня>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ай, заинька, ай, серенький
- 02. Пойду ль, выйду ль я
- 03. Самара-городок
- 04. Помню, я еще молодушкой была
- 05. Камаринская (Небывальщина)
- 06. Валенки
- 07. Ах, вы сени, мои сени
- 08. Во кузнеце
- 09. Бояре, мы к вам пришли
- 10. Как у наших у ворот(   Читать дальше...   )2000Жанр: Русская народная хоровая песняПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,158 +1,22 @@
-###  Публикация: 1410739   (433959) от 22.09.2020
+###  Публикация: 1410280   (438548) от 20.09.2020
 
-Евгений Бауэр. Умирающий лебедь (1916) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433959.jpg" />
-</div>
-
-
-###  Подробнее
-
-У озера немая танцовщица Гизелла знакомится с Виктором и влюбляется в него. Кажется, что Виктор отвечает ей взаимностью, но вскоре танцовщица обнаруживает его с другой. Увидев Гизеллу в роли умирающего лебедя, в нее влюбляется художник Глинский, стремящийся изобразить в картине смерть, и использует танцовщицу для осуществления своего замыслаПроизводство: Россия. Акцiонерное общество «А. Ханжонковъ и К°»Жанр: короткометражка, драма, мелодрама, немое киноРежиссер: Евгений БауэрАктеры: Вера Каралли - Гизелла, Александр Херувимов - отец Гизеллы, Витольд Полонский - Виктор Красовский, Андрей Громов - Валерий Глинский, Иван Перестиани - друг ГлинскогоПродолжительность: 0:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C493B39FF8599115E03C4E6F25A54313C73E35B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410596   (433958) от 22.09.2020
-
-CoolUtils Total Image Converter 8.2.0.222 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433958.jpg" />
-</div>
-
-
-###  Подробнее
-
-CoolUtils Total Image Converter преобразует изображения в желаемый вами формат, изменит размеры и перевернёт фотографии и картинки. Total Image Converter сделает всё, что вам потребуется: вы сможете преобразовывать большие TIFF изображения в маленькие JPEG, подгонять картинки под размеры веб-страницы или преобразовать RAW фотографии в более популярные форматы. Это (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8631B4A5079F585A0BA456FF83453C4AEF1F8C46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410575   (433957) от 22.09.2020
-
-John Legend - Bigger Love (2020) [FLAC|Lossless|tracks + .cue] <R&B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ooh Laa (02:59)
-02. Actions (02:54)
-03. I Do (02:47)
-04. One Life (03:14)(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A4375F8888D116700BAB46AE8347B65754F348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410645   (433956) от 22.09.2020
-
-Monit 2.0.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монит Widget скромный, но амбициозный виджет Центра уведомлений для мониторинга вашего компьютера.
-Выдвиньте Центр уведомлений, чтобы быстро увидеть ключевые данные о производительности вашего Mac, такие как процессор, память, диск, сеть и аккумулятор.
-Нажмите на диаграммы, чтобы развернуть и раскрыть больше деталей. Нажмите на иконки Сеть и Disk для просмотра еще (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2020Разработчик: Tildeslash Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86816997D30C4A44796993B0CFA265E8C46334B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410528   (433955) от 22.09.2020
-
-Проект инженера Прайта (1918) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экспериментальная киноработа.
-Авантюрная драма с драками, погонями на автомобиле и мотоцикле, авариями и множеством других трюковых эпизодов, а также с целым рядом условных допущений. Криминальный сюжет строится вокруг добычи торфа и борьбы двух конкурирующих электростанций.Производство: Россия. Акцiонерное общество «А. Ханжонковъ и К°»Жанр: короткометражка, авантюрная драмаРежиссер: Лев КулешовАктеры: Леонид Полевой, Борис Кулешов, Эдуард Кульганек , Елена Комарова, Лев КулешовПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B275632CA8A9F63294DAD742155791B2A469258E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571285   (433954) от 21.08.2022
-
-SQLPro Studio 2022.52 [En]
+PhoneRescue for iOS 4.0.0.20200919 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 05.08.2022Разработчик: © 2022 Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2020Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:969B2A6034EAE7C816EED2C9DE6D93AF84C6CCAC
+magnet:?xt=urn:btih:9476BF9770AC4638E158401881B543E2EAEBED35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,28 +24,283 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571353   (433953) от 21.08.2022
+###  Публикация: 554072   (438547) от 30.09.2012
 
-Amon Amarth - The Great Heathen Army (2022) [MP3|320 kbps] <Melodic Death Metal>
+Any Video Converter Ultimate Portable 4.5.5 by PortableAppZ [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Converter Ultimate программа "все-в-одном": копирование и запись DVD, конвертирование видео с помощью единого простого в использовании графического интерфейса, с быстрой скоростью преобразования и отличным качеством видео. Программа имеет предустановленные профили, быструю скорость конвертирования, функции загрузки видео из Интернета, функции видеомагнитофона и другие практичные функции, которые делают эту программу лучшим выбором для вас. Поддерживается обновление.
+ Any Video Converter Ultimate, как DVD-риппер, может копировать защищенные DVD фильмы напрямую без снятия защиты от копирования, конвертировать DVD диски и DVD папки для передачи на IPod, PSP и мобильные телефоны.
+ Any Video Converter Ultimate, как видео-конвертер, позволяет легко конвертировать видео файлы всех популярных форматов видео, включая MOV, RM, RMVB, MPEG, TS, DVR-MS, AVCHD, WMV, AVI, MPEG-4 и др. между собой и в форматы для IPod, iPhone, PSP и других портативных плееров и смарт-телефонов, включая Nokia серии N, Windows (   Читать дальше...   )Название программы: Any Video Converter Ultimate PortableЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409815   (438546) от 20.09.2020
+
+Ozzy Osbourne - Blizzard Of Ozz (40th Anniversary Expanded Edition) (2020) [AAC|~331 Kbps]<Rock, Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Know (5:15)
+02. Crazy Train (4:53)
+03. Goodbye to Romance (5:36)
+04. Dee (0:50)(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 01:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD65C698EE2F1EE3BED3581595E7ABE2798B727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553879   (438545) от 30.09.2012
+
+VA - Рок в Авто (Symphonic Metal) (2012) [MP3|320 кб/с]<Sympho Metal, Death Metal, Gothic Metal, Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Sin - I'm Real
+02. Luca Turilli's Rhapsody - Luna
+03. Voyager - She Takes Me (Into The Morning Light)
+04. Lab - When Heaven gets Dirty
+05. Armonight - I Will Be There (...For You)
+06. Theatre Of Tragedy - Begin & End
+07. Visions Of Atlantis - Maria Magdalena
+08. Lacuna Coil - Heaven's a Lie
+09. Damnation Angels - Kurenai
+10. Seed of Sadness - Remnant Of A Dying Smile (Feat. Bob Katsionisirewind Outloud)Жанр: Sympho Metal, Death Metal, Gothic Metal, InstrumentalПродолжительность: 05:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D9691CCCDDEBFEACC2BDA1564B96ABD328CEF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410236   (438544) от 20.09.2020
+
+Opera GX 71.0.3770.138 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A47662B6B10718540ACE2707F7613C93CC2D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553862   (438543) от 30.09.2012
+
+Варг Веум 11: Хорошо тем, кто уже мертв / Varg Veum - De døde har det godt (2012) HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438543.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Варг Веум расследует смерть девочки-иммигрантки, одной из подопечных его подруги Карин. В ходе этого расследования он обнаруживает, что влиятельные люди Бергена замешаны в торговле людьми.Жанр: КриминалРежиссер: Эрик Рихтер Странд / Erik Richter StrandПродюсер: Йонас Аллен, Таня Бадендук, Питер БозеАктеры: Тронд Эспен Сейм, Бьёрн Флоберг, Ленэ Нистрём, Ёрген Лангхелле, Бинту Сакор, Фуми Дезалу-Волд...Перевод: Любительский (одноголосый)Продолжительность: 01:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2E2C5D5EE2A182E222C0472EBC2448CD1511DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410146   (438542) от 20.09.2020
+
+Ella Fitzgerald - Oh, Lady, Be Good!: Best of the Gershwin Songbook (1959) 1996, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два великих имени в одном релизе! Про каждого из них можно с уверенностью сказать, что он самый великий в своей музыкальной нише, которых должен знать не просто каждый любитель музыки, но просто культурный человек.
+Однако оба выделяются среди своих современников как творцы, которые воспроизвели музыку высочайшего уровня и стремились раздвинуть границы джаза к новым (   Читать дальше...   )01. Fascinating Rhythm [3:26]
+02. 'S Wonderful [3:32]
+03. Someone to Watch over Me [4:35]
+04. He Loves and She Loves [2:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4081F61A4B8E6FEF2546CD5DB7FD1E3422BF9F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410289   (438541) от 20.09.2020
+
+Владислав Крапивин | Брат, которому семь (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альке семь и он всего на три года младше своего родного города. Но жизнь этого мальчишки полна увлекательных событий. И вместе со своими друзьями ему предстоит пережить немало замечательных приключений…Жанр: Детская литература, ПриключенияПродолжительность: 03:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5CFC474CA8B70686EDE526318178482FDA6713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410103   (438540) от 20.09.2020
+
+Avicii - Live @ Maishima Beach Side, Osaka, Japan (2016-06-04) [MP3|~245 Kbps (V0)] <Progressive House, Electro House, Big Room>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii ft. Sandro Cavazza - Without You (Intro Edit)
+02. Dizzee Rascal - Dirtee Cash (Avicii Remix)
+03. Tim Berg & Norman Doray & Sebastien Drums vs. Empire Of The Sun - Tweet It vs. Walking On A Dream (Avicii Mashup)
+04. Tim Berg ft. Amanda Wilson - Seek Bromance (Cazzette & ASH Vocal Mix) w/Axwell vs. Avicii - I Found Bromance (Avicii Bootleg)(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 02:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5538FD2C01AFF222FFD018B4126B71ABFC3E8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410145   (438539) от 20.09.2020
+
+Первая передача на НТВ. Автомобильная передача (20.09.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постгарантийное обслуживание: забота о клиенте или приглашение в кабалу? Договор замедленного действия: эта мелочь может стоить покупателю автомобиля и денег. Техосмотр: где его проходить? «Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B12C6BE5B6617C235E52781C6AA330CE77A9125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410148   (438538) от 20.09.2020
+
+Mushroomhead - A Wonderful Life (2020) Limited Edition [FLAC|Lossless|image + .cue] <Alternative Metal, Industrial Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Get In The Ring (04:24)
-02. The Great Heathen Army (04:04)
-03. Heidrun (04:42)
-04. Oden Owns You All (04:17)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:04
+01. A Requiem for Tomorrow (4:43)
+02. Madness Within (3:39)
+03. Seen It All (3:57)
+04. The Heresy (4:00)(   Читать дальше...   )Жанр: Alternative Metal, Industrial MetalПродолжительность: 01:11:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C54321CF126C95DFF898E072E248F75142934133
+magnet:?xt=urn:btih:0D9867379524BB279990B43152634D6BAF082AE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,25 +308,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571428   (433952) от 21.08.2022
+###  Публикация: 1409417   (438537) от 20.09.2020
 
-MotoGP. Этап 13. Гран-при Австрии. Гонка (21.08.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+DANIEL B. - six​+​six (2020) [MP3|320 Kbps] <EBM, Techno-Industrial, Hard Trance, Big Beat>
 
->>Спорт и активный отдых
->>Авто, Мото
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-21 августа 2022, воскресенье. 15:00 МСК. Этап 13, Шпильберг, Гран-при Австрии. Гонка (28 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:28:45
+01 - Seq666 (Gone To Heaven) [00:06:36]
+02 - Happiness (Happy End) [00:11:53]
+03 - Skeleton Toy (Chzwaartzmetaal ElkoB) [00:10:18]
+04 - Neurobashing (Chzwaartzmetaal Beat) [00:07:47](   Читать дальше...   )Жанр: EBM, Techno-Industrial, Hard Trance, Big BeatПродолжительность: 00:46:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:955C2548AB061D57A52B42FA0E8B2261BD0DF690
+magnet:?xt=urn:btih:72ACEAFB3290CF68396FFA571987A900CB109D37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,25 +337,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571436   (433951) от 21.08.2022
+###  Публикация: 244507   (438535) от 11.10.2010
 
-Роберт Силверберг | Вот сокровище (2022) [MP3, Puffin Сafe]
+Три короля / Three Kings (1999) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирак, март 1991-го года. Американцы празднуют победу — изгнание войск Саддама Хусейна из Кувейта. Капитан спецподразделения Арчи Гейтс и трое его подчиненных совершенно случайно становятся обладателями секретной карты, найденной в… заднем проходе одного из иракских воинов. Ценность ее заключается в том, что на карте указано место, где спрятано золото Саддама, награбленное в Кувейте.Жанр: Боевик, Комедия, Драма, Приключения, ВоенныйРежиссер: Дэвид О. РасселлАктеры: Джордж Клуни, Марк Уолберг, Айс Кьюб, Спайк Джонз, Клифф Кёртис, Нора Данн, Джейми Кеннеди, Саид Тагмауи, Майкелти Уильямсон, Холт МакКэлланиПеревод: Дублированный + Авторский закадровый (Ю.Живов) + Оригинальный (Английский)Продолжительность: 01:54:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 244842   (438531) от 11.10.2010
+
+Артур и месть Урдалака / Arthur et la vengeance de Maltazard (2009) [1080p] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур в восторге, потому что этой ночью заканчивается десятый лунный цикл, и он, наконец, сможет вернуться в страну минипутов, чтобы воссоединиться с Селенией. В деревне минипуты приготовили в его честь роскошный банкет, а маленькая принцесса облачилась в платье из лепестков роз. Но отец Артура именно в этот долгожданный день объявляет, что их каникулы у бабушки (   Читать дальше...   )Жанр: Анимация, фэнтези, комедия, приключения, мультфильмРежиссер: Люк БессонПерсонажи: принцесса СеленияПеревод: Профессиональный (полное дублирование), Оригинальный (английский)Субтитры: нетФормат: MKVПродолжительность: 01:33:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 244443   (438530) от 11.10.2010
+
+Глен Чарльз Кук | Черный отряд. Тени сгущаются (2009) [MP3]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Неизвестно кто создал Сокровищницу на одной отдаленной планете и установил у ее ворот вечного охранника-робота. Но у входа уже скопились горы костей смельчаков, пытавшихся отгадать загадки стража, и поплатившиxся жизнью за неверные ответы." (с)Жанр: ФантастикаПродолжительность: 00:29:38
+Две первые книги Севера из «Хроник Черного Отряда».
+Добро пожаловать в мир Черного Отряда - лучшей роты наемников на службе у зловещей Госпожи и Десяти Взятых... Они сражаются мечом и магией - и не сдаются даже тогда, когда не помогает ни магия, ни меч. Они знают: победа дается тому, кто умен, отважен и дерзок, тому, кто до конца верен себе. Они всегда готовы подтвердить (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 34:14:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C75B8509DD1675B609145E5C168087D288D94093
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,54 +416,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571357   (433950) от 21.08.2022
+###  Публикация: 1410097   (438516) от 20.09.2020
 
-H.E.A.T - Force Majeure (2022) Japanese Edition [MP3|320 kbps] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To The Rhythm (04:11)
-02. Nationwide (03:41)
-03. Tainted Blood (03:49)
-04. Hollywood (03:32)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B8886C57E651158A4256338CA13B4067DF323F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571283   (433949) от 21.08.2022
-
-Valentina Studio Pro 12.5.3 [Multi/Ru]
+Affinity Publisher Beta 1.9.0.742 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 17.08.2022Разработчик: 2001 - 2022 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+Реализуйте свое видение с помощью Affinity Publisher, самого современного профессионального программного обеспечения для публикации от разработчиков отмеченных наградами приложений Affinity Designer и Affinity Photo.
+Это невероятно плавное, интуитивно понятное приложение дает вам возможность комбинировать изображения, графику и текст, чтобы сделать красивые макеты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2020Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8529083D1E5170573E8F5126EB0362B3BD04DE36
+magnet:?xt=urn:btih:75AC72AB2869F0257CE193E67D4C09B960251561
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,28 +443,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571392   (433948) от 21.08.2022
+###  Публикация: 1410251   (438515) от 20.09.2020
 
-VA - Funky Collector Nostalgie (2022) [MP3|320 Kbps] <Dance, Rhythm & Blues, Rock, Funk>
+Мировой кубок по мотогонкам среди электробайков 2020. Гран-При Эмильи-Романьи / FIM Enel MotoE World Cup 2020. Emilia-Romagna GP (2020) WEB-DL [H.264/720p-LQ]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Barry White - Let The Music Play (Single Version)
-02. The Temptations - Treat Her Like A Lady
-03. Carl Carlton - She's A Bad Mama Jama (She's Built, She's Stacked)
-04. Womack & Womack - Teardrops(   Читать дальше...   )Жанр: Dance, Rhythm & Blues, Rock, FunkПродолжительность: 01:40:07 hrs
+MotoE, официальное название FIM Enel MotoE World Cup, это класс мотоциклетных гонок в которых используются только электрические байки. Серия была одобрена FIM и первый сезон пройдёт на пяти европейских трассах в рамках поддержки чемпионата MotoGP в 2019 году.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 56:29 + 55:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5932E0CBB98673215B53D9F7613FC1715B5A026A
+magnet:?xt=urn:btih:4CD3F9A0D80D6F6857E968F371BB83652386AE48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,28 +469,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571381   (433947) от 21.08.2022
+###  Публикация: 1410271   (438514) от 20.09.2020
 
-VA - Disco Chance Real Time: Mashup (2022) [MP3|192-320 Kbps] <Dance, Club, R&B, Indie Dance>
+AnyTrans for iOS 8.8.0.20200918 [Multi]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Calvin Harris & Rihanna Vs Joel Corry, Raye & David Guetta - We Found Love In Bed (Discosid String) (Clean)
-02. Bleu Clair vs. Village People - Ymca Vs. Disco Tool (Dion Dobbe Mashup)
-03. Dave Earl Vs Stonebridge & Therese - Put Eivissa High (Discosid Mashup)
-04. 22 Lockdown Vs Pickle - Never Gonna Catch You (Discosid String) (Clean)(   Читать дальше...   )Жанр: Dance, Club, R&B, Indie DanceПродолжительность: 02:09:59 hrs
+AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
+
+AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.09.2020Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:854181FB37E22D57A88EA94790F0CA0FC3092F76
+magnet:?xt=urn:btih:F8FF04DC480DAAF57EF00A6716ABD9001A73D497
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,57 +497,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571214   (433946) от 21.08.2022
+###  Публикация: 1410187   (438513) от 20.09.2020
 
-Sandra - Mirrors (1986) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Second Day    0:35
-02. Don't Cry (The Breakup Of The World)	4:55
-03. Hi! Hi! Hi!	4:11
-04. Midnight Man	3:04(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E38E960D6A14076D5547F68068CA593157A5551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571120   (433945) от 21.08.2022
-
-Generation Radio - Generation Radio (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+Kamelot - I Am The Empire: Live From The 013 (2020) 2xCD [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Why Are You Calling Me Now? (Vocals: Jason Scheff)
-02. Angels (Vocals: Jay DeMarcus, Jason Scheff & Deen Castronovo)
-03. All Night To Get There (Vocals: Jay DeMarcus)
-04. I Hope You Find It (Vocals: Jason Scheff)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:45:50
+CD - 1:
+01. Transcendence (2:02)
+02. Phantom Divine (Shadow Empire) (4:04)
+03. Rule the World (3:47)(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 01:45:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE84A477F6F4E54B1E54C8D6A10CA37FD1E18AFC
+magnet:?xt=urn:btih:FE5BF966BE361503FF54135D3A94DB193402BF46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,28 +526,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571403   (433944) от 21.08.2022
+###  Публикация: 1409665   (438512) от 20.09.2020
 
-VA - Mojito Mix (2022) [MP3|320 Kbps] <Reggaeton, Mambo & Electro Latino, Dancehall, Reggae Fusion>
+Parov Stelar - Voodoo Sonic 2 (2020) [AAC|~311 Kbps]<Electro, Swing>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex D - Modo Bellakeo (Remix)
-02. Rico - Sabrosa
-03. DJ Pasi - Noche De Fiesta
-04. Charly Rodriguez - La Razon(   Читать дальше...   )Жанр: Reggaeton, Mambo & Electro Latino, Dancehall, Reggae FusionПродолжительность: 01:38:45 hrs
+01. Brass Devil (3:52)
+02. Piano Boy (7:00)
+03. Parov Stelar feat. Anduze, Lilja Bloom - Don't You Forget (3:22)
+04. Parov Stelar feat. Esches - Fade To Red (3:11)(   Читать дальше...   )Жанр: Electro, SwingПродолжительность: 00:22:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08B8C5DBB128A08731B15EE4EDC999D291702B88
+magnet:?xt=urn:btih:715737310D1B5EB1D244A75AE2A8F9545D89B95D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,25 +555,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571450   (433943) от 21.08.2022
+###  Публикация: 1410180   (438511) от 20.09.2020
 
-Великолепный пес / Крутой пес / Cool Dog (2010) WEB-DL [H.264/720p]
+Sun of the Dying - 2 Albums (The Roar of the Furious Sea / The Earth Is Silent) (2017-2019) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal>
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мальчик Джимми и его пес Ренни – лучшие друзья. Но семья Джимми переезжает в Нью-Йорк, а Ренни нельзя брать с собой и его оставляют в зоопарке. Но преданный пес сбегает и отправляется вслед за Джимми, преодолевая всевозможные трудности в пути. Он не только находит мальчика, но и спасает его в опасной ситуации, помогает обезвредить преступников и становится героем.Производство: США / M2 Films, Millennium Films, Nu-Image FilmsЖанр: Комедия, приключения, семейныйРежиссер: Дэнни ЛернерАктеры: Майкл Паре, Джексон Пэйс, Джен Кобер, Дэвид Дженсен, Дэйн Родс, Криста Кэмпбелл, Кэмерон Тен Нейпел, Дэвид Даль, Райан Акин, Кент Джуд БернардПеревод: Профессиональный многоголосыйЯзык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:28:30
+01. The Earth Is Silent [00:01:39]
+02. A Dying Light [00:08:23]
+03. A Cold Unnamed Fear [00:05:41]
+04. Orion [00:08:09](   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 2 CD, 01:20:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF31E5B7511B4A7CCA770E999CE40D5DAE914D06
+magnet:?xt=urn:btih:21C5FE3CEB16D6FDD51F9B2462A9A4C6126E9BA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,25 +584,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571333   (433942) от 21.08.2022
+###  Публикация: 1410258   (438509) от 20.09.2020
 
-Дыхание жизни / Breath of Life (2014) HDTVRip [H.264/720p-LQ]
+Transmit 5.6.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Золотой стандарт приложений для передачи файлов
+Загружайте, загружайте и управляйте файлами на серверах с простым, знакомым и мощным интерфейсом.
+Теперь Transmit подключается к 10 новым облачным сервисам, таким как Backblaze B2, Box, Google Диск, DreamObjects, Dropbox, Microsoft Azure и Rackspace Cloud Files. И да, Transmit по-прежнему обрабатывает классику - FTP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: Panic IncПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A7A5AFB8442E7FB2455D015C43095EEAB057FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410322   (438508) от 20.09.2020
+
+Следствие вели... (20.09.2020) "Убийство под куполом…" WEBRip [H.264/1080p-LQ]
 
 >>Документалистика и Телепередачи
->>
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как сохранить хрупкую экосистему планеты для будущих поколений? Эксперты — о балансе цивилизации и природы. Биологи, психологи и культурные лидеры мира рассказывают о влиянии человечества на природу и о том, что можно сделать, чтобы сохранить планету.Производство: США / Rangeland ProductionsЖанр: ДокументальныйРежиссер: Сьюзен КучераПеревод: Двуголосый профессиональный (Первый ТВЧ)Субтитры: отсутствуютПродолжительность: 01:18:31
+1972 год, Москва. В своей квартире найден убитым известный цирковой артист. Однако вскоре выясняется: его видели живым и здоровым уже после похорон. Что за мистика? Кто-то выдает себя за циркача? Или в квартире найдено тело совершенно другого человека?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: ОтсутствуютПродолжительность: 00:44:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BA397104A4576C5E4DBB501AB3E1378BFC0B537
+magnet:?xt=urn:btih:9A6A40EFE10B190064D11836A398AB17BA8FDFB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,28 +638,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571396   (433941) от 21.08.2022
+###  Публикация: 1410188   (438507) от 20.09.2020
 
-VA - Back 2 Back: Minimal & Tech (2022) [MP3|320 Kbps] <Minimal, Dub Techno,  Deep Tech>
+VA - Aurosonic - Winter Sessions (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nando - Nyx
-02. Yonel Gee - Soundboard System
-03. Johnny Feyd - Connection
-04. Frank Kramer - Techno Language(   Читать дальше...   )Жанр: Minimal, Dub Techno,  Deep TechПродолжительность: 04:59:29 hrs
+01. Raz Nitzan & Jess Morgan - Not Like Everyone (Aurosonic Remix) (Mixed)
+02. Aurosonic & Ana Criado - Ask Me Anything (Mixed)
+03. Aurosonic & Stine Grove - In Euphoria We Rise (Mixed)
+04. Sleepthief & Zoe Johnston - Alice's Door (Aurosonic Remix) (Mixed)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:27:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA3B7FE3EB1C983A09D11F217208D55C0F91BFE8
+magnet:?xt=urn:btih:AEFC87CDCADC09FEFDB316301C6548575D5D9664
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -522,25 +667,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571326   (433940) от 21.08.2022
+###  Публикация: 1410147   (438506) от 20.09.2020
 
-UVI - Dual Delay X 1.1.2 VST, VST 3, AAX (x64) RePack by R2R [En]
+Чудо техники с Сергеем Малозёмовым (20.09.2020) SATRip
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dual Delay X представляет собой уникальный подход к пространственной задержке с использованием унитарных матриц вращения и отражения, подобных матрицам задержки обратной связи в реверберации, но настроенных на более длинные дискретные эхо. Такой подход позволяет выполнять сложные манипуляции со стереофоническим звуковым полем, недостижимые при использовании других (   Читать дальше...   )Язык интерфейса: Английский
+Сбросить лишнее: правда ли онлайн-марафоны помогают похудеть? И чем может быть опасен такой фитнес? Просто бомба: может ли водонагреватель взорваться? А также — зарядка для телефона, которой не нужна розетка, складной утюг и офисный стул-тренажер.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A21BBA78D158A7BD25B30EF6A72B0185AF4873BA
+magnet:?xt=urn:btih:7A6D14E1508EE7196D8F3132782C091C8C30ACD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,164 +693,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571277   (433939) от 21.08.2022
+###  Публикация: 1410176   (438505) от 20.09.2020
 
-Sandra - Into A Secret Land (1988) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Land	4:45
-02. We`ll Be Together	4:10
-03. Heaven Can Wait	4:04
-04. Just Like Diamonds	5:40(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B584662698A5D2B4D680A0FB268FBDB32BEF19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571366   (433938) от 21.08.2022
-
-Liam Gallagher - C'mon You Know (2022) Deluxe CD [MP3|320 kbps] <Indie Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Power (04:23)
-02. Diamond In The Dark (03:24)
-03. Don't Go Halfway (03:21)
-04. C'mon You Know (05:07)(   Читать дальше...   )Жанр: Indie Rock, BritpopПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31847B758545F5DE8E4629A89B1650A0EE6AE7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571404   (433937) от 21.08.2022
-
-Sandboxie 5.58.1 [Multi/Ru]
+Any Video Converter Professional 7.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Any Video Converter Ultimate - предоставляет пользователям DVD риппер все-в-одном, конвертер видео и создание DVD, который поможет вам преобразовывать DVD во все популярные видео форматы, включая MP4, AVI, RM, RMVB, QT, MOV, 3GP, 3G2, FLV, MPEG-1, MPEG-2, DVR-MS, VOB, MKV, ASF, DivX, OGM в MP4, AVI, WMV, 3GP, 3G2, FLV, MPG и SWF с быстрой скоростью преобразования (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAE0CAE1B001E81696B261AFF1F73043CD5937E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571476   (433936) от 21.08.2022
-
-Darkroom: Photo & Video Editor 6.0.7 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео, портрет и фото в формате RAW. Darkroom — это фото- и видеоредактор премиум-класса, который прост в использовании для обычных фотографов, но достаточно мощный для профессионалов.Тип издания: macOS SoftwareРелиз состоялся: 17.08.2022Разработчик: © 2015-2022 Bergen Co.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EA718820AB70C61DC80C361961E49B77047BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571327   (433935) от 21.08.2022
-
-United Plugins & JMG Sound - Orbitron 1.5 VST, VST3, AAX (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая модуляция может быть скучной и утомительной. Но представьте, что вы могли бы плавно переключаться между четырьмя различными эффектами модуляции, чтобы каждый такт звучал по-разному. Или смешайте четыре эффекта вместе, чтобы создать что-то уникальное. Это подход, который может предложить только Orbitron.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E17198C3C35FBB398192831F5DA174D3ABA55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945310   (433934) от 10.10.2015
-
-Vreid - Solverv (2015) [MP3|320 кб/с]<Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433934.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Haust
-2. Sólverv
-3. Geitaskadl
-4. Ætti Sitt Fjedl(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E833BD5DAEF7079CBF0E0678AF1E2DF6A6187563
+magnet:?xt=urn:btih:455C48D61D293D26AABDA6AAA1EE8EAC79009ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

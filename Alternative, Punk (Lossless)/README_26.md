@@ -143,6 +143,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520194   (632961) от 08.07.2012
+
+P.O.D. - Murdered Love (2012) [FLAC|Lossless]<Nu Metal/Rap Metal/Alt.Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_632961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyez (2:47)
+02. Murdered Love (3:45)
+03. Higher (3:22)
+04. Lost In Forever (4:06)(   Читать дальше...   )Жанр: Nu Metal/Rap Metal/Alt.MetalПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143723   (632908) от 19.06.2017
 
 Linkin Park - One More Light (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -716,35 +745,6 @@ Shovels And Rope - By Blood (2019) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD55BAF1352C23B58C030C92534C9ABE96671FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295370   (618714) от 13.04.2019
-
-Circa Waves - What’s It Like Over There? (2019) Prolifica Inc. [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What’s It Like Over There? (0:20)
- 02. Sorry I’m Yours (3:49)
- 03. Times Won’t Change Me (3:13)
- 04. Movies (3:23)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326166308D1E63BAC471BC2DD53E41074C1CA3F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

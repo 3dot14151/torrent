@@ -1,3 +1,29 @@
+###  Публикация: 954318   (341792) от 07.11.2015
+
+Картинки - 50 смешных котэ в габаритах 8К. Часть 2. 7680x4320 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть сборника обоев с милыми и очень забавными котами, кошками и котятами.)Формат: JPGРазрешение файлов: 7680х4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFEE87377A1E602F43F46FFE7415B522C9A9C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581057   (341243) от 26.11.2012
 
 [Wallpapers] Landscape  Wallpapers
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9A86F16F7CB1536423ED5E0D72A8BA83AFF54EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955353   (335161) от 10.11.2015
-
-Обои - Creative Art HD Wallpapers Mix 9 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Креативные обои. Выпуск 9Формат: JPGРазрешение файлов: 1920x1200 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3EE19D4644F2FDF73411C7D8975363C5C0A62D
 ```
 
 https://mybot314.ru/tekegram_catalog/

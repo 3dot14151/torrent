@@ -1,3 +1,32 @@
+###  Публикация: 1473162   (1013884) от 28.05.2021
+
+Ella Fitzgerald - Ella Fitzgerald At Mister Kelly's 1958 (2017) 2CD, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013884.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Your Red Wagon [3:00]
+02. Nice Work If You Can Get It [2:36]
+03. I'm Glad There Is You [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0468019204C4C00C58C37D3766958D6E18968637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473105   (1013875) от 28.05.2021
 
 Carol Welsman - Dance with Me (2020) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Jennifer Porter - Sun Come And Shine (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92E932BBCFEA32819290FCF0025C885015D6F9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478406   (1010183) от 20.06.2021
-
-Eddie Higgins With Strings - Moonlight Becomes You (2003) 2005, Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is There To Say [4:21]
-02. Moonlight Becomes You [4:46]
-03. The Folks Who Live On The Hill [7:38]
-04. If I Should Lose You [4:17](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33DEAEABCBCD44C4EE35C1C33985CD729A554D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

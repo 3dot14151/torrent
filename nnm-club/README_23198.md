@@ -1,25 +1,22 @@
-###  Публикация: 1683212   (128558) от 10.12.2023
+###  Публикация: 1681947   (132113) от 05.12.2023
 
-Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
+Чингиз Абдуллаев | Дронго (Книга 111). Суд неправых (2023) [MP3, Семён Ващенко]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Birks' Works [4:14]
-02. Fast Time Blues [3:54]
-03. Blues Vagabond [4:58]
-04. Another Simple Sunday with You [6:29](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:49:18
+К сыщику Дронго с предложением о сотрудничестве обращается представитель одной из самых могущественных политических организаций в мире. Он просит провести внутрипартийное расследование и вычислить «крота» – сотрудника, через которого происходит утечка совершенно секретной политической информации. Дронго с готовностью берется за дело. В процессе расследования к нему (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 05:39:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18459E336D4E663D71969075CDCCACD2EA12DEB4
+magnet:?xt=urn:btih:03D3100BDB0E6FF94CF15FA7AA7C36CDCDE652D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,383 +24,312 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683123   (128557) от 10.12.2023
+###  Публикация: 1681988   (132111) от 05.12.2023
 
-Rubicon - Aliapolis (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Aliapolis
-02 District Of The Black Flame
-03 No Place To Run
-04 The Show(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320416B29E4D7026BFAAB0FAB8F315013561702B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683127   (128556) от 10.12.2023
-
-Crazer - ФАКты (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Мы сами
-02.	ФАКты
-03.	Волшебный сад
-04.	Светом или тьмой(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0545AF17B3E8F7692C2EA37F0DD4BB3D416B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683386   (128555) от 10.12.2023
-
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Неувядаемый Цвет» (2019) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист Пресвятой Богородице в честь иконы Ее «Неувядаемый Цвет».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B7DB2D2A3530B34A539054BB6997A603ACEF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683214   (128554) от 10.12.2023
-
-Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Jungle [6:21]
-02. Fleurette Africain [5:57]
-03. Backward Country Boy Blues [6:01]
-04. Very Special [4:11](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE0315A946F64F0ED0B666CBB33FE7B421EE687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683178   (128553) от 10.12.2023
-
-Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life in a Bubble (4:36)
-02. Whiskey and Beer (4:08)
-03. Sweet Lady (5:37)
-04. Beautiful (6:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E727318E8FC86BF085A9F86F65C39B8A46123381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683387   (128551) от 10.12.2023
-
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Иверская» (2022) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист Пресвятой Богородице в честь иконы Ее «Иверская».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BA2CBF48AFA9C9B7EF31AD32DD023145BE6DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683210   (128550) от 10.12.2023
-
-Jessica Williams - Arrival (1994) Jazz Focus [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birks Works [6:27]
-02. I've Never Been in Love Before [5:35]
-03. Japanese Folk Song [6:23]
-04. Misterioso [7:12](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBF64D4866689EAB0D02D63D55148A1A5A9ECD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683357   (128547) от 10.12.2023
-
-Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ancient Ceremony — немецкая симфо блэк-метал-группа, образованная в 1991 году. После 2005 года от группы не поступало никаких новостей и, предположительно, на данный момент она распущена.1995 - Cemetary Visions
-1997 - Under Moonlight We Kiss
-1999 - Fallen Angel's Symphony
-2000 - Synagoga DiabolicaЖанр: Symphonic Black MetalПродолжительность: 03:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F6C776EE1B96B68C075E188564D25862C5161E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683324   (128545) от 10.12.2023
-
-Своя игра (10.12.2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A46DF55142DAAB54EEAD87D144B2F1C122641C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683242   (128544) от 10.12.2023
-
-Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaos
-02. Dawn Of A Million Souls
-03. Journey On The Waves Of Time
-04. To The Quasar: а) The Taurus Pulsar b) Quasar 3C273(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA58600C7A0A869A21F41F7C0F800DCD50D342F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683182   (128543) от 10.12.2023
-
-Eli Paperboy Reed - Hits And Misses (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Jazz-Funk, Blue-Eyed Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace Of Spades (2:42)
-02. Do It Again (3:24)
-03. To Be Alone With You (3:29)
-04. Anytime You Want Me (4:21)(   Читать дальше...   )Жанр: Blues, Jazz-Funk, Blue-Eyed SoulПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5029B1548535C33BD1287ACBE0104B8663A8362D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683200   (128542) от 10.12.2023
-
-Минтранс (09.12.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128542.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Как цветовая гамма может повлиять на водительские права? Почему нельзя крепить номерной знак красными катафотами?
-🔸 Тест-драйв Москвич-3 2023: московская прописка.
-🔸 Opel Insignia Country Tourer 2014. Действительно ли эта машина плохо продается и почему?
-🔸 Экономия при замене масла. Есть ли смысл считать моточасы?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BBFA4E07E8045577BC65DE81ED10A9632A4B291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683376   (128540) от 10.12.2023
-
-Dog Fashion Disco - Anarchists of Good Taste (2001) Deluxe Edition, 2018, Razor To Wrist Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz-Rock, Hard Rock, Punk, Avantgarde, Funk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leper Friend [00:04:29]
-02. 9 to 5 at the Morgue [00:04:38]
-03. Mushroom Cult [00:04:27]
-04. Antiquity’s Small Rewards [00:03:48](   Читать дальше...   )Жанр: Jazz-Rock, Hard Rock, Punk, Avantgarde, Funk-MetalПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033FC158A46796557634920929F8373AE000DD15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683169   (128539) от 10.12.2023
-
-Газета | Загадки истории №14 (538) (2023) [PDF]
+Газета | Невыдуманные истории №48 (401) (ноябрь 2023) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132111.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярный журналИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA8397FC4B28EFAC5F6FD72F8B671AA085E8E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595989   (132110) от 29.12.2012
+
+Фотография - Фотограф Patricio Suarez
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Patricio Suarez
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A984140ADFCDAEFCB59BEC0696E40FE8E3A9A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681629   (132109) от 05.12.2023
+
+VA - Nothing But... Trancetopia Vol. 10 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GRUE & Av & Ocean.Pop - Without You (Original Mix) [4:21]
+02. Dreamy & Josie Sandfeld - Take It All Away (Suprano Progressive Remix) [4:52]
+03. Alexander Turok - B Side (Extended Mix) [4:51]
+04. Arjans - Happenstance (Extended Mix) [6:37](   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8FB5403F03FCD1EE6FA402828E928C140FDB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595148   (132108) от 29.12.2012
+
+Новогодний романс (2003) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Накануне Нового Года две подружки - талантливая балерина Аня и юная художница Соня - мечтали о счастливом будущем и выбирали подарки друг для друга и для своих любимых. Вскоре случилось так, что Соня попала в беду. Но верные друзья и добрые соседи спешат к ней на помощь в трудную минуту… И под Новый Год обязательно случится чудо! Удивительно романтичная и трогательная (   Читать дальше...   )Жанр: МелодрамаРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Елена Якoвлeвa, Aннa Haхaпeтoвa, Eлeнa Пoлякoвa, Cepгeй Чoнишвили, Эдуapд Шульжeвcкий, Aндpeй Финягин, Георгий Юнгвальд-ХилькевичПродолжительность: 01:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342A3375A4E909FEAF14BFB0E4F6AD0130162381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681377   (132107) от 05.12.2023
+
+Алая лента - Души сгоревших бабочек (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Голубые маки [00:01:47]
+02. Будущее [00:02:30]
+03. Близится время [00:02:48]
+04. Души сгоревших бабочек [00:04:05](   Читать дальше...   )Жанр: RockПродолжительность: 00:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B134683786B92CDD3008048869B4336446EC9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595755   (132106) от 29.12.2012
+
+Черный ирландец / Black Irish (2007) DVD5
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132106.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Южном Бостоне, живущем ирландскими обычаями и управляемом католическими традициями, живут два брата, ежедневно сталкиваясь с непростой реальностью пригорода. В то время как старший, Терри, пускается во ‘все тяжкие’, погружаясь в мир наркотиков и преступности, его 16-летний младший брат Коул, мечтает об участии в бейсбольном чемпионате штата в составе городской команды. Но каждый день он вынужден противостоять разрушительному криминальному влиянию со стороны брата. Постепено оба втягиваются в критическую конфронтацию, в то время как рушится их семья и их будущее становится все более непредсказуемым…Жанр: ДрамаРежиссер: Брэд Гэнн / Brad GannАктеры: Майкл Ангарано, Брендан Глисон, Том Гайри, Мелисса Лео, Эмили ВанКэмп, Майкл Рисполи, Фрэнсис Капра, Финн Куртин, Скотт Уинтерс, Фрэнк Т. Уэллс...Перевод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:35:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681862   (132105) от 05.12.2023
+
+VA - The Best Of Suanda Dark 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Somnia - The Edge (Extended Mix) [5:23]
+02. Tom Exo - Sidereum (Extended Mix) [6:34]
+03. Somnia - Afterglow (Extended Mix) [5:26]
+04. Trance Reserve & DaWTone - This Is My DNA (Extended Mix) [6:38](   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92FBEC1E741035BE403D22D4368DEC9CE60B467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595968   (132104) от 29.12.2012
+
+Журнал | Автоцентр №1-2 [январь 2013] [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132104.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Автоцентр" - еженедельный журнал полностью посвящен миру автомобилей. Основные рубрики: Автосалон, Автополигон, Концепции, Авторынок, Автобизнес, События и выставки, Практические технические и юридические советы, Спорт и другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4442303827A678C6D31D2937052D8815547389FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681969   (132103) от 05.12.2023
+
+Газета | Невыдуманные истории №46 (399) (ноябрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132103.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярный журналИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B219AC0587A1A3FF53B9E1329B3AE91DF73AF3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682035   (132101) от 05.12.2023
+
+Святитель Симеон Солунский | Толкование на молитву «Господи, помилуй!» (2016) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Симеон Солунский, святой XV века, был последним епископом древнего города Фессалоники, удерживавшим свою паству от перехода в унию с Римом, и одним из последних византийских богословов. Его перу принадлежит множество творений по самым разным богословским темам. В этой небольшой брошюре помещены два труда святителя Симеона о молитве, помещенные в пятом томе (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96578E49D231017C9D3A62456FCDFB440F0E175D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595920   (132100) от 29.12.2012
+
+Журнал | Photoshop Creative №95 [2012] [PDF] [En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132100.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Photoshop Creative" предлагает пользователям Photoshop практические советы и вдохновение. Являетесь ли вы новичком в программе или просто ищите материалы для повышения мастерства, этот журнал для вас. В основе журнала предлагаются уроки, которые помогут вам исследовать новые инструменты и развить свои умения. Каждому уроку присвоена степень сложности - Beginner, Intermediate or Expert - позволяющая выбирать уроки по своему уровню.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02DA844D4EB0E55799FF9129080C75B25F4F080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682000   (132099) от 05.12.2023
+
+Газета | Загадки истории №49 (573) (2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132099.jpg" />
 </div>
 
 
@@ -413,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B8B1F14909891898B2EF655678633ED5E9F04C7
+magnet:?xt=urn:btih:AF6C63CBB539871220908564F58724CED98B1F54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,28 +347,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683312   (128538) от 10.12.2023
+###  Публикация: 1682018   (132097) от 05.12.2023
 
-Strike Master - Strike Master (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Сибирская Благозвонница | Божественные правила Церкви. Канонические нормы христианской жизни (2021) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Follow Me
-02. No Future
-03. Boy In The Hole
-04. As I March(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:50
+Книга, которую вы держите в руках, содержит все основные канонические правила Православной Церкви, а также древние и новые их толкования. Материал расположен тематически, что позволит быстрее и полнее рассмотреть каждый вопрос и предмет. Догматические и нравственные комментарии помогут глубже проникнуть в суть правил и яснее увидеть их богодухновенность, войти внутрь (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1292567B9053B0DEFD8E18354D76C87EA4388AC1
+magnet:?xt=urn:btih:16D374EA461FA77F6AB57531A835806556E605E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,28 +373,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683314   (128537) от 10.12.2023
+###  Публикация: 1681986   (132095) от 05.12.2023
 
-Strike Master - U.F.T.M (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Газета | Невыдуманные истории №47 (400) (ноябрь 2023) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maximum Amount Of Aggressions
-02. Thrashing The Blind School
-03. Ritual Killings
-04. Street Criminals(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:20
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярный журналИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90DF298E8FADDD890FFD3A6D8A8B00ACA0BDEBA3
+magnet:?xt=urn:btih:073B03ED8CB31EC9AAE455B93D1A64B553676F3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,28 +400,172 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683124   (128536) от 10.12.2023
+###  Публикация: 1682053   (132093) от 05.12.2023
 
-Sympuls-e - Immensity (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+VA - Top 7 November 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gayax - Until The End (Original Mix) [6:35]
+02. Juan Almiñana Obando - Atlantis (Original Mix) [5:55]
+03. TbO&Vega - Elysian (POINoir Remix) [7:59]
+04. Masaru Hinaiji - Stairway To Heaven (Original Mix) [7:25](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698918CEC859399E4AE6B14E5A57D58755ABF5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681857   (132091) от 05.12.2023
+
+Dave Sereny - Talk to Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk to Me (Joe Smooth Remix) (3:50)
+02. About Her (4:01)
+03. Caribbean Cruise (3:28)
+04. Talk to Me (Spring Remix) (2:54)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99912FC89DE22954D2BE1D6B4C68FC56F2AB4DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595924   (132090) от 29.12.2012
+
+Железная маска / Le masque de fer (1962) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132090.jpg" />
+</div>
+
+
+###  Подробнее
+
+В крепости на далеком острове где-то в Средиземном море томится анонимный пленник. Под страхом смертной казни никто не смеет видеть узника без маски, скрывающей его лицо.
+
+А на другом конце воюющей Европы, в Париже, сильнейшая лихорадка привела на грань жизни и смерти Его Величество Людовика XIV, молодого короля Франции.
+
+Под угрозой подписание мирного договора с Испанией, главным условием которого должен стать союз Людовика XIV и Инфанты Испанской. Не будет короля — не будет выгодной свадьбы и долгожданного мира.
+
+В этот драматический момент интриган и умница кардинал Мазарини поручает капитану ДАртаньяну весьма щекотливое дело — доставить в Париж живым и невредимым таинственного пленника — брата-близнеца короля. Задание опасное и непростое, но капитан королевских мушкетеров азартен, отважен и молод душой…Жанр: ПриключенияРежиссер: Анри ДекуанАктеры: Жан Маре, Сильва Кошина, Жан-Франсуа Порон, Жизель Паскаль, Филипп Лемэр, Ноэль Роквер, Жан Рошфор, Клодин Оже, Жермен Монтеро, Энрико Мария Салерно ...Перевод: ДублированныйЯзык субтитров: чешскийПродолжительность: 02:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30335DA4865647A49AB1C0954A73E83E3A3610E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682008   (132089) от 05.12.2023
+
+Opera GX 104.0.4944.85 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
+Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
+Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEB262E16E2AA796A884C1B2CACE084EA4BEBF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595726   (132088) от 29.12.2012
+
+Журнал | Lingerie insight №№6 - 9, 11 [2012] [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132088.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Lingerie Insight" - ваш путеводитель по рынку нижнего белья и купальников промышленности Великобритании. Этот ежемесячный журнал и веб-сайт отражает последние тенденции этого рынка; является экспертом для продавцов розничной торговли, оптовиков и дизайнеров; предоставляет достоверные факты и цифры о состоянии промышленности нижнего белья.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F708B9D012D41C9648B9134BA03430416BD7F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681419   (132087) от 05.12.2023
+
+KSB muzic - Маме не покажем!! (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock inde>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 The Pathfinder 4:25
-02 Alone with the Dark 5:21
-03 One Way Journey 4:24
-04 Infinity Around 5:00(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:59
+01. Отчим [00:01:39]
+02. 15 [00:01:50]
+03. Любовь [00:02:22]
+04. Саппорт [00:01:38](   Читать дальше...   )Жанр: Alternative, Rock indeПродолжительность: 00:16:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6918630F7CCA47C9A7CED015012F9F870CBE136A
+magnet:?xt=urn:btih:D8DE7DEE4E03CE54AD72BEE134A5436FA8322D47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,28 +573,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683350   (128535) от 10.12.2023
+###  Публикация: 1681644   (132085) от 05.12.2023
 
-Osiris - Meanders A Soul (2021) [FLAC|Lossless|image + .cue] <Symphonic Melodic Black Metal>
+VA - In Search Of Sunrise 19 (Mixed by Markus Schulz, Ilan Bluestone & Daniel Wanrooy) (2023) [MP3|320 Kbps] <Trance>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Seasons Of Flooding Chaos (Akhet nw Isfet)
-02 Of Hate, Passion And Eternity
-03 Forgotten Stones Of Time
-04 Faceless Men(   Читать дальше...   )Жанр: Symphonic Melodic Black MetalПродолжительность: 00:48:20
+01. Markus Schulz & Sarah De Warren - Light On (Mixed) [6:29]
+02. Markus Schulz - Summer Of ‘99 (Mixed) [3:35]
+03. Matt Fax - Beyond Belief (Mixed) [4:51]
+04. KhoMha - Ancient Voices (Mixed) [2:55](   Читать дальше...   )Жанр: TranceПродолжительность: 07:27:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E33DEFB1DF5577022BCF5EEE691D084AD9DEF89E
+magnet:?xt=urn:btih:53D45ADC5B39039775391CADB4DE21B16AC3C7C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,25 +602,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683379   (128534) от 10.12.2023
+###  Публикация: 1682033   (132083) от 05.12.2023
 
-Благовест | Акафист святителю Митрофану, епископу Воронежскому (2017) [PDF]
+Александр Беляев | Изобретения профессора Вагнера. Ковер-самолет (2021) [MP3, Puffin Сafe]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Святитель Митрофан, епископ Воронежский родился в 1623 году в пределах Владимирских от родителей духовного звания и в миру звался Михаилом. Родители дали ему воспитание в духе веры православной. Овдовев на 40 году своей жизни, он принял постриг в 1663 году в Успенской Злотниковской пустыни. С 1665 года – игумен Яхромского Космина монастыря, с 1675 года – игумен Троицкого (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+"В рассказе ведется речь сразу о трех изобретениях профессора Вагнера и о его первом знакомстве с рассказчиком." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:22:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:658B458F8B18EFA645DA8F0E4C1BFAA4C2081136
+magnet:?xt=urn:btih:0049207C03890AE9098B5CF4D92A561689335FC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,25 +628,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683389   (128533) от 10.12.2023
+###  Публикация: 595811   (132082) от 29.12.2012
 
-Благовест | Акафист святой преподобномученице великой княгине Елисавете (2022) [PDF]
+Рисованная графика - Artworks by Jean-Sebastien Rossbach
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акафист святой преподобномученице великой княгине Елисавете.Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+Jean-Sebastien Rossbach — французский художник, предпочитает стили фэнтези и мистику. Профессионал очень высокого уровня, создавал книжные иллюстрации, обложки для книг и музыкальных альбомов, концепт-арт, несколько лет проработал главным дизайнером в игровой индустрии, и наверное главной его работой на данный момент является художественный альманах (артбук) «Мерлин».
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01B53F00FDB8D3A7AEA1A831B4485642D7E52D4D
+magnet:?xt=urn:btih:7BCC600E525EE88F5F17464753FA5F148E27BFFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,28 +654,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683369   (128532) от 10.12.2023
+###  Публикация: 1681893   (132081) от 05.12.2023
 
-Polkadot Cadaver - Echoes Across The Hellscape (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Metal>
+VA - The Best Acid Jazz Covers (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Nu Jazz, Future Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Emotional Creatures
-02 – Where Do I Belong
-03 – Godless Noise
-04 – A Dog Without Water(   Читать дальше...   )Жанр: Avant-Garde MetalПродолжительность: 00:37:19
+01. Lostinwhite - For Once in My Life (3:01)
+02. Andrew De la Foix - Misfit (Radio Edit) (3:21)
+03. Bossa Nostra - Home Is Where The Hatred Is (Ken@Work Mix) (5:10)
+04. Marina Santelli - You Can Leave Your Hat On (5:20)(   Читать дальше...   )Жанр: Acid Jazz, Nu Jazz, Future JazzПродолжительность: 01:33:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E033DA3276C7AF2A60AAECCFA7C232BA7D52EE16
+magnet:?xt=urn:btih:843732EE74E799F2A159E54FB09A456D4AA626EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,112 +683,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683180   (128531) от 10.12.2023
+###  Публикация: 1681993   (132079) от 05.12.2023
 
-Dave Kelly - Sun On My Face (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Мишель Бюсси | Код 612. Кто убил Маленького принца? (2023) [MP3, Кирилл Радциг]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Let's Do It, Let's Fall In Love (4:03)
-02. Lovin' Arms (4:16)
-03. Sun On My Face (3:32)
-04. Georgia On My Mind (4:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:08
+Прошло 80 лет с момента издания великой сказки «Маленький принц», а смерть ее автора, Антуана де Сент-Экзюпери, по-прежнему так же загадочна, как и само произведение. В новом романе «Код 612. Кто убил Маленького принца?» мэтр французского детектива Мишель Бюсси проводит собственное расследование гибели великого французского писателя.
+
+В книге за дело берутся летчик (   Читать дальше...   )Жанр: Современный детективИздательство: ВИМБОПродолжительность: 05:31:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FD064D23255E34EC2AD9E56A5CA957B73CD47A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683140   (128530) от 10.12.2023
-
-Supuration - Incubation (2003) [APE|Lossless|image + .cue] <Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Confusion (November)
-02. The Old Mirror (December)
-03. Incubation (January)
-04. The Nameless Boys (February)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A1B4CC1A2D28DE3454A28C5BC6874D070E5380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683383   (128529) от 10.12.2023
-
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Млекопитательница» (2015) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист Пресвятой Богородице в честь иконы Ее «Млекопитательница».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE36D0FC17F11B7D5D98625345D4BE313DEFE36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683125   (128528) от 10.12.2023
-
-Хаме-леон - Крики! (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Утро Мёртвых 1:09
-02. Бежать! 4:43
-03. Навигатор 6:34
-04. Я Знаю Имя 5:19(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915EEBADE415007EAD86379FC44088D492490093
+magnet:?xt=urn:btih:7D47CC0B6C9CA5D92AF2CF803C568FB7ED9DFD31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1122963   (793427) от 06.04.2017
+
+Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [MP3|320 Kbps] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hommage To Buddha Dhamma Sangha
+02. Perfecting the Ten Paramitas
+03. Calling The Lama
+04. Long Mantra Of Avalokiteshvara(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C19711572EEDFE794368392E6124DDEFD5964B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122959   (793425) от 06.04.2017
+
+Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hommage To Buddha Dhamma Sangha
+02. Perfecting the Ten Paramitas
+03. Calling The Lama
+04. Long Mantra Of Avalokiteshvara(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D302C3E60E80DED6BA4F24F88A2EDD80976C219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122212   (793419) от 06.04.2017
+
+VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Score) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Collision (02:53)
+02. Scrap Yard (01:42)
+03. Leverage (01:50)
+04. Juliet (02:55)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DAE367E77C4017A3E9D113CABE731C2835AD206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122531   (793417) от 06.04.2017
+
+Darkher - Realms (2016) [MP3|320 Kbps] <Dark Folk, Gothic, Doom>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Waker
+02. Hollow Veil
+03. Moths
+04. Wars(   Читать дальше...   )Жанр: Dark Folk, Gothic, DoomПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8890DFF9443730A26B448887A63479635C83B511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122258   (793360) от 06.04.2017
+
+Cliff Martinez - The Knick / Больница Никербокер: Season 1,2 (Original Series Soundtrack) (2014-2015) [FLAC|Lossless|tracks + .cue, tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dearest John (03:54)
+02. It's My Eye (02:05)
+03. If Anyman Thirst (03:17)
+04. Sonia (00:51)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:35:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D938E6B25DB78FAB73216483A878FDDA058ED348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122637   (793188) от 06.04.2017
+
+Percy Faith - The Real... Percy Faith And His Orchestra (2016) 3CD [FLAC|Lossless|tracks + .cue] <Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Blue on Blue
+2. Anyone Who Had a Heart
+3. Spanish Harlem(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 02:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE510117F92AEF7D27D94588A5DCA2C8B1CA645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274529   (792989) от 07.01.2019
 
 Deuter - Mirage (2019) [MP3|320 Kbps] <New Age>
@@ -569,181 +743,6 @@ Dr. Jeffrey Thompson - Brainwave Suite: Insight & Intuition (2003) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85338CCAB87ECB692ADB79B3C521DD000B2BAB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386829   (790672) от 03.06.2020
-
-Merle Haggard and The Strangers - I'm A Lonesome Fugitive (1967) Remastered 2001 [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мерл Хаггард – американский композитор и певец в стиле кантри. “I’m a Lonesome Fugitive” – его 3-й студийный альбом и первый, попавший в хит парад Billboard 200 (на 165-е место:).
-Одноименная песня “I’m a Lonesome Fugitive“, открывающая этот альбом – первая его песня, которая годом ранее, выпущенная в качестве сингла, возглавила кантри хит парад.01. I'm a Lonesome Fugitive (2:56)
-02. All of Me Belongs to You (2:40)
-03. House of Memories (2:47)
-04. Life in Prison (3:02)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108C08B93B0B9E6B50CD5A4068485E057AEF71CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387275   (790623) от 03.06.2020
-
-The First Nations - Heart and Soul of the Native Indians (2016) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Song
-02. How the West Was Lost
-03. Winter Ceremony
-04. The Counterclockwise Circle Dance(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15F26649748E3249A05AE181A4161EDAEAC4356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510787   (790342) от 18.11.2021
-
-Peter Ellis - The Best Of Lounge: New York Lounge (2001) [MP3|320 Kbps] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel (4:41)
-02. Boy Meets Girl (Blind Date Part 1) (5:27)
-03. Lots To Say (5:13)
-04. Confessions (4:56)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B01ECB090292C76B9D3E53E008B256B521C810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510784   (790341) от 18.11.2021
-
-Gary Ryan - The Best Of Lounge: L.A. Lounge (2001) [MP3|320 Kbps] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seemless (4:00)
-02. Jupiter Perris (5:02)
-03. Contraflow (4:41)
-04. The Beauty Of Then (3:49)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FA79FFFE9C5A22FA4BE92E0A51663B5C81E5CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510779   (790332) от 18.11.2021
-
-Variations & Gary Ryan - Romantic Guitar (2006) [MP3|320 Kbps] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albatross (2:58)
-02. Bilitis (3:22)
-03. Lara's Theme (2:22)
-04. Everything I Do (I Do It For You) (4:09)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9DE01F390AB7489B384010C95E56AFF5CED88C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510683   (790119) от 18.11.2021
-
-Hilmar Orn Hilmarsson - Children Of Nature (1996) [FLAC|Lossless|image + .cue] <Electronic, Abstract, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ars Moriendi (5:54)
-Cello - Stefán Örn Arnason
-02. Charon (2:29)
-03. Sudurgata (3:26)(   Читать дальше...   )Жанр: Electronic, Abstract, AmbientПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3BFC58593617C91556C0E6732A1AFDB9CB0F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

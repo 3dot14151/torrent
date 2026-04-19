@@ -1,3 +1,61 @@
+###  Публикация: 1743065   (46814) от 14.08.2024
+
+Loni Cash - The Album (2013) [MP3|320 Kbps] <Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Halomania (5:20)
+02. Space Of Halo (Part 1.) (7:26)
+03. I Want (Special Version 2013) (5:19)
+04. Dance With Death (New Synthopia Mix) (6:29)(   Читать дальше...   )Жанр: Euro-Disco, SynthpopПродолжительность: 01:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7ABFBC9228AE91E51B21C3CB12A329EDB14F261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746554   (45038) от 31.08.2024
+
+Rice & Beans Orchestra - Cross Over (1977) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got Magic (3:52)
+02. Music In The Air (4:11)
+03. Midnite Gossip (4:21)
+04. Love Is On My Mind (5:53)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF323018590384A714DA66A3038ACABA0EFA21FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750937   (42721) от 22.09.2024
 
 Purple Disco Machine - Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
@@ -687,64 +745,6 @@ VA - Modern 80's - The Best Of Discopop (1998) 2 CD [OGG Vorbis|480 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09E29F3BB1E96C3BD8D3268BA11B07D375BFD1C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781828   (26463) от 25.02.2025
-
-VA - Modern 80's - The Best Of Discopop Vol.3 (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milli Vanilli - Girl You Know It's True
-02. A-ha - Take on Me
-03. Alphaville - Big In Japan
-04. Laura Branigan - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, Synth-popПродолжительность: 02:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAE034F86CCBC995ED9EE497D95C30EBF4D78B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784381   (24986) от 11.03.2025
-
-Good Ride - Faces (2023) [MP3|320 Kbps] <Italo-Disco, Italo-Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Gonna Dance (Extended) (5:46)
-02. What Can I Say (4:13)
-03. One Moment (Extended) (6:10)
-04. Star Cloud (5:42)(   Читать дальше...   )Жанр: Italo-Disco, Italo-DanceПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35239E03586F138345F5E37206D4E82497109AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

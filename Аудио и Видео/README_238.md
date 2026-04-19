@@ -1,3 +1,206 @@
+###  Публикация: 1497388   (234806) от 13.10.2021
+
+VA - Buddhatronic - the Compilation, Vol. 1 (2015) [AAC|~318 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Lanibia Dreams (7 Stars Mix) (4:39)
+02. Bernon - I Dream of You (Chillout Mix) (4:37)
+03. Buddhatronic - Trance Icon (Modern Deep Choir Mix) (4:28)
+04. Guardians of Secret - Gregorian Temple (Nu Artenovum Mix) (4:51)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A93F93A67DE877E774F0DD664D446800086C107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498157   (234800) от 13.10.2021
+
+VA - Chilling On Purple Clouds, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup - Shores (4:43)
+02. Living Room, Worldtraveller - Nano Love (No Hate Edit) (3:08)
+03. Snake Black - Turn Table Over (5:03)
+04. Cool Beach - Sincerity (2:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78442ED5BD869E79662D8DBF9229EED89837E533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497199   (234792) от 13.10.2021
+
+Chillhop Guitar - Mellow Afternoon (2020) [AAC|~293 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lofi afternoon (4:00)
+02. The watcher (2:50)
+03. cozy moment (4:33)
+04. a day in bilbao (3:34)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1C6CB7DD5FAA34E50104CC507EBC985F71FE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499967   (234784) от 13.10.2021
+
+VA - The Seeds of Lounge, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Frozen Heart (6:51)
+02. Aiemo, Radmila - Kissing You (Vocal Mix) (4:22)
+03. Lazy Hammock, Ivan M-sax - Intoxicated (6:04)
+04. Sannan, Coppe - Violet Lullaby (Hadron Orchestra Remix) (4:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496EF94D5B102328E051DB8EF465706DADA2AD32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498275   (234778) от 13.10.2021
+
+VA - Ibiza Let' Chill, Vol. 1 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Frozen Heart (6:51)
+02. Lounge Deluxe - My Favourite Moment (5:05)
+03. Arman Behdad - Face of an Angel (Moonlight Chill Mix - Remastered) (3:42)
+04. Alfida - Surrender (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE4D820C8DF06C0C267B90E5BB1F9D292931A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497203   (234770) от 13.10.2021
+
+Chillhop Guitar - Lo-fi Beat & Smooth Guitar (2020) [AAC|~307 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kama Sutra (4:25)
+02. Blue Azur (5:11)
+03. Relaxing Morning (4:43)
+04. Sexy Feet (3:06)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C69D8F28175EABE42F93FC80544AAC89892C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496952   (234763) от 13.10.2021
+
+VA - Spiritual Spa, Vol. 1 (2021) [AAC|~314 Kbps] <Downtempo, Balearic, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastian Bach - Transcending (Original Version) (3:48)
+02. Lemongrass - Levitation (Original Mix) (5:12)
+03. Jasmon - Blue Water (Original Mix) (4:31)
+04. CaPa - Seven Sins (Original Mix) (4:58)(   Читать дальше...   )Жанр: Downtempo, Balearic, Chill OutПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6C1645F6C5D0C046DA5C3D51DCCA354B0C89BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541221   (234762) от 03.04.2022
 
 VA - Electro Swing New Generation 01 by Bart&Baker: The Best New Electro Swing Music (2017) [AAC|~317 Kbps] <Jazz, Electro, Swing>
@@ -542,209 +745,6 @@ VA - Beautiful Metamorphosis, Vol. 4 (2021) [AAC|~300 Kbps] <Downtempo, Lounge, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EED6FC9CD69061D42906A0742381B26F8B200196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495740   (234215) от 13.10.2021
-
-VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 1 (2021) [AAC|~332 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man In A Room - The Confidential (Original Mix) (6:01)
-02. Lemongrass - At Home (Original Mix) (4:03)
-03. The Funky Lowlives - Berceuse (Original Mix) (5:28)
-04. No Noise - Ying and Yang (Original Mix) (4:31)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94E21C302E7826BBB7CEFFA2E7DB28E4EB0A870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501682   (234207) от 13.10.2021
-
-VA - Electronic Clouds, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zach Fernandez - Chiem (Original Mix) (3:37)
-02. Nakiro Namoto - Dead Man Walking (Original Mix) (3:22)
-03. Port Grimaud Project - Think to a Girl (Original Mix) (3:39)
-04. Gaba Milani - Magnolia's Flower (Original Mix) (5:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD91B7FACD14CEB738F85C401B282915E38F8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499318   (234197) от 13.10.2021
-
-VA - Close to You (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proba Merx - Morning Ride (5:58)
-02. Zirkadian Sender - Reversed Roles (6:11)
-03. Model IV - Late Bloomers (6:10)
-04. Sweetadelic - Natural Perspective (6:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DE50A063549B86F6EC54AF6C1A07899F027834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498703   (234192) от 13.10.2021
-
-VA - Vanlife Chill, Vol. 3 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weathertunes - Down the River (Original Mix) (6:25)
-02. Lazy Hammock - Beauty Flows (Vox Mix) (4:36)
-03. Johannes Huppertz, Mirage Of Deep, Amethyste - Tragic Farewell (Original Mix) (4:37)
-04. Harrison & Daicz - Una Luz Tan Brillante (Original Mix) (6:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F7E00A063D1C34D9B89E5B8CCC30522E27FC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501667   (234186) от 13.10.2021
-
-VA - Flora Lounge Tunes by Smooth Deluxe, Vol. 2 (2021) [AAC|~321 Kbps] <Chill Out, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giorgio Moroder - Tony's Theme (Scarface) (6:27)
-02. 351 Lake Shore Drive, Genius Jane - Freezing Cold (4:25)
-03. Northbound - Funny Stones (6:26)
-04. Lemongrass - Restaurant At the End of the Universe (6:29)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B43D17313B7365746F6ECAADE24E0715AF341F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498153   (234180) от 13.10.2021
-
-VA - Secret Room: Chillout Your Mind (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - Who Is Lore? (5:02)
-02. Finland & Aaskoven - Tahiti (Closing Theme) (3:06)
-03. Will James - Daintree Twilight (5:52)
-04. Project Blue Sun - Fly Away (Original Mix) (2:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB244E42D9BFEBFFBFCE784D9D4A2609476C3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501687   (234174) от 13.10.2021
-
-VA - Electronic Clouds, Vol. 3 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup - Save a Little Prayer (Original Mix) (6:38)
-02. NJ Producer - Hold Love (France Mix) (4:05)
-03. Sofa Grooves - The Chef Music (Original Mix) (4:29)
-04. Mikis Theodorakis, Francesco Diaz - Desire (Chilling Chambers) (Original Mix) (4:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7DF4BFC40E25DC4199A65DA52C2B4B0F33B28B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1827337   (186356) от 21.10.2025
+
+Cosmic Gate - Live @ Tomorrowland Store Rooftop Ibiza, Spain (2025-09-16) [MP3|320 Kbps] <Trance, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joris Voorn - Tomorrow (Sultan + Shepard Remix)
+02. Mahoo – California
+03. Juno - All Alone
+04. Anton Khabbaz - Break From It(   Читать дальше...   )Жанр: Trance, Melodic House, TechnoПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45595F08B71AF72B4C767AB8F3210C0294E27D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664116   (186267) от 24.09.2023
+
+Vintage Culture - Live @ elrow, Ushuaia Ibiza, Spain (2023-09-06) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture - Tudo Bem Tudo Bom
+02. Gala - Freed From Desire (ID Remix)
+03. Kylie Minogue - Can't Get You Out Of My Head (ID Remix)
+04. Jewel Kid, Matt Sassari - Get Down Low(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D43711FF032AC9C5EF1062D4317EE04B89CB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827339   (185705) от 21.10.2025
+
+Matisse & Sadko & Third ≡ Party & DubVision - Tomorrowland Friendship Mix (2025-10-09) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Garrix & Matisse & Sadko ft. BARBZ - Butterflies
+02. Fred again.. & Skrillex & Four Tet & Lil Baby & DubVision vs. The Chemical Brothers & ARTBAT - Baby Again.. vs. Hey Boy, Hey Girl (DubVision Mashup)
+03. Matisse & Sadko & Aspyer - ID
+04. DubVision vs. Martin Garrix & Bebe Rexha - Rise Again vs. In The Name Of Love (   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A528AEF91241311DCC32593C731FF63D50979C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664314   (184853) от 27.09.2023
+
+MORTEN - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] <Dance, Electro Pop, Mainstage>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN - Nothing (Intro Edit)
+02. David Guetta & MORTEN - Bombardment
+03. ID - ID
+04. David Guetta & MORTEN ft. RAYE - You Can't Change Me w/David Guetta & MORTEN ft. RAYE - You Can't Change Me (ALEOS Future Techno Remix)(   Читать дальше...   )Жанр: Dance, Electro Pop, MainstageПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2D93D14738C430F480C0B34EB369337CA03B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665067   (182494) от 30.09.2023
+
+James Hype - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm Controll - My House (In Beginning, There Was Jack... Acappella) w/James Hype - ID
+02. Wildchild - Renegade Master (Acappella) w/Major Lazer & James Hype - Number 1
+03. Raumakustik & Juliet Sikora - Love Shake
+04. Travis Scott ft. Kendrick Lamar - Goosebumps (James Hype Remix)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0848AFA5EB4231B2ADE060F2C3ACC5C4D4D6E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664839   (182376) от 30.09.2023
+
+Lane 8 - Fall 2023 Mixtape (2023-09-20) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Otherwish - ID
+02. Rinzen - ID
+03. Fever Ray - Shiver (Ivory Remix)
+04. Notre Dame - Yumi (Johannes Brecht Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B8B961D2A62DB74014928C9FDCB06E74E4BE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665074   (182334) от 30.09.2023
+
+Armin van Buuren - Live @ Ushuaïa Ibiza, Spain (2023-09-24) [MP3|320 Kbps] <Mainstage, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren ft. Trevor Guthrie - This Is What It Feels Like (Armin van Buuren 2023 Remix)
+02. Achilles & DJ Fluke & Steeper vs. David Guetta & Bebe Rexha - Tomorrow vs. I'm Good (Achilles Mashup)
+03. Armin van Buuren ft. Anne Gudrun - Love Is A Drug
+04. Armin van Buuren - Motive (Armin van Buuren Club Mix)(   Читать дальше...   )Жанр: Mainstage, TranceПродолжительность: 02:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301C5363F1F075C873517D40FC519924FB279489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667048   (178357) от 06.10.2023
+
+Markus Schulz - Global DJ Broadcast World Tour (X-Demon Wroclaw, Poland) (2023-10-05) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyma - Chordial
+02. Pryda - Hiidden
+03. Boris Brejcha - Wormhole
+04. Rebuke & Anyma - Syren(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D29CE51E04E2BE542BE7B4D70DA8582D4A65202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667281   (177014) от 08.10.2023
 
 Claptone - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] <House, Tech House>
@@ -513,235 +745,6 @@ VA - Armin van Buuren - A State Of Trance 1247 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25CCB436FC07D16F0525E9C0B37FCEE1E4EB708B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825338   (152018) от 17.10.2025
-
-Third Party - Live @ Party People, HERE at Outernet London, United Kingdom (2025-09-20) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Third ≡ Party & Mark Roma - ENEMY (Matisse & Sadko Intro Edit) w/Martin Garrix & Third ≡ Party ft. Max McElligott - Lions In The Wild (Acappella)
-02. Capozzi - Pressure w/PARISI x Sebastian Ingrosso x Steve Angello - U Ok?ь w/Swedish House Mafia - Can U Feel It
-03. Third ≡ Party - Arrival w/Adam Port & Stryv ft. Malachii - Move (   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119A52BE76411FAF585D568D8A9661FFA33A1561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677411   (151241) от 17.11.2023
-
-Nora En Pure - Live @ DJ Mag Top 100 DJs Awards, Bali, Indonesia (2023-11-15) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora En Pure - Arbora
-02. Daniel Portman - Resist The Time
-03. Dan Sushi - Titanium
-04. ID - ID(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E963C3AE3039C1B7FF7554E2482FB3FC6489228B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677424   (151181) от 17.11.2023
-
-VA - Armin van Buuren - A State Of Trance 1147 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Ross ft. Dia Frampton - Never Alone
-02. Different Stage & Run Rivers - Rewire
-03. AMINTO - Show Me All Your Love (Ahmed Helmy Remix)
-04. Ahmed Helmy & Jessica Hammond - Slow Down(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB09EF0D3A0F685662B488DDCB3F507E06066870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677406   (151117) от 17.11.2023
-
-David Guetta - Live @ DJ Mag Top 100 DJs Awards, Ibiza, Spain (2023-11-15) [MP3|320 Kbps] <House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta Epic House Set From An Ibiza Villa - Intro
-02. Dennis Ferrer - Hey Hey (David Guetta Remix)
-03. &ME & Black Coffee - The Rapture Pt.III w/Kings Of Tomorrow ft. Julie McKnight - Finally (Acappella)
-04. ID - ID w/Jack Back & CeCe Rogers - Freedom (Acappella)(   Читать дальше...   )Жанр: House, Melodic House, TechnoПродолжительность: 01:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97BCBECBA24093E975A879269A05466862AC5F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677593   (150560) от 18.11.2023
-
-Lucas & Steve - Live @ L&S and Friends, Escape, Amsterdam Dance Event (2023-10-21) [MP3|320 Kbps] <Mainstage>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galantis & Lucas & Steve ft. ILIRA - Alien (Intro Edit) w/Yeah Yeah Yeahs - Heads Will Roll (DiscoTech Remix) w/Jack Ü ft. Bunji Garlin & MX Prime - Jungle Bae (Acappella) w/Julian Cross - Antidote w/Lucas & Steve - LFG w/David Guetta ft. Bebe Rexha - I'm Good (Blue)(Acappella)
-02. Steve Angello - Knas (Lucas & Steve Bootleg) w/Hardwell (   Читать дальше...   )Жанр: MainstageПродолжительность: 01:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E585A78DF1DD635184E6FA94A55EA6E924C8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677929   (149413) от 19.11.2023
-
-Symphony of Unity - Live @ Atmosphere Stage, Tomorrowland, Belgium (2023-07-29) [MP3|320 Kbps] <EDM, Various>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - Tomorrowland Hymn (Live Orchestal Version)
-02. Kölsch - Grey (Live Orchestal Version)
-03. Joris Voorn - Ringo (Live Orchestal Version)
-04. Swedish House Mafia ft. John Martin - Don't You Worry Child (Live Orchestal Version)(   Читать дальше...   )Жанр: EDM, VariousПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1822EC4997EC58B910FC45694CF2222F7C66EE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677682   (149248) от 19.11.2023
-
-VA - Amsterdam Music Festival, Johan Cruijff ArenA, ADE (2023-10-21) [MP3|320 Kbps] <Tech House, Melodic House, Hard Dance, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headhunterz - Guess Who's Back
-02. Yellow Claw & Juyen Sebulba - Do You Like Bass? (Headhunterz Edit)
-03. Joy Kitikonti - Joyenergizer (Dr. Rude Remix)
-04. Headhunterz - The Flame Inside(   Читать дальше...   )Жанр: Tech House, Melodic House, Hard Dance, TranceПродолжительность: 06:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047A47758A64AAE104C218E3C44AF4534244A86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435295   (146739) от 27.12.2020
-
-MORTEN - Live @ TESstudio954, United States (2020-12-23) [MP3|320 Kbps] <Electro House, Progressive House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN ft. Lanie Gardner - Dreams
-02. Rebūke - Obscurity
-03. David Guetta & MORTEN - Odyssey w/Tiësto - The Business (Acappella)
-04. David Guetta ft. Sam Martin - Lovers On The Sun(Prod. by Avicii) (Jack Back Remix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Big RoomПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0720E3F2C32CDF01567C68FD4F953C1CD645FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 929008   (514027) от 24.08.2015
+
+Обои - Спорт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему спортаФормат: JPGРазрешение файлов: 1600x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153AD2DB44AD28AB16D7CFA6F4CC31D85C5D5488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930850   (514024) от 24.08.2015
 
 Обои - Музыка 2 [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3B48AB1DFD8378274970FF67DBE13F3F9B4B9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931111   (512872) от 25.08.2015
-
-Обои - Beautiful Landscapes Wallpapers (Set 88). 1920x1200 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на природную тематикуФормат: JPGРазрешение файлов: 1920x1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FBB458BCE0CC41627E8989C9FCB4F160166EC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

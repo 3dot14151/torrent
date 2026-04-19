@@ -1,3 +1,201 @@
+###  Публикация: 592045   (132149) от 29.12.2012
+
+VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132149.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adroa feat. Ajapai - Decimation
+2. Asking Alexandria - A Lesson Never Learned
+3. Brainpain - Ebola
+4. Brainpain - Power Of Evil
+5. Bring Me The Horizon - Blacklist (Spark Remix)
+6. Bring Me the Horizon - Sleep With One Eye Open (Tek-One Remix)
+7. Declare Your Funeral - Amnesia (Tim Tonik Remix)
+8. Demented Dimensions - I Swear to God
+9. Drowning Pool - Bodies (The Mask Remix)
+10. Excision - Brutal(   Читать дальше...   )Жанр: Dub Step/Heavy Electro/MetalstepПродолжительность: 02:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5FD6EEFCDDD323D25E0152F5BF7A3CF85DC4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596085   (131751) от 29.12.2012
+
+VA - 90's Hits Euro Dance Remix Classics Vol 2 (2012) [MP3|320 кб/с]<Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tunnel Alliance-Blue (Feat Saffron Beat-Trance Future Reloaded Mix) 03:31
+02. Supershake-Gonna Make You Sweat (Everybody Dance Now) (Alex Twister Edit) 03:30
+03. Latin Warriors-Macarena (That's Now Club Mix #44)03:35
+04. G6-Ray of Light (I Like A Mashup Mix) 03:40
+05. Paradise City & Billionaire-Another Day in Paradise (Stereo Love Remix) 03:39
+06. Ammonia-Don't Speak (Said & Done Total Party Dance Mix) 03:50
+07. Coleda-I Will Always Love You (Twister Club Edit)03:44
+08. Kings of Commotion-Whoomp (There it is) (Accolade Cut) 03:22
+09. Supershake-Pump Up The Jam (Rfn Electro Funhouse Remix) 03:35
+10. Mind & Moore-Infinity (Retro's White Sensation Electro Remix) 03:15(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A6EAC825897E38C6EA8F5586C8DBD1C281CF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682461   (131046) от 08.12.2023
+
+VA - Trance In Motion Vol.369 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christopher Corrigan - A Love Like This (Extended Mix)
+02. Danny Fervent - Be The One (N-sKing Dub Mix)
+03. Gayax & Eloquentia - Atlantis (Extended Mix)
+04. Steve Dekay - Dimorphos (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47E9B91652B8130287562398B47B1DFC96E8B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596808   (130954) от 31.12.2012
+
+VA - 111 Golden Lounge Tunes (2012) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Zippel Feat. Sophie Tusnelda - Still Love - Klangstein & Chris Zippel Mix
+02. Ohm-G - Aya
+03. Geb.el - The Killer And The Chicken
+04. Naomi - Trust
+05. Audio Lotion - Igloo
+06. Llava - You're All I Need To Know Feat. Pat Appleton
+07. Koala - Floating Pillow - Original Mix
+08. Lemongrass - Falling Star
+09. JFC - Underwater
+10. Lexicon - Funk Corner - Advice Mix(   Читать дальше...   )Жанр: Lounge, Chillout, Lo-FiПродолжительность: 09:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7791844848A37971D056BD0ADABB1A7B21466851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524770   (130414) от 18.01.2022
+
+VA - 60 Minutes. Old School Dance Music vol.5 (mixed by Dj V)(2021) [MP3|320 Kbps] <Progressive Trance, Tech Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Ronski Speed - Overfloat (Ronski Speed pres Sun Decade Mix)
+02-Moonbeam & Tyler Michaud feat.Fisher - Love Never Dies (Original Mix)
+03-Sunlounger feat. Zara - Lost (Club Mix)
+04-Olive - Your Not Alone (Mat Zo Bootleg)(   Читать дальше...   )Жанр: Progressive Trance, Tech Trance, Uplifting TranceПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD53F5A6CEBC8FD355B33C01697A069637E749F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489670   (129985) от 01.05.2012
+
+VA - Wise Up (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interval - Mind Vortex (original mix) (9:08)
+02. Silicon Sound - Combustion (6:46)
+03. Multiphase - In Retrospect (8:04)
+04. Future Radio - Sumer Sun (7:36)
+05. Erotic Dream - Use Your Imagination (7:04)
+06. Xshade & Loopstep - Light In Motion (9:04)
+07. Pan Papason - 2000 Years Ago (Ion remix) (8:04)
+08. Hi Profile - 01.1.81 (7:43)
+09. Datura - Lommesvuffer (8:59)
+10. Vice - With In (Phaxe remix) (8:00)(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 03:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17A25DB1553B425AA89E6B7E3B4CF23083CAF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489270   (129694) от 01.05.2012
 
 Rene LaVice - Все треки 2010-2012 (2010-2012) [MP3|320 кб/с]<Drum and Base>
@@ -579,180 +777,6 @@ Karimov - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F1DC6C28B69241487E6392772AC56FA916385BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685412   (127099) от 19.12.2023
-
-MENDA part 2 - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Odyssey
- 02.  Moda
- 03.  Stay With Me
- 04.  Sorry(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8FCBF7EF162F70DC6193D4C45C9C79A47FD0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685935   (126922) от 20.12.2023
-
-Afrasiab - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Sound of a Real Feeling
- 02.  Blackout
- 03.  Nothing to Lose
- 04.  Im Sorry(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E578E0FB6D3DDD095EA5710F8C4CE02982D322B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686266   (126664) от 22.12.2023
-
-VA - Christmas  Disco - Merry Christmas Everyone (2023) [MP3|320 Kbps] <Disco, Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Snowflake, The MacDonald Bros - White Christmas [06:09]
-002. Global Defence - Jingle Bells (Dance Extended Mix) [05:46]
-003. Rave Ryders - Techno Power (Club Edit) [03:37]
-004. Kjetil Labahaa - Different Order (Radio Edit) [04:06](   Читать дальше...   )Жанр: Disco, PopПродолжительность: 06:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6795A1131220E1C5FBD81EA04D9DD6D0C9A0A339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686965   (126302) от 24.12.2023
-
-VA - Record Super Chart 23.12.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dezko - Ascend (3:20)
-02. Robin Schulz - One With The Wolves (3:00)
-03. Ofenbach feat. Norma Jean Martine - Overdrive (2:35)
-04. Tiesto feat. 21 Savage & BIA - Both (Tiesto's VIP Mix) (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5147E61EFF0832EA2B9B3D10D59DC4912FD0D676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686867   (126288) от 24.12.2023
-
-Ian Otta - Compilation (2023) [MP3|320 Kbps] <Electronic, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Autumn Day
- 02.  Daydreamer
- 03.  Love Is
- 04.  Moonrise(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5AEF0124323C20B4C1680C27DC693EF7B636E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689085   (124911) от 31.12.2023
-
-Jjos - Compilation (2023) [MP3|320 Kbps] <Electro. Chill Out. Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All I Need
- 02.  Breathe
- 03.  Diamond
- 04.  El Mundo(   Читать дальше...   )Жанр: Electro. Chill Out. LoungeПродолжительность: 06:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075D99319C016CF1B46FB58860A8A8AEE3DCFD50
 ```
 
 https://mybot314.ru/tekegram_catalog/

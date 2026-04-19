@@ -1,3 +1,90 @@
+###  Публикация: 1294843   (626115) от 09.04.2019
+
+Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey kid 3:34
+02. I'm too old for this 4:17
+03. When you come home 4:28
+04. Dreamers 4:03(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909741   (626003) от 18.06.2015
+
+Lenka - The Bright Side (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Way Home
+02. Blue Skies
+03. Free
+04. Unique(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E2D3437DD824E10AA070292D857FDD7F75C35A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909755   (626002) от 18.06.2015
+
+Giorgio Moroder - Deja-Vu (2015) [FLAC|Lossless]<Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 U With Love
+02. Deja Vu (feat. Sia)
+03. Diamonds (feat. Charli XCX)
+04. Don’t Let Go (feat. Mikky Ekko)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B554833FFAAA455846A61A8B57E7355DDF7700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543788   (625656) от 13.04.2022
 
 VA - Super Italo Made in Spain, 2CD (2019) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
@@ -655,93 +742,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75A089409366427FB651A2D7890A03B271B5D7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036999   (615745) от 23.07.2016
-
-Rainhard Fendrich - Lieder Mit Gefuhl (1994) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weilst a Herz hast wie a Bergwerk [0:03:34.55]
-02. Von Zeit zu Zeit [0:05:03.43]
-03. Lowin und Lamm [0:06:09.42]
-04. Whisky Pur [0:03:40.60](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:20.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0765AE2A8E0DE9627BB126CFC569EF9B8B540ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037054   (615662) от 23.07.2016
-
-VA - SuperVara (2016) 2CD [FLAC|Lossless|image + .cue] <Dance,  Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akcent feat. Lidia Buble - Serai (3:19)
-02. Arando Marquez feat. Hevito - No Me Digas (2:51)
-03. Alexandra Stan feat. Mohombi - Balans (3:08)
-04. Alex Parker - Tropical Sun (3:21)(   Читать дальше...   )Жанр: Dance,  PopПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA277DBA1A91197121CEAD04FA7755A4C5495B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296006   (615139) от 15.04.2019
-
-Westlife - Westlife (1999) [FLAC|Lossless|image + .cue] <Europop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swear It Again
-02. If I Let You Go
-03. Flying Without Wings
-04. Fool Again(   Читать дальше...   )Жанр: Europop, BalladПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72885DDAEE61FB7AB7A318E912462A8F376222A
 ```
 
 https://mybot314.ru/tekegram_catalog/

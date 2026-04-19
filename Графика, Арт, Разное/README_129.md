@@ -1,3 +1,29 @@
+###  Публикация: 492186   (247953) от 05.05.2012
+
+[Wallpapers] Hi-Tech Wallpapers (04.05.12)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A29761D3E0DC3BEEF06C0E916AA36A911298E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491626   (246339) от 03.05.2012
 
 [Wallpapers] Fantasy Wallpapers Pack 3
@@ -673,32 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:684F4493F1A1FAAA98F574B08029D2630398FD98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586292   (228972) от 08.12.2012
-
-Иконки - UFO Png by KSV
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228972.jpg" />
-</div>
-
-
-###  Подробнее
-
-UFO Png by KSVРазрешение файлов: ~ 256х256
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CAC15EE62F4FBDB3182006B7ABDFE4958A4F98
 ```
 
 https://mybot314.ru/tekegram_catalog/

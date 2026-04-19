@@ -1,3 +1,61 @@
+###  Публикация: 1570292   (445011) от 16.08.2022
+
+VA - The Best Of Italo-Disco Vol. 7 (1991) Vinyl-rip [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Mareen–	Love-Spy (The Badman-Mix)	6:12
+02. Ken Laszlo–	Don't Cry (Vocal)	5:33
+03. K·B·Caps*–	Do You Really Need Me	6:37
+04. Grant Miller–	Doctor For My Heart	5:17(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F666BA66D21CA756CCA774220216B2723DE6886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570208   (445005) от 16.08.2022
+
+Radiorama - Greatest Hits & Remixes Vol. 2 (2021) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vampires (Swedish Remix)	6:25
+02. Desire (Remix)	6:00
+03. Fire (Extended Swedish Remix)	6:33
+04. Aliens (Swedish Remix)	5:50(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8FD7055B9948E4553B45AD749A9D2740B0FD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322862   (444698) от 31.08.2019
 
 Peter Richard - Frozen Red (1983) [MP3|320 Kbps] <Electronic, Italo-Disco>
@@ -694,62 +752,6 @@ Pisces - Disco 6 (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81A79578CCF21BDFC662941F7F046516023B1B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065445   (419209) от 23.10.2016
-
-Galaxis - I Want More & Space Rangers (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want More (3:42)
-02. Space Rangers (4:33)Жанр: Electronic, Space-DiscoПродолжительность: 00:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD415F9455DBF3FA370EE36F5956593533DB84A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412489   (418195) от 29.09.2020
-
-VA - New Italo Disco Top 25 Compilation Vol. 14 (2020) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emy Care - Do You Love Me (Radio Edit) [4:12]
-02. Emy Care - You And Me (Radio Edit) [4:07]
-03. Boy Blue - Don't Break My Heart (Radio Edit) [4:29]
-04. Brad Lake - Yesterday (When I Was Young) (Radio Edit) [4:36](   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, DanceПродолжительность: 01:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B83BA866999D7511B05C3A38949D6630DFD150
 ```
 
 https://mybot314.ru/tekegram_catalog/

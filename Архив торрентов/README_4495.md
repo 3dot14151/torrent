@@ -1,31 +1,22 @@
-###  Публикация: 482348   (99830) от 17.04.2012
+###  Публикация: 1739457   (106125) от 27.07.2024
 
-VA - Клубные новинки Vol.59 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+FanControl V198 + Portable [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Techno Freedom Pro - Lucky Strike (Lino Remix)
-02. Rene Ablaze And Alexander Xendzov Feat. Sharon Fehlberg - Cast Your Spell (Extended Mix)
-03. Senadee - Life Support Machine (16 Bit Lolitas Remix)
-04. Marc Simz feat. Naomi Strieme - This Is Love (Original Mix)
-05. Dirty Harris - Cosmos (Original Mix)
-06. suGar, Eva Kade, Evil T - All Around (Gregory Esayan Remix)
-07. Yotopia & Sphera - Vertigo (Original Mix)
-08. Myon & Shane 54 feat. Aruna - Helpless (Alexander Popov Remix)
-09. Stoneface & Terminal feat. Ellie Lawson - Breaking Through (Club Mix)
-10. Pulser feat Molly Bancroft - In Deep (Pulsers Main Floor remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:37:58
+FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF6F9579C7FACA432A5EE1D0CF1D5160BCEFB426
+magnet:?xt=urn:btih:4A6A93986495C9FEBB51CA5CD34E6D3CB1A9AB27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,25 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484361   (99829) от 17.04.2012
+###  Публикация: 1739359   (106123) от 27.07.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (18.04.12)
+WinMerge 2.16.42 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+WinMerge является Open Source инструментом сравнения и слияния для Windows. WinMerge может сравнивать как файлы (Windows, Unix и Mac), так и папки, отображая различия в визуальной текстовой форме, которые легко понять и обработать.
+WinMerge является весьма полезной для определения мест, которые изменились между версиями проекта, а затем она позволяет объединять изменения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC85DAFCDF9AFB7FCFE0324EB0CE8E82FA447879
+magnet:?xt=urn:btih:5A57230041F862AE2749300252BBC743F6EBCDD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -59,30 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483754   (99828) от 16.04.2012
+###  Публикация: 1739248   (106117) от 27.07.2024
 
-ХАСКИ - Икорный бизнес (2012) [MP3|320 кб/с]<Rock, indie-rock, pop-rock>
+digiKam 8.4.0 Portable by 7997 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Камикадзе (3:36)
-02. Дядя Хофман (5:37)
-03. 19-45 (6:07)
-04. Хэй, меломан! (3:16)
-05. Икорный бизнес (4:11)
-06. Хэй, меломан! (Alex Friesen ft. Lefster rmx) (6:20)Жанр: Rock, indie-rock, pop-rockПродолжительность: 00:29:06
+digiKam — фото-менеджер для Windows — программа для обработки и организации цифровых фотографий. Программа поддерживает импорт фотографий, RAW-файлов и видео напрямую с фотоаппарата, внешних устройств (SD карт, USB носителей и так далее). Позволяет настраивать и выполнять автоматическую каталогизацию во время импорта файлов. Например распределять файлы по альбомам, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C327D9C2F0D99551B7613176EEFABECC0475624E
+magnet:?xt=urn:btih:3E9312D4B0BF7F720C8EE6C2260FBB0FA401C3D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -90,34 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483531   (99826) от 16.04.2012
+###  Публикация: 1739244   (106114) от 27.07.2024
 
-Simon Pauls - Promise (2012) [MP3|320 кб/с]<Tech House, Minimal Techno>
+ExamDiff Pro 15.0.1.8 RePack (& portable) by elchupacabra [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Promise (with Mary Mercury)
-2. Shadow from the Past
-3. Dont Force Time
-4. Tessellation
-5. Alia Ludorum
-6. I do not know the way
-7. Insolita
-8. Prostratio
-9. Banana Box
-10. Time of electronic Love (with Plotka)(   Читать дальше...   )2012Жанр: Tech House, Minimal TechnoПродолжительность: 01:51:35
+ExamDiff - мощная и легкая в использовании программа для сравнения текстовых или бинарных файлов и директорий. Программа обладает уникальными возможностями, которые отличают ExamDiff Pro от других аналогичных приложений для сравнения файлов. ExamDiff Pro предлагает более эффективный и удобный способ для сравнения файлов и папок. С помощью ExamDiff Вы сможете сравнивать (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:595EAD31A9CF43A9469E364DBF47BCD0E427D91D
+magnet:?xt=urn:btih:DC1713C93F198B1139D3A5D39995B8F8631EF07C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -125,25 +103,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482179   (99821) от 16.04.2012
+###  Публикация: 1739694   (106070) от 28.07.2024
 
-Товарищи / I compagni (1963) DVD9 [It]
+OneCommander Pro 3.87.0.0 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мастер итальянской комедии воссоздает трагикомичную историю о туринских рабочих конца 19 века.Производство: Франция, Италия, Югославия / Авала-фильм, Lux Film S.p.a., Méditerrannée Cinéma Production, Vides CinematograficaЖанр: Драма, КриминалРежиссер: Марио МоничеллиАктеры: Марчелло Мастроянни, Ренато Сальватори, Габриэлла Джорджелли, Фолько Люлли, Бернар Блие, Раффаэлла Карра, Франсуа Перье, Витторио Саниполи, Марио Пизу, Кеннет КоувПеревод: отсутствуетСубтитры: итальянские, испанские, английские, русские (от mihailtorrent)Продолжительность: 02:04:11
+OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
+Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:469D9278B3ACEB5609820EE24D48228EFA6588AD
+magnet:?xt=urn:btih:6315CFDC3E04242092E019169513C02FAB27B461
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -151,25 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482900   (99819) от 16.04.2012
+###  Публикация: 1739610   (106067) от 28.07.2024
 
-Морг / Mortuary (1983) DVDRip
+Ant Download Manager Pro 2.13.0 Build 87959 (x32) / Build 87960 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кристи страдает от ночных кошмаров, в которых она видит своего отца-утопленника. Мать Кристи считает, что его смерть была несчастным случаем, но девушка уверена, что на самом деле произошло убийство. Вскоре Кристи замечает, что за ней начинает следить зловещий незнакомец в чёрном...Жанр: Ужасы, ТриллерРежиссер: Говард АведисАктеры: Мэри Бет МакДонаф, Дэвид Уоллес, Билл Пэкстон, Линда Дэй Джордж, Кристофер Джордж, Курт Айерс, Билл Конклин, Донна Гаррет, Грег Кэй, Дэнис МэнделПеревод: Одноголосый закадровыйПродолжительность: 01:28:54
+Ant Download Manager (AntDM) - это инструмент, позволяющий многократно увеличить скорость скачивания файлов за счет нескольких потоков загрузки, возобновления, планирования, захвата аудио и видео потоков. Автоматически обрабатывает ошибки, восстанавливается после временных сетевых ошибок, переподключается в случае задержки ответа сервера, имеет возможность возобновить (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65E0511CE430CDBA74D5D9D16F7D9898CDA6AFD7
+magnet:?xt=urn:btih:95617F266F589957DAABC674D76FA7E659C372B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -177,34 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482589   (99800) от 16.04.2012
+###  Публикация: 1739682   (106061) от 28.07.2024
 
-Minay - Покажи, пока жив (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+Firefox Browser 128.0.3 [Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Моя Сибирь
-02 - В темпе Ларго
-03 - Анти баллада о любви
-04 - На одной волне
-05 - Вера, как мода
-06 - Победа
-07 - Мимо прохожих
-08 - Каждому своя
-09 - Как правильно
-10 - Других не надо2012Жанр: Rap, Hip-HopПродолжительность: 00:32:01
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:787963FE20C1912B4536BFBA1634A3E5C3168564
+magnet:?xt=urn:btih:105A69A35DA8C7AE18DA8DFD3690E2411F109F62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,32 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484093   (99788) от 16.04.2012
+###  Публикация: 1739590   (106057) от 28.07.2024
 
-Baby D - Deliverance (1996) [MP3|320 кб/с]<Breakbeat, Hardcore, D'n'B>
+MediaHuman YouTube Downloader 3.9.9.94 (0726) RePack (& Portable) by Dodakaedr [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Baby D - Deliverance (1996)
-Год: 1996
-Жанр: Breakbeat, Hardcore, D'n'B
-Продолжительность: 01:28:06
-Лейбл: Systematic
-Страна: UKКодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:(   Читать дальше...   )
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:449DEE9AF896A1337096102D9543B43D04D3E820
+magnet:?xt=urn:btih:88F5562EC0D36EEE455ECA679883099F4FF2BA7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,34 +208,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483801   (99783) от 16.04.2012
+###  Публикация: 1739622   (106052) от 28.07.2024
 
-VA - Союз еврохитов (2012) [MP3|256 kbps]<Pop | Dance>
+Tablacus Explorer 24.7.28 Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Pink - Bridge Of Light
-02 Madonna Feat. Justin Timberlake - Latte
-03 Flo Rida Feat. Sia - Wild Ones
-04 Rihanna - You Da One
-05 Nickelback - Lullaby
-06 Britney Spears - Love 2 Love U
-07 Justin Bieber - Uh Oh
-08 Beyonce Feat. David Jassy - I Care (Remix)
-09 Dev Feat. Enrique Iglesias - Naked
-10 Bob Sinclar Feat. Sophie Ellis-Bextor - Fuck With You(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:15:13
+Tablacus Explorer - удобный в работе и простой в использовании файловый менеджер, позволяющий работать с двумя, либо четырьмя панелями, с возможностью создавать нужное количество вкладок на каждой. Tablacus Explorer дублирует все стандартные функции Проводника для работы с папками и файлами, дополняя их удобным представлением. Благодаря утилите процессы копирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1497BD6E48E88A3E74D05B62366709DA63DC243E
+magnet:?xt=urn:btih:5E139AEF6D41BF92D41C12E8E4AE3A4CAE4E6048
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,25 +234,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483723   (99780) от 16.04.2012
+###  Публикация: 1739696   (106050) от 28.07.2024
 
-[Wallpapers] Wallpapers Sexy Girls (16.04.12)
+Sumatra PDF 3.6.16506 Prerelease + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
+Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFBC1A3B28EBD3D8D166E05E3EED3059C4AE21A6
+magnet:?xt=urn:btih:74E90E2DDE3E5D1E106D3DDA46B08E58ED1453E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,25 +261,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483864   (99775) от 16.04.2012
+###  Публикация: 1739559   (106044) от 28.07.2024
 
-[Wallpapers] Wallpaper Sexy Girls 0.7
+WinMerge 2.16.42.1 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+WinMerge является Open Source инструментом сравнения и слияния для Windows. WinMerge может сравнивать как файлы (Windows, Unix и Mac), так и папки, отображая различия в визуальной текстовой форме, которые легко понять и обработать.
+WinMerge является весьма полезной для определения мест, которые изменились между версиями проекта, а затем она позволяет объединять изменения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58BDFAC662AC5F05512ABCBFBAD15B126C1C12E9
+magnet:?xt=urn:btih:DF50B58CA6D847FF247F84A368C1935FD0B196CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,34 +288,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482740   (99774) от 16.04.2012
+###  Публикация: 1739578   (106040) от 28.07.2024
 
-DJ Kocmoc - Electro Sensation vol.24 (6.04.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+Ant Download Manager Pro 2.13.0 Build 87959 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Adele - Set Fire To The Rain (Party & Stylez & D-Vine Remix)
-02. Scotty - Children (DJ's From Mars Club Mix)
-03. Albert Kick - Evil Girl (Club Mix)
-04. DJ Brainstorm - Nessaja (Rene De La Mone & Slin Project Remix)
- 05. Beach feat. Inusa Dаwuda - Revolution 2012 (Club Mix)
-06. ATB - Till I Come (Ido Shoam Bootleg Mix)
- 07. Disco Superstars - Sadness (Extended Mix)
-08. Misha Zam - Angry Toy (Original Mix)
- 09. Dub Deeays - Up & Down (Slayback Remix)
- 10. Dirty Rotten Disco - Jack To The Sound (DJ's From Mars Club Mix)(   Читать дальше...   )6.04.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:53:00
+Ant Download Manager (AntDM) - это инструмент, позволяющий многократно увеличить скорость скачивания файлов за счет нескольких потоков загрузки, возобновления, планирования, захвата аудио и видео потоков. Автоматически обрабатывает ошибки, восстанавливается после временных сетевых ошибок, переподключается в случае задержки ответа сервера, имеет возможность возобновить (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A583B4D6F87A6B5BE944F42EE910495E880E098
+magnet:?xt=urn:btih:66DF62110645C6CCA0E0C139E245E9B7A98316D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,34 +314,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483699   (99773) от 16.04.2012
+###  Публикация: 1739657   (106037) от 28.07.2024
 
-VA - Dance Explosion  (2011) [MP3|320 кб/с]<Dance>
+Firefox Browser 128.0.3 (x86/x64) Portable by 7997 [Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Sara Sofia - Ohe Oha Vas A Sonar (French radio edit) (3:34)
-2. Loona - El Tiburon (radio edit) (3:00)
-3. The Potbelleez - From The Music (original edit) (3:10)
-4. Radio Killer - Don't Let The Music End (video edit) (3:00)
-5. Avicii - Fade Into Darkness (radio vocal mix) (3:17)
-6. Nora Hilton - Freaky Boyz (radio edit) (3:05)
-7. J Pearl - Must Be A Reason Why (feat Shayne Ward - Guy Katsav radio edit) (2:36)
-8. Laurent Wery – Hey Hey Hey (Pop Another Bottle) - Radio Mix (3:05)
-9. Christopher S - One Day (feat Max Urban) (3:07)
-10. David Latour - Venus vs Mars (radio mix) (3:17)2011Жанр: DanceПродолжительность: 01:07:10
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FC000CEE496862CC244767639D477165240FCCB
+magnet:?xt=urn:btih:218E919D8D5C7CB5AA4375010A15C952289710CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,25 +340,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483783   (99772) от 16.04.2012
+###  Публикация: 1739519   (106036) от 28.07.2024
 
-Газета | 1000 секретов [Украина] №7 [апрель 2012] [PDF]
+Radiant Photo 1.4.1.501 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание для всей семьи, по крупицам собирающее народную мудрость по множеству житейских вопросов. Практические советы читателей и специалистов выручат в любой ситуации. Консультации юриста, советы психолога, народная медицина, дача и огород, рукоделие, кулинария, конкурсы, призы и многое другое.Формат: PDF
+Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:192B7D5D904D38EC91740B082E1D9E3EFBBD3788
+magnet:?xt=urn:btih:2767E114A49448906050D75BDB676533AA32E593
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,34 +366,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483190   (99765) от 16.04.2012
+###  Публикация: 1739517   (106035) от 28.07.2024
 
-VA - A Psychedelic Journey Vol.1 (2012) [MP3|320 кб/с]<psychedelic, full on>
+DVDFab StreamFab 6.1.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dune - firewall
-02. Uriyah and Safi Connection - spliff it up
-03. Miditec - botanical seduction
-04. Waio and Aquarius - different reality
-05. Digital Tribe vs Smosh - in a dream
-06. Power Control - tears
-07. Kido - clock wise
-08. Uriyah - spiritual reality
-09. Indra - mechanical
-10. Didrapest and System Failure - overdrive(   Читать дальше...   )2012Жанр: psychedelic, full onПродолжительность: 01:43:09
+DVDFab StreamFab — это удобный и мощный инструмент для загрузки, конвертирования и записи видео-контента. StreamFab поддерживает загрузку видео с большого количества онлайн-сервисов и позволяет пользователям загружать видео в различных форматах и качестве. С помощью StreamFab пользователи могут конвертировать загруженное видео в различные форматы, размеры и разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E837AFE5451BC85980D01FDDDD3BD0BF443328FD
+magnet:?xt=urn:btih:44E1D7FB216B872F4D7C8C73EEC34A1CC911644F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,25 +392,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483731   (99758) от 16.04.2012
+###  Публикация: 1739481   (106031) от 28.07.2024
 
-[Wallpapers] Sexy Girls Pack Wallpapers (16.04.12)
+Inazuma Eleven: Ares no Tenbin | Одиннадцать Молний: Весы Ареса [2018, TV, 26] HDTVRip 720p HS
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Ares изображает альтернативный канон после событий первого сезона оригинального аниме Inazuma Eleven после их победы в Football Frontier, при этом инопланетная атака из второго сезона так и не произошла. Когда японский футбол был признан слабым по сравнению с международной конкуренцией, Raimon Eleven распалась, а ее члены перешли в разные футбольные команды по всей (   Читать дальше...   )Производство: OLMЖанр: спортРежиссер: Камакура ЮмиЯзык озвучки: ЯпонскийСубтитры: Русские (неотключаемые)Продолжительность: 26 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E473B1E2014D3AE88715037C284838637ED0CCC0
+magnet:?xt=urn:btih:F8CA2B2C74BB231A4C462B34DEA55436D0D3994C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,29 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483951   (99752) от 16.04.2012
+###  Публикация: 1739465   (106027) от 28.07.2024
 
-[Wallpapers] Avto Wallpapers №5
+Ocenaudio 3.14.1 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers №5
-Название: Avto Wallpapers №5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Ocenaudio — аудиоредактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A2A674B0881C3DF01D555F9BAB90EA99B182011
+magnet:?xt=urn:btih:8878C93953120FDD0A4921112B51791342CD6CC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,25 +444,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483729   (99747) от 16.04.2012
+###  Публикация: 1739571   (106026) от 28.07.2024
 
-[Wallpapers] Wallpapers Sexy Girls Pack (16.04.12)
+Perfectly Clear WorkBench 4.6.1.2681 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAB62AE471ED1E224FD1FEE1F8B09C2079C7E33F
+magnet:?xt=urn:btih:6BEED7AA496EDBBD5897951E37398A4F0E91BA0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -545,25 +471,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483693   (99744) от 16.04.2012
+###  Публикация: 1739598   (106024) от 28.07.2024
 
-[Wallpapers] Wallpapers Sexy Girls Pack (15.04.12)
+MediaHuman YouTube to MP3 Converter 3.9.9.94 (0726) RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9F8B3A04BA2114C883DD296F9F5CA0D47F65571
+magnet:?xt=urn:btih:65A2EE83129F3AF1BBC2930E47C72FCE0752C231
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,25 +497,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483909   (99742) от 16.04.2012
+###  Публикация: 1739542   (106023) от 28.07.2024
 
-[Wallpapers] Sexy Girls Pack Wallpapers (17.04.12)
+PrivaZer Pro 4.0.91 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:493DA62E5A8C48CA357E7E7B5F31DC253F47F442
+magnet:?xt=urn:btih:94DCEEBDF2A40F1B649AD475582244664237C537
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,25 +523,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483692   (99740) от 16.04.2012
+###  Публикация: 1739678   (106019) от 28.07.2024
 
-[Wallpapers] Sexy Girls Pack Wallpapers (15.04.12)
+Firefox Browser 128.0.3 Portable by PortableApps [Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80D3F87F4FEA88CA90E60831AB514EC09CEFE5FE
+magnet:?xt=urn:btih:BBE99898A51D02432D2E9592309625BBF879C14B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,34 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483742   (99735) от 16.04.2012
+###  Публикация: 1739521   (105998) от 28.07.2024
 
-VA - Фестиваль лучших хитов 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
+Photo Supreme 2024.2.2.6605 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dev Feat. Enrique Iglesias - Naked
-002. Nadi - Птица
-003. Marlon Roudette - New Age
-004. Rihanna - Man Down
-005. Горячий Шоколад - Без Ума (Dj Vengerov Remix)
-006. Sunstroke Project Ft Offbeat - Epic Sax
-007. Itaka - La Danza De Ibiza
-008. Олеся Астапова Feat. Слава Фактор - Не Жди Меня
-009. Coldplay & Rihanna - Princess Of China
-010. Dvj Electra & Soundstaff - На Всю Катушку(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:18:42
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:547ACA1E955CE5258C9ABF92033A304126DC1946
+magnet:?xt=urn:btih:462CC3CB6B1D0395359BC42872523B2860464788
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,25 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483910   (99733) от 16.04.2012
+###  Публикация: 1740173   (105964) от 31.07.2024
 
-[Wallpapers] Animals Wallpapers (17.04.12)
+Sandboxie plus 1.14.6 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105964.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:773F9EFF200248887A49C923734F336F2C5C5475
+magnet:?xt=urn:btih:8BD7CD3D2C14267A61310DCC363F6EE515985BB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,34 +601,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483278   (99730) от 16.04.2012
+###  Публикация: 1740109   (105959) от 31.07.2024
 
-Fomento - To Persevere Is Diabolical (2012) [MP3|~245 кб/с (V0)]<Thrash Metal>
+4K YouTube to MP3 5.5.2.0111 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105959.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beware The Ides Of March 01:28
- 02. The Skeleton Coast 03:28
- 03. Devil's Trill 03:39
- 04. The Dysteleological Argument 03:54
- 05. Predominance 04:36
- 06. Monster Mobster 03:14
- 07. Desecrators 03:30
- 08. Blood Pact 03:52
- 09. The Mud Machine 03:09
- 10. In The Sixth Day 03:17(   Читать дальше...   )2012Жанр: Thrash MetalПродолжительность: 00:40:51
+4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C915C478D180620073DC31BE57EF29FB5F3C2A9B
+magnet:?xt=urn:btih:2F9AC926FA6F4C0E202BB23411A67944D0C00786
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -719,29 +627,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483941   (99729) от 16.04.2012
+###  Публикация: 1740208   (105957) от 31.07.2024
 
-[Wallpapers] HD Wallpapers №13
+Vivaldi 6.8.3381.50 include standalone [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105957.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers №13
-Название: HD Wallpapers №13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF22CB313D184DB8AA08D2DA66A18136F80A8489
+magnet:?xt=urn:btih:BD699AE68B61CB0F1D702633D6442946CDCAB58E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -749,29 +653,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483939   (99728) от 16.04.2012
+###  Публикация: 1740188   (105955) от 31.07.2024
 
-[Wallpapers] Best Wallpapers Pack 14
+Joplin 3.0.14 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Best Wallpapers Pack 14
-Название: Best Wallpapers Pack 14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Joplin - это бесплатное приложение для создания заметок и дел с открытым исходным кодом, которое может обрабатывать большое количество заметок, организованных в блокноты. Заметки доступны для поиска, их можно копировать, помечать и изменять либо непосредственно из приложений, либо из вашего собственного текстового редактора. Заметки в формате Markdown.
+Заметки, экспортированные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5090CB7B3BB22696AA54F6041FEB19B1992033F
+magnet:?xt=urn:btih:5C813D93F974D1C88647D12EA28CA48397ADC789
 ```
 
 https://mybot314.ru/tekegram_catalog/

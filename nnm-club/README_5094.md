@@ -1,48 +1,22 @@
-###  Публикация: 1000799   (857293) от 26.03.2016
+###  Публикация: 1108824   (861078) от 26.02.2017
 
-Как заниматься любовью по-английски / How to Make Love Like an Englishman (2014) Blu-ray [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма вращается вокруг профессора Кембриджского университета, избравшего в качестве своего девиза изречение уайльдовского лорда Генри из «Портрета Дориана Грея»: «Единственный способ отделаться от искушения — уступить ему». Однажды профессор решает завязать с бесконечным потоком романов и завести семью с молодой американской подружкой — раз уж она внезапно (   Читать дальше...   )Производство: США, Великобритания / Das Films, Envision Entertainment, Irish DreamTimeЖанр: мелодрама, комедияРежиссер: Том ВонАктеры: Пирс Броснан, Сальма Хайек, Джессика Альба, Малкольм МакДауэлл, Дункан Джойнер, Бен МакКензи, Меррин Данги, Фред Меламед, Иван Сергей, Ломбардо БойярПеревод: Дублированный (звук с iPTV)Язык субтитров: Английский, ФранцузскийПродолжительность: 01:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B1FBBB2E71DBC9D0B684505F87DAFA0E7D8D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109806   (857292) от 28.02.2017
-
-EZ CD Audio Converter 5.3.0.1 Ultimate RePack (& Portable) by elchupacabra [Ru/En]
+BBEdit 11.6.4 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский
+BBEdit - популярный текстовый и HTML редактор. Эта программа специально разработана для удобного редактирования текста, поиска, трансформации, создания HTML-тегов, написания и правки кода программ в различных языках программирования. BBEdit создан непосредственно для программистов и разработчиков, то есть для людей, которым приходится иметь дело с кодами программ (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 февраля 2017Разработчик: Bare Bones Software, Inc.Поддерживаемая ОС: OS X 10.9.5 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B58766F63E1565F8F0584B4909827947EA7B36A
+magnet:?xt=urn:btih:1C1D28CD3D7624C4DFD7A964DAB49F158EA5AB58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,164 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109487   (857291) от 28.02.2017
+###  Публикация: 1108743   (861077) от 26.02.2017
 
-Fluid Browser 1.5 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fluid Browser - Создан для многозадачности
-Fluid  представляет собой «плаваующий» браузер, построенный для просмотра ваших любимых страниц с медиаконтентом, как Netflix, Youtube и Hulu прямо рядом с вашей работой. Fluid работает так же, как любой другой браузер, но со своими отличительными особенностями …
-
-Fluid находится поверх открытых приложений и может быть легко (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 февраля 2017Разработчик: Defy Marketing LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDFF305B68A89209DF647C0083A19D8DA43F761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109519   (857290) от 28.02.2017
-
-VA - Стопудовые зимние хиты от Европы Плюс выпуск № 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857290.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Olly Murs - Years & Years 4:02
-002. Dragonette - Future Ghost 3:36
-003. Malika - Разожги Во Мне Пламя 4:59
-004. Goldroom - Back To You 4:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F60876D6747996860C0527EDC27E1E9C560CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109586   (857289) от 28.02.2017
-
-Канал / The Channel  (2016) BDRip [H.264/720p] [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пережив предсмертный опыт, девушка обнаруживает, что она стала каналом для входа злого духа в ее жизнь.Производство: СШАЖанр: ужасы, триллер, драмаРежиссер: Том ЛьюисАктеры: Кристен СтефенсонПино, Ник Кларк, Эндрю Олсон, Джаред Богосян, Кэрол Энн Уоттс, Коррин Эванс, Майрон Нэтвик, Ларрс Джексон, Донна Руш, Кимберли Спак, Мэтт Вебер, Лэси ДаймондПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FC608CD84156801B58EEA171A6331CB3A9884F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109630   (857288) от 28.02.2017
-
-FORPHEUS - робот-тренер, удостоившийся почетного места в Книге Мировых рекордов Гиннеса
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_857288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы интересуетесь уроками игры в настольный теннис, то новый робот, разработанный специалистами известной японской компании Omron Corp., является именно тем, что вам нужно. Этот робот, получивший название FORPHEUS, обладает столь изощренными обучающими навыками и способностями, что он был удостоен за это почетного места в Книге Мировых рекордов Гиннеса.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109638   (857287) от 28.02.2017
-
-Журнал | Рыболов №3 (март 2017) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857287.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Рыболов"- информационно-познавательное издание. Любопытные истории, лирические рассказы, меткие наблюдения любителей ужения, рекомендации и комментарии по самым разным аспектам рыболовства, секреты традиционных способов ловли и изготовление снастей своими руками.Жанр: Рыбная ловля, хоббиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5A59F6B36EDD079E18C018FD0ED2687FC03757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109513   (857286) от 28.02.2017
-
-VA - IBIZA Deep: The Deep House Opening Party 2017 (60 Hot Summer Tunes) (2017) [MP3|320 Kbps] <Deep House>
+VA - Deep House Connection Vol.2 Night Selection (2017) [MP3|320 Kbps] <Deep House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. House of Coco - Give Me Your Hand 3:45
-002. Stefan Pascho - Erase the Fear 3:26
-003. KayJay - Everyone's A Winner 2:58
-004. Soul Express - World Master 3:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:35:27
+001. Zhukhevich - Flowers Energy 3:44
+002. Chris Coulen - S.M. 4:21
+003. Andrey Butuzov & 7Sky Project - Empty Streets - Original Mix 4:05
+004. The Mord - New Year in City Deep 4:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:509805C00A0956543B0D6D218FDE5F1AC11E52AB
+magnet:?xt=urn:btih:B01A5F9C1B2056DEFCE827D0DE192A6F30F3DACB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,25 +53,306 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109763   (857285) от 28.02.2017
+###  Публикация: 1108665   (861076) от 26.02.2017
 
-Журнал | Рейс №2 (120) (февраль 2017) [PDF]
+VA - Winter Dream Lounge Spa Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Caribbean Dreams
+02. Enrico Donner - Wind of the Spirit
+03. Cane Garden Quartet - Ageless
+04. Arrojas - Destinations(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC2AC2C1B5F64467E302BBA11896F3271C4A902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108889   (861075) от 26.02.2017
+
+VA - Lounge System Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga - Yellow Leaves
+02. Steen Thottrup - Waterdrops
+03. Vega Ray - Track in Rhythm
+04. Jack Izzard - Deep Relax - Chillin' Groove Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B002C03F5A3A2D4390334F0E9E325C1E722F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108735   (861074) от 26.02.2017
+
+VA - Chillout De Paris (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861074.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arrojas - Cala de Piedras 5:58
+002. Rey Salinero - Recuerdos 5:59
+003. Lamar Ensemble - Stay Sharp 5:37
+004. Diario - Ancient Stone Steps 5:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4C8629B8E0F3DDAD1C7F5FCC987931918B0774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108893   (861073) от 26.02.2017
+
+VA - Midnight Lounge Vol.28 Lounge Experience (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861073.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yiorgos Magoulas - Terra nostalgica 5:03
+002. Andrew Lousianin - Rainy Season 3:45
+003. Bruce Maginnis - Eastern Sunset 3:38
+004. Francesco Gazzara - Balearic 4:57(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0599B4E9CAC8EFAFE0EB4B7DA546CB24B0AB85F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109004   (861072) от 26.02.2017
+
+VA - Proper Vibes (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Huf - Rise to It (05:58)
+02. Edemin - Jungl (03:49)
+03. Luck Bravo - Liberty (05:10)
+04. Richi Giges - With Chocolate (04:36)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E8DDA41F2B345C1F464DC96D2275C39CB00B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108903   (861071) от 26.02.2017
+
+VA - Sirup Deep Anthems Dubai (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nora En Pure - Lake Arrowhead - Radio Mix 3:36
+002. Sons Of Maria - Chimera - Radio Mix 4:07
+003. Kyle Watson - Sink Deep 3:35
+004. Croatia Squad - Do It Again - Radio Mix 3:20(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36910875697E9AC3FB00D4D38F68C3C1150CA540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108962   (861070) от 26.02.2017
+
+Pristine - Reboot (2015) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Derek (3:50)
+02. All Of My Love (2:51)
+03. All I Want Is You (6:17)
+04. Bootie Call (2:05)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF29C05BC90D1CE91D5E7ABE4E5EDFBD59529A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189648   (861067) от 06.04.2010
+
+Мама не горюй (1997) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Была свадьба. Гуляли реальные люди. Чисто конкретно пели-плясали, отдыхали по-человечески. И развели их на драку. Морячок взял да и огрел стулом Туриста. Чтоб к невесте не приставал. А Турист был серьезный мужчина. И потому сразу образовались такие разборки, что мама не горюй! Морячок с собственной свадьбы сделал ноги, и наутро его уже искали милиция, киллеры, родственники (   Читать дальше...   )Производство: Россия,   К/ст им.Горького, Кинокомпания СТВЖанр: Комедия, криминалРежиссер: Максим ПежемскийАктеры: Гоша Куценко, Николай Чиндяйкин, Сергей Колтаков, Евгений Сидихин, Сергей Векслер, Валерий Приёмыхов, Иван Охлобыстин, Андрей Панин, Маша Бакланова, Мария Машкова, Елена Шевченко, Александр Баширов, Нина Русланова, Иван Бортник, Олеся Судзиловская, Дмитрий Петухов, Виктор Вержбицкий, Анатолий Мамбетов, Сергей ДанилевичПродолжительность: 01:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F2F64F753FCC58ED99B21E6ACE040F8281E0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189811   (861059) от 06.04.2010
+
+Atlas - Прогревочный и размагничивающий диск (2006) [FLAC|Lossless]<Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861059.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Atlas burn-in & demagnetizing disc (00:10:41)Жанр: TestПродолжительность: 00:10:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189635   (861057) от 06.04.2010
+
+Microsoft Office 2007 MSDN (English) [01/04/2010]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office предоставляет удобные и простые средства для увеличения продуктивности работы отдельно взятой персоны, а также упрощения командной работы, оптимизации бизнес-процессов и документооборота, а также проведения бизнес-анализа. Полностью пересмотрены существующие принципы организации пользовательского интерфейса для того, чтобы облегчить конечным пользователям (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874770   (861005) от 04.03.2015
+
+Журнал | Linux Format №2 (193) (февраль 2015) [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Рейс» - специализированный бизнес-журнал о коммерческом транспорте. Издание рассказывает о том, как меньше потратить и больше заработать на перевозках грузов и пассажиров. Журнал «Рейс» предназначен для владельцев, руководителей, топ-менеджеров и специалистов автотранспортных предприятий, эксплуатирующих коммерческую технику. Помимо экономических вопросов в издании (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+Linux Format - первый в России ежемесячный журнал на русском языке, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью.Жанр: Компьютерный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF7B08413DDE85FB7CA54D908156808D68C258A4
+magnet:?xt=urn:btih:D0FF2850356D2CF8F46358AFEC10A57421D0246D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,25 +360,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109916   (857284) от 28.02.2017
+###  Публикация: 1108857   (861004) от 26.02.2017
 
-В.С. Христофоров и др. | Контрразведка ВМФ СССР. 1941—1945 (2015) [PDF, DJVU]
+O.R.k. - Inflamed Rides (2015) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 
->>Научная и техническая литература
->>Военная литература
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящее издание посвящено деятельности контрразведки советского Военно-морского флота в Великой Отечественной войне. Авторский коллектив предпринял попытку критически осмыслить, обобщить и сопоставить информацию, содержащуюся в нормативных документах, материалах текущего делопроизводства, трофейных документах, архивных уголовных и личных делах. В результате проведенного (   Читать дальше...   )Жанр: Военная историяФормат: PDF, DJVU
+01. Jellyfish (3:55)
+02. Breakdown (4:36)
+03. Pyre (4:43)
+04. Funfair (4:21)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:50:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:389C94403ED3E5198565EA2EBE82B0697C8AA50A
+magnet:?xt=urn:btih:A831F9225D56FBF91A3FFC60B4ECA63F2A3FFFE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,25 +389,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109792   (857283) от 28.02.2017
+###  Публикация: 1108850   (861003) от 26.02.2017
 
-Super PhotoCut Pro 2.6.2 [En]
+Knight Area - Heaven and Beyond (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Neo Progressive>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Super PhotoCut интерактивный инструмент для вырезки/отделения переднего плана объекта из фотографий. Собственной, лучший в своем классе алгоритм инструмент маскирования, мгновенно удалит сложные фоны и сделать их прозрачными всего лишь несколькими щелчками мыши. В отличие от существующего программного обеспечения для обработки изображений на рынке, Super PhotoCut (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24 января 2017Разработчик: EffectMatrix Inc.Поддерживаемая ОС: 10.7+Язык интерфейса: Английский
+01. Unbroken (7:06)
+02. Dreamworld (5:14)
+03. The Reaper (7:11)
+04. Box Of Toys (3:47)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 01:02:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0ABBB2F07577EAF903C2B285F7CA9241261B68D9
+magnet:?xt=urn:btih:B1BD56D45B9181F23667ECF358963053DE66C74B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,28 +418,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109804   (857282) от 28.02.2017
+###  Публикация: 1108965   (861002) от 26.02.2017
 
-CalendarPro for Google 2.3.3 [En]
+Gerry Mulligan & Ben Webster - Gerry Mulligan meets Ben Webster (1959) 1998, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Организация никогда не была такой простой !! Вы никогда не пропустите любое важное событие!!
-CalendarPro for Google - приложение календарь-Google с интуитивным дизайном. Программа имеет простой и аккуратный внешний вид с высоким быстродействием и надежностью.
-
-CalendarPro for Google успешно оптимизированный Google Calendar и впишется в ваши нативные приложения. CalendarPro (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 февраля 2017Разработчик: AppEaseПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+01.Chelsea Bridge [07:23]
+ 02.The Cat Walk [05:47]
+ 03.Sunday [07:26]
+ 04.Who's Got Rhythm [07:42](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:16:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B15FA24D650B8498A26CF79FC4A7C3D1D1D7C43
+magnet:?xt=urn:btih:207A96EEDC24A20AF4DB013EB982FA6F12019C50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,26 +447,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109753   (857281) от 28.02.2017
+###  Публикация: 1108471   (861001) от 26.02.2017
 
-AnyTrans 5.5.1 [Multi]
+VA - Easy Sun Lounger, Born to Be Cool Chillin, Vol.3 (Finest Chill Out Lounge & Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AnyTrans - Управляем своими файлами вместе с AnyTrans
-AnyTrans - файловый менеджер, который отвечает за перемещение файлов с персонального компьютера на устройство iOS. Для более легкого обучения пользования всеми функциями менеджера предусмотрен специальный режим легкого и быстрого обучения "iWizard", который последовательно проведет вас через необходимые (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 февраля 2017Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Испанский и др
+01.  York & Nathan Red feat. Kim Sanders - How Did I Fall In Love  8:01
+02.  351 Lake Shore Drive - Time  5:09
+03.  Bob Zopp - California Sun  5:11
+04.  Roberto Bronco - Diving Deeper  5:22(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58AEB302BB4C1BE81095AB73DB9030209B7DB272
+magnet:?xt=urn:btih:C48385FC78ABF0A339CDFDB947B1D8C0DBC113F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,25 +476,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109632   (857280) от 28.02.2017
+###  Публикация: 1109012   (861000) от 26.02.2017
 
-Журнал | Дом и Интерьер №3 (март 2017) [PDF]
+The TIP - The TIP (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Rock'n'Roll>
 
->>Журналы
->>Домоводство (журналы)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Международный журнал о дизайне "Дом & интерьер" – издание для всех, кому интересны модные тенденции в области создания интерьеров; искусство, антиквариат, шедевры мировой архитектуры.Жанр: ДомоводствоФормат: PDF
+01. Welcome To The Night (4:08)
+02. All I Need (3:33)
+03. Outta Control (3:51)
+04. Love Me E'ry Woman (5:16)(   Читать дальше...   )Жанр: Hard Rock, Rock'n'RollПродолжительность: 00:43:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:798C343BBC203AC298E5394DD6A5373BBF6E6D71
+magnet:?xt=urn:btih:BCA4EDC031C0A223405CC70B4E14BF83B7940BEA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,25 +505,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109491   (857279) от 28.02.2017
+###  Публикация: 1108944   (860999) от 26.02.2017
 
-Резня на мельнице / The Windmill Massacre  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+VA - Music For Everyone - Deep House & Nu Disco Vol.5 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Туристы отправляются в тур по всемирно известным ветряным мельницам Голландии. И у каждого туриста есть причина оказаться в этом автобусе. Но в середине пути их автобус ломается, а они находят укрытие в одной заброшенной мельнице, где их начинает вырезать по одному маньяк с косой.Производство: НидерландыЖанр: ужасы, драмаРежиссер: Ник ЙонгериусАктеры: Ноа Тейлор, Шарлотта Бомонт, Патрик Балади, Бен Бэтт, Фиона Хэмптон, Адам Томас Райт, Танро Исида, Маттейн Хартеминк, Фемке Лакервельд, Барт Клевер, Кенан Рэйвен, Эдо БруннерПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:24:44
+1. Overlay - Sunshine (Original Mix)
+2. Lenno - Good Thing (Re-Edit)
+3. Marco Cavax & Cue feat. Snoop Dogg & Leiner - All The Love You Got (Original Mix)
+4. Me & My Toothbrush - Air Miles (Original Mix)(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:19:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C77A0EEA160B53C19F799959908983F743C5A164
+magnet:?xt=urn:btih:8747B65432161A09D626713C568E7A23985CE1BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,25 +534,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109628   (857278) от 28.02.2017
+###  Публикация: 1108506   (860998) от 26.02.2017
 
-Новый материал, графено-нанотрубочная "пена", способен выдержать вес, в 3 тысяч раз превышающий его собственный
+VA - Don't Let Daddy Know - Amsterdam (The Official 2017 Compilation) (2017) [MP3|320 Kbps] <House, Electro House, Big Room>
 
->>Поговорим
->>DailyTechInfo
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_857278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Графен известен всем в большей части как первый двухмерный материал, полученный учеными. Однако, его тончайшая плоская двухмерная структура как раз и является препятствием к использованию целого ряда удивительных свойств графена, высочайшей механической прочности, легкости и отличной проводимости по отношению к электричеству и теплу. Не так давно ученые из Массачусетского (   Читать дальше...   )
+01.  Dimitri Vegas & Like Mike vs Ummet Ozcan - The Hum (Original Mx)  3:31
+02.  Tiesto & Mike Williams - I Want You (Original Mx)  2:49
+03.  Martin Garrix & Third Party - Lions In The Wild (Original Mx)  3:32
+04.  Major Lazer & Showtek - Believer (Original Mx)  3:44(   Читать дальше...   )Жанр: House, Electro House, Big RoomПродолжительность: 01:08:09
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4ED48DB3D792B4C96EE6F5FFF9927A27AC47C00D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,25 +563,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109633   (857277) от 28.02.2017
+###  Публикация: 1108958   (860997) от 26.02.2017
 
-Журнал | 5 Колесо №3 (287) (март 2017) [PDF]
+Sharon Lewis & Texas Fire - Grown Ass Woman (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
 
->>Автомобили
->>Автомобильные журналы
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"5 колесо" - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей.В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+01. Can't Do It Like We Do (4:20)
+02. Hell Yeah! (3:29)
+03. Chicago Woman (4:34)
+04. They're Lying (5:08)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:57:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:028A632D34A401ECD338A39A80E5BB7547807DDF
+magnet:?xt=urn:btih:DC4EA1E3F7C48C18919A085B5933DB619875C5C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,27 +592,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109778   (857276) от 28.02.2017
+###  Публикация: 1109167   (860996) от 26.02.2017
 
-М. Зеленцова | Поваренная книжка. Подарок молодым хозяйкам (1894) [PDF]
+Trickster - Find The Lady (1977) 2006, Strange Days Records [MP3|320 Kbps] <Classic Rock>
 
->>Разное (категория книг)
->>Кулинария
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Руководство к приготовлению дешевого и вкусного стола.
-Двести пятьдесят блюд.
-С прибавлением различных вод, наливок, кислых щей, квасов ягодных, мороженого и проч.Жанр: Кулинария, РаритетФормат: PDF
+01. Listen To My Music
+02. Rich Man
+03. Louise
+04. Miles And Miles Away(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:56:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A00989622711217ABB5E0ED1794AB3940FE8B238
+magnet:?xt=urn:btih:079090DC17453F596BC07BB96681F7559E56A6AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,25 +621,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109570   (857275) от 28.02.2017
+###  Публикация: 1109023   (860995) от 26.02.2017
 
-Торрент-трекер Mininova закроется в апреле 2017 года, проработав 13 лет
+The Hollerin Sluggers - The Promised Land (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Blues-Rock>
 
->>Поговорим
->>Новости
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_857275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Торрент-трекер Mininova был основан пятью голландскими студентами и появился на свет в 2004 году. Тогда Mininova являлся клоном другого популярного трекера, который закрылся незадолго до этого, Suprnova.org. Хотя подражателей тогда появились десятки, Mininova, использовавший пользовательскую базу предшественника, быстро выбился в лидеры и стал одним из наиболее популярных (   Читать дальше...   )
+01. Come On Over (4:03)
+02. String Of Pearls (6:18)
+03. Devil At The Liquor Store Blues (3:32)
+04. Reap What You Sow (4:46)(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 00:40:52
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:927EE493E73C61F73F89FDC74B0B3CDF49820B60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,25 +650,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109444   (857274) от 28.02.2017
+###  Публикация: 1109007   (860994) от 26.02.2017
 
-Барышня и хулиган (2017) WEB-DL [H.264/1080p-LQ] (серии 1-4 из 4)
+The Like - Release Me (2010) [MP3|~190 Kbps (V2)] <Indie Rock>
 
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сёстры Ирина и Анастасия похожи внешне, но по характеру совершенно разные. Школьная учительница Ира – скромница, в то время как младшая Настя, певица в ночном клубе, – полная её противоположность. Однажды Настя просит сестру выручить, на время заменив её на работе. Безотказная Ира соглашается, но когда приезжает в дом сестры, обнаруживает окровавленный труп неизвестного (   Читать дальше...   )Производство: Россия / NRG Film,Про100фильмЖанр: детективРежиссер: Олег ШтромАктеры: Анастасия Савосина, Наталия Быстрова, Дмитрий Исаев, Александр Пашков, Максим Митяшин, Максим Мальцев, Юлия Майборода и др.Продолжительность: ~00:44:00 серия
+01. Wishing He Was Dead (02:53)
+02. He's Not A Boy (02:35)
+03. Release Me (03:03)
+04. Walk Of Shame (02:15)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:37:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC6AED41A13BACBEAF686787B1C373C75B17E81E
+magnet:?xt=urn:btih:4E84F5D36C1B2AAF9D284D94E47F0D2680528EE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,27 +679,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109673   (857273) от 28.02.2017
+###  Публикация: 1109008   (860993) от 26.02.2017
 
-Mail Designer Pro 3 v3.3.0 [En]
+Ben Poole - Time Has Come (2016) [FLAC|Lossless|image + .cue] <Classik rock, Blues-Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mail Designer Pro позволяет создавать информационные бюллетени с гибкой конструкцией для настольных и мобильных устройств. Мобильный просмотр делает его легче и позволит оптимизировать ваш дизайн бюллетеня для целого ряда различных мобильных устройств.
-
-С Mail Designer Pro Вы сможете оптимизировать ваш контент для мобильных телефонов и просмотреть все изменения на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13 февраля 2017Разработчик: equinux AGПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский и Немецкий
+01. Lying To Me (4:11)
+02. I Think I Love You Too Much (6:40)
+03. Longing For A Woman (3:49)
+04. If You Want To Play With My Heart (3:39)(   Читать дальше...   )Жанр: Classik rock,  Blues-RockПродолжительность: 00:49:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F410BD9C308491679BBAB4E678EA1337F51A7966
+magnet:?xt=urn:btih:0AB29606D246D98C5B9828F1E8B4156C4414514B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,132 +708,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000657   (857268) от 26.03.2016
+###  Публикация: 1109204   (860992) от 26.02.2017
 
-Грешная земля / Unhallowed Ground (2015) HDRip
+Лучше всех (2017.02.26) SATRip (сезон 2, выпуск 3)
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа привилегированных студентов хочет провести ночь патрулируя престижную Dhoultham школу. Однако вскоре превращается в наихудшую ночь своей жизни, когда они столкнулись с взломщиком, сверхъестественных духов и зла.Производство: ВеликобританияЖанр: Ужасы, триллерРежиссер: Расселл ИнглэндАктеры: Амит Чана, Поппи Дрейтон, Маркус Гриффитс, Томас Ло, Эндрю Льюис, Рейчел Петладвала, Моргана Полански, Уилл Торп, Ричард ДеррингтонПеревод: Любительский двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:33:01Реклама: Отсутствует
+Новое детское телевизионное шоу талантов, куда приглашаются юные участники от трех до 12 лет. Если ваш ребенок проявляет экстраординарные способности, то его ждут в нашем шоу!Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:17:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C33D74DCBE2CF3FDF9B0441FC487837572A49826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000721   (857265) от 26.03.2016
-
-Журнал | Playboy [Россия] №4 (Апрель 2016) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy (Плейбой) — имя, ставшее легендой. Популярнейший во всем мире глянцевый мужской журнал появился в России в 1995 году и очень быстро стал самым востребованным изданием в своей категории. Playboy охватывает очень широкий тематический спектр: самые красивые женщины мира, эффектные пикториалы и эксклюзивные съемки знаменитостей, яркие фоторепортажи со светских (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61EA70C5C050943B8C3BC2CD6ECF18B1E31B9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000688   (857263) от 26.03.2016
-
-Человек-схема / Circuitry Man (1990) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отравленный воздух, подземные города и животные-мутанты составляют мир фильма. Мир ближайшего будущего, в котором компьютерные программы становятся наркотиком по выбору молодого поколения программируемых людей, а война ведется в электронных системах противников. Человек-схема преследует прекрасную телохранительницу Лори и Дэннера, андроида, запрограммированного на (   Читать дальше...   )Производство: США / IRS Media, Skouras PicturesЖанр: Фантастика, БоевикРежиссер: Стивен ЛовиАктеры: Джим Метцлер, Дана Уиллер-Николсон, Лу Леонард, Вернон Уэллс, Барбара Элин Вудс, Деннис Кристофер, Стивен Боттомли, Барни Бурман, Энди Голдберг, Гэрри ГудроуПеревод: Многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FFC74CA50744B819440B7D396BCC7EB3AD3D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000527   (857262) от 26.03.2016
-
-Alessandro de Marchi - Vivaldi: Concerto Rustico (2006) [FLAC|Lossless|image + .cue] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto alla rustica, for strings & continuo in G major, RV 151
-01. Presto RV 151   01:17
-02. Adagio RV 151   01:04
-03. Allegro RV 151   01:41(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36973F12FA0A5E720DAC3F94EF4D9F1844ECCD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000854   (857261) от 26.03.2016
-
-Adobe components: Flash Player 21.0.0.197 + AIR 21.0.0.176 + Shockwave Player 12.2.4.194 RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Flash Player — плагин, предназначенный для всех популярных браузеров - Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, с помощью которого можно проигрывать Flash-ролики (файлы SWF), смотреть онлайн-видео и слушать онлайн-аудиофайлыи который бесплатно можно скачать на . Только с этой надстройкой браузер способен корректно отображать веб-страницы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBC42AE3DFCCB007EDB2B52FF2D7F5264D0F12D
+magnet:?xt=urn:btih:805B999A8E5975E98AC95CDE5E6735B3039A87E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

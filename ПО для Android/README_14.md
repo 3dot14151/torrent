@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049322.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Universal Copy v7.0.2 Мод by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049153.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Universal Copy v7.0.2 Мод by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048890.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 936796   (494452) от 12.09.2015
+
+Jay Willie Blues Band - Johnny's Juke Joint (2015) [MP3|320 кб/с]<Electric Blues, Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wooly Bully (02:26)
+02. You Got Me Dizzy (03:02)
+03. One More Mile (03:10)
+04. Upside Of The Ground (03:29)(   Читать дальше...   )Жанр: Electric Blues, Rockin' BluesПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2DF7F1316A1C94AE7E43936E3B5FF5D2AAE97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243247   (494212) от 26.08.2018
 
 Lawrence Lebo - Old School Girl (2018) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ Bobby Rush - Rawer Than Raw (2020) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C0D5E01C775B9DCFC96A0FB82730F60E04BF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405653   (483373) от 30.08.2020
-
-Walter Trout - Ordinary Madness (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ordinary Madness (06:46)
- 02. Wanna Dance (04:30)
- 03. My Foolish Pride (05:55)
- 04. Heartland (04:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A323CA59109967DE4DD317B9868A6B61422CC32
 ```
 
 https://mybot314.ru/tekegram_catalog/

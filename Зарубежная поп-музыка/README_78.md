@@ -1,3 +1,61 @@
+###  Публикация: 1674661   (160646) от 07.11.2023
+
+VA - Hit News Vol. 8 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superfly - Is It Love
+02. Two Boys - Calling For Affection
+03. Essono - I Can't Understand
+04. Twenty 4 Seven - Keep On Goin'(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C810E63242815CDF924C294C2D7D63A22F567F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674876   (160641) от 07.11.2023
+
+VA - Party Tracks (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz - Sugar (feat. Francesco Yates) (03:39)
+02. David Puentez - Baby Steps (02:23)
+03. Anne-Marie - FRIENDS (03:22)
+04. Tones and I - Dance Monkey (03:29)(   Читать дальше...   )Жанр: Dance, Club, Pop, ElectronicПродолжительность: 03:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C942C85D6DC6E623A242992D8FBD581A4313F613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674681   (160637) от 07.11.2023
 
 VA - Hit News Vol. 9 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
@@ -687,64 +745,6 @@ Titiyo - Titiyo (1990) [MP3|320 Kbps] <Pop, Soul, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2738E4ADD325E8FB4DD67A3D15835FFDC128AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194412   (155593) от 25.12.2017
-
-Елена Войнаровская (Flёur) - Ночь тиха (2017) EP [MP3|320 Kbps] <Pop, Indie, Cardiowave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155593.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песня о снеге, спящем медведе и несмышленом щенке
-2. Щедрик
-3. На Вифлеемских холмах
-4. Silent NightЖанр: Pop, Indie, CardiowaveПродолжительность: 00:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBCFFA49AE2AD2E797CAA2D9CFD0633CF7AC99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194277   (155575) от 25.12.2017
-
-VA - 50 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 BMYE - Pourquoi cherie (feat. Naza, Keblack, Youssoupha, Hiro, Jaymax & Dj Myst)
-02 Jessy Matador - Mi Amore
-03 Vitaa - Comme dab
-04 Ridsa - Leila(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5F0274DFE2A177D9198CC5190B5D9160883D9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

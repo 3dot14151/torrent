@@ -1,3 +1,29 @@
+###  Публикация: 592528   (134422) от 24.12.2012
+
+Фотография - Anka Zhuravleva
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Anka Zhuravleva
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DA473480F23E8C5131DF1B478E75083ED1D9F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594040   (134114) от 25.12.2012
 
 Фотоподборка '220V' (24.12.12)
@@ -653,35 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1182283EB825DDF6A0EEA836E06C48EE86E14937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491097   (130228) от 02.05.2012
-
-[Wallpapers] Minimalism Desktop Wallpapers Pack 2
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130228.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Minimalism Desktop Wallpapers Pack 2Название: Minimalism Desktop Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1366х768 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82AF63E16956C84F015621F8AB48C76D17F945E
 ```
 
 https://mybot314.ru/tekegram_catalog/

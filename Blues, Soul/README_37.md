@@ -1,3 +1,32 @@
+###  Публикация: 1518740   (152387) от 21.12.2021
+
+VA - Blues Happy Christmas (2021) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Brown - Santa Claus Go Straight To The Ghetto
+02. Albert King - Santa Claus Wants Some Lovin'
+03. G. Love & Special Sauce - Christmas Cookies
+04. The Singing Contractors - Joy To The World(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8432F82F74BADEAADE083F7963D6665977818D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434473   (151604) от 24.12.2020
 
 Jeff Liberman - Celebrate The Day (2020) [MP3|320 Kbps] <Blues Rock>
@@ -748,35 +777,6 @@ Livin' Blues, Nicko Christiansen - Back on track (2023) [MP3|320 Kbps] <Blues, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838D32F2777782D19FF616B0EDA88C7AAB88F668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687217   (125606) от 26.12.2023
-
-Chris Rea - Tennis (1980) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Rock, Pop Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tennis
-02.  Sweet Kiss
-03.  Since I Don't See You Anymore
-04.  Dancing Girls(   Читать дальше...   )Жанр: Soft Rock, Rock, Pop RockПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F9665BF744E9E1CAAC386B441189FEFF4AC2D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

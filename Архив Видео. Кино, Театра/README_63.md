@@ -110,7 +110,7 @@ Cезон побед / The Winning Season (2009) DVDRip | Одноголосый
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_901735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901735.jpg" />
 </div>
 
 

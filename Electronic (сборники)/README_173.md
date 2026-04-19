@@ -1,3 +1,187 @@
+###  Публикация: 1422573   (308694) от 09.11.2020
+
+VA - Beatport Drum And Bass: Electro Sound Pack #199 (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308694.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Fresh - Gold Dust
+002. Ben Soundscape - Sentimental Journey
+003. No Concept - Falling
+004. Kre And Basshoven - With You(   Читать дальше...   )Жанр: Drum & Bass, Bassline, DubstepПродолжительность: 08:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:367F34A4D8A44CB569FA4A417BB6BADAD700C02A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583739   (308069) от 04.12.2012
+
+Moonbeam feat. Aelyn - You Win Me (2012) [MP3|320 кб/с]<Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308069.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    Moonbeam feat. Aelyn- You Win Me (Original Soundtrack Mix) (Black Hole)
+2.    Tube & Berger & Milan Euringer - Lovebreak (Original Mix) (Kittball)
+3.    Christian Burkhardt - Delight (Original Mix) (Oslo) (
+4.    Dancaless feat. Katinda - Together (Promo CDR)
+5.    Bent - As You Fall (Guy J Remix) (G&E Analogue)
+6.    Max Vertigo- Tonight (Original Mix) (Aura Music)
+7.    Hells Kitchen- Silent Scream (Original Mix) (Aura Music)
+8.    Pan-Pot- Confronted (Adam Beyer & Jesper Dahlback Remix) (Mobilee Records)
+9.    Simon Vuarambon- Inverted Pole (Luis Junior Remix) (Flow Vinyl)
+10.  HVOB- Dogs (Niko Schwind Remix) (Stil Vor Talent)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124833B5CE7E3BECD3C1193550AECD5646843E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960502   (308057) от 28.11.2015
+
+VA - Sunday Privilege Vol 3 25 Luxury Lounge Anthems (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo & Roby Ruini - La Suite
+02. The Black Parade - Give Me Your World
+03. Eddy J - Make Those Eyes
+04. Re Vera - Pensiero Leggero(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBFC0320FC9A13D200F60BA129D8CA085C9CBD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960506   (308053) от 28.11.2015
+
+VA - Winter Lounge Kitzbuhel (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caesar Mendes - Keep in Touch
+02. Nigel Scott - Disco Salsa
+03. Malcom Z - Around We Go
+04. Ryan Cohen - Desert of Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED70897D1F826522FAA636B4A043BE450A340F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960344   (308048) от 28.11.2015
+
+VA - Ride the Wave Vol 1 Relaxed Ocean Grooves (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E – Out of the Blue
+02. Marie Therese – Magic of the Night
+03. Matisse – Early Sunrise
+04. Bittersweet – Remember(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96543F54D994620AEA97AF80899FB02D188ECFED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584715   (307998) от 04.12.2012
+
+Dj Tiesto - DJ Mag Top 100 (2012) [MP3|192 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307998.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. DJ Tiesto – I Will Be Here
+2. Tiesto - Elements Of Life
+3. DJ Tiesto - Just Be (Album Version)
+4. Dj Tiesto - In The Dark
+5. Tiesto - Adagio For Strings (Original LP Version)
+6. Tiesto - Feel it in My Bones (Feat. Tegan and Sara)
+7. Tiesto - Maximal Crazy (Original Mix)
+8. Tiesto vs Diplo – CMon (Original Mix)Жанр: TranceПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA96F4353AC94801F5C916C626427E565D84E23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584360   (307906) от 04.12.2012
 
 Eminem, Linkin Park, DJ P@F - Dreams On Shady Park (2010) [MP3|256 кб/с]<Alternative>
@@ -583,180 +767,6 @@ VA - Follow Up: Techno Electronic Set (2019) [MP3|320 Kbps] <Techno, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7EC4DD57571A132579F1082C2F88B3715C0CDFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261068   (305463) от 10.11.2018
-
-VA - Disco House: Funky Mix November (2018) [MP3|320 Kbps] <Funky, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305463.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jason Prince - Careless Whisper
-002. Eaze - What You Need
-003. Lexter - Never Gonna Give You
-004. Carol Jiani - Feel It(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: Funky, Disco House
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91B7CB9874BDFD1AA151A9C5C612234B2E67C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183961   (305426) от 15.11.2017
-
-VA - Дискотека 2017 - Осенний Бодрячок (Compiled by ZeByte) (2017) [MP3|320 Kbps] <House, Trapical, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alexandra Stan - Noi 2  3:25
-02.  Serebro & DJ Fееl - Young Yummy Love  3:21
-03.  Julien Dore - Coco Caline (Filatov & Karas Remix)  3:02
-04.  Alexander & Mayo - All Night Long  3:07(   Читать дальше...   )Жанр: House, Trapical, DanceПродолжительность: 04:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D87C740081AC595E8A684E6C893109ADACA847E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333209   (305406) от 24.10.2019
-
-VA - Warie Live: Club House Original Mix (2019) [MP3|320 Kbps] <Dance, Pop, House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305406.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wolftooth - Groove Platoon
-002. Greg B - Deep Luv (Original Mix)
-003. Mark Maxwell - Underground Vibe
-004. Hazeman - I'm On One (Original Mix)(   Читать дальше...   )Жанр: Dance, Pop, House, ClubПродолжительность: 11:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1566E31D40A5BF9A8BCEF361F7FA3035D7847A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333216   (305400) от 24.10.2019
-
-VA - EDM Heartbeat Extended Mix: Techno Electronic Step 03 (2019) [MP3|320 Kbps] <Techno, Electro, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305400.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christian Smith - Hikari (Original Mix)
-002. Ladislao - Balance (Original Mix)
-003. Gold Rabbit - Aeternum (Original Mix)
-004. Shifted - The Light Touch(   Читать дальше...   )Жанр: Techno, Electro, EDMПродолжительность: 13:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF930019CFB0DA903A65D9EE68CC564656092CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333204   (305395) от 24.10.2019
-
-VA - Just Do It: Hardstyle Sport Dance Music (2019) [MP3|320 Kbps] <Hardstyle, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305395.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Sektorz - Middle Finger (Original Mix)
-002. Initialize Productions & Agm - Be My Lover (Original Mix)
-003. Unproven - Gods Girl
-004. Matt D - Wha (Original Mix)(   Читать дальше...   )Жанр: Hardstyle, Dance, ElectroПродолжительность: 08:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9978461CE2481B624197FFF5F19C0229CE8D1F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842060   (305282) от 29.11.2015
-
-VA - The Best Of Dream House (Compiled by Codename87) (2014) [MP3|320 кб/с]<Dream House / Dream Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Pierro - Another World (Radio Edit)
-02. Freshmaker - Cry For Love
-03. Blusonic - Deepseadiver (Single Edit)
-04. Ricochet - Caroline (Dolce Vita Mix)(   Читать дальше...   )Жанр: Dream House / Dream DanceПродолжительность: 02:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC5029DE886BDD76F370B82093E5782BDD52EE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

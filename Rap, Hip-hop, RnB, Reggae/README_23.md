@@ -1,3 +1,89 @@
+###  Публикация: 579086   (347815) от 23.11.2012
+
+Не Будите Спящих - Это Рэгги-Рэп4ик (ЕР) (2011) [MP3|320 кб/с]<Reggae, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это Рэгги-Рэп4ик
+02. Все,что есть у меня
+03. Это жаркое летоЖанр: Reggae, RapПродолжительность: 00:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F0F9811CAE817BB8B9DFB0EB251E0E67412C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257215   (345669) от 12.11.2010
+
+Rihanna - Loud (2010) [FLAC|Lossless]<R&B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S&M (4:04)
+02. What's My Name (Feat. Drake) (4:23)
+03. Cheers (Drink To That) (4:22)
+04. Fading (3:20)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257401   (345193) от 26.10.2018
+
+Нигатив (Триада) - Жамевю (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345193.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вниз
+2. На руках
+3. Лавина
+4. Не пройди(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C4190C2BF14B59E2028AC582D5E7A227BFE05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418865   (344105) от 26.10.2020
 
 25/17 - Байки из склепа. Часть 1-2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
@@ -656,93 +742,6 @@ Black Eyed Peas - The Beginning (2010) [FLAC|Lossless]<Hip-hop, Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078236   (302167) от 30.11.2016
-
-Рем Дигга - 42/37 (2016) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Добро пожаловать в тёмные воды
-02. Простой
-03. Give it up feat. Onyx
-04. Шахта feat. Mania(   Читать дальше...   )Жанр: RapПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DF6B525227888749A2F6F02EAB2CBE39724583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333738   (301355) от 26.10.2019
-
-ST - ПОЭТ ДУЭТ (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301355.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Каренина (feat. 25/17, Нигатив & Качмар)
-2. Счастье любит тишину (feat. Михаил Шуфутинский)
-3. Моя вина (feat. Artik & Asti)
-4. Восьмой ряд (feat. PIZZA & Ах Астахова)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702BAD3761D1E8252B6977203DC00436466085D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184167   (301074) от 17.11.2017
-
-ATL - Дисторшн [EP] (2017) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангелы
-02. Не беда
-03. Сплин
-04. Хелта Скелта(   Читать дальше...   )Жанр: RapПродолжительность: 00:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3896BA3A333B35F74234151E8E2C32225FD643
 ```
 
 https://mybot314.ru/tekegram_catalog/

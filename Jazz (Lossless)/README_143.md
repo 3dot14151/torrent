@@ -1,3 +1,61 @@
+###  Публикация: 1150946   (578143) от 16.07.2017
+
+Bireli Lagrene - Foreign Affairs (1988) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz,Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timothee - 4:38
+02. Josef - 05:23
+03. Rue de Pierre (Part IV) - 02:09
+04. Jack Rabbit - 04:19(   Читать дальше...   )Жанр: Contemporary Jazz,FusionПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4AF1A42956E76A03C8B5AA8A1E70B8BD9AF4FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150898   (578138) от 16.07.2017
+
+John Lamb - Conversations: North of the Border (2010) [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Traditional Jazz Combo>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Sue (5:10)
+02. Little Suede Shoes (4:38)
+03. Bennie's Ballad (6:58)
+04. Sweet and Lovely (6:40)(   Читать дальше...   )Жанр: Mainstream Jazz, Traditional Jazz ComboПродолжительность: 00:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8B092000BF0538661884544C1DA96D8879C882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150897   (578135) от 16.07.2017
 
 The David Hazeltine Trio - The Jobim Songbook in New York (2007) Chesky Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -702,64 +760,6 @@ Dean Martin - This Time I'm Swingin'! (1960) 2013, Mobile Fidelity Sound Lab [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF042DF664A703646D0799C4FB83536C7239AB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554652   (575779) от 31.05.2022
-
-Theo Croker - Blk2life, A Future Past (2021) [FLAC|Lossless|tracks + .cue] <Jazz-Funk, R&B, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4Knowledge (0:46)
-02. Soul Call, Vibrate (6:32)
-03. Just Be (Prelude) (0:35)
-04. Every Part of Me (feat. Ari Lennox) (3:10)(   Читать дальше...   )Жанр: Jazz-Funk, R&B, Contemporary JazzПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC8900B11F942DAB4883856917E4ADC11BAE8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042997   (574929) от 15.08.2016
-
-Caroline - Dog Eats Cat Eats Mouse (2015) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574929.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Dogs eats cat eats mouse 8'49
-2 Frogs & fish 9'21
-3 Fish & frogs 6'54
-4 La diagonale 9'10(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD7B9711007A8035A3E613CC9FDCC33B52CDAB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

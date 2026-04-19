@@ -1,3 +1,61 @@
+###  Публикация: 1100509   (899784) от 04.02.2017
+
+VA - Empire Records - Romantic Drum (2017) [MP3|256-320 Kbps] <Dubstep, Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Slok - Story of my life (Original Mix)
+02. Samone - Here I Am
+03. Meg Myers - Desire (Hucci Remix)
+04. Vincent VEGA Feat Milaxa - Leave Behind (Ivan Spell Remix)(   Читать дальше...   )Жанр: Dubstep, Drum & BassПродолжительность: 01:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29403A43073418EDF3FE66D8256150E79DED29C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992661   (899302) от 03.03.2016
+
+VA - How Deep Is Your Love (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Festina Lente - Feel It - Fab Stellar Remix
+ 02. Deep-X - See Things Around
+ 03. Daniel Floor - Thinkin' About You
+ 04. Colt! - Dub3m - Lowpole Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86984FB36682813D0F11B2FC48E902DDD8FDCACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370149   (898484) от 26.03.2020
 
 VA - Exotic Chill House (2020) [MP3|320 Kbps] <Chill House, Relax, Chillout>
@@ -705,64 +763,6 @@ VA - NRW: Clubbing Future House (2021) [MP3|320 Kbps] <House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFD26C64F2AA092C6AAB1C53CDF43A9F1004E654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993510   (894046) от 06.03.2016
-
-VA - Sports Megamix 2016.1 (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894046.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Mix - Sports Megamix 2016.1 - Pt.1.mp3
-002. DJ Mix - Sports Megamix 2016.1 - Pt.2.mp3
-003. DJ Mix - Sports Megamix 2016.1 - Pt.3.mp3
-004. Robin Schulz feat. J.U.D.G.E. - Show Me Love.mp3(   Читать дальше...   )Жанр: HouseПродолжительность: 12:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07F6D3A0C0D6A7DD49CFBE6AFFCFF942CA66969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493648   (894024) от 04.09.2021
-
-VA - Beatport Electro House: Sound Pack #339 (2021) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894024.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Moscrop - Dubeats
-002. Davide Neri - That's It
-003. Rsquared & Ben Cheel - Dance
-004. Dream Frequency - Take Me Away(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F006EAB968F6B9EDC1BB67F4A4CF28741C973960
 ```
 
 https://mybot314.ru/tekegram_catalog/

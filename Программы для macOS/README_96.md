@@ -1,3 +1,31 @@
+###  Публикация: 1251337   (417842) от 01.10.2018
+
+PVF Update (091) Mojave [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417842.jpg" />
+</div>
+
+
+###  Подробнее
+
+PVF - Профессиональный видео формат.
+Образ с обновлением программ;"Final Cut Pro X 10.4.3" "Compressor 4.4.1" "Motion 5.4.1".
+Актуальный на 1.10.2018.Тип издания: macOS SoftwareРелиз состоялся: 1.10.2018Разработчик: Development SoftwareПоддерживаемая ОС: 10.14Язык интерфейса: Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727D92529E6C7447301F1766BFE2EEE821A3CFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412351   (417839) от 29.09.2020
 
 OnyX 3.8.6 for macOS Catalina 10.15 [Multi/Ru]
@@ -662,32 +690,6 @@ SweetScape 010 Editor - это текстовый редактор профес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB576C88FD3A099BBCD7ECF08F588B4E9C57EAD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412728   (415571) от 30.09.2020
-
-JetBrains AppCode 2020.2.3 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415571.jpg" />
-</div>
-
-
-###  Подробнее
-
-AppCode – умная IDE, предназначенная для разработчиков iOS/macOS приложений для устройств Apple, таких как Mac, iPhone и iPad. AppCode содержит полный набор необходимых средств для эффективной и удобной работы с языком Objective-C, Swift, C, C++ и на 100% совместима с Xcode.Тип издания: macOS SoftwareРелиз состоялся: 17.09.2020Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F043F59C44BEE431366467495F5A15D48D7C75
 ```
 
 https://mybot314.ru/tekegram_catalog/

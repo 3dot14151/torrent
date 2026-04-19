@@ -1,3 +1,29 @@
+###  Публикация: 592507   (135983) от 21.12.2012
+
+Nature Wallpapers (21.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AD0B89D4E7CD79FD58031E05840FB900A74281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592192   (135981) от 21.12.2012
 
 Aviation Wallpapers (18.12.12) [Wallpapers]
@@ -665,37 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F1159F0E710FD623EEADB8391122D90E34BD82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490949   (102600) от 02.05.2012
-
-[Wallpapers] Texture Desktop Wallpapers Pack 2
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102600.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Texture Desktop Wallpapers Pack 2
-Название: Texture Desktop Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894E48748355236E819101EB07A1F69AA0A0AE6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

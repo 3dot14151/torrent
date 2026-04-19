@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_845413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_845413.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1780469   (27154) от 19.02.2025
+
+WarCraft II (2) (1995) [Ru] (2.02b/dlc) Repack EXROW [Battle.net Edition]
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернитесь в эпоху хаоса и обрушьте на соперников, играющих за людей или орков все свои навыки, приобретенные в жестоких баталиях Warcraft: Orcs and Humans. Проявите свое мастерство в самых эпических сражениях Warcraft II в истории. Чемпионы, желающие испытать игру в ее подлинном облике, могут насладиться ей в том виде, в котором она появилась в 1999 году.Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: RTSЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D551184FCD941B996A3D06DCFF5444CBE2A1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716543   (27065) от 20.02.2025
 
 Headquarters: World War II (2) (2024) [Ru/Multi] (1.02.01/dlc) Repack FitGirl
@@ -641,32 +667,6 @@ Tempest Rising (2025) [Ru/Multi] (1.1.1+43856/dlc) Repack Decepticon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31171AE996C379BCCA2F5B775556C1E7FCC591F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795337   (19404) от 04.05.2025
-
-Age of Wonders: Planetfall (2019) [Ru/Multi] (1.404.43827/dlc) Repack Let'sРlay [Premium Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Age of Wonders: Planetfall – это новая стратегическая игра студии Triumph Studios, создавшей восторженно принятые серии игр Age of Wonders и Overlord и теперь перенесшей пошаговые сражения и систему построения империи по модели 4X из своих предшествующих игр в научно-фантастическую обстановку освоения космоса.Тип издания: RepackРазработчик: Triumph StudiosЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402D649388D3A50315A275A14E757D588313600D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1549956   (592631) от 09.05.2022
+
+VA - Песни нашей Родины. День Победы! (2022) [AAC|~225 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анна Герман - Катюша (2:24)
+02. Виктор Вуячич - Казаки в Берлине (2:41)
+03. Владимир Нечаев - Вечер на рейде (5:20)
+04. Марк Бернес - Спят курганы тёмные (Из к/ф "Большая жизнь") (3:16)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2959032180545166CD63F766BD691ADC78D13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549999   (592630) от 09.05.2022
+
+VA - Sex and the Chill, Vol. 2 (2013) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTJ XPerience, Jackson Sloan - Sombre Guitar (6:33)
+02. Banda Favela - Rainha Do Mar (4:32)
+03. Jestofunk - Close To My Heart (4:45)
+04. Montefiori Cocktail - Riviera Beat (5:02)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4457B28C99D09B959FACA582B5DE553D1629A43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550234   (592508) от 10.05.2022
+
+Guntis Vecgailis, Zigmars Liepins, Olegs Upenieks, Harijs Zarins - Pulse 2 (1986) [AAC|~373 Kbps] <Electro>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance-85 (4:04)
+02. Shuttle (1:48)
+03. Victoria (4:18)
+04. Rebirth (3:09)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66BFC70DB8AD76B5E5075AC77DF3C54B965CCE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550233   (592477) от 10.05.2022
+
+Божья Коровка - Божья коровка. Лучшие песни (2021) [AAC|~337 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гранитный камушек - 25 лет спустя (5:14)
+02. В каком неведомом краю (4:43)
+03. Теплоход (версия текста 2016) (3:29)
+04. Стюардесса (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05636AF778182218AA9B782D40A858629662CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550236   (592474) от 10.05.2022
+
+VA - The Best Remixes (2022) [AAC|~323 Kbps] <Electro, Dance, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Леонид Руденко, Nicco - Destination (Remix) (5:55)
+02. Виктор Цой - Спокойная ночь (Kuzmin Zakhar Remix) (6:56)
+03. 2-4 Grooves - Writing on the Wall (St. Elmo’s Fire) (Remix) (5:52)
+04. Виктор Цой - Хочу перемен (DJ Vini Remix) (7:11)(   Читать дальше...   )Жанр: Electro, Dance, PopПродолжительность: 01:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F1B1593E4FCDA68719708B1414F1A868525D8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550235   (592459) от 10.05.2022
+
+VA - Любимые 90-е (2022) [AAC|~348 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андрей Державин - Не плачь, Алиса (4:27)
+02. Дмитрий Маликов - Ты одна, ты такая (4:29)
+03. Лада Дэнс - Девочка-ночь (4:42)
+04. Игорь Селивёрстов - Санта Лючия (4:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D70470C628ACA8F8C75B08F468B8A7AD6502E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915570   (592288) от 05.07.2015
 
 Отель «Мэриголд». Заселение продолжается / The Second Best Exotic Marigold Hotel (2015) BDRip [1080p] ATV
@@ -517,174 +691,6 @@ Cпайпер: воин призрак / Sniper: Ghost Shooter (2016) WEB-DL [10
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49A8206F3B7C63FD4F3368A2C31AFF1BA399DD69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040080   (588088) от 03.08.2016
-
-Angry Birds в кино / Angry Birds (2016) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о том, как началось знаменитое противостояние птичек и свинок, персонажей популярной компьютерной игры, а также раскроет некоторые секреты любимых героев.Производство: США, ФинляндияЖанр: Мультфильм, боевик, комедия, семейныйРежиссер: Фергал РейлиАктеры: Джейсон Судейкис, Джош Гад, Дэнни МакБрайд, Майя Рудольф, Билл Хейдер, Питер Динклэйдж, Шон Пенн, Кигэн-Майкл Ки, Кейт МакКиннон, Тони ХейлПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, Украинские, АнглийскиеПродолжительность: 01:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A339E75E693FDE78E7C51C1817B2A5C610876F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918022   (587801) от 14.07.2015
-
-Каникулы мечты / What We Did on Our Holiday (2014) HDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может быть лучше большого семейного праздника в Шотландии? Вся родня собирается на празднование юбилея дедушки Горди. Дуглас и Эби отправляются в путешествие. Но как скрыть семейные секреты, если у вас три болтливых ребенка?Производство: ВеликобританияЖанр: Драма, комедияРежиссер: Гай ДженкинАктеры: Розамунд Пайк, Дэвид Теннант, Билли Коннолли, Бен Миллер, Амелия Баллмор, Эмилия Джонс, Бобби Соллдридж, Харриет Тернбулл, Селия Имри, Аннетт КросбиПеревод: Профессиональный (многоголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 01:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FA53268C311E708ECB782CC923FE6651F32EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550229   (587663) от 20.05.2022
-
-VA - Lounge & Sunset, Vol. 3 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcus Koch - Forever (Original Edit) (4:59)
-02. Corrado Saija, Florent Campana - Amanda (Original Mix) (4:11)
-03. Schwarz & Funk - Keep On (Original Mix) (5:50)
-04. Stepo Del Sol - Touch My Soul (Vox Mix) (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07AFA96229D2D1561E3386365EEED246BA831A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550206   (587662) от 20.05.2022
-
-VA - Deep-House Gladiators, Vol. 3 (2018) [AAC|~328 Kbps] <House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Models - Twist & Bounce (3:38)
-02. Beach Coffee Ensemble - Bsospicius Area (3:02)
-03. Mark Torrell - Dance to the Death (Dean Franklin Mix) (3:17)
-04. Anthony Maserati - And You (Deep Kings Mix) (3:18)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4799F65A7D50DAC17CFCD41AD07037099200E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550207   (587661) от 20.05.2022
-
-VA - Deep-House Gladiators, Vol. 4 (2018) [AAC|~324 Kbps] <House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fashion Victims - Deep From Creep (The Bar Mix) (5:12)
-02. Sonoya - Back and Forth (Tony Herb Mix) (5:17)
-03. London Guys - Deep Friends (5:12)
-04. Jason Groove Daniels - Holy Days (5:12)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0ECC5D0D24EABCE0077574AFEE444433BD1132A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550227   (587659) от 20.05.2022
-
-VA - Lounge & Sunset, Vol. 2 (2019) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Züell - After the Rain (Original Mix) (3:55)
-02. Revera Project - Vivere Insieme (Original Mix) (2:33)
-03. Lounge Groove Avenue - Soul Diva (Original Mix) (3:30)
-04. Velvet Dreamer - Last Kiss of Summer (Tim Gelo Night Groove Remix) (5:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A005439EAADFB8C59090FB77F604B051590CB4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

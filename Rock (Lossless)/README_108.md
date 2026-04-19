@@ -1,3 +1,67 @@
+###  Публикация: 580042   (345159) от 24.11.2012
+
+The Alan Parsons Project - The Collection (2010) [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sirius
+02. Eye In the Sky
+03. Mammagamma
+04. I Wouldn't Want to Be Like You
+05. Some Other Time
+06. In the Lap of the Gods
+07. Lucifer
+08. Nothing Left to Lose
+09. Silence and I
+10. Old and Wise(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418975   (344704) от 26.10.2020
+
+Texas Hippie Coalition - High In The Saddle (2019) [FLAC|Lossless|image + .cue] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonshine (4:43)
+02. Dirty Finger (4:21)
+03. Bring It Baby (3:29)
+04. Ride Or Die (3:39)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E51F10060E2C7B29EDBD1323E95230F4BA586CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418936   (344433) от 26.10.2020
 
 Kozak System - 2 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue]<Folk Rock>
@@ -699,64 +763,6 @@ Storyteller - Corridor Of Windows (2000) [FLAC|Lossless|image + .cue] <Melodic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:335D54C07931B6DE3683C8848CEF5B1C8238DC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579144   (338999) от 26.09.2022
-
-My Sleeping Karma - Atma (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Space>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maya Shakti [00:09:13]
-02. Prema [00:07:55]
-03. Mukti [00:06:43]
-04. Avatara [00:09:37](   Читать дальше...   )Жанр: Psych, Stoner, SpaceПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE38D4C02077559DDC61FDE8C3273C25A1962CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578992   (338886) от 26.09.2022
-
-Fleesh - Home Again (A Tribute to Pink Floyd) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe (2:55)
-02. Time (7:04)
-03. Hey You (4:42)
-04. In the Flesh (4:15)(   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 01:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8E1580DD1C866ECCC8065F8D475B9E391D0DA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

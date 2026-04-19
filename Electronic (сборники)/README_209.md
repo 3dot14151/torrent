@@ -1,3 +1,177 @@
+###  Публикация: 1685412   (127099) от 19.12.2023
+
+MENDA part 2 - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Odyssey
+ 02.  Moda
+ 03.  Stay With Me
+ 04.  Sorry(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8FCBF7EF162F70DC6193D4C45C9C79A47FD0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685935   (126922) от 20.12.2023
+
+Afrasiab - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Sound of a Real Feeling
+ 02.  Blackout
+ 03.  Nothing to Lose
+ 04.  Im Sorry(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E578E0FB6D3DDD095EA5710F8C4CE02982D322B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686266   (126664) от 22.12.2023
+
+VA - Christmas  Disco - Merry Christmas Everyone (2023) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126664.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Snowflake, The MacDonald Bros - White Christmas [06:09]
+002. Global Defence - Jingle Bells (Dance Extended Mix) [05:46]
+003. Rave Ryders - Techno Power (Club Edit) [03:37]
+004. Kjetil Labahaa - Different Order (Radio Edit) [04:06](   Читать дальше...   )Жанр: Disco, PopПродолжительность: 06:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6795A1131220E1C5FBD81EA04D9DD6D0C9A0A339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686965   (126302) от 24.12.2023
+
+VA - Record Super Chart 23.12.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dezko - Ascend (3:20)
+02. Robin Schulz - One With The Wolves (3:00)
+03. Ofenbach feat. Norma Jean Martine - Overdrive (2:35)
+04. Tiesto feat. 21 Savage & BIA - Both (Tiesto's VIP Mix) (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5147E61EFF0832EA2B9B3D10D59DC4912FD0D676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686867   (126288) от 24.12.2023
+
+Ian Otta - Compilation (2023) [MP3|320 Kbps] <Electronic, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Autumn Day
+ 02.  Daydreamer
+ 03.  Love Is
+ 04.  Moonrise(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5AEF0124323C20B4C1680C27DC693EF7B636E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689085   (124911) от 31.12.2023
+
+Jjos - Compilation (2023) [MP3|320 Kbps] <Electro. Chill Out. Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All I Need
+ 02.  Breathe
+ 03.  Diamond
+ 04.  El Mundo(   Читать дальше...   )Жанр: Electro. Chill Out. LoungeПродолжительность: 06:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075D99319C016CF1B46FB58860A8A8AEE3DCFD50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689525   (124733) от 02.01.2024
 
 VA - Радио Рекорд Итоговый Суперчарт 2023 - 100 лучших треков (2024) [MP3|320 Kbps] <Pop, Dance>
@@ -571,180 +745,6 @@ VA - 60 minutes. Old School Dance Music vol.22 (mixed by Dj V) (2023) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A3D491FFECDAEBF602D3528C206DC2A2EE70FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694652   (120833) от 26.01.2024
-
-VA - Trance 2024 (Extended Versions) (2024) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eximinds & Costa & Sue McLaren - Into The Unknown (Extended Mix) (05:38)
-02. Two&One & Sarah Russell - One More Sunrise (Extended Mix) (05:46)
-03. Sarah Lynn & Raz Nitzan & Trance Classics - Safe In Your Arms (Extended Mix) (05:30)
-04. Eddie Lung - Run Away (Extended Mix) (06:21)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1A3126A5D4EAF90406E45268C06E93F24BABE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694710   (120808) от 26.01.2024
-
-VA - Compilation Electronic part 47 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ERMAC - Back To Me
-02. ENZA - Fatima
-03. KENZO - Enta Eih
-04. Rainshow - Move(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55A3BD72FEB05BBAFBFB69BDFAD496B1EEA2721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695353   (120312) от 29.01.2024
-
-VA - Compilation Electronic part 48 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dndm - Morocco
-02. Musdige - The Mafia Has Feelings
-03. Jeem Dj - Sofia
-04. Kasimoff - Baby(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85705F723D8988C7E1733BB45F55B8E988790F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695835   (120128) от 30.01.2024
-
-VA - Compilation Electronic part 49 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jambeats - See the Sun
-02. Sansasmody - Eyslay
-03. Imazee - All My Fault
-04. Alsa - Teneritas(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8710D450DB089EAA8948039ED25A5DB9E12A3CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696221   (119863) от 01.02.2024
-
-VA - Compilation Electronic part 50 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azimov - Galaxy
-02. Enza - Maldives
-03. Umar Keyn - Last Minute
-04. Dndm - Not Mine(   Читать дальше...   )Жанр: ElectronicПродолжительность: 08:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95D4D083481A8A762A7DC875D9F28B3AA3736DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696827   (119421) от 04.02.2024
-
-VA - Deep Night Deep House 6 (2024) [MP3|320 Kbps] <Deep House, House, G-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pete Tong, Jem Cooke, Jules Buckley - Heat Rising (CamelPhat Extended Remix) (7:52)
-02. Anton Ishutin - Eternal (7:43)
-03. Gar1sson, Margaryan - HOT (Original Mix) (7:36)
-04. Forrest - Bad Girls Go to Heaven (Los Suruba Remix) (7:28)(   Читать дальше...   )Жанр: Deep House, House, G-HouseПродолжительность: 08:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F2D6B84AD44DD1B474E40B5748FF51C80C8876
 ```
 
 https://mybot314.ru/tekegram_catalog/

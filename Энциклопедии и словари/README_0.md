@@ -1,3 +1,32 @@
+###  Публикация: 1849364   (1053791) от 23.01.2026
+
+Jay H. Lehr, Jack Keeley | Alternative Energy and Shale Gas Encyclopedia (2016) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053791.jpg" />
+</div>
+
+
+###  Подробнее
+
+A comprehensive depository of all information relating to the scientific and technological aspects of Shale Gas and Alternative Energy.
+Conveniently arranged by energy type including Shale Gas, Wind, Geothermal, Solar, and Hydropower.
+Perfect first-stop reference for any scientist, engineer, or student looking for practical and applied energy information.
+Emphasizes (   Читать дальше...   )Жанр: Энциклопедии, ГидроэнергетикаЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812B47F2A176FB4CE2298F46FF19DD3211F9655F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849415   (1053777) от 23.01.2026
 
 Mathew Klickstein | The Little Encyclopedia of Jewish Culture/ 101 People, Places, Things (and Foods) Every Jew Should Know (2022) [PDF] [EN]
@@ -666,32 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70FD1A26D7A19AE55BA9DAFEC98F8EF73785AEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380588   (1045020) от 16.01.2023
-
-Михаил Вишневский | Всё о грибах. Популярная энциклопедия (2019) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Всё о грибах" является результатом более чем двадцатилетней научной, просветительской, лекционной и литературной деятельности известного миколога и популяризатора науки Михаила Вишневского. Ориентированное в первую очередь на грибников, издание содержит увлекательную информацию о происхождении грибов и их устройстве, грибах-помощниках и грибах-вредителях, (   Читать дальше...   )Жанр: Энциклопедия, МикологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D612832E7DF4F066658B85BC6B1F01AAF610C01
 ```
 
 https://mybot314.ru/tekegram_catalog/

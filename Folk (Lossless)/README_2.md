@@ -1,3 +1,32 @@
+###  Публикация: 382808   (793522) от 13.11.2021
+
+Пелагея - Дискография (11 CD) (2003-2010) [FLAC|Lossless]<Ethnic/Folk-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ethnic/Folk-RockПродолжительность: 00:55:09
+
+01. Пташечка
+02. Снежочки(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FB2F94D9E77DAEA78EE7B529BD9ADD455123F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386296   (793469) от 30.05.2020
 
 The Louvin Brothers - Tragic Songs Of Life (1956) [FLAC|Lossless|tracks] <Country>
@@ -717,35 +746,6 @@ Emir Kusturica & The No Smoking Orchestra - The Best Of... (2009) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CA5781B3ED5233A4E56D1ABE0986D7E9C64B074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016015   (772552) от 12.05.2016
-
-Hang Massive - Beats For Your Feet (2012) [FLAC|Lossless|tracks] < Folk, World, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Again (live)     06:04
-02. Skanegatan (live)    04:05
-03. Increasing Obviousness (live)    04:36
-04. Omat Odat (live)    06:14(   Читать дальше...   )Жанр: Folk, World, New Age,Продолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6425163A5582C8A217C49E3CB34629259719FB29
 ```
 
 https://mybot314.ru/tekegram_catalog/

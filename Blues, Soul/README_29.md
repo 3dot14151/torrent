@@ -1,3 +1,32 @@
+###  Публикация: 1175386   (378773) от 18.10.2017
+
+VA - Blues Sisters (2017) Vol.1 [MP3|320 Kbps] <Blues Rock, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joh Wra - Heavy Vintschool Steampunk Shit (01:35)
+02. Jim Skillman - Devil's Blues (06:06)
+03. Doc Fetzer - You're My Saviour (07:40)
+04. City Blues Connection - This Angel (05:15)(   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 01:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2FC71C22A0275994433F73409E642D11582E85B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327040   (378646) от 23.09.2019
 
 Bibi Ahmed - Adghah (2019) [MP3|320 Kbps] <Blues, World, Psychedelic>
@@ -716,35 +745,6 @@ Dana Gillespie - Where Blue Begins (1991) [MP3|320 кб/с]<British Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B04AB06B9A92F4C6E5C1AF5100E31311025F0C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950782   (363878) от 29.10.2015
-
-VA - Genuine Houserockin' Music, Vol. 2 (1987) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Albert Collins / I Ain't Drunk (4:06)
-02.  Big Twist & The Mellow Fellows / The Sweet Sound Of Rhythm And Blues (3:23)
-03.  Koko Taylor / I'd Rather Go Blind (4:40)
-04.  Lil' Ed & The Blues Imperials / Pride And Joy (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F909C61F70B4D237BDC657AD8B392107555DDE96
 ```
 
 https://mybot314.ru/tekegram_catalog/

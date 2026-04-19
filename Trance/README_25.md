@@ -1,3 +1,89 @@
+###  Публикация: 1156328   (527777) от 07.08.2017
+
+VA - Trance Music Lounge (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alizera - Galaxy 07:18
+02. Ariams And Adrianz - Last day of summer 04:56
+03. Ca5tor - Power Buttom 06:18
+04. Deep Space - The Infinite Time 06:10(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BA4C5F5D241E11E7DD3F03FA2DC2122D61FF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156402   (527652) от 07.08.2017
+
+Alcyone Project - The Worldseeker (2017)Single [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alcyone Project - The Worldseeker (Original Mix)
+02. Alcyone Project - The Worldseeker (The Mechanic & Vindicator Emotional Remix)
+03. Alcyone Project - The Worldseeker (The Pulsarix Remix)Жанр: Trance,Uplifting TranceПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEC7268A8141D6D673B3178C8632764B5A8FB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559241   (527105) от 24.06.2022
+
+VA - Armada Music - Trance Legacy (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Communication (Extended Mix) (9:40)
+02. Binary Finary - 1998 (Paul van Dyk Extended Remix) (9:48)
+03. The Thrillseekers - Synaesthesia (En-Motion Extended Remix) (8:20)
+04. Jurgen Vries - The Theme (Extended Mix) (9:30)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683E33684318274DC047D06C5DD98297BB58D71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157353   (525536) от 11.08.2017
 
 VA - Vocal Anthems Ibiza (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -658,93 +744,6 @@ VA - Dub Hits Vol.8 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BE6A1A24BB64C8976B7D83B666D6C9CDB1058A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242481   (515120) от 22.08.2018
-
-VA - Nothing But... Ibiza Summer 2018 Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Di Stefano - Never Back Down (Cold Blue Remix)
-02. Steve Allen - #TranceFamilia (Estigma Remix)
-03. WeareD - Coliseum (Extended Mix)
-04. Precious Affliction - Together (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512611417A79BDB2C84E87EBA7BE428D341BB265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242834   (513166) от 24.08.2018
-
-VA - Alter Ego Records - En Espana (Mixed By Duncan Newell & Luigi Palagano) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miikka Leinonen & Kim Kiona - Breath Of The Wild (Original Mix)
-02. Kayan Code - Furion (Original Mix)
-03. Ahmet Atasever & Monty Wells - Trading Halos (Sunset Remix)
-04. NavidN2M - Be Yourself (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC52A1E74DE80DAF8A7A75B43582EF520FA8F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242856   (513163) от 24.08.2018
-
-VA - Underground Trance Essentials Vol. 03 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Antony - Jadran Pearl (Original Mix)
-02. Emanuele Congeddu - Achelois (Extended Mix)
-03. 4Joann - My Mind In Denial (Original Mix)
-04. Aimoon - Less Than Three (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927F761524D71D31E168F74453901AC3AE531D8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

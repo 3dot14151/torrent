@@ -1,3 +1,32 @@
+###  Публикация: 1455036   (1025799) от 18.03.2021
+
+Creed Fisher - How Country Music Sounded Before It All Went to Shit, Vol. 1 (2021) [MP3|320 Kbps] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Make-up & Faded Blue Jeans [00:04:04]
+02 - Down to a Crawl [00:03:21]
+03 - People Like Me [00:03:39]
+04 - Kentucky Bluebird [00:03:42](   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8C9F19C04C184727CCDAB746564077617755E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455371   (1025646) от 19.03.2021
 
 U.D.O. - Live In Bulgaria (2020) Pandemic Survival Show, 2021 [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ David Gilmour - Yes, I Have Ghosts (2021) EP [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:478EDECEF372358194CB0D9F6870108A09F36078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465346   (1019159) от 26.04.2021
-
-The Mono LPs - Shuffle/Play (2021) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Think About It 03:23
-02. Make Your Mind Up 04:09
-03. The Bomb 03:49
-04. Hell, Save My Soul 03:43(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9B8B690B5D6B7DB0C8AD847D899B3E57A181D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

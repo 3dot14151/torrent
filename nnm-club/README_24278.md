@@ -1,31 +1,22 @@
-###  Публикация: 474484   (98157) от 31.03.2012
+###  Публикация: 1822827   (102693) от 08.10.2025
 
-VA - Klubnye novinki Vol.54 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+R-Wipe & Clean 20.0.2529 RePack (& Portable) by elchupacabra [Ru/En]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Parker & Hanson - Afterthought
-02. JPS - Hear Me Out (Steve Brian Remix)
-03. Oscar Akagy - El Ritmo 1983 (Mijail Candyloop Remix)
-04. Fergus Keogh feat. Tiff Lacey - Darkest Hours (Erick Strong Remix)
-05. Q.u.a.k.e. - Move & Groove (Original Mix)
-06. Smoothiesforme - Forbidden (Stereopole Remix)
-07. Da Fresh & Max Freegrant - Barberry (Andrea Bertolini Remix)
-08. Leven Mervox - Shrinked Strings (Original Mix)
-09. Neomotion - Moonlight (Original Mix)
-10. Second Way - Tokyo Samurai (Airsoul Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:31:52
+R-Wipe & Clean - программа для невосстановимого удаления данных с жесткого диска с широкими возможностями. Среди возможностей: очистка файла подкачки и файлов .dat (в т.ч. используемых системой), удаление записей в MFT и многое другое, что требуется для уничтожения следов деятельности за компьютером. Кроме очистки свободного места на диске (включая удаление кластеров, (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DA8EA1DBDDF00176EFD004C2C6ABB2B46670D21
+magnet:?xt=urn:btih:40936DBA9104593F762CB81735431EAA1DA433D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475385   (98156) от 31.03.2012
+###  Публикация: 1822829   (102692) от 08.10.2025
 
-Юджин Пеппероу | Беспокойный уик-энд [1991] [MP3]
+Шрифты - Contrast Foundry - CoFo Raffine [OTF, WOFF]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Юджин Пеппероу (1991Жанр: Детектив
+CoFo Raffine — акцидентная антиква c ярким характером. Разноширинные пропорции делают набор любых слов или заголовков непредсказуемым и захватывающим. Разница заметна не только в ширине символов, но и в подчёркнуто-преувеличенных формах отдельных букв. Благодаря декоративным выносным элементам и лигатурам, преднамеренная асимметрия становится ещё выразительнее, а (   Читать дальше...   )Формат: OTF, WOFFПоддержка кириллицы: Есть
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A7B9D9FA7A1DA20C3DCEDF5E47A467AFDE90BA8
+magnet:?xt=urn:btih:16C76DD48B17B0234F55BAEB75DB12F8B2EB3A18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -59,29 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476160   (98155) от 31.03.2012
+###  Публикация: 1822833   (102691) от 08.10.2025
 
-[Wallpapers] Avto Wallpapers Pack 19
+100 миллионов! / 100 millions! (2025) WEB-DL [H.264/1080p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 19
-Название: Avto Wallpapers Pack 19
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Работник типографии и профсоюзный босс унаследовал 100 миллионов евро, но этот куш оставил его без работы и с браком на грани — вот это называется напечатать себе проблем!Производство: Франция / Les Films Manuel Munz, Coup De Foudre Production, TF1 Films ProductionЖанр: комедияРежиссер: Нат ДюмонАктеры: Кад Мерад, Мишель Ларок, Фатсах Буяхмед, Ги Леклюз, Мартин Карманн, Джейд-Роуз Паркер, Хеза Ботто, Сёрен Прево, Ариэль Семенофф, Жан-Мишель Лами, Дайан МюллерПеревод: ДублированныйЯзык озвучки: Русский, ФранцузскийСубтитры: ФранцузскийПродолжительность: 01:32:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:739ECB56010723974B87E8B303597317802C5AB8
+magnet:?xt=urn:btih:CD998219EB5E38F2FCA3CF3C920B983D5F06AABF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -89,34 +76,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474748   (98154) от 31.03.2012
+###  Публикация: 1822831   (102690) от 08.10.2025
 
-Lojaz - Полный бак (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+Предатель (1926) WEBRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Музыки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Полный бак (ft. A#3, ТНМК)
- 02. Бессоница (ft. ZB, СВО)
- 03. Больше рэпа (ft. АЛАН)
- 04. Будь мужиком (ft. ГИГА, Хок, Спарцмен)
- 05. Ничего не забыто (ft. Дмитрий Француз, A#3, Стэпман, MC T)
- 06. Стена (ft. Злой, LENIN)
- 07. Пластилин (ft. Митяй)
- 08. Крутиться (ft. Лион, Климат, СВО, Ar-SiDE)
- 09. Сделано в UA (ft. Ю.Ц., Снег, Митяй, R.Sen)
- 10. Игра (RMX)2012Жанр: Rap, Hip-HopПродолжительность: 00:40:22
+По мотивам рассказа Льва Никулина «Матросская тишина».
+В дореволюционные годы «весёлый дом» мадам Гюйо считался одним из самых богатых заведений приморского городка. Здесь собирались прожигатели жизни, преуспевающие дельцы, агенты охранного отделения. Дом мадам Гюйо был не только местом увеселения, но и ареной уголовных интриг и политических провокаций. Частенько (   Читать дальше...   )Производство: СССР / ГоскиноЖанр: драма, короткометражный, немое киноРежиссер: Абрам РоомАктеры: Мария Паршина, Евгения Хованская, Николай Радин, Т. Оганезова, Леонид Юренев, Константин Давидовский, В. Поддубный, Тамара Адельхейм, Арташес Ай-Артян, Давид ГутманСубтитры: русские (интертитры)Продолжительность: 00:22:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF73A25B7159D1BF409B7347864D715C0F83E22E
+magnet:?xt=urn:btih:37240AC586BAE95CFEA139F7CCCE401F9F2656AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -124,28 +103,48 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475575   (98153) от 31.03.2012
+###  Публикация: 1454864   (102689) от 08.10.2025
 
-Excess Luggage - Hand Luggage Only (2011) [FLAC|Lossless]<Bop, Post-bop, Soul-jazz, Organ>
+Идиократия / Idiocracy (2006) WEB-DL [H.264/1080p]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Annoying You (6:55)
-02. Jimmy's Thai Kitchen (6:11)
-03. Corrupted Mirror (5:27)
-04. After All (6:43)
-05. Fast Swing (5:47)
-06. Kun-ming (5:10)
-07. If I Should Lose You (8:32)
-08. Laat (4:54)2011Жанр: Bop, Post-bop, Soul-jazz, OrganПродолжительность: 00:49:40
+Капрала Джо Бауэрса, Пентагон выбирает для участия в сверхсекретной программе по гибернации людей. Проведя в спячке пятьсот лет, он пробуждается и попадает в цивилизацию, где интеллектуальный уровень людей намного ниже того, которым обладает он. В итоге Джо оказывается самым умным человеком на планете.Производство: США / 20th Century Fox Film Corporation, Ternion PicturesЖанр: Фантастика, комедия, приключенияРежиссер: Майк ДжаджАктеры: Люк Уилсон, Майя Рудольф, Дэкс Шепард, Терри Крюс, Энтони Кампос, Дэвид Херман, Сонни Кастилло, Кевин МакЭфи, Роберт Мусгрейв, Майкл МакКафферти, Кристофер Райан, Джастин Лонг, Хит Джонс, Патрик Фишлер, Дарлен Хант, Мелисса Свит, Эндрю УилсонПеревод: Профессиональный многоголосый, авторский (ненормативная лексика)Субтитры: Русские (ненормативная лексика), английскиеПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFB076BA39CA16E9645F1C2EB18DFD3D692F667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821464   (102688) от 08.10.2025
+
+Алкоголь и сигареты можно будет купить без паспорта
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сервис для подтверждения возраста по лицу при покупке товаров 18+ заработает на кассах самообслуживания уже этой осенью. В вендинговых аппаратах его запустят уже в ближайшие недели — до конца октября, уточнили в Центре биометрических технологий.
+(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -157,27 +156,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475644   (98152) от 31.03.2012
+###  Публикация: 490987   (102686) от 02.05.2012
 
-Белое утро / Ako / White Morning (1965) DVDRip
+Не будите спящую собаку (2 серии) (1991) DVDRip
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Один день из жизни Ако, 16-летней японской девушки, ее друзей и коллег. Звон будильника, утренняя суета, сборы на работу, пекарня, отдых с друзьями, внезапная поездка к морю... все ли с ней будет хорошо?
-
-Ako - одна из четырех короткометражек входящих в боксет от Criterion - Тэсигахара / Кобо Абэ, включавщего в себя фильмы "Женщина в песках", "Обвал" и "Чужое лицо".Жанр: Драма, КороткометражныйРежиссер: Хироси Тэсигахара / Hiroshi TeshigaharaАктеры: Мики Ириэ, Теруко Хасегава, Ёко Матсушида и др.Перевод: Одноголосый закадровыйПродолжительность: 00:28:42
+Один из самых удачных отечественных фильмов об аферистах.
+Очутившись на свободе, рецидивист Чибис (А. Жарков) и криминальный авторитет (В. Этуш) решаются на сложную, но очень денежную афёру. Они задумали «кинуть» своего друга и подельника по воровству - богатого цеховика и барыгу (В. Павлов). Прекрасный кастинг, великолепная игра актеров, ироничный и продуманный (   Читать дальше...   )Жанр: Комедия, криминалРежиссер: Анатолий БобровскийАктеры: Алексей Жарков, Виктор Павлов, Елена Попова, Владимир Этуш, Сергей Бадичкин, Николай Бармин, Анатолий Бобровский, Эммануил Виторган, Анатолий Голик, Вадим Грачев, Николай Гудзь, Виктор Демерташ, Игорь Кашинцев, Ирина Лазарева, Александр Литовкин, Юрий Мартынов, Геннадий Матвеев, Татьяна Новицкая, Владимир Привалов, Любовь Руденко, Сергей Силкин, Владимир Сошальский, (   Читать дальше...   )Продолжительность: 01:02:30 + 01:02:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9A6DAF581A24F82EC6625A45C442FB850040B3E
+magnet:?xt=urn:btih:A98A7CA79E37285A6FD017249643ECB234D0C928
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,30 +183,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475716   (98151) от 31.03.2012
+###  Публикация: 490957   (102684) от 02.05.2012
 
-Torchbearer - Death Meditations (2011) [WavPack|Lossless]<Melodic Death Metal/Black Metal>
+FastStone Capture 7.1 Final RePack (& portable) by KpoJIuK [Английский, Русский]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Portals (Instrumental) (1:59)
-02. The Momentum (4:51)
-03. Coffin-Shaped Heart (5:40)
-04. At Takao River (5:26)
-05. Severings (4:45)
-06. In The Shadow Of Leaves (Instrumental) (1:53)
-07. Death Meditations (4:12)
-08. Penumbra (4:41)
-09. Dying Codex (4:38)
-10. The Aphotic Depths (Instrumental) (6:11)Жанр: Melodic Death Metal/Black MetalПродолжительность: 00:44:14
+FastStone Capture - утилита для снятия скриншотов рабочего стола Windows. Программа может делать полный снимок веб-страницы, даже если она прокручивается в браузере, производит захват всего экрана или же только его части – отдельного окна, его компонента, прямоугольной или произвольной области, указанной пользователем. Предусмотрена возможность добавления на скриншоты поясняющих надписей, подписей, указательных стрелок и водяных знаков. Область снятия скриншота задаётся произвольно или делается снимок в полноэкранном режиме. В программе присутствуют средства редактирования полученных скриншотов, такие как обрезка, изменение цвета и размера, поворот и зеркальное отражение картинки.Название программы: FastStone CaptureЯзык интерфейса: Английский, Русский
 
 ## Скачать торент
 ```bash
@@ -220,34 +209,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476441   (98150) от 31.03.2012
+###  Публикация: 490945   (102682) от 02.05.2012
 
-VA - Жаркие Танцы (2012) [MP3|160-256 kbps]<Club>
+Е.И. Лазарева | Русско - китайский разговорник [2001] [DJVU]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. MiXi - Виртуальная Любовь (DJ VAL remix)
-02. DJ Smash feat. Maury - Rendez-vous (Melloffon extended remix)
-03. Mixi Feat. Young Zeke - Текила (Alex Neo Remix)
-04. Inna - Endless (Speak One Reworked Radio Edit)
-05. Vadim Koks - Uranus (original mix)
-06. Dj Cosmo & Пачуля - Прости (Original Radio Version)
-07. Alexey Romeo & Plage feat. Alateya - Summer Night (Dabruck & Klein remix)
-07. DJ Satellit Karina - Потанцуй Со Мной (Tonada Radio Mix)
-09. Cosmic Gate feat. Tiff Lacey - Open Your Heart (Yuri Kane remix)
-10. Lolita Jolie - La Premiere Fois (Ti-Mo Remix Edit)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 08:04:39
+Русско-китайский разговорник содержит типичные модели фраз и выражений по широкому кругу тем. Разговорник предназначен для российских граждан, с разными целями посещающих Китай и не владеющих китайским языком. В данный разговорник не включено иероглифическое написание, а приводится только практическая транскрипция, учитывая то, что читатели, пользующиеся разговорником, не владеют китайским языком.
+ Читателей может удивить то, что практически над каждой гласной имеется значок, указывающий на интонацию, а также то, что эти значки столь различны. Дело в том, что мелодика китайского языка многообразна и имеет смыслоразличительную функцию. В начале книги имеются пояснения.
+ Для наиболее часто встречающихся ситуаций приведены типичные модели фраз и выражений. В конце разделов приводится список слов по конкретной теме. Подставляя слова из этого списка в готовые фразы, можно получить новые варианты предложений.2001Формат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB17E265E07F8049F41264838B883CABCC7ED3F9
+magnet:?xt=urn:btih:9E49F28493C797898E53BAD0233D3DAC36D0ACF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -255,25 +237,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475937   (98149) от 31.03.2012
+###  Публикация: 491026   (102681) от 02.05.2012
 
-[Wallpapers] HQ Wallpapers by KSV (31.03.12)
+Деметрий и гладиаторы / Demetrius and the Gladiators (1954) [1080p] BDRemux
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Своенравный римский император Калигула отправляет своих центурионов, чтобы найти багряницу - одеяние Христа при восхождении на Голгофу.
+
+Герой Виктора Матуре - бывший раб, а ныне вольноотпущенник Деметрий, неистовый приверженец христианской веры, скрывает плащаницу, за что и попадает на арену цирка в качестве гладиатора.
+
+Безумный император Калигула любил, когда на его глазах проливается кровь рабов сражающихся межу собой или с дикими хищниками.
+
+Новому гладиатору предстоит сразиться с тремя тиграми и вступить в смертельный поединок с пятеркой лучших гладиаторов Рима. Он с честью одержит победу в этих кровавых боях.Жанр: Боевик, драма, историяРежиссер: Делмер ДейвзАктеры: Виктор Мэтьюр, Сьюзен Хэйуорд, Майкл Ренни, Дебра Пейджит, Энн Бэнкрофт, Джей Робинсон, Бэрри Джонс, Уильям Маршалл, Ричард Иган, Эрнест БоргнайнПеревод: Многоголосый закадровыйПродолжительность: 01:41:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:545C96F06B3CDDF8FF5224D70ED4290FD844BB56
+magnet:?xt=urn:btih:9A68592F41413963F4D0E490E4F2792B78697726
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,34 +269,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475782   (98145) от 31.03.2012
+###  Публикация: 490610   (102679) от 02.05.2012
 
-Фактор Производства - Фабрика Андеграунда (2012) [MP3|128/320 кб/с]<Rap, Hip-Hop>
+Club des Belugas - Forward (2012) [FLAC|Lossless]<Soul, Nu Jazz, Electro Swing, Downtempo>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Интро (XadJo prod.)
-02. Пусси (Sweet Love Beatz prod.)
-03. Фабрика Андеграунда (27 prod.)
-04. Снежная баба (Veggah prod.)
-05. АндерФильм при уч.ZKMN (Андеграунд Кома) (27 prod.)
-06. Скальпелем (Veggah prod.)
-07. Джазовый фарш при уч.Златый Базар (Veggah prod.)
-08. Сказка (Sweet Love Beatz x Pavel Ku prod.)
-09. Гангстерская (XadJo prod.)
-10. Под водку (Veggah prod.)(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:55:50
+01. Save A Little Love For Me Feat Ester Rada (3:33)
+02. Straight To Memphis - Feat Brenda Boykin (5:15)
+03. Anita O'day - Peanut Vendor Club Des Belugas (Remix) (3:43)
+04. All Aboard Feat Iain Mackenzie (4:15)
+05. Forward Feat Jen Kearney (3:37)
+06. Desperately Trying Feat Annaluca (Swing Mix) (3:47)
+07. Close Your Eyes Feat Iain Mackenzie (4:11)
+08. Jojo Effect - I Shouldn't I Wouldn't (Remix) (3:52)
+09.  The Beat Is Rhythm (4:28)
+10. Dat Thang Feat Brenda Bokin (4:01)(   Читать дальше...   )Жанр: Soul, Nu Jazz, Electro Swing, DowntempoПродолжительность: 01:04:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B41D6059B7B2537B27627D67909D601CF5E9049F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,34 +304,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 473100   (98144) от 31.03.2012
+###  Публикация: 491210   (102675) от 02.05.2012
 
-VA - Against Humanity (2011) [MP3|~249 кб/с (V0)]<Psy-Prog, Full On>
+Валерий Панков - Хиты из мультиков. Часть 1 (1998) [MP3|320 кб/с]<Детские песенки и музыка>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Generic - Atmosphere 07:24
-02. Faders vs Audiotec - Voices (original mix) 07:00
-03. Hi Profile - Against Humanity 08:06
-04. Neelix - 7th Grade 06:03
-05. Erotic Dream - She Wants A Wash Machine 06:30
-06. Ticon - Balkan Tourist (Paul Thomas And Myke Smith remix) 06:06
-07. Ital - Conimi 07:16
-08. Shinouda - Hamy Influences 07:14
-09. Orion Signs vs Pyro - Light For The Blind 07:26
-10. Kularis - Foxtrott Lessons (original mix) 06:45(   Читать дальше...   )2011Жанр: Psy-Prog, Full OnПродолжительность: 02:17:15
+1. Заставка
+2. Утиные истории
+3. Чип и Дейл
+4. Каспер(   Читать дальше...   )Жанр: Детские песенки и музыкаПродолжительность: 00:36:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28D8B565300B3D7B8C8F6D47F8E055F77473F96A
+magnet:?xt=urn:btih:65F34B096340FA4D09901AC7F65740C2F29FC1D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,25 +333,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475936   (98143) от 31.03.2012
+###  Публикация: 491012   (102673) от 02.05.2012
 
-[Wallpapers] Best HD Wallpapers Pack (31.03.12)
+Organic Loops - Rock Hip Hop Guitars And Bass [Wav|Rex][английский]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Совершенно новая коллекция звуков гитары и баса в стилях Rock и Hip Hop в темпах 80, 90, 100, 110 и 120 Bpm.Название программы: Organic Loops - Rock Hip Hop Guitars And BassЯзык интерфейса: английскийФормат: Wav,Rex
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A815480EC3DFDE6BDE107FA77121D46448308EC1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,34 +359,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475996   (98141) от 31.03.2012
+###  Публикация: 491080   (102672) от 02.05.2012
 
-VA - Зажигательная Дискотека Non-Stop №15 (2012) [MP3|256 кб/с]<Pop,Dance>
+Deep Purple & Orchestra: Live at Montreux (2011) BDRip [720p]
 
->>Архив торрентов
->>Архив Музыки
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 DJs From Mars & Fragma - Insane (In da brain)
-002 Митя Фомин - Хорошая Песня (Жизнь Одна, Хочется Жить)
-003 Bryce feat. J-Malik - Nothing can hold us back
-004 Каникулы В Мексике - Мексикана-Мама (Radio Version)
-005 Dev - In the dark
-006 Дядя Жора - Губки Уточкой
-007 DJ Bobo - Everybodys gonna dance (Bryce remix edit)
-008 Vshoke - Весна
-009 David Guetta - Without you (feat. Usher)
-010 Лавика - В Городе Весна (DJ Melloffon Remix)2012Жанр: Pop,DanceПродолжительность: 05:53:48
+Концерт легендарных британских хард-рокеров1. Orchestral Intro
+2. Highway Star
+3. Hard Loving Man
+4. Maybe I’m A Leo
+5. Strange Kind Of Woman
+6. Rapture Of The Deep
+7. Woman From Tokyo
+8. Contact Lost
+9. When A Blind Man Cries
+10. The Well Dressed Guitar(   Читать дальше...   )Жанр: Hard RockАктеры: Ian Paice, Don Airey, Steve Morse, Ian Gillan, Roger GloverПеревод: Не требуетсяПродолжительность: 01:52:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA6E91B896C42385395BB7AB5351DAEE3C213ACF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,29 +394,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476158   (98140) от 31.03.2012
+###  Публикация: 490940   (102671) от 02.05.2012
 
-[Wallpapers] Best Wallpapers Pack 12
+Эдуард Лимонов | Путин. Семь ударов по России [2012] [DJVU]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>След.
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Best Wallpapers Pack 12
-Название: Best Wallpapers Pack 12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 3504х2190
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Эдуард Лимонов, известный российский писатель, публицист и общественный деятель, в своей книге показывает итоги деятельности В. Путина на посту президента России. Автор подробно останавливается на всех значимых событиях этого периода («Курск», Чечня, «Норд-Ост», Беслан и т.д.) и анализирует образ действий Путина в каждом из этих случаев. По мнению Э. Лимонова, каждый раз у президента была более чем странная реакция на происходящее, а шаги, которые им предпринимались, наносили ощутимый вред Российской Федерации.
+Несмотря на то, что книга Э. Лимонова содержит множество фактов, цифр, имен, она отличается хорошим стилем изложения и читается на одном дыхании.2012Формат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E23F25A925691A0D58CB2B61716382C69B80E10
+magnet:?xt=urn:btih:DBFA96D61DBF44D2C8D1AB355A73669088CF1D24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,60 +421,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475957   (98139) от 31.03.2012
+###  Публикация: 491108   (102670) от 02.05.2012
 
-VA - Клубная 100-ка (2012) [MP3|160-320 kbps]<Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ural Djs & Letichev Sky Feat. Aruba Ice - Пленники Любви (Dj Solovey Remix)
-02. A.Shine - Я к тебе (House Massive mix)
-03. IKA - Задыхаюсь без тебя (DJ NIGHT remix)
-04. Гости Из Будущего - Мой Baby (Ruslan Maiamix Remix)
-05. Javi Reina & Syntheticsax - Oig (DJ V1t & Fast Food remix)
-06. Mixi - До Рассвета (Dj Solovey Remix)
-07. DJ Sandro Escobar & Katrin Queen vs. Reflex - Non Stop (extended mix)
-08. Movetown feat. Nana - Lonely (DJ Klubbingman Meets Raindropz! Remix Edit)
-09. Serenity & Spyer Feat. Tevin - Club Rockin Beats (Ti-Mo Remix Remix Edit)
-10. Fillin - Добрый Вечер Мой Город (Dj Xm Electro Remix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBB217C8C599001F9C6F49DDD1C6AF767064EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476134   (98138) от 31.03.2012
-
-Журнал | Благоустройство №2 [2012 март] [PDF]
+Максим Дубровин | Проект Этногенез | Сыщики. Король Воров [2012] [TXT, FB2, EPUB, RTF, PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для тех, кто создает уют. Основная цель — помочь сориентироваться потребителю на рынке товаров и услуг в области благоустройства жилья, то есть — посоветовать, направить, разъяснить, дать оценку и помочь при выборе. Для этого мы привлекаем к сотрудничеству экспертов в области ремонта, строительства и дизайна.2012 мартФормат: PDF
+Вторая половина девятнадцатого века. В Атлантике найдена бригантина «Мария Селеста», экипаж которой бесследно исчез. И это далеко не единственная загадка странного корабля. Спустя шестнадцать лет молодой сыщик по прозвищу Пустельга пытается распутать следы этой давней трагедии. В поисках истины, ему предстоит схватиться с безумным Джеком Потрошителем и познакомиться с загадочными Хранителями, навестить таинственного Узника в Ньюгейтской тюрьме, спуститься в бездонные лондонские катакомбы и столкнуться с могущественным хозяином «ночного Лондона» — самим Королем Воров.2012Формат: TXT/FB2/EPUB/RTF/PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4B161308A18FEA8941E86EFDBAA0B88A31FCFB3
+magnet:?xt=urn:btih:B543B346B7EC02715700CCD86B84C289DF7727A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,34 +447,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474244   (98137) от 31.03.2012
+###  Публикация: 491156   (102668) от 02.05.2012
 
-DJ Kocmoc - Electro Sensation vol.22 (12.03.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+[Системные иконки] Подборка иконок популярных браузеров
 
->>Архив торрентов
->>Архив Музыки
+>>Графика, Арт, Разное
+>>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Nero – Guilt (DallasK Remix)
-2. Felguk - Bassive (Original Mix)
- 3. 2-4 Grooves feat. Amina - Melodie (Extended Mix)
-4. Inna feat. Flo Rida - Club Rocker (Mike Candys Extended Mix)
-5. Flo Rida - Good Feeling (J.O.B. Remix)
-6. DJ Antoine - Welcome To St.Tropez (Mike Candys After Summer Bootleg Mix)
- 7. DJ Antoine - Every Breath You Take 2012 (Voodoo & Serano Remix)
- 8. Marq Aurel & Beatbreaker feat. Nate Monoxide - Road Rat (Major Tosh Remix)
-9. Pitbull feat. Ne-Yo & Nayer - Give Me Everything Tonight (Danny Rush Remix)
- 10. Sean Finn - Show Me Love 2012 (Rockstroh Remix)(   Читать дальше...   )12.03.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:30:02
+Подборка иконок популярных браузеров. Firefox,Google Chrome,Internet Explorer,Opera,Safari (ico128x128 точек).Заменить стандартные иконки Windows можно с помощью программы IconPackager, IconToРазрешение файлов: 128x128
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:156C1CCEEAEF8A5C6CE81A84854BD493A968FBFB
+magnet:?xt=urn:btih:35005838316EFCA18FAADCB0E5260D00B1E9EE89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,30 +473,23 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 473571   (98136) от 31.03.2012
+###  Публикация: 491007   (102667) от 02.05.2012
 
-Shadowgarden - Ashen (2010) [FLAC|Lossless]<Gothic Dark Metal>
+Время убивать / A Time to Kill (1996) [720p] BDRip
 
->>
->>
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shadowplay 03:48
-02. Last Summer 03:26
-03. With Love and a Bullet 04:27
-04. The Withering of Mine 03:16
-05. Sorrow´s Kitchen 04:50
-06. 1:40 AM 04:07
-07. Murky Waters 04:34
-08. Way Down Low 03:33
-09. Empty Days 03:27
-10. Slowmotion Apocalypse 06:312010Жанр: Gothic Dark MetalПродолжительность: 00:49:39
+Экранизация романа Джона Гришэма.
+В штате Миссиссиппи молодые белые подонки (во главе с Кифером Сазерлэндом) изнасиловали и бросили, сочтя мертвой, несовершеннолетнюю негритянскую девочку. Ее отец (Джексон), не надеясь на эффективность белого правосудия вооружился автоматом и застрелил негодяев, серьезно ранив охранника. За его защиту взялся молодой юрист (МакКонахи в этой роли очень похож на молодого Пола Ньюмана), несмотря на то, что и дома, и в обществе у него возникло много серьезных проблем. Неожиданно к нему на помощь приходит чрезвычайно умная студентка юрфака (Сандра Буллок), оказывая действительно бесценную поддержку, определившую во многом успех его защиты.
+Хорошо сыгранная, сильная судебная драма на тему (которая, возможно, уже набила оскомину у российского зрителя) расовой несправедливости в южных штатах Америки. Доналд Сазерлэнд (отец Кифера в жизни) — в роли отстраненного от работы юриста-алкоголика, вернувшегося к работе и жизни, благодаря участию в защите правого дела..Жанр: Триллер, Драма, КриминалРежиссер: Джоэл ШумахерАктеры: Сандра Буллок, Чарлз С. Даттон, Сэмюэл Л. Джексон, Мэттью МакКонахи, Энтони Хилд, Никки Кэтт, Бет Грэнт, Оливер Плэтт, Джонатан Хэдари, Крис Купер, Пэтрик Макгуэн, Кертвуд Смит, Доналд Сазерлэнд, Эшли Джадд, Бренда Фрикер, Кевин СпэйсиПеревод: Многоголосый закадровый, Авторский одноголосыйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:29:29
 
 ## Скачать торент
 ```bash
@@ -573,240 +501,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475796   (98135) от 31.03.2012
+###  Публикация: 490851   (102666) от 02.05.2012
 
-VA - Clubber.RU (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Vengerov Feat. Рома Жуков & Паола - Переливы (Club Remix)
-02. Dj Цветкоff & Оля Милакса - Белая Ночь (Dj Solovey Remix)
-03. Geegun И Юлия Савичева - Отпусти (Dj Stylezz Remix)
-04. Katrin Moro - Давай Любить ( Vova Baggage Remix )
-05. Ligalize - Будущие Мамы (Dj Paulbass & Dj Gorodnev Hot Mix 2012)
-06. Maksim - Kaк Летать (Dj Shevtsov Alex & Menco Extended Mix)
-07. Mixi - До Рассвета (Dj Solovey Remix)
-08. Mixi - Между Мной И Тобой (Dj Andy Wait Remix)
-09. Mixi Feat. Young Zeke - Текила (Alex Neo Remix)
-10. Noggano - Застрахуй (Dj Viduta Remix)2012Жанр: Dance, ClubПродолжительность: 04:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DECD66D2F6D091B2B218B6318B1EC740DE2C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475831   (98133) от 31.03.2012
-
-Firebrand Super Rock - Firebrand Super Rock (2012) [MP3|320 кб/с]<Heavy Metal (Female Vocals)>
+Последний охотник / Hunter Prey (2010) DVD5
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. River Of The Dead 05:44
- 02. Into The Black 04:08
- 03. Wheel Of Pain 03:39
- 04. Iron Void 04:38
- 05. The Unborn 05:15
- 06. Hells Mouth 06:51
- 07. Beneath The Nameless City 01:57
- 08. Falling Down 03:33
- 09. Born To Die 07:09
- 10. Cleansed By Fire 05:19(   Читать дальше...   )2012Жанр: Heavy Metal (Female Vocals)Продолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F1730DFC8A0674E6677AD6CB192D28416E8E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475729   (98131) от 31.03.2012
-
-VNP - Trance Traveling 24 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashley Wallbridge feat Kobalt Infusion - Kopanang
-02. Trilucid feat. Sophie Tusnelda - Bring You The Sun (D-Mad Remix)
-03. Armin van Buuren feat Ana Criado - Suddenly Summer
-04. Ummet Ozcan - Miami Sundown (Original Mix)
-05. B-Fairy & Pluton vs. Yuri Kane - Opened Sense & Right Back (Turn Mashup)
-06. Ernesto vs. Bastian - Bonanza (Original Mix)
-07. Hydrogenio - 777 (Ben Gold Remix)
-08. Paul Oakenfold - Glow In The Dark (Original Mix)
-09. Indecent Noise - Civitanova (Nick Callaghan & Will Atkinsons Dark Sessions Remix)
-10. Bart Panco - Rising Sun (Lkerya Project Remix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41839DF44E411AC820C8F819B6AC956FFD49AB97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475635   (98130) от 31.03.2012
-
-Spectro Senses - Power Core (2012) [MP3|320 кб/с]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Core 06:37
- 02. Crazy Carousel 06:50
- 03. Side Impact 06:24
- 04. Run To Paradise 07:13
- 05. Frequency Drive 06:21
- 06. It's Not A Game 07:43
- 07. Master Blaster (Spectro Senses Remix) 06:24
- 08. Take Control 07:13
- 09. Magic World 06:37
- 10. Freak House 06:472012Жанр: Psychedelic / Full OnПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41B48E1BD2E7C8A25EDF5B20EE8EB4543065FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475989   (98129) от 31.03.2012
-
-VA - Территория Звезд (2012) [MP3|256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98129.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вероника Захарова (Vero) - Я Свободна (3:46)
-2. Wendel Kos feat. DJ San - Kiss of life (3:18)
-3. Sevenlee - Мир Без Тебя (Valentin Rich Club Version) (7:06)
-4. Инфинити - Ты мой герой (3:42)
-5. Пропаганда - Нет-Да (Dance Version) (3:52)
-6. The Disco Boys - Around the world (2:55)
-7. T.O.T.A.L. И Антитла - Весна-Любовь (4:25)
-8. Крылья - Сердца Pin-Code (3:46)
-9. Klaas & Bodybangers - I like (Bodybangers mix) (4:55)
-10. Fonzerelli - Moonlight party (3:37)2012Жанр: PopПродолжительность: 05:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773951AC3F540158A7A7533FB51D46F116F5931C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475497   (98126) от 31.03.2012
-
-VA - Клубные Новинки Vol.56 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serge Devant feat. Hadley - Dice (Original Mix)
-02. Rave Channel - Illusion (Original Mix)
-03. Max Graham feat. Susana - Down To Nothing (Johan Malmgren Remix)
-04. Stan Kolev - Sebai Kekade (Original Mix)
-05. Lissat & Voltaxx – Trying To Hold Me (Tomcraft Remix)
-06. Alexander-Popov - When The Sun (Club Mix)
-07. Nitrous Oxide - Ipeople (Space Rockerz Remix)
-08. Omnia feat. Melissa Loretta - Halo (Dan Stone Remix)
-09. John Acquaviva, Olivier Giacomotto - Feel Awright (Original Mix)
-10. Alan Banks - Illusion (Ex-Driver Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AF18F6C7E334F90AFA2D331DEC8C1F8F007BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475625   (98123) от 30.03.2012
-
-Михаил Рожков - Русская исполнительская школа - Таланты России (1995) [FLAC|Lossless]<Фольклор>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ивушка - (автор музыки: Геннадий Пономаренко)
-02. Пассакалия - (автор музыки: Георг Гендель)
-03. Венгерский народный танец "Чардаш"
-04. Болеро - (автор музыки: Н. Шульман)
-05. Старинный романс "Я встретил Вас"
-06. Романс из кинофильма "Овод" - (автор музыки: Дмитрий Шостакович)
-07. Мазурка - (автор музыки: Владимир Андреев)
-08. Танец с саблями из балета "Гаянэ" - (автор музыки: Арам Хачатурян)
-09. Испанский танец - (автор музыки: Мориц Мошковский)
-10. Гротеск и размышление - (автор музыки: Е. Тростянский)(   Читать дальше...   )1995Жанр: ФольклорПродолжительность: 01:10:34
+Тюремный звездолет, выполнявший передачу опасного межгалактического преступника, терпит крушение на пустынной планете. Выжившие конвоиры обнаруживают пропажу заключенного. Понимая, что в пустыне он далеко не уйдет, солдаты отправляются на поиски. Но очень скоро становится ясно, что охотники сами превратились в мишень…Жанр: Фантастика, ТриллерРежиссер: Сэнди КоллораАктеры: Исаак Сингелтон мл., Кларк Бартрам, Дэмион Пуатье, Саймон Поттер, Эрин ГрэйПеревод: Двуголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:24:15
 
 ## Скачать торент
 ```bash
@@ -818,29 +527,196 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475438   (98121) от 30.03.2012
+###  Публикация: 491259   (102664) от 02.05.2012
 
-[Wallpapers] Space Wallpapers Pack 3
+ArchBang Linux 2012.5 [i686, x86-64] (2xCD)
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Space Wallpapers Pack 3 
-Название:  Space Wallpapers Pack 3 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 6000х3750
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+rchBang является проектом, разрабатываемым ArchBang Team. Данный дистрибутив сочетает в себе Arch Linux с быстрым и простым оконным менеджером Openbox. Остальные приложения также подобраны исходя из простоты использования и легкости графического интерфейса. При этом разработчики пытались не жертвовать удобством использования, оснастив ArchBang стандартным по сегодняшним меркам набором приложений для работы с фото, видео и аудио файлами. Дистрибутив предназначен для пользователей, которые хотят получить Arch Linux "из коробки".
+
+Некоторые изменения в этом выпуске: установлен QDarkStudio4 по умолчанию как GTK + тема; выбран Shotwell для просмотра изображений, улучшен Conky; Epdfview заменил zathura, реализованы простые чистые панели tint2; добавлен Broadcom Wireless; релиз дополнил VirtulaBox Arch Linux; добавлена возможность управления мобильным широкополосным модемом в NetworkManager.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:551548FEB913A9C3651FAA065312A6B414B4D8F8
+magnet:?xt=urn:btih:60CEEA580F1499C21A3A1AE1C617BC5FB3D10998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490787   (102660) от 02.05.2012
+
+2016: Конец ночи / Hell (2011) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед тем как окончательно погаснуть, Солнце увеличилось до невероятных размеров и выжгло всю Землю, превратив ее в непригодную для жизни пустыню.
+
+Среди немногих выживших — группа молодых людей, которые отправились в горы в поисках воды и пищи. Но эта мысль посетила не только их, и очень скоро ребята оказываются втянуты в безжалостную борьбу за выживание.Жанр: Ужасы, Фантастика, ТриллерРежиссер: Тим ФельбаумАктеры: Ханна Херцшпрунг. Ларс Айдингер, Стипе Эрчег, Лиза Викари, Йоанн Бланк, Марко Каламандрей, Кристоф Гоглер, Ангела ВинклерПеревод: ДублированныйЯзык субтитров: Русский, НемецкийПродолжительность: 01:29:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490379   (102659) от 02.05.2012
+
+Оскар / Oscar (1967) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бертран Барнье - крупный промышленник, к которому с утра пораньше является его управляющий Кристиан. Он заявляет, что любит его дочь Колет, а после этого признается, что украл у предпринимателя кругленькую сумму. Вдобавок бизнесмен узнает, что его горничная увольняется и в одночасье становится баронессой.
+Колет заявляет, что беременна от бывшего шофера по имени Оскар. Кроме того, выяснятся, что она вовсе не дочь Барнье и, не желая оставаться старой девой, готова выйти замуж за любого встречного…
+К тому же, к этой истории примешиваются два черных чемодана, один из которых набит деньгами и драгоценностям, а другой женским нижним бельем… Как тут, от такого потока событий, происходящих в течение одного дня, «бедному» Бертрану не сойти с ума?!Жанр: комедияВ ролях: Луи де Фюнес / Louis de Funès, Клод Риш / Claude Rich, Марио Давид / Mario David, Жармен Дельба / Germaine Delbat, Клод Женсак / Claude Gensac, Агат Натансон / Agathe Natanson, Доминик Паж / Dominique Page, Поль Пребуа / Paul Préboist, Роже ван Хоол / Roger Van Hool, Филипп Валлори / Philippe Vallauris, Сильвиа Сорэль / Sylvia SaurelПеревод: Дублированный (СССР) + Профессиональный (многоголосый, закадровый)Продолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1B09B8EDF3C2D4F8E6907E4ACEA5E1341C48BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490469   (102657) от 02.05.2012
+
+Scorched Earth (RePack) [En] 1991 | Pilotus
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами - один из первых симуляторов танковых дуэльных поединков, игра, основанная на принципах, реализованных позднее в более известных Worms и Pocket Tanks. Идея проста до гениальности – уничтожить боевую машину противника, сохранив при этом свою. Столь незамысловатая формулировка, однако, скрывает за собой отличный геймплей.Тип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491125   (102648) от 02.05.2012
+
+Андрей Астахов | Машина апокалипсиса [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великое приключение продолжается. Бывший лох, а ныне Рыцарь Полуночного Грома Леха Осташов должен выполнить свой Главный Квест во что бы то ни стало. Поиски друзей приводят его в столицу маленького королевства, где происходят таинственные события.Жанр: фантастика, фэнтези
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E09E116D1B33418055C63D9C72B7BB92CDE7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490931   (102646) от 02.05.2012
+
+Keane - Strangeland (2012) [MP3|320 кб/с]<Pop-Rock, Piano Rock, Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are Young
+02. Silenced By The Night
+03. Disconnected
+04. Watch How You Go
+05. Sovereign Light Cafe
+06. On The Road
+07. The Starting Line
+08. Black Rain
+09. Neon River
+10. Day Will Come(   Читать дальше...   )2012Жанр: Pop-Rock, Piano Rock, BritpopПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FFAF0741BEF5B090B7A63B38AD9B2E27189C163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490321   (102644) от 02.05.2012
+
+Bad Blood [En] (RePack) 1990 | Pilotus
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bad Blood - это пост-апокалиптическая РПГ от Origin Systems. Вновь люди и мутанты не могут ужиться вместе. Что делает эту игру отличной от многих других игр подобного типа - это то, что вы на стороне мутантов и они в действительности хотят избежать конфликта.Тип издания: RePackЖанр: RPGЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

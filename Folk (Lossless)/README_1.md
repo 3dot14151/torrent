@@ -1,3 +1,29 @@
+###  Публикация: 645083   (867140) от 17.04.2013
+
+Deep Forest - Deep Africa (2013) /Promo CD/ [APE|Lossless]<World, New Age>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: World, New AgeПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497510   (864785) от 22.09.2021
 
 VA - Sirtaki Planet: The Best Of Sirtaki (1998) [FLAC|Lossless|image + .cue] <Folk, Country, Laiko>
@@ -718,35 +744,6 @@ Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6485F00740B3967C0DE7042043577E045C6889FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382808   (793522) от 13.11.2021
-
-Пелагея - Дискография (11 CD) (2003-2010) [FLAC|Lossless]<Ethnic/Folk-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ethnic/Folk-RockПродолжительность: 00:55:09
-
-01. Пташечка
-02. Снежочки(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FB2F94D9E77DAEA78EE7B529BD9ADD455123F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -86,6 +86,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604345   (1045350) от 13.01.2023
+
+Windows 7 Профессиональная VL SP1 2in1 x86+x64 (build 6.1.7601.26321) by ivandubskoj 12.01.2023 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 7
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка из 2-х русских редакций Windows 7 Профессиональная VL SP1 (x86-x64) на основе оригинальных образов, с интегрированными обновлениями, отключенной телеметрией и минимальным набором необходимых драйверов и ПО.Разработчик: MicrosoftЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EC113BC604110589FA2357710AA2B90331A0AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439449   (1039680) от 13.01.2021
 
 Windows 7 SP1 with Update [7601.24564] AIO 44in2 (x86-x64) by adguard (v21.01.13) [En/Ru]
@@ -671,35 +697,6 @@ ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E527D34A289FDAED98B88D0A53F1F47BDE58024A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639841   (196956) от 15.06.2023
-
-Windows 7 (6in1) x86-x64 by Updated Edition (14.06.2023) [Ru]
-
->>ОС Windows
->>Сборки Windows 7
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка создана на базе оригинальных образов от MSDN:ru_windows_7_professional_with_sp1_vl_build_x86_dvd_u_677853.iso
-ru_windows_7_enterprise_with_sp1_x86_dvd_u_677692.iso
-ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso
-ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774.iso(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1C51C0D3CB18A25BF37EF755A43784E55B2B18
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,9 +1,62 @@
-###  Публикация: 1861671   (1062776) от 
+###  Публикация: 1861687   (1062779) от 27.03.2026
+
+Я.М. Демяненко, М.И. Чердынцева | С++ как второй язык в обучении приемам и технологиям программирования. Учебное пособие. 2-е изд. (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062779.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии внимание уделяется языку С++ и использованию объектно-ориентированного подхода. Пособие состоит из десяти глав. Излагаемый материал рассматривается на большом количестве подробно разобранных примеров. Пособие адресовано студентам первого и второго курсов, обучающимися по бакалаврским программам по направлениям «Прикладная математика и информатика» (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательство Южного федерального университетаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B327BE5C614DA2BF975BFBD6F2A5A3A93F54AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861684   (1062778) от 27.03.2026
+
+Ришал Харбанс | Грокаем алгоритмы искусственного интеллекта. 1-е издание (2023) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Искусственный интеллект — часть нашей повседневной жизни. Мы встречаемся с его проявлениями, когда занимаемся шопингом в интернет-магазинах, получаем рекомендации «вам может понравиться этот фильм», узнаем медицинские диагнозы… Чтобы уверенно ориентироваться в новом мире, необходимо понимать алгоритмы, лежащие в основе ИИ.
+«Грокаем алгоритмы искусственного интеллекта» (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27186896B579FE3A076CC762AEB8E5A13B92B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861671   (1062776) от 27.03.2026
 
 Rishal Hurbans | Grokking AI Algorithms. How AI solves complex problems. 2nd Edition (2026) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062776.jpg" />
@@ -24,12 +77,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861667   (1062775) от 
+###  Публикация: 1861667   (1062775) от 27.03.2026
 
 Edward Tetz | Cisco Networking All-in-One For Dummies. 2nd Edition (2026) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062775.jpg" />
@@ -52,12 +105,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861664   (1062774) от 
+###  Публикация: 1861664   (1062774) от 27.03.2026
 
 John L. Hennessy, David A. Patterson, Christos Kozyrakis | Computer Architecture. A Quantitative Approach (The Morgan Kaufmann Series in Computer Architecture and Design). 7th Edition (2025) [PDF]  ...
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062774.jpg" />
@@ -78,12 +131,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861659   (1062773) от 
+###  Публикация: 1861659   (1062773) от 27.03.2026
 
 Stack Overflow | HTML5 для профессионалов. Руководство по разработке в примерах от сообщества Stack Overflow (2025) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062773.jpg" />
@@ -105,12 +158,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861655   (1062770) от 
+###  Публикация: 1861655   (1062770) от 27.03.2026
 
 Erik Österlund | The Z Garbage Collector. In JDK 25 (2026) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062770.jpg" />
@@ -132,12 +185,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861651   (1062769) от 
+###  Публикация: 1861651   (1062769) от 27.03.2026
 
 Michael Scott, Jonathan Aldrich | Programming Language Pragmatics. 5th Edition (2025) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062769.jpg" />
@@ -158,12 +211,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861647   (1062768) от 
+###  Публикация: 1861647   (1062768) от 27.03.2026
 
 Yung-Hsiang Lu, George K. Thiruvathukal | Intermediate C Programming. 2nd Edition (2024) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062768.jpg" />
@@ -186,12 +239,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861882   (1062764) от 
+###  Публикация: 1861882   (1062764) от 27.03.2026
 
 Эдриенн Браганца | «По-моему, неплохо». Конструктивные код-ревью (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062764.jpg" />
@@ -213,12 +266,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861881   (1062763) от 
+###  Публикация: 1861881   (1062763) от 27.03.2026
 
 Adrienne Braganza | "Looks Good To Me". Constructive code reviews (2025) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062763.jpg" />
@@ -241,12 +294,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861411   (1062391) от 
+###  Публикация: 1861411   (1062391) от 26.03.2026
 
 Michael Soltys | An Introduction to the Analysis of Algorithms (2026) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062391.jpg" />
@@ -268,12 +321,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860942   (1062231) от 
+###  Публикация: 1860942   (1062231) от 23.03.2026
 
 Ричардc Марк, Форд Нил | Фундаментальный подход к программной архитектуре. 2-е издание (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062231.jpg" />
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860342   (1061646) от 
+###  Публикация: 1860342   (1061646) от 20.03.2026
 
 Ранас Мукминов | Claude Code. Полное руководство по AI-ассистенту для разработчиков (2026) [PDF]
 
@@ -321,12 +374,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859741   (1061495) от 
+###  Публикация: 1859741   (1061495) от 17.03.2026
 
 Dawid Borycki | Modern App Deployment with Azure Kubernetes (Developer Reference). 1st Edition (2026) [EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061495.jpg" />
@@ -349,12 +402,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859738   (1061494) от 
+###  Публикация: 1859738   (1061494) от 17.03.2026
 
 Алекс Сюй, Сан Лэм | System Design II. Распределенные системы. Подготовка к сложному интервью (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061494.jpg" />
@@ -375,12 +428,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859732   (1061493) от 
+###  Публикация: 1859732   (1061493) от 17.03.2026
 
 Лю Лу, Чжан Юйцзинь | Рекомендательные системы на основе больших языковых моделей (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061493.jpg" />
@@ -401,12 +454,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859726   (1061491) от 
+###  Публикация: 1859726   (1061491) от 17.03.2026
 
 Хобсон Лейн, Мария Дышель | Обработка естественного языка в действии. 2-е изд. (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061491.jpg" />
@@ -428,12 +481,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859724   (1061490) от 
+###  Публикация: 1859724   (1061490) от 17.03.2026
 
 Paul Deitel, Harvey Deitel | C How to Program. With an introduction to C++. 8 Th Edition (2015) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061490.jpg" />
@@ -456,12 +509,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859722   (1061489) от 
+###  Публикация: 1859722   (1061489) от 17.03.2026
 
 John Paul Mueller, Luca Massaron | Algorithms For Dummies (For Dummies. 2nd Edition (2022) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061489.jpg" />
@@ -484,12 +537,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859720   (1061488) от 
+###  Публикация: 1859720   (1061488) от 17.03.2026
 
 Джон Поль Мюллер, Лука Массарон | Алгоритмы для чайников. 2-е издание (2025) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061488.jpg" />
@@ -510,12 +563,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859708   (1061486) от 
+###  Публикация: 1859708   (1061486) от 17.03.2026
 
 Hunter J. K. Knight | .NET MAUI Fundamentals. Your First Step into Cross-Platform Development (2025) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061486.jpg" />
@@ -536,12 +589,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859707   (1061485) от 
+###  Публикация: 1859707   (1061485) от 17.03.2026
 
 Stack Overflow | Blender. Самый подробный самоучитель. С нулевого уровня до профессионала (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061485.jpg" />
@@ -562,12 +615,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859729   (1061478) от 
+###  Публикация: 1859729   (1061478) от 17.03.2026
 
 Ф. Растелло, Ф. Буше Тишаду | Разработка компиляторов на основе формы SSA (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061478.jpg" />
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859576   (1061304) от 
+###  Публикация: 1859576   (1061304) от 16.03.2026
 
 Массимо Бертаччини | Алгоритмы криптографии [2 книги] (2024, 2026) [PDF] [RU, EN]
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859434   (1061184) от 
+###  Публикация: 1859434   (1061184) от 15.03.2026
 
 Frances Buontempo | Introducing C++: The Easy Way to Start Learning Modern C++ (2026) [PDF] [EN]
 
@@ -636,61 +689,6 @@ This book cuts through the noise, focusing on the essential elements of C++ with
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8E76DFAA0E26E1BB93EB65ACF8B9E84D00C3199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859058   (1060909) от 14.03.2026
-
-Carl Rippon | Learn React with TypeScript. A beginner’s guide to building real-world, production-ready web apps with React 19 and TypeScript. 3rd Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Take your first step in building modern-day component-based scalable web apps using the latest features and capabilities of React 19, TypeScript, and Next.js with this easy-to-follow guide.
-
-Free with your book: PDF Copy, AI Assistant, and Next-Gen Reader.
-(   Читать дальше...   )Жанр: JavaScript Programming, Mobile App Development & Programming, Programming LanguagesЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44049B367D994A815A24D6F21A589C7F21A178FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859057   (1060908) от 14.03.2026
-
-Hernando Abella | 120 Advanced JavaScript Interview Questions (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060908.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book offers a structured approach to mastering JаvaScript interview questions, organized into five tiers, ranging from fundamental concepts to advanced challenges. By working through these questions, you’ll gain the confidence and knowledge needed to excel in technical interviews. Uncover the intricacies of this versatile language and harness its power to create (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947594A90454C99FE467AC9F1C1E4DE4DE71D9CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1496473   (871066) от 18.09.2021
+
+Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [FLAC2.0|24/48|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of the Sisters [00:16:25]
+02. I See You in My Dreams [00:18:25]
+03. House Atreides [00:13:54]
+04. The Shortening of the Way [00:11:14](   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D25D5FE09EE0B63979CD592596882221977625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106773   (871052) от 20.02.2017
+
+VA - Ёлки 5 (Музыка к фильму) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Секрет - На любой стороне земли (03:44)
+02. Павел Есенин - The Beginning (01:40)
+03. Павел Есенин - The Arctic Life (00:50)
+04. Павел Есенин - Vova & Varya (00:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D314B0A6D2F848B11201FC11512D89217B323A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496487   (870928) от 18.09.2021
+
+Hans Zimmer - Dune (3 CD) (2021) Music From The Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of the Sisters [00:16:25]
+02. I See You in My Dreams [00:18:25]
+03. House Atreides [00:13:54]
+04. The Shortening of the Way [00:11:14](   Читать дальше...   )Жанр: ScoreПродолжительность: 3 CD, 03:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D032DCF0CAE22267D017541C2EDD5F90EB6EFA8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374712   (870764) от 11.04.2020
+
+Blackmore’s Night - Under A Violet Moon (1999) [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under A Violet Moon (04:24)
+02. Castles And Dreams (03:34)
+03. Past Time With Good Company (03:24)
+04. Morning Star (04:41)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E2CBBC7B2930B80A13217B78389922A620433B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373832   (870515) от 11.04.2020
+
+Windsong - Windsong A Celebration of Life (Native American Chants & Dances) (1999) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle of Fire
+02. The Counterclockwise Circle Dance
+03. Return from River Island
+04. Dance of the Warrior(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC04237BB36FC10358CF8122B980C1570A03F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374298   (870514) от 11.04.2020
+
+Jim Brickman - 25th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870514.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. By Heart	04:06
+2. Valentine	03:41
+3. Starbright	02:38
+4. The Gift	04:03(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7E4FDDED433170E7F3B7ECB812DF80AE81C265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 300208   (870410) от 27.02.2011
 
 Blackmore's Night - Дискография (1997 - 2010) [MP3|192-320 kbps] <Folk Rock>
@@ -563,180 +737,6 @@ Govannen - Celtic Air (2016) [MP3|320 Kbps] <New Age, Celtic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70329CE8EE8B360BAC7F98B77D634FE1A48B398F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108207   (864544) от 24.02.2017
-
-VA - Bedouin Nights (2015) [MP3|320 Kbps] <Arabic, Arabic Pop, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancienne S. - Koubba
-02. Aqualife - Colours of Life
-03. Audio P - After Hours
-04. Ayra - Sweet Smoke(   Читать дальше...   )Жанр: Arabic, Arabic Pop, New Age, WorldПродолжительность: 02:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB37F6B93B98000A57877C783110731F964E6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108159   (864533) от 24.02.2017
-
-Blonker - Zeitreise-25 Jahre Gitarrenmusik (2003) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864533.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Sidewalk Cafe (3:13)
-02. Cape Ladiko (3:25)
-03. Zeitreise (2:54)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 02:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C40728459FDF0EA0C11A6B25718FCE6842E9A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108123   (864529) от 24.02.2017
-
-Deva Premal - Password (2011) [FLAC|Lossless|tracks + .cue] <New Age, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mangalam (10:16)
-02. Shyam! (7:06)
-03. Sri Nanda- Nandanastakam (7:41)
-04. Narasimha (7:12)(   Читать дальше...   )Жанр: New Age, MantrasПродолжительность: 01:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529E93E9C7AB8A17EC706E30A216B702FBAD11CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108332   (864270) от 24.02.2017
-
-Mairead Nesbitt - Hibernia (2016) [MP3|320 Kbps] <Instrumental,  Celtic,  Folk>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallowed Fire
-02. The First Sheaf
-03. Becoming
-04. Seán Ó Duibhir A' Ghleanna(   Читать дальше...   )Жанр: Instrumental,  Celtic,  FolkПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0606489F9193C0AE69FC5FB0BA792E12061F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497507   (863066) от 23.09.2021
-
-Unknown Artist - A Night In A Greek Taverna (Unknown) [FLAC|Lossless|image + .cue] <Folk, Country, Laiko;>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ti Lozani, Ti Kozani (3:08)
-02. Fragkosirianoi (2:26)
-03. Kai Tote Monos (4:07)
-04. Leei-Leei (3:00)(   Читать дальше...   )Жанр: Folk, Country, Laiko;Продолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69699C288E57B1F084B08C7F3C00ED771AC1D510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108539   (862579) от 25.02.2017
-
-Tristeria - Epoka (2011) 2017 Tristeria [FLAC|Lossless|WEB-DL] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashrouk
-02. Darkness
-03. Ethnika
-04. I Love You (Dimitra)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897CA1392BA1DDFFB1FA62BBCE94260106425DA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

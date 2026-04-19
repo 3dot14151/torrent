@@ -1,3 +1,175 @@
+###  Публикация: 959340   (317316) от 24.11.2015
+
+VA - 55 Bombs Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus Escobar Kiffen - King [06:41]
+02. Efeckt Mnml - Feel The Reeverb [06:35]
+03. Whisperer - Gibbons [05:36]
+04. The Mnml Robots - Where Is My Sputnik [06:56](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68E733104AA44CFCEA53B066238646F4265653F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959356   (317303) от 24.11.2015
+
+VA - 55 Hits Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Js Music - Cat Dress [06:18]
+02. Claudio Colbert - Smooth (Extended Mix) [06:47]
+03. Will Konen - Youll Be Rock [06:06]
+04. Whisperer - Melodic World [07:07](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B35B0F6B7CEF9F4A7CB3D9A9B976418A161780E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182335   (317170) от 10.11.2017
+
+VA - Progressive Beach House (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intelligent Technology - Es Vedra 04:40
+02. Audio Mill - Anne Boleyn 06:52
+03. Pierre Zamyatin - My House Music 07:55
+04. Areage - Striving (Makau Remix) 06:25(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C530D067A953662F06FFEC1CD5C3D81FC82BCE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075453   (316573) от 24.11.2016
+
+VA - 5 Years With Stellar Fountain - The Must Hear Selection (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taki – Cocobolo (6:29)
+02. Alfonso Muchacho – Things ChangeЖанр: Progressive HouseПродолжительность: 11:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F89015198FF758DF1C865AC2035F008F45A1A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075763   (316392) от 24.11.2016
+
+Voyeur – I  (2016) [MP3|320 kbps] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silents (4:21)
+02. Presence (7:59)
+03. Nina (9:37)
+04. Seamless Seamstress (11:52)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15062F7F24E9FAD1F9655B5A183529110F22A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421594   (315307) от 06.11.2020
+
+VA - Zumba & Fitness 2020 [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diego A., Oscar Yestera - Retumba Moombah - Original mix (3:29)
+02. Joe Berte - Choka Choka (feat. El 3mendo) - Club Radio Edit (3:04)
+03. Riquezza, Luka J Master - Loka Da Vida (feat. Ana Flora) - Original mix (3:15)
+04. Sapienza, Ruly Rodriguez - Asere K Bola - Radio Edit (3:38)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC20AC2F0248510B4BEC66F335FB91EC55C8B4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182798   (315173) от 11.11.2017
 
 VA - Ultimate Downbeat Electro, Vol. 1 (2017) [MP3|320 Kbps] <House, Minimal, Tech House>
@@ -577,174 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3735AF6BAA5945E598B568111F2FDE16AE07684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183404   (307870) от 14.11.2017
-
-VA - Club Beats 2017 (Compilation) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fezz - In My House 04:05
-02. WTDJ - Don't Forget 04:22
-03. T3rminal - Moksha 03:56
-04. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound 04:18(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDBB695122932A0D4BA6E1AE86D4462BCF8B0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183776   (307869) от 14.11.2017
-
-VA - Deep Attraction (Deep House Grooves Selection) (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darles Flow and Marga Sol - Alive 5:22
-02. Meital De Razon & Asi Tal - In Love Again (Asi Tal Deep Remix) 4:46
-03. DMPR - Love Life 3:52
-04. Beat Ballistick - Deeper 5:50(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD992B08AA934F9DFA72DE67607E284BB8436A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183608   (307860) от 14.11.2017
-
-Soulful-Cafe - Deep & Chill (2017) [MP3|320 Kbps] <Deep House, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Way Through the Life  3:58
-02.  Down In The River  2:34
-03.  I Get High  3:44
-04.  Look Around  3:11(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71321E407008E5EA6F645F57DB42096024B40D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183530   (307788) от 14.11.2017
-
-VA - EDM 2018 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, Club, DanceПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8BC521128DB4CDE831F26FC488A909836D10A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729892   (306893) от 03.12.2013
-
-Guy Mantzur - Moments (2013) [MP3|320 кб/с]<Tech House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, ProgressiveПродолжительность: 03:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0E6FABD1B3452AADE440C85F882C2A92852731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261201   (305647) от 10.11.2018
-
-VA - 50 Ultimate House Tracks: Workout Edition (2018) [MP3|320 Kbps] <House, Funky, Groove, Future-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rinaldo Montezz & Pepper Mashay - Radioactive (Radio Edit)
-02. Alexdoparis - House Beat (Radio Mix)
-03. Grande Vue - Work Your Body 2.15 (Radio Mix)
-04. DJ Ricky da Dragon - How 2 Love U (Grande Vue Radio Mix) (feat. Fatty Blanco)(   Читать дальше...   )Жанр: House, Funky, Groove, Future-HouseПродолжительность: 04:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A1C51D8B254380A06E199762A4B0EA72842E05
 ```
 
 https://mybot314.ru/tekegram_catalog/

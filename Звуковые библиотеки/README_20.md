@@ -1,3 +1,29 @@
+###  Публикация: 1194857   (177257) от 05.12.2020
+
+Звуковые библиотеки - OwnHammer - Dynamic Duos Libraries [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кастомизированный набор библиотек импульсов гитарных кабинетов из серии Dynamic Duos Libraries от OwnHammer. Системные требования: DAW и плагины для обработки импульсов.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644ADBB17BEAF5C5397290EE0AA53D2CF8D4994B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100718   (177096) от 05.12.2020
 
 Звуковые библиотеки - OwnHammer - Collections [WAV]
@@ -653,33 +679,6 @@ NNM-Club Sound Cleaners - Cleared Music & Audio Tracks (No Watermark) - Vol.02 [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD13D9A88431D2713E5197282AC044C46F560210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347074   (151055) от 23.12.2019
-
-NNM-Club Unmarked Team - Чистые музыкальные треки с AudioJungle часть 7
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вам седьмую часть, 100 музыкальных треков, которые были выложены авторами на ресурсе AudioJungle без watermark. Большое спасибо энтузиастам из группы Unmarked Team, которые смогли их отыскать и поделиться с нами.
-Обращаем внимание, что отсутствие watermark не дает права на коммерческое использование треков.Формат: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3497C42C3FA61BFEC2EA7D6D3A40921A80C59865
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1670685   (171717) от 22.10.2023
+
+VA - Trance: The Vocal Session 2024 Playlist by ZYX Music! (2023) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance, Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC - Forever Young [4:03]
+02. Ronski Speed - U Found Me [3:22]
+03. Roman Messer;Six Mists;Jaki Nelson - Just Be You [3:37]
+04. Andrew Rayel - One More Memory [3:29](   Читать дальше...   )Жанр: Vocal Trance, Uplifting Trance, TranceПродолжительность: 04:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB5BC72E1D286C914915D300920867E31C33887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671822   (170455) от 27.10.2023
+
+VA - Levitated - Trance Essentials Vol. 3 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Belg - Story With A Daffodil (Original Mix) [7:00]
+02. Michael Retouch - Illuminated (Manuel Rocca Remix) [6:47]
+03. Bernis - Eonian (Original Mix) [7:39]
+04. Mike Sanders - Power Of Smile (Manuel Rocca Remix) [6:50](   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A147C56586949AD5C7EA817E3981DF6C9443E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671827   (170434) от 27.10.2023
+
+VA - Silent Shore Trance - Essential Classics Vol. 3 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Night - Remember (Original Mix) [7:44]
+02. Jo Micali - Resynthesize (Original Mix) [7:21]
+03. ReOrder - Driven By Moment (Original Mix) [7:25]
+04. Martin Everson & B.Prime - Rubby (Original Mix) [7:44](   Читать дальше...   )Жанр: TranceПродолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E265788EEAFBB08D7DAAB69FEF40D2A2B22739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671944   (170408) от 27.10.2023
 
 VA - Uplifting Only Top 10: October 2023 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -658,93 +745,6 @@ VA - FSOE 700 - Rise Up (Mixed by Fuenka & Paul Denton) (2021) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:937490DAD0D0164C14AD174C63D6A61786682B70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516939   (164345) от 13.12.2021
-
-VA - Techno Club Vol. 64 (Mixed by Talla 2XLC, Alessandra Roncone & Madwave) (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC & Clara Yates - Shadow Left Behind (Extended Mix) (6:19)
-02. Hemstock & Mercurial Virus - Tibira (Extended Mix) (6:11)
-03. Ruben De Ronde & That Girl - Lose Yourself (Jimmy Chou Extended Mix) (6:24)
-04. BiXX & Eryon Stocker - Petrichor Effect (Extended Mix) (7:29)(   Читать дальше...   )Жанр: TranceПродолжительность: 09:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682D3C08FD4CDF3D67E7D7AC9D4EC5F36B9236C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598050   (164226) от 17.12.2022
-
-VA - The Best Of Suanda Dark 2022 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonerush - Tyrant (Extended Mix) (5:38)
-02. Miroslav Vrlik & Dave Steward - Answers (Extended Mix) (5:58)
-03. Inrayzex - Asteroid (Extended Mix) (6:03)
-04. Christopher Corrigan - Stochastic (Extended Mix) (6:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1548AF5FBF32FBBC69544F9FE8A326F7A4B059D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517438   (162917) от 15.12.2021
-
-VA - Black Hole Trance Music 12-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & Mike Schmid - Summer Wonder (Extended Mix) [07:30]
-02. HALIENE - Glass Heart (Craig Connelly Extended Remix) [07:07]
-03. Markus Schulz - Return from the Sand Sea [03:33]
-04. Christian Burns - Eyes Wide Open (John Grand Extended Remix) [06:12](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CEC9ACC1FDE5F5F40F4497256035FD846F3ABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

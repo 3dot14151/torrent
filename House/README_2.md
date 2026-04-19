@@ -1,3 +1,90 @@
+###  Публикация: 1616879   (1035610) от 05.03.2023
+
+VA - Alternative EDM Party 2023 (2023) [MP3|320 Kbps] <Dance, Electronic, Club, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naksi, Erik Ray & Iwaro - Only You (02:33)
+02. Mattia falchi - Under the Stars (Extended) (03:41)
+03. Jon + Larsen - Dream (Club Radio Edit) (03:23)
+04. John David - Break of Dawn (03:14)(   Читать дальше...   )Жанр: Dance, Electronic, Club, HouseПродолжительность: 01:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950475DD1F0B2AA500DA1391B20304B8B4923587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616593   (1035583) от 05.03.2023
+
+VA - By the Way...Sounds Good, Size Two (2023) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Monkey - No Faxxx (Extended Mix) (3:03)
+02. Mea - Scream (Extended Mix) (4:39)
+03. JORDVN PRINCE - VLL VBOUT (Extended Mix) (2:50)
+04. Joey Antonelli - Melody (Extended Mix) (3:18)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEE7E4ACA264AEBE8644C3B36DE49E14D88F236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616932   (1035570) от 05.03.2023
+
+VA - Deep House Summer Hits (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abee Sash - Ain't Nobody (04:52)
+02. A-mase & Sharliz - Sky (Deep Radio Edit) (04:31)
+03. Abriviatura IV & Kamensky - Tears Away (Gus One Remix) (04:35)
+04. Alberto Miliziano - Thinking (02:28)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722D9436A51FE130E8BB7D2978E49B1E535D2513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443495   (1035455) от 29.01.2021
 
 VA - Summer Melody: Best Of 2020 (Mixed Version With Full Compilation DJ Mix) (2021) [MP3|320 Kbps] <Progressive House>
@@ -682,111 +769,6 @@ VA - Deep In My Soul (2013) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15222102C1CE14B00FA80163BE2E4FAF9F3AF670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602731   (997588) от 13.01.2013
-
-VA - The Art Of Fighting! Vol.1 (2013) [MP3|320 кб/с]<Deep House, Nu Disco, Indie Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Re Dupre - Get Down & Dirty! (Original Mix)
-02. Marcello V.O.R., Dashdot - B-Side (Original Mix)
-03. Velkro - HighWay (Original Mix)
-04. Re Dupre, Angelo Fracalanza - Kiss Me (Original Mix)
-05. Gabe - Truly Fucked Feat. M.Adam (Original Mix)
-06. Dashdot - Senseless Static Thing Feat. Zz (Original Mix)
-07. Sex Shop - Renascenca (Original Mix)
-08. Angelo Fracalanza - Long Time (Original Mix)
-09. Marcello V.O.R., Facing Odds - Street Rules (Original Mix)
-10. Andre Marques, Pattern2 - The Chamber (Original Mix)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Indie DanceПродолжительность: 01:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FD7811558D52CF9A9F15154A0356D1FCD65583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602619   (997555) от 13.01.2013
-
-VA - Best Of Electronique 2012 (2013) [MP3|320 кб/с]<Deep House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997555.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bubba – Nudenight (Original Mix) 6:04
-2. F3 – What You Need (Downtown Party Network Remix) 5:56
-3. Finnebassen – If You Only Knew (Original Mix) 6:22
-4. Finnebassen Gundelach – When It Rains (Digital Exclusive) (Original Mix)8:36
-5. Flow & Zeo Marcello V.O.R – N.Y Candy (Original Mix) 6:52
-6. Jobe – This Feeling (Original Mix) 6:19
-7. Jobe – My Life (Max Belobrov Remix) 8:04
-8. Lula Circus – Light Outside (Original Mix) 7:20
-9. Made To Move – Shaman (Cera Alba Remix) 7:56
-10. Markus Eden – With Me (Original Mix) 7:08(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B33CBB03148513BB0B72D066ABDB2FDB299430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603621   (996472) от 17.01.2013
-
-VA - Electro House 2012 Best Of (2012) [MP3|320 kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laidback Luke Feat Wynter Gordon - Speak Up (Jay Style Remix) (05:41)
-02. Dj Sakin - Beverly Hills Cop (Club Mix) (05:54)
-03. Mykel Mars - Scream (Album Version) (06:59)
-04. Davie Terry - Vibe (House Kartel Reebost Remix) (07:06)
-05. Danky Cigale And Mykel Mars - Feel So High (Kevin Hills Remix) (05:54)
-06. Br!k Ft Philly - Get It Poping (Luis Gutierrez Remix) (03:42)
-07. Djerem, Chris Willis & Xenia - So Beautiful (Djerem Electro Edit) (03:09)
-08. Lissat & Voltaxx - Like Dis Like Dat (Chris Kaeser Remix) (08:05)
-09. Chris Kaeser - Montpellier Of Course (Fx & Sting B Mix) (06:05)
-10. Dj Absinth - Diva (Original) (06:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 06:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CA835113468D3B5C285DF205A0B71088B7BA98
 ```
 
 https://mybot314.ru/tekegram_catalog/

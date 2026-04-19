@@ -1,3 +1,90 @@
+###  Публикация: 1620200   (1032356) от 19.03.2023
+
+Beborn Beton - Darkness Falls Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Monstrosity [00:06:16]
+02. Dancer In The Dark [00:05:22]
+03. Last Chance [00:04:29]
+04. Trockenfallen Lassen [00:05:30](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9864A0AEF5DFDABC85CB9BFFCFFC8865EF1ECF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447046   (1032073) от 12.02.2021
+
+VA - Synth Pop Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave, Electropop, 80s-10s>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porter Robinson - Sad Machine (5:51)
+ 02. Kavinsky - Nightcall (4:17)
+ 03. Nero - Into The Night (Nero 1988 Remix) (3:45)
+ 04. The Human League - Don't You Want Me (3:57)(   Читать дальше...   )Жанр: Synthpop, New Wave, Electropop, 80s-10sПродолжительность: 02:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906F33A24013A3401F8632EBDDEE4C473E80967B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448650   (1030699) от 18.02.2021
+
+LAU - Believer (Deluxe Album) (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stunning (3:20)
+02. We Had Magic (3:21)
+03. True (4:02)
+04. Believer (3:19)(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A134E499D61CA20DDFC49A18C5A571DB36C8B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622379   (1030279) от 28.03.2023
 
 Fever Ray - Radical Romantics (2023) [FLAC|Lossless|tracks + .cue] <Synth Pop, Experimental, Downtempo>
@@ -656,93 +743,6 @@ Siamese Youth - Echoes of Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62E471B7A54215B3EDD2BBA1B5670BB2083EADCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461175   (1021950) от 09.04.2021
-
-W O L F C L U B (Wolfclub) - Just Drive - Part 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Drive (feat. Summer Haze) (3:32)
-02. A Sea of Stars (feat. Dora Pereli) (3:19)
-03. Fever Dream (feat. Dora Pereli) (3:57)
-04. Shoulder Blades (4:32)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B825EEBD8445F877FE7103D07AAF5AABE8B22A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461155   (1021936) от 09.04.2021
-
-VA - Pure Synthpop, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Parker feat. Doubleboy - End of The Night (Original Mix) (3:57)
-02. Freeweights - True To My Game (Original Mix) (4:24)
-03. W O L F C L U B - Summer Lights (Original Mix) (3:13)
-04. Arcade High - The Last Picture Show (Original Mix) (5:26)(   Читать дальше...   )Жанр: Synthpop, RetrowaveПродолжительность: 01:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5492A4DB3A08508BFAA9498AB3BAC119700884DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461153   (1021921) от 09.04.2021
-
-New Arcades - Returning Home (The Instrumentals) (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Movies (3:22)
-02. Into the Unknown (3:53)
-03. If Only You Could See (4:17)
-04. Further (4:00)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31181C064C353840A4FFDF906CC9E7B39D405CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

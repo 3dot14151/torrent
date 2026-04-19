@@ -1,3 +1,177 @@
+###  Публикация: 1730846   (52902) от 18.06.2024
+
+VA - Easy Lounge & Chill Music (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52902.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Palm Jardin - Curacao [03:14]
+002. Scot & Millfield - Orange Blue [03:22]
+003. Flynn Wyndham - Lightning [02:35]
+004. Harry Cho - Feel Me [02:51](   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 06:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA51B2CEECB65A86620C1B6B47CFE8EE5FBC3E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731780   (52457) от 22.06.2024
+
+VA - Oriental Deep 5 (2024) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52457.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Billy Esteban - Four Legs (8:50)
+002. Diego Galloso - La Dama De Los Lobos (8:33)
+003. Valer den Bit - Nadezhda (8:25)
+004. Ferlock - Vranjanka (8:17)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4767355FBE15D774B7C39B5CE2FBE584CEB94F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734224   (51279) от 02.07.2024
+
+VA - Compilation part 94 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akmalov - Seven Days
+02. Hamidshax - Believe in Me
+03. Kasimoff - Cold Without You
+04. Imany - Don't Be So Shy(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10A4498D938482886E8E3FC9D9DCA25A95E8C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734101   (51278) от 02.07.2024
+
+VA - Summer Beach Chill Relax (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51278.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Plutones, The Lofi You Love - In The Air Tonight [02:16]
+002. Ourson, Ren Ocean - Runaway [03:30]
+003. Alex Keeper - Lonely [02:27]
+004. Augan - Never Let Go [03:10](   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 04:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4034DF37013EF41499B2DCF06FB46D2FA28FC098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734340   (51166) от 03.07.2024
+
+VA - Bossa nova Lounge (2024) 2CD [MP3|320 Kbps] <Bosa Nova, Chillout, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51166.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bossa Nova Covers, Mats & My - Dance Monkey [03:29]
+002. Lua Blanco - A Thousand Miles (Bossa Version) [03:42]
+003. Marcela Mangabeira - With Or Without You (Bossa Version) [03:33]
+004. Sixth Finger, Dew - Patience (Cool Wave Mix) [05:12](   Читать дальше...   )Жанр: Bosa Nova, Chillout, ElectronicПродолжительность: 12:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4265B1B86B56A1ED8FD4B6767E49605B3ACBFB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618916   (50892) от 06.07.2024
+
+VA - TOP Non-Stop - Deep House. Part 2 (2000-2009) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schmoov! - Keep on Bumpin (2001) (5:13)
+02. Stephane Attias - Daydreaming (2002) (3:51)
+03. Lance DeSardi - 510 Blues (2000) (3:53)
+04. Linus Loves - Body & Soul (2002) (3:59)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 09:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED162506217CC29B42FB7835C8E8F8F58A0CB95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428669   (50797) от 07.07.2024
 
 VA - TOP Non-Stop 2000-2009 - Dance House Music. Part 2 (2020) [MP3|192-320 Kbps] <Funky House, Techno House, Progressive House>
@@ -571,180 +745,6 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 5 (2024) [MP3|192-320 Kbps] <De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FFF9BAA50DC2173F58BB9C32F1E8EE492DE128F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746538   (45043) от 31.08.2024
-
-VA - Music Worx Best 300 Dj Tracks August 2024 [MP3|320 Kbps] <House, Melodic House & Techno, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45043.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nick Chacona, Sasse & The Green Men - The Fog (2024 Remaster) (9:23)
-002. Masaya CH - Gabriel (Original Mix) (9:15)
-003. Julian Sanza & Lafrench Toast - Steven Seagull (Original Mix) (8:54)
-004. Sasha Sound - Heart Valley (Original Mix) (8:42)(   Читать дальше...   )Жанр: House, Melodic House & Techno, Nu DiscoПродолжительность: 31:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81CA272ABB52B5229572394765DB57EFD4DADEA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746084   (45015) от 31.08.2024
-
-VA - TOP Non-Stop 2010-2019 - Deep House. Volume 7 (2024) [MP3|192-320 Kbps] <Deep House, Techno House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Del Rio - Boa Tarde (Sonique Atlantique mix, 2015) (4:15)
-02. Terry Lee Brown Jr. & Greg Parker - Eclosion (Aqua Bassino Deep Chill, 2010) (6:28)
-03. Imaani Brown - City 3000 (2012) (5:41)
-04. Ecco - Lost in the Desert (2012) (6:27)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 08:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B9586E31AC98A668547DB88993A3482D4910FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746156   (44928) от 01.09.2024
-
-VA - compilation part 116 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elno - Amour
-02. Davbo - Aurora
-03. Deepfm - Before You Go
-04. Elno - Cosmos(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CC3DAA5B13993E12864ACD6976E6F5A30BCE83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746827   (44836) от 02.09.2024
-
-VA - Record Super Chart 31.08.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella Henderson & Rudimental - Alibi (3:04)
-02. ZERB & The Chainsmokers - Addicted (feat. Ink) (2:32)
-03. Artemas - I Like The Way You Kiss Me (Burnt) (2:42)
-04. Girl On Couch feat. Billen Ted - Man In Finance (G6 Trust Fund) (2:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4AC9AE57C148561B44E6EAD41893B05D283AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746555   (44820) от 02.09.2024
-
-VA - compilation  part 117  Electronic Assorted compilation (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora Night - Elegy for Eternity
-02. Aurora Night - Remnants of the Past
-03. Aurora Night - Tears of Time
-04. Dj Aurm - Flower(   Читать дальше...   )Жанр: Electronic, Chillout MusicПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98ACE2888AF82AA90060765CBA459CB14EA1D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746545   (44730) от 03.09.2024
-
-VA - TOP Non-Stop 2010-2019 - Deep House. Volume 8 (2024) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tube & Berger - Loyando (2017) (3:09)
-02. Diamantero Mazeltov - Perfect Day (2016) (3:37)
-03. Kellerkind - Le Voyage (2013) (5:20)
-04. Sunset Blvd - Clockwater (Nikos Diamantopoulos remix, 2011) (4:08)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 08:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52175D90C3C5038AAFBD6096DDABED5B0C10E8B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

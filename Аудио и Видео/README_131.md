@@ -1,3 +1,29 @@
+###  Публикация: 900825   (666436) от 23.05.2015
+
+Kingsman: Секретная служба / Kingsman: The Secret Service (2014) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эггси — молодой парень, который прошел службу в морской пехоте и имеет очень высокий уровень интеллекта. Он мог бы добиться многого, но выбрал другой путь и стал мелким преступником. Однажды он знакомится с Гарри Хартом, которому его отец когда-то спас жизнь. (   Читать дальше...   )Производство: ВеликобританияЖанр: Боевик, комедия, криминал, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Сэмюэл Л. Джексон, Марк Стронг, Софи Куксон, Майкл Кейн, София Бутелла, Саманта Янус, Джофф Белл, Марк ХэмиллПеревод: Дублированный (iTunes)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 02:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83CED42CC99F8CAF77C25C38E2EFD6052350C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 900828   (666347) от 23.05.2015
 
 Ип Ман / Yip Man (2008) BDRip [1080p] ATV
@@ -159,6 +185,122 @@ VA - Mykonos Orange: Urban Chillout Music (2022) [AAC|~315 Kbps] <Lounge, Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76B0E351EAFC99461477608DA27C44D6E3B102A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537963   (665520) от 18.03.2022
+
+VA - Toolroom Vaults Vol. 4 (2022) [AAC|~332 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erik Hagleton - This Is (Extended Mix) (6:44)
+02. René Amesz - Dextro (Extended Mix) (6:19)
+03. Muzzaik - Invent (Extended Mix) (6:17)
+04. DEL-30 - Judgemental (Extended Mix) (7:40)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA22B26FC0C971B03C86CBDE59A827FBF24E130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537906   (665516) от 18.03.2022
+
+VA - Chillout Your Mind, Vol. 6 (Ultimate Chillout Collection) (2022) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Drifting Closer (Original Mix) (5:23)
+02. Michael e - Be Kind (Original Mix) (6:30)
+03. Beamy - Safe Harbour (Original Mix) (4:16)
+04. Elmara - A Last Dance (Original Mix) (3:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F17BBC4375BB368F6CCC38747CA4FD559E7260B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537887   (665513) от 18.03.2022
+
+Lemongrass - Flow (2022) [AAC|~344 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moments (3:16)
+02. Flaneur (3:52)
+03. Musa (4:09)
+04. Premier Amour (4:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16811FA8902B74E7641328583976734DC3DA7734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537905   (665505) от 18.03.2022
+
+VA - Female Vocal Trance 2022 (2022) [AAC|~331 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Strings, Sarah Russell - Change The World (3:09)
+02. Myde, Hanna Finsen - My Heart Stood Still (3:19)
+03. Ronski Speed, Elara - I'll Be There (3:35)
+04. Temple One, Katty Heath - In Everything I See (3:15)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462CC4BE00C05B6222710A4C866FFBD20CDCCB6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -574,150 +716,6 @@ VA - Naked Weekend (The Deep-House Affair), Vol. 1 (2019) [AAC|~328 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F59B39A653A294D64D0F748FBD1B46439A699E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537895   (664333) от 19.03.2022
-
-VA - Naked Weekend (The Deep-House Affair), Vol. 4 (2019) [AAC|~316 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wicked Sounds - The World (Original Mix) (6:27)
-02. Zone Zero - Rise of A New World (Original Mix) (3:33)
-03. Deepmagic, Marha - Misty Water (Original Mix) (5:20)
-04. Deep Friends - Pure Sound (Original Mix) (3:33)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C37F904DF851FA1B83206E1BFC4A2E49A09CF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901291   (664243) от 25.05.2015
-
-Поклонник / The Boy Next Door (2015) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об учительнице литературы Клэр Петерсон. Клэр знает о том, что муж изменяет ей, но тянет с разводом.
-
-Однажды, в дом по соседству въезжает харизматичный 19-летний красавчик Ной, который начинает оказывать Клэр повышенное внимание. Поддавшись слабости, Клэр проводит с ним ночь. Но она и не подозревала, что в скором времени влечение Ноя к ней перерастет (   Читать дальше...   )Производство: США / Universal Pictures, Blumhouse ProductionsЖанр: триллерРежиссер: Роб КоэнАктеры: Дженнифер Лопес, Райан Гузман, Иэн Нельсон, Джон Корбетт, Кристин Ченоуэт, Лекси Аткинс, Хилл Харпер, Джек Уоллес, Адам Хикс, Франсуа Чау, Бэйли Чейз, Кент АвенидоПеревод: ДублированныйОзвучка / Автор перевода: (BD CEE)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C85F6A52BC855A33ACBF6F397870B8EFB5BE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538369   (663441) от 20.03.2022
-
-VA - Vintage Landscape Chill Out, Vol. 1 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Time (5:09)
-02. Inventors Of The Sun - Agua of Life (5:41)
-03. Eriq Johnson - Someone Like You (2:18)
-04. Smooth Deluxe, Nizam Kharda - Samarkand (3:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40D22488E4A7F9E988B23537FAF5F2EF4F4010A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538381   (663438) от 20.03.2022
-
-VA - Vintage Landscape Chill Out, Vol. 3 (2022) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Day of Light (2:21)
-02. Lazy Hammock - Surround Me (5:18)
-03. Smooth Deluxe, Nizam Kharda - Dried Hot Peppers (3:22)
-04. MBmusic - If You Think (4:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14A10478DB7B0E2F07AB1D2393B57B0BE635313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538360   (663436) от 20.03.2022
-
-VA - Eternal Beauties (Lounge Sweethearts), Vol. 3 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Hampton, Ahbee - Love (3:32)
-02. Five Seasons - Colours (4:33)
-03. Weber& Weber - Reach The Top (4:02)
-04. Matthew Daniel, Eleana - Gypsy Day (Lemongrass Remix) (3:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440EA119679A24FEBFEFFDAE14A97D096DD2B291
 ```
 
 https://mybot314.ru/tekegram_catalog/

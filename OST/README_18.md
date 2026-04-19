@@ -1,3 +1,32 @@
+###  Публикация: 252174   (370985) от 01.11.2010
+
+VA - Музыка Экрана. Коллекция Ридерз Дайджест (2008) 3CD [MP3|320 kbps] <Soundtrack, Classical>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник популярных мелодий из кинофильмов несомненно украсит ваш досуг. Поможет насладиться мелодиями и песнями в исполнении лучших современных оркестров и музыкантов, окунуться в атмосферу приятных воспоминаний о любимых фильмах, и вновь пережить самые волнующие моменты. CD 1 - Незабываемые 60-70-е; CD 2 - Мелодии любви; CD 3 - Шедевры кинематографа.01. из к/ф "Афера"
+02. из к/ф "Выпускник"
+03. из м/ф "Розовая пантера"
+04. из к/ф "Бонни и Клайд"(   Читать дальше...   )Жанр: Soundtrack, ClassicalПродолжительность: 03:24:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070351   (368682) от 06.11.2016
 
 VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 кб/с]<Soundtrack, Score>
@@ -731,35 +760,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95CED7840C080661537127A26D01C9249CA09051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074023   (340434) от 18.11.2016
-
-James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Man and His Beasts (08:32)
-02. Soup and Leaflets (02:20)
-03. Billywig (01:32)
-04. The Demiguise and the Lollipop (00:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8EC1596BA61BB6FCCC88D526A7BAE19F2A082C
 ```
 
 https://mybot314.ru/tekegram_catalog/

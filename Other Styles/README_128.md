@@ -1,3 +1,206 @@
+###  Публикация: 1073942   (338188) от 19.11.2016
+
+Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земля 2 (Original Television Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roof of the World (00:53)
+02. Peaks of North America (01:59)
+03. The Ibex (01:41)
+04. The Himalayas (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E664C47BB975738665BFBB002B597E4FC071F966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073944   (338081) от 19.11.2016
+
+Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земля 2 (Original Television Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roof of the World (00:53)
+02. Peaks of North America (01:59)
+03. The Ibex (01:41)
+04. The Himalayas (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30C8CE9154777400D85FA1D723887BE0ACCB34D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179966   (337771) от 05.11.2017
+
+Room Of Voices - Casbah (2017) [MP3|320 Kbps] <Electronic, World>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirror Mirror (5:08)
+02. I Got You Inmymind (4:37)
+03. Lost off Shore (6:47)
+04. Calling Out (7:57)(   Читать дальше...   )Жанр: Electronic, WorldПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3328E50F6AE3DBF430E7C88E7965E9C6E1358C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180627   (337762) от 05.11.2017
+
+Kai Rosenkranz - Risen (Game Soundtrack) (2009) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Risen Title Theme
+02. The Beach
+03. The Beach - Fight
+04. The Island(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E00FDAF1C5A63E17E34EE3B46033F05BCF6C6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180906   (337500) от 05.11.2017
+
+VA - Latino Top 30 Latin Hits (2017) [MP3|320 Kbps] <Latin, Salsa>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Los Chicos Playeros – Bamboleo 3:29
+02. Tony Estefano – Livin’ La Vida Loca 4:01
+03. Alessia Limonta – Conga! 4:11
+04. Chateau Pop – Lambada 3:23(   Читать дальше...   )Жанр: Latin, SalsaПродолжительность: 01:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5661E638BC290CE714BA618007FB44BBD4E87EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180676   (337011) от 05.11.2017
+
+Hans Zimmer - Hans Zimmer - Live In Prague (2017) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337011.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Medley: Driving / Discombobulate / Zoosters Breakout
+2. Medley: Crimson Tide / 160 BPM
+3. Gladiator Medley: The Wheat / The Battle / Elysium / Now We Are Free
+4. Chevaliers De Sangreal(   Читать дальше...   )Жанр: ScoreПродолжительность: 02:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C003C0A53D25F117153A134FF5207EA2FB8A6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074758   (335938) от 20.11.2016
+
+Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mars (Theme) (01:43)
+02. Mars (04:01)
+03. Daedalus (03:01)
+04. Earth (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD9C77FADBEA37B38BF1545A1FFEADE8BD425B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074759   (335843) от 20.11.2016
 
 Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -539,206 +742,6 @@ Mythos - The Reality Of A Dreamer (2000) [OGG Vorbis|484 Kbps] <Electronic, New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A30C193089EA1EEF5F0EB1FAA705417A2812C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579494   (333365) от 29.09.2022
-
-Mythos - Eternity (2002) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascent	3:38
-02. Unity	4:20
-03. Del Mar	3:42
-04. Turn To Grey	3:54(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8338A87B33C0F11BB72B848864C5281AED06A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579566   (333362) от 29.09.2022
-
-Mythos - Purity (2006) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purity	4:33
-02. Surrender	5:50
-03. Alten Mara	3:16
-04. Andalucia	4:01(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8D9AB7B103BAF63B459200D9731DDF987312C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579458   (333361) от 29.09.2022
-
-Mythos - Mythos (1998) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brazil
-02. June
-03. Sunless Sea
-04. November(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C916AA29EA87687786CF8353161A0C190B00B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258841   (333022) от 01.11.2018
-
-Dog Music - Christmas Piano Music For Dogs, Sleeping Music For Pets, Dog Music & Instrumental Christmas Music (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy To The World
-02. Silent Night
-03. The First Noel
-04. Carol of the Bells(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC95372668ECC6E1C5C75B524C710EC94D72BA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 58904   (332992) от 14.10.2019
-
-Pulp Fiction / Криминальное чтиво - Soundtrack (1994) [ape+cue+log+сканы]
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332992.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dick Dale & His Del-Tones - Misirlou (2:30)
-2. Samuel L. Jackson And John Travolta - Royale With Cheese (1:45)
-3. Kool & The Gang - Jungle Boogie (3:06)
-4. Al Green - Let's Stay Together (3:17)(   Читать дальше...   )Жанр: OSTПродолжительность: 41:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDF39CC37B55E73E2340FE4399D2F2C481AB961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 412443   (332675) от 19.11.2011
-
-Lorne Balfe & Jesper Kyd - Assassin's Creed Revelations (2011) [MP3|320 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 02:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BC1F125481516AF7C5340B807D0DB1410DC85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955601   (332526) от 12.11.2015
-
-John Powell & Lily Allen - Pan | Пэн: Путешествие в Нетландию (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Powell – Opening Overture (2:41)
-02. John Powell – Air Raid / Office Raid (1:40)
-03. John Powell – Kidnapped / Galleon Dog Fight (5:09)
-04. John Powell – Floating / Neverland Ahoy! (2:29)(   Читать дальше...   )Жанр: Саундтреки к зарубежным фильмамПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2339796E7DA87B9C8A8B3C7E1429F67CD514CF50
 ```
 
 https://mybot314.ru/tekegram_catalog/

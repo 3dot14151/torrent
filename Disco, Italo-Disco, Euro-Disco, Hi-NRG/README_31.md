@@ -1,3 +1,67 @@
+###  Публикация: 564458   (401911) от 24.10.2012
+
+VA - '80 Dance Classics (1994) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Blue - You're A Woman
+02. Hot Chocolate - You Sexy Thing
+03. Ottawan - Hands Up
+04. Boney M. - Rasputin
+05. Dschinghis Khan - Huh Hah Dschinghis Khan
+06. Scotch - Delirio Mind
+07. Radiorama - Chance To Desire
+08. Supermax - It Ain't Easy
+09. Laid Back - Sunshine Reggae
+10. Baltimora - Tarzan Boy(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35561D28937E65652B8AF3E34AC8FB5061F1413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170629   (399617) от 01.10.2017
+
+Joel Diamond Experience - Joel Diamond Experience (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music Machine (In And Out) (5:05)
+02. Just As Long As I'm Dancin' (Rock-It Tonight) (5:15)
+03. Tall In The Saddle (6:06)
+04. Finger Snaps (4:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA88825EA1005163AE8A426C6B56D0F79A00A348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172343   (394037) от 07.10.2017
 
 VA - John Morales Presents The M+M Mixes Volume 3 Instrumentals (2013) 2CD [MP3|320 Kbps] <Disco, Funk>
@@ -681,64 +745,6 @@ Tommy The Bitch - Give It To Me (1979) Reissue CD, 2015, Solid Records [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00C865468F5D3A99E269FAE08D4A12BC6396055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069309   (375675) от 03.11.2016
-
-Luv' - 7 Albums (1978-1993) [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландская группа "Luv'" была создана в 1977 году на волне успеха таких диско-коллективов как "Pussycat", "ABBA" и "Baccara". В составе этого трио были очаровательные девушки.  "Luv'" ушли со сцены, имея в своём активе более 10-ти хитов, попавших в TOP30. Для многих европейцев они стали символом десятилетия: это был (   Читать дальше...   )Список альбомов:
-1978 - With Luv'
-1979 - Lots of Luv'
-1979 - True Luv'(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 04:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3382254F471690130613375758AB1FC3B89425C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575650   (375391) от 10.09.2022
-
-Van Hinton - Remember Me (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On Down And Rock Me (7:03)
-02. Stay With Me (4:29)
-03. Search Find (5:25)
-04. We're Gonna Work It Out (4:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1174CEA26E0BA88591C229518A8D4FF1FAEB55
 ```
 
 https://mybot314.ru/tekegram_catalog/

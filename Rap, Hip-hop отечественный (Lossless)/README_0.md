@@ -1,3 +1,61 @@
+###  Публикация: 1537961   (665451) от 18.03.2022
+
+Макулатура - акрополь (2022) [FLAC|Lossless|Web-DL|tracks] <Abstract Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. пи (4:46)
+02. исход (2:57)
+03. холод (3:07)
+04. интермедия l (1:03)(   Читать дальше...   )Производство: МакулатураЖанр: Abstract Hip-HopПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B1EC0C885023B6F19C9939A00A90F0BD63D55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537972   (665448) от 18.03.2022
+
+Макулатура - Я намерен хорошо провести этот вечер (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rap, Abstract Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. геркуланум (2:30)
+02. я намерен хорошо провести этот вечер (2:57)
+03. паром (3:12)
+04. жаба (3:22)(   Читать дальше...   )Производство: РусПродЗвукЖанр: Alternative Rap, Abstract Hip-HopПродолжительность: 00:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D815120971B04E68575D2DBACA8E399B59E3E08A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537976   (665396) от 18.03.2022
 
 Макулатура - избранное (2009–2021) 2022, Compilation [FLAC|Lossless|Web-DL|tracks] <Alternative Rap, Abstract Hip-Hop>
@@ -686,64 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD5FF58318D5DDE7AF1927CFE055209A8EA1A84A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646661   (231463) от 19.07.2023
-
-АК-47 - Третий (2015) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Большая дама [00:03:29]
-02. Дай 5 [00:04:48]
-03. No Pasaran!!! [00:04:14]
-04. Домашняя работа [00:04:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020CCD50D4B3135D57D2F24DF3A20F8033CF796E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646669   (227694) от 30.07.2023
-
-АК-47 - Третий (2015) [FLAC|44.1/16,24|tracks|WEB-DL] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Большая дама [00:03:29] 16/44.1
-02. Дай 5 [00:04:48]
-03. No Pasaran!!! [00:04:14]
-04. Домашняя работа [00:04:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F905A2C80CD8F9DDD9E6C1187D97E57440502E
 ```
 
 https://mybot314.ru/tekegram_catalog/

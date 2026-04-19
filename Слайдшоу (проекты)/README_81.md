@@ -1,3 +1,56 @@
+###  Публикация: 952119   (357565) от 31.10.2015
+
+Проекты - VideoHive - Autumn Photo Frames [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для Вашего осеннего видео.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9604A3948EBB98D797916BD7A56FEE19841DC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952019   (357562) от 31.10.2015
+
+Проекты - Block SlideShow [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу. Предназначен для редактирования в After Effects. Легко настраивается под себя.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D44012CED7051252D20D77EEA96CF3E95CDD19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952629   (355569) от 01.11.2015
 
 Проекты - В осеннем саду [AEP]
@@ -628,59 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADE8FADA2C7E93363F938286113E816FB2AF9984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953446   (348551) от 04.11.2015
-
-Проекты - VideoHive - Clouds [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект, который отлично подойдет для крещения, венчания и пр.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3029414CA62EB131E1A59BFBA91BFA2404EB47CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179268   (348496) от 31.10.2017
-
-Проекты - VideoHive - Clean Slideshow - 20729487 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clean Slideshow - шаблон для After Effects, который поможет создать слайдшоу с мягкими, плавными переходами к различным событиям или демонстрации красивых пейзажей.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BF9553DF4BEB34467834880AB845E885235816
 ```
 
 https://mybot314.ru/tekegram_catalog/

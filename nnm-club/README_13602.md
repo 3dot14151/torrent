@@ -1,22 +1,25 @@
-###  Публикация: 1404090   (494923) от 24.08.2020
+###  Публикация: 138874   (499762) от 03.09.2009
 
-Far Manager 3.0.5656 Final + Portable [Multi/Ru]
+Бахыт Компот - Самые лучшие телки (2009) [MP3|320 kbps] <Рок, Панк, Поп>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Far manager — бесплатный файловый менеджер с поддержкой UNICODE. Имеющий удобный интерфейс для работы с файловыми системами (реальными и эмулированными) и файлами. FAR Manager понимает длинные имена, корректно работает с русскими буквами (есть и перекодировщик WIN-KOI-ISO). Вмонтированный FTP-клиент, также настройка панелей по своему вкусу. Раскраска файлов, просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Самые лучшие телки (Папа) (5:20)
+02. Мне ничего не снится (4:03)
+03. Маленький мой котёнок (3:50)
+04. Полупустая дискотека (4:46)(   Читать дальше...   )Жанр: Рок, Панк, ПопПродолжительность: 00:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C89C0E6C40865600DF9EC7169AC6C5A6F0F7DC15
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,49 +27,49 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404281   (494922) от 24.08.2020
+###  Публикация: 138322   (499759) от 03.09.2009
 
-BELOFF [dp] 2020.08.3 [Ru]
+Бруно / Bruno (2009) DVD9
 
->>Архив торрентов
->>Архив Программ
+>>След.
+>>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник программ для автоматической установки драйверов в Windows x86-x64.
+Новая авантюра от Саши Барона Коэна, автора нашумевшего хита «Борат». На этот раз британский комик изображает из себя телеведущего австрийского канала для гомосексуалистов и ставит в неловкие ситуации всех, кому придется с ним столкнуться.Жанр: КомедияРежиссер: Ларри ЧарльзАктеры: Саша Барон Коэн, Паула Абдул, Домициано Арканджели, Ричард Бей, Эмерсон Брукс, Тришель Каннателла, Кэндис Каннингэм, Элис Эванс, Джон Грант Гордон, Дэвид ХиллПеревод: ДублированныйПродолжительность: 01:18:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 139046   (499756) от 03.09.2009
+
+[МВД РФ для всех] (02.03.2009) Административный регламент ГИБДД
+
+>>Автомобили
+>>Автомобильная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приказ МВД РФ от 2 марта 2009 г. N 185 "Об утверждении Административного регламента МВД РФ исполнения государственной функции по контролю и надзору за соблюдением участниками дорожного движения требований в области обеспечения безопасности дорожного движения".
 
-Приятного времяпрепровождения за компьютером!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF13EDCD2363BC52503216D5FFC5CF5BE5D57461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404297   (494921) от 24.08.2020
-
-Звуковые библиотеки - Audio Imperia - Areia [Kontakt, OGG]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_494921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Areia - программный инструмент кинематографического ансамбля струнных инструментов, созданный для Kontakt, который сочетает в себе самые востребованные функции в одном продукте: детальный реализм с выразительными эмоциями и диапазоном, а также пышный голливудский звук - от нежного и мягкого до агрессивного и эпическогоФормат: Kontakt: NICNT, NKC, NKI, NKR, NKX; OGG
+Вступил в силу сФормат: DOC
 
 ## Скачать торент
 ```bash
@@ -78,623 +81,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503733   (494920) от 24.08.2020
+###  Публикация: 1564532   (499754) от 19.07.2022
 
-Апостолы слова (2010) TVRip
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежегодно 24 мая во всех славянских странах торжественно прославляют создателей славянской письменности Кирилла и Мефодия — учителей словенских. Это и светский и большой церковный праздник. Кто же они были такие - Кирилл и Мефодий? Этот фильм - рассказ о святых равноапостольных Кирилле и Мефодии, основателях славянской письменности. Созданный ими славянский алфавит (   Читать дальше...   )Жанр: Документальный, историяПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403B2F79758F448A179E5BE713D9F8E72C4EC72E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404218   (494919) от 24.08.2020
-
-PiterPy | Конференция PiterPy Online (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494919.jpg" />
-</div>
-
-
-###  Подробнее
-
-На PiterPy 2020 вы найдете только высоко технические доклады и реальные кейсы от спикеров со всего мира:
-Python & Web
-Python & Cloud
-Python & DevOps(   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 14:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55367208F17D8334F2D987683DF414860720B4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318429   (494918) от 06.08.2019
-
-Oliver Jones - Yuletide Swing (1994) Justin Time [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_494918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Claus Is Coming to Town [4:58]
-02. I'll Be Home for Christmas [4:16]
-03. Silver Bells [5:07]
-04. All I Want for Christmas Is My Two Front Teeth [6:57](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318424   (494917) от 06.08.2019
-
-Guy Lafitte - Happy! (1979) 2004, Black & Blue [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_494917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Put on a Happy Face (take 1) [5:26]
-02. My Foolish Heart [6:33]
-03. Make Someone Happy [6:29]
-04. Get Happy [4:29](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318432   (494916) от 06.08.2019
-
-Oliver Jones - Just For My Lady (2013) Justin Time [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_494916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Josee's Blues [4:17]
-02. You Look Good to Me [7:26]
-03. Lights of Burgundy [4:42]
-04. The Angel and Mr. Jones [4:59](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565239   (494915) от 23.07.2022
-
-Blizzard Hunter - The Path Of Triumph (2022) [MP3|320 Kbps] <Heavy, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	On the Warpath	01:52
-02.	Final Flash	05:07
-03.	The Path of Triumph	07:34
-04.	Screaming (My Bloody Anger)	04:40(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2304A4091B7A7DADA0D9533E333BD05BE7DCBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565354   (494914) от 23.07.2022
-
-Алексей Арбузов | Только не бойся быть счастливым (1997) [MP3, Инна Флегантова м др.]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль по пьесе Алексея Арбузова "Мой бедный Марат".
-События охватывают временной промежуток в долгие 17 лет – с 1942 по 1959 годы.
-
-В блокадном Ленинграде в полуразрушенном доме случайно встречаются трое: двое мужчин и женщина. Им кажется, что они стали дороги друг другу на всю жизнь. Война заканчивается... Герои встречаются вновь, но вместе с прошлым (   Читать дальше...   )Жанр: Драма, РадиоспектакльПродолжительность: 01:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F26D583F6DD3AB43CE5162479022CFF187E063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565352   (494913) от 23.07.2022
-
-Galleyboyz - Galleyboyz (1990) 2xCD, Reissue , 2022, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494913.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Galleyboyz:
-01. You Get What You Pay For (3:36)
-02. Nothin’ To Lose (3:46)
-03. One Step Up (4:24)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23782874B5BAED83F5E4103ADC42AE9A638E4A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565307   (494912) от 23.07.2022
-
-Ousey / Mann - Is Anybody Listening (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Flag (4:46)
-02. And So It Begins (4:53)
-03. Brave New World (4:38)
-04. I'll Tell You When To Stop (4:14)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2D283D6E704BDB08048238CA51D43F803EA4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565313   (494911) от 23.07.2022
-
-Минтранс (23.07.2022) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа посвящена всем видам транспорта и тому, как ими пользоваться. От полезных лайфхаков до информации, которая поможет сохранить вам жизнь. Обо всем расскажет самый известный автожурналист России, экс-редактор легендарного журнала «За рулем» и основатель гоночной команды «ГАЗ Рейд Спорт» Вячеслав Субботин.Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C894E958E867A2193EFE7626661AF96E889098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565311   (494910) от 23.07.2022
-
-Lazarus Dream - Lifeline (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead End Symphony (6:29)
-02. Don't Look Down (4:48)
-03. Mind Like A Windmill (4:52)
-04. Freedom (5:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F138B7E01A0FD77DAC5FC4BB37F2E87524BECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565365   (494909) от 23.07.2022
-
-Гай Басс | Проблемы с воображением. Книга 1 (2022) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех, кто любит приключения с хорошим концом!
-Бен надеялся подружиться с кем-нибудь из своих новых одноклассников, поэтому пригласил весь класс к себе на день рождения. Но никто не пришёл. Расстроившись, Бен изо всех сил пожелал, чтобы к нему пришёл его лучший друг… воображаемый. И вдруг тот появился! В реальности! А за ним следом явилась целая толпа существ, (   Читать дальше...   )Жанр: Детская литература, ФантастикаПеревод: Мария СклярФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E428AC6868FA3BF1555EFD2B26AC420B5B7031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565356   (494908) от 23.07.2022
-
-Harlequin's Kiss - We've Been Expecting You (2022) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insane 04:03
-02. Tonight 03:41
-03. The Soldier And The Spider's Web 03:29
-04. Are You Gonna Come Out? 04:45(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1AC782003E825536661DA2278BC84A65DB7B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565373   (494907) от 23.07.2022
-
-Compass - Theory of Tides (2022) [MP3|320 Kbps] <Progressive Rock, Progressive Metal, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountains On The Moon (10:59)
-02. Searching For Answers (6:35)
-03. The Assayer (8:08)
-04. Once In A Lifetime (5:17)(   Читать дальше...   )Жанр: Progressive Rock, Progressive Metal, AORПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08050D9C27431D3C796F81A75902282E0628A23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565241   (494906) от 23.07.2022
-
-Jack White - Entering Heaven Alive (2022) [MP3|320 Kbps] <Blues Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Tip From You To Me
-02. All Along The Way
-03. Help Me Along
-04. Love Is Selfish(   Читать дальше...   )Жанр: Blues Rock, Folk RockПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF97E26C450B10049110034C039B05AD5986485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565504   (494905) от 23.07.2022
-
-NEONNOONE - Noir & Jazz & Dark & Slow... (2022) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Post Rock, Dark Ambient>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturne (5:02)
-02. For A Film (5:19)
-03. Zen Noir (6:38)
-04. Car Crash On Sunday (5:58)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Post Rock, Dark AmbientПродолжительность: 00:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350F320C9D18335DA9B5384866B88AF6C0197B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565432   (494904) от 23.07.2022
-
-Drownd - [AN]AESTHETIC (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Coldwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Palpitation
-02. Filth
-03. Save Yourself
-04. DeathwishЖанр: Industrial Metal, ColdwaveПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A9FECD54DD7167C69923DCFD2D6B8AC4671A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565227   (494903) от 23.07.2022
-
-Balls Gone Wild - Stay Wild (2022) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing One (03:14)
-02. Hangman (04:05)
-03. School on Fire (04:45)
-04. Feel My Love (03:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A014291140BFD58C7626C633CED66109D975529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565121   (494902) от 23.07.2022
-
-Fame on Fire - Welcome to the Chaos (2022) [MP3|320 Kbps] <Alternative rock, Post-hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:24)
-02. Welcome to the Chaos (feat. Spencer Charnas of Ice Nine Kills) (3:28)
-03. Ketamine (2:52)
-04. Cut Throat (3:07)(   Читать дальше...   )Жанр: Alternative rock, Post-hardcore, MetalcoreПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76F97EC2A2E2471BCF49421F377772A3CECC896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565398   (494901) от 23.07.2022
-
-Дзокки / Zokki (2020) BDRemux [H.264/1080p] [АVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дзокки - экранизация раннего творчества знаменитого автора манги Охаси Хироюки. В фильме пять историй, в основе которых семь оригинальных работ мангаки. Три из них снял Такэнака Наото и по одной Ямада Такаюки и Сайто Такуми. Но там есть еще одна скрытая история, о существовании которой не читавшие мангу зрители могут узнать только из заключительных титров и ее авторами (   Читать дальше...   )Производство: Япония, ZOKKI Production CommitteeЖанр: Драма, комедияРежиссер: Такуми Сайто, Наото Такэнака, Такаюки ЯмадаАктеры: Рихо Ёсиока, Рюхэй Мацуда, Фуку Судзуки, Юсаку Мори, Дзёэ Кудзё, Пистол Такэхара, КацуяПеревод: Авторский (Александр Смиронов), двухголосый любительский (АрхиAsia)Субтитры: Русские, английскиеПродолжительность: 01:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890811BA3F387C98C73709B1B899F667981CDE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565111   (494900) от 23.07.2022
-
-Imperial Triumphant - Spirit Of Ecstasy (2022) [MP3|320 Kbps] <Avantgarde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chump Change (7:49)
-02. Metrovertigo (6:10)
-03. Tower of Glory, City of Shame (7:55)
-04. Merkurius Gilded (6:08)(   Читать дальше...   )Жанр: Avantgarde Black MetalПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6CC386CFD931EF1739D9CBFC708B1D4318A264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565418   (494899) от 23.07.2022
-
-AnyMP4 Mac Blu-ray Player 6.3.38 [En]
+Alfred PowerPack 5.0.1 Pre-release [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мощная программа для просмотра Blu-ray дисков и их образов (ISO). Так же с ее помощью можно смотреть 1080p HD и AVCHD видео. Поддержка просмотра Full HD форматов: MP4, FLV, MTS, M2TS, TS, MKV, WMV, TRP, MXF, MOV, MPEG, RMVB и других, а также многоканального аудио. AnyMP4 Mac Blu-ray Player обладает как высокой скоростью так и качеством результата, а также приятным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2022Разработчик: © 2021 AnyMP4 StudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2022 Running with Crayons LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1ED1C234B13DCA21E908BAB4E642CE2795AEA1AC
+magnet:?xt=urn:btih:A46FE34E0CD369D7D1761D467D73031C3AA29824
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,28 +108,596 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565118   (494898) от 23.07.2022
+###  Публикация: 1564549   (499753) от 19.07.2022
 
-Fight The Fade - Apophysitis (2022) [MP3|320 Kbps] <Alt.Rock, Electronic Rock, Christian>
+Dropzone 4 Pro v4.4.1 [En]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. (Not) Enough (4:22)
-02. Matter of Time (3:26)
-03. Old Wounds (3:16)
-04. Where You Go I Go (3:22)(   Читать дальше...   )Жанр: Alt.Rock, Electronic Rock, ChristianПродолжительность: 00:46:24
+Dropzone - удобная утилита для автоматизация рутинных действий.
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2022 Aptonic LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2820BC7806FF7C382F864092B4E7719B5DB2F4C5
+magnet:?xt=urn:btih:E242ECCBA8CBFA9668F8EE34DE99A9D853C59F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564398   (499752) от 19.07.2022
+
+Lethal Prayer - Spiritual Decay (1996) [FLAC|Lossless|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499752.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bathing in the Fires of Hell 06:42
+2. Crucifornication (07:12)
+3. Ad Majorae Satanas Glorium (02:36)
+4. Subterranean Existince (04:37)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EDBE275FB53B80ECF938B7C93347742373688E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564626   (499751) от 19.07.2022
+
+Smarky 2.12.9 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Smarky — это менеджер закладок для браузера Safari, совместимый с iCloud от Apple. После установки Smarky и включения синхронизации iCloud вы можете автоматически расположить закладки Safari в алфавитном порядке и организовать их на всех своих устройствах Apple.Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Sheep SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01783547597D2510531A3AA4CB84CEC4D763EDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564483   (499750) от 19.07.2022
+
+Max Roach Double Quartet - Bright Moments (1987) Soul Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bright Moments [9:14]
+02. Elixir Suite [9:47]
+03. Hi Fly [7:51]
+04. Tribute to Duke and Mingus [5:24](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB335F86B2078C33430661F59CB83D825E507649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564487   (499749) от 19.07.2022
+
+OmniPlayer Pro - Media Player 2.0.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499749.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.07.2022Разработчик: © 2021 Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.13+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84073DA319050E354EBCBADA9610C9E37077B666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564486   (499748) от 19.07.2022
+
+Георгий Почепцов | Хрустальная гора (2022) [MP3, Виктор Моключенко]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейтенант Петр Зверев, заброшен с секретным заданием на таинственную Хрустальную Гору, которая возникла посреди Европейской части страны, после необъяснимого временного катаклизма, на которой существуют существа, которые у нас принято называть сказочными... По иронии случая, становится племянником самой Бабы Яги, и переживает множество головокружительных приключений...Жанр: Детская литератураПродолжительность: 04:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05110811F73723665BD0FC980D3332E3C51AF405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564534   (499747) от 19.07.2022
+
+Music Tag Editor Pro 7.0.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
+Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
+Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2013-2021 yumysoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5385BDDFD533CAB433FE95E1995DD2436C02CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564664   (499746) от 19.07.2022
+
+DVD-Cloner 2022 v9.30.730 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499746.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD-Cloner - это небольшая утилита, при помощи которой вы сможете создать полностью идентичную копию вашего DVD-диска (например, с фильмом), в том числе и диска с защитой, и записать ее на другой диск. Программа проста в обращении, не требует тонкой настройки, поддерживает работу с большинством DVD-RW устройств и позволяет создавать копии фильмов с качеством, не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.07.2022Разработчик: © 2002-2022 OpenCloner™ Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872406890698C76888EE9EACCF757E45AA6991CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564509   (499745) от 19.07.2022
+
+beQUIETsimple 3.45 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока работает beQUIETsimple, внутренние динамики вашего Mac отключены. Между тем, вы все еще можете слушать через разъем для наушников. Проще говоря, beQUIETsimple отключает только внутренние динамики.
+beQUIETsimple разработан для журналистов, учителей, студентов и других пользователей Mac, которые хотят слышать звук, но не хотят мешать другим, например, на собраниях, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2015 - 2023 dragonBTVПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B3AAFFC9819754753D653C75608CAB43B51AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564482   (499744) от 19.07.2022
+
+Max Roach Double Quartet - Easy Winners (1985) Soul Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Says [12:54]
+02. Sis [6:38]
+03. A Little Booker [13:56]
+04. Easy Winners [4:55]Жанр: Hard Bop, Post-BopПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB6E0C0F7983CC7A5EF1EC989D4868C23481D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564499   (499743) от 19.07.2022
+
+SILKYPIX Developer Studio Pro 11 11.0.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499743.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2022, Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D6C6647BA5BB468390D2036D8C5C18D5A51B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564629   (499742) от 19.07.2022
+
+Алис Ги. Пьяный матрас / The Drunken Mattress (1906) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хозяйка обновляла матрас. То ли сушила, то ли начинку меняла, не важно. Случайно внутрь матраса попал пьяница. И что получилось? Правильно, матрас+пьяница=пьяный матрас. И пошла потеха...Производство: Франция, Société des Etablissements L. GaumontЖанр: Комедия, короткометражный, немое киноРежиссер: Алис Ги, Ромео БосеттиАктеры: Ромео БосеттиПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FDF5B45B441505870CD8B305A57832C9984D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564434   (499741) от 19.07.2022
+
+Leucosis - Leucosis (2013) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Anaesthesia (14:20)
+02 - Calcinate (10:15)
+03 - Taiga (13:42)
+04 - Grasp (09:25)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49830948C3C742BB1B5FF8A0A1E54FBBADF4F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564642   (499740) от 19.07.2022
+
+SILKYPIX Developer Studio Pro 10 v10.0.20.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499740.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro — мощное приложение, которое предназначено для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
+С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2022 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFC92C9BD1098521008F3B1E129266F76DFADC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564504   (499719) от 19.07.2022
+
+SILKYPIX JPEG Photography 10 v10.2.20.0 [EN]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499719.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX JPEG Photography  - лучший инструмент для того, чтобы сделать красивую фотографию для блогов и SNS, а также распечатать и завершить рутинную работу. В SILKYPIX JPEG Photography, кнопка «Автоматическая настройка», которая автоматически выполняет коррекцию, подходящую для изображения, «индивидуальную настройку подсветки / тени» для выделенной и теневой части (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2021 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D999ABA4E59779C6823C6113D9896CDED5EB4B05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564555   (499718) от 19.07.2022
+
+Things 3 v3.15.17 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2007-2022 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D295C08F45AECC85CC9711DA3169E65B8152D11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564494   (499717) от 19.07.2022
+
+Web Dumper for Mac 3.4.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы просматриваете веб-сайт в своем браузере и решаете создать его копию на своем жестком диске, вам придется вручную сохранять каждую просматриваемую страницу вместе со встроенными изображениями, звуками и т. д. Это может быть очень долгим и утомительным процессом, и во многих случаях это приносит больше хлопот, чем пользы. Однако это не обязательно должно быть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: © 2002 - 2021 Max Programming, S.L.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4719307357AD6D51A196D3C82B3D568B9841997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564570   (499716) от 19.07.2022
+
+DC Carnes - Delta Crossroads - Vol II (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. i got to find me a woman (4:42)
+02. sweet home chicago (3:33)
+03. rock this house (3:52)
+04. 3 o'clock blues (5:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FFC00EFC4581904C1663DE8964AB54B4EEA1A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564450   (499715) от 19.07.2022
+
+Color Ray 1.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оживите свои фотографии с помощью Color Ray, применяя впечатляющие эффекты цвета и размытия. Выберите область фотографии, которую вы хотите оставить цветной, а остальную часть раскрасьте в черно-белый цвет для создания драматического эффекта. Хотите применить к фотографии эффект размытия фокуса? Просто выберите область фотографии, которую вы хотите сохранить в фокусе, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2022 Day 1 Solutions SRLПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF5A967FA2ED55AA76314A2808C14417B317073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564644   (499714) от 19.07.2022
+
+Task Office 7.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подключите все свои календари к Task Office. Двусторонняя синхронизация работает с Apple iCal, Google Calendar, Exchange, Yahoo, Outlook и другими. После того как вы настроите соединение, все будет обновляться автоматически.Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2015 – 2022 by DK ConsultingПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99632CDADE6C90D69E233EC5AF861D8067379CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564582   (499713) от 19.07.2022
+
+Clobbr - test endpoint speed 1.5.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clobbr — это инструмент разработчика, который позволяет вам тестировать ваши конечные точки API, чтобы увидеть, насколько хорошо они работают при нескольких запросах, последовательно или параллельно.
+Независимо от того, тестируете ли вы REST, GraphQL или облачную функцию, Clobbr поможет вам.Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2022 ParseПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465C3D06603FDEF8F3F0AA008145E9ABAFE79496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564572   (499712) от 19.07.2022
+
+Dylan Triplett - Who Is He? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barnyard Blues (3:39)
+02. Who Is He (And What Is He To You) (4:37)
+03. Brand New Day...Same Old Blues (5:08)
+04. Dance Of Love (4:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F89231B7553F4F82D9B9835215634E4694EA9EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

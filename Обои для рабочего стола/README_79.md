@@ -1,3 +1,29 @@
+###  Публикация: 1270897   (154169) от 21.12.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (204) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F01F7BD9AD4A4F4B42C343B7554A8549B57035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270892   (154162) от 21.12.2018
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (201) [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15EDF37DF937E4F28595367CFAD573224D381EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589675   (148788) от 15.12.2012
-
-[Wallpapers] Обои ЦВЕТЫ(часть вторая)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые цветы на рабочий стол отличного качества.Часть вторая.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8B9A8F24745FA1C6ACC167D631DF3AB3195320
 ```
 
 https://mybot314.ru/tekegram_catalog/

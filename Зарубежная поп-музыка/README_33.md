@@ -1,3 +1,37 @@
+###  Публикация: 517524   (647147) от 01.07.2012
+
+Flo Rida - Wild Ones (2012) [MP3|320 кб/с]<Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whistle
+02. Wild Ones (feat. Sia)
+03. Let It Roll
+04. Good Feeling
+05. In My Mind, Pt. 2 (feat. Georgi Kay)
+06. Sweet Spot (feat. Jennifer Lopez)
+07. Thinking Of You
+08. I Cry
+09. Run (feat. RedFoo of LMFAO)Жанр: Pop, Dance, R&BПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13306F1CB388651C3B0C310D5FCE42A9FA244C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517758   (646738) от 01.07.2012
 
 Adele - 21 (Limited Edition) (2011) [MP3 |320 кб/с]<POP>
@@ -719,35 +753,6 @@ MIKA - No Place in Heaven (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC4706170B4D4B3C2B4C142D0CA8F1645DD39FDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907167   (639645) от 11.06.2015
-
-VA - KuschelRock The Most Beautiful Duets (2015) 2CD [MP3|320 кб/с]<Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Michael Duet With Elton John - Don t Let The Sun Go Down On Me
-02. Phil Collins & Marylin Martin - Separate Lives
-03. Bill Medley & Jennifer Warnes - (I ve Had) The Time Of My Life
-04. Joe Cocker & Jennifer Warnes - Up Where We Belong (An Officer And A Gentleman-Soundtrack(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 02:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5DFFC34095F597DE4BDDAE0B1D879FE76EB2B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1838003   (257740) от 20.11.2025
+
+VA - The Best Of Suanda Progressive 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rospy - Value Of A Teardrop (Extended Mix) [6:31]
+02. Adip Kiyoi & ZUZAH - Together (Extended Mix) [5:17]
+03. PoLYED & Max Denoise - The Sundays (Extended Mix) [6:15]
+04. Everi - Memories (Extended Mix) [7:45](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BED2523EF9468FB88B70F7CF3501EB80723DF10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838000   (257737) от 20.11.2025
+
+VA - Autumn Trance 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glassman - Never Do More (Original Mix) [6:35]
+02. Master Beat Projekt - Free Your Mind (Original Mix) [4:22]
+03. Mazeev - 21st Century (Original Mix) [5:56]
+04. Dimassive - Immensity (Extended Mix) [6:11](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94580E90911452CB341E54825DBC6EAC478CB6C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837255   (256853) от 15.11.2025
+
+VA - Progressive Trance Awakening, Vol. 09 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toonpaz - Waterdrops (Gabriel Batz Remix) [7:34]
+02. Vision L.A.B - Belong (Original Mix) [7:29]
+03. Hawk & Air Breeze - Guide Me The Way (Original Mix) [8:15]
+04. Midav & Mike Peralta - Ugly (Evgeny Bardyuzha Remix) [6:55](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7106E2BDBE3F315B91374EFC990706D558764E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837250   (256852) от 15.11.2025
 
 VA - 10 Years of Dreamstate (2025) [MP3|320 Kbps] <Trance>
@@ -655,93 +742,6 @@ Roger Shah & Ambedo - Tribute To Earth (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B4E32522EFB145A13B10161E00266D86F99F273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631155   (245244) от 04.05.2023
-
-VA - Best Essentials Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noise Generation - Tulum Mantra (Original Mix) [8:43]
-02. ATIK ATH - Atermon (Focus FL Remix) [7:17]
-03. Daniel Testas - Koko (Zy Khan Remix) [7:28]
-04. Nick Mason - Dreams Stay Dreams (Original Mix) [8:24](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3CBE372C7E199857F433025F7C8C5D8581799DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266348   (245212) от 01.12.2018
-
-VA - Artist Focus 82 (Miikka Leinonen) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miikka Leinonen – Firewatch (Original Mix)
-02. Miikka Leinonen – Kingdom Fall (Original Mix)
-03. Miikka Leinonen – Resurgam (Original Mix)
-04. Miikka Leinonen – Shadow Hearts (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FEB5DB836DFA4053BBB30C4CDE6E6C12C7790F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266326   (245197) от 01.12.2018
-
-VA - Classic Trance Anthems (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lange & Hysteria! - Unfamiliar Truth (John O'Callaghan Remix)
-02. Arty - Love Inside Out (Original Mix)
-03. Orjan Nilsen Present O&R - Beat Design (Original Mix)
-04. Estiva - Strawberry Fields (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE51C85C42402B0F1AA913E339C7D0274B8752E
 ```
 
 https://mybot314.ru/tekegram_catalog/

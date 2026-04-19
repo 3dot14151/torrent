@@ -1,75 +1,22 @@
-###  Публикация: 646214   (729041) от 11.06.2013
+###  Публикация: 1283750   (731956) от 18.02.2019
 
-Демоны да Винчи / Da Vinci's Demons (Сезон 1 полный (8)) (2013) HDTV 720p (AlexFilm)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729041.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где мысль и вера находятся под контролем, один человек борется за то, чтобы сделать знания доступными для всех.
-Не рассказанная история трагичной жизни Леонардо да Винчи раскрывает портрет молодого человека, которого мучает дар гения. Он - еретик, жаждущий раскрыть ложь религии. Бунтарь, стремящийся низвергнуть элитарное общество. Незаконнорожденный сын, (   Читать дальше...   )Производство: США, StarzЖанр: Псевдоистория, драма, приключенияРежиссер: Дэвид С. Гойер, Джейми Пэйн, Пол Уилмсхёрст, Майкл Дж. БассеттПеревод: Профессиональный многоголосый закадровый - AlexFilmПродолжительность: ~ 00:59:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638345   (729040) от 11.06.2013
-
-Игра престолов / Game of Thrones (Сезон 3 полный (10)) (2013) HDTVRip, WEB-DLRip (NovaFilm)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729040.jpg" />
-</div>
-
-
-###  Подробнее
-
-К концу подходит время благоденствия, и лето, длившееся несколько десятилетий, угасает. Люди, отказавшиеся жить по законам Семи Королевств, получили название одичалых и были изгнаны за Стену, на страже которой стоит Ночной Дозор. Но орден был учрежден, чтобы защищать мир людей от совсем другой силы — Белых Ходоков, ныне пробудившихся и угрожающих всему живому. Король (   Читать дальше...   )Производство: США, HBO, Television 360, Grok! StudioЖанр: Драма, фэнтазиРежиссер: Тимоти Ван Паттен, Брайан Кирк, Даниэль Минахан, Алан ТейлорПеревод: Профессиональный многоголосый закадровый - pozakazu и NovaFilmПродолжительность: ~ 00:55:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022335   (729038) от 02.06.2016
-
-Футбол. Чемпионат Англии 2015-2016. Итоги сезона. (31.05.2016) HDTVRip [H.264/720p-LQ]
+VueScan Pro 9.6.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подводим итоги Чемпионата Англии сезона 2015-2016Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Тимур Журавель, Юрий Розанов, Александр Неценко, Роман Гутцайт)Продолжительность: 01:55:02
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C56117BBDCDD5F8C4C3A6B3F70AF4384A2C2F7CF
+magnet:?xt=urn:btih:B24356D533519767F7ED6012C292245083B39B85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022329   (729037) от 02.06.2016
+###  Публикация: 1283843   (731955) от 18.02.2019
 
-Футбол. Товарищеский матч. Франция - Камерун (30.05.2016) HDTVRip [H.264/720p-LQ] [TUR]
+Обои - Desktop Wallpapers Full HD. Part (386) [JPG]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-30 мая 2016, понедельник. 22:00 МСК
-Товарищеские матчи 1
-
-Стадион: Ля Божуар - Луи Фонтено (Нант, Франция) , вместимость: 38004(   Читать дальше...   )Телекомпания: TV NET HDЖанр: СпортЯзык озвучки: ТурецкийПродолжительность: 01:35:51
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73EE705897E869AC44809264F768BE0351BE1314
+magnet:?xt=urn:btih:90DB8C5B52D2EA6C50A5E50A7092A7FD3A087010
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022420   (729036) от 02.06.2016
+###  Публикация: 1283762   (731954) от 18.02.2019
 
-Футбол. Товарищеский матч. Ирландия - Беларусь (31.05.2016) HDTVRip [H.264/720p-LQ] [EN]
+Карен Уайт | Траектория полета (2019) [FB2]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-31 мая 2016, вторник. 21:45 МСК
-Товарищеские матчи 1
-
-Стадион: Тернерз Кросс (Корк, Ирландия) , 7 200 зрителей (96 % при вместимости 7 485)(   Читать дальше...   )Телекомпания: Setanta 1 HDЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:55:38
+Джорджии Чамберс, эксперту по артефактам, выпадает удача поучаствовать в оценке редкого французского фарфора. Предложение поступает от незнакомого заказчика – красивый и богатый вдовец Джеймс предлагает ей отправиться на побережье Мексиканского залива, чтобы вместе разузнать историю редкой находки. Там же живет семья Джорджии – сестра, общение с которой прервалось (   Читать дальше...   )Жанр: Современная зарубежная литература, Любовный романПеревод: Лиана ШаутидзеФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AF80D3C8656856F4F808CB0286023E82EEC8AAF
+magnet:?xt=urn:btih:0DDE384F18AF00B0578CAEE981C8010B72FD49A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,28 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022612   (729035) от 02.06.2016
+###  Публикация: 1283323   (731953) от 18.02.2019
 
-Футбол. Товарищеский матч. Польша - Голландия (01.06.2016) HDTVRip [H.264/720p-LQ]
+Julien Marchal - INSIGHT IV (2019) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 июня 2016, среда. 21:45 МСК
-Товарищеские матчи 1
-
-Стадион: PGE Арена Гданьск (Гданьск, Польша) , вместимость: 43615(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Сергей Кривохарченко, Роман Трушечкин) / ИнтершумПродолжительность: 01:32:00
+01. Insight XXXIV (3:31)
+ 02. Insight XXXV (3:20)
+ 03. Insight XXXVI (2:04)
+ 04. Insight XXXVII (3:27)(   Читать дальше...   )Жанр: Neoclassical, Piano, MinimalПродолжительность: 00:34:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:170316AB299E599BF96065D40DDD715F5510571A
+magnet:?xt=urn:btih:FA87ABC711FA207FC5FF62BBD9EF2BFA6FF5A32A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022614   (729034) от 02.06.2016
+###  Публикация: 1283841   (731952) от 18.02.2019
 
-Хоккей. НХЛ 2015-2016. Плей-офф. Кубок Стэнли. Питтсбург - Сан Хосе. 2-й матч (01.06.2016) HDTVRip [H.264/720p-LQ]
+Обои - Desktop Wallpapers Full HD. Part (385) [JPG]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-02 июня 2016, четверг. 03:00 МСК
-Кубок Стэнли. 2-й матч
-
-Стадион: Консоль Энерджи-центр (Питтсбург, США) , 18 655 зрителей (100 % при вместимости 18 656)(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Александр Хаванов, Александр Ткачев)Продолжительность: 02:10:36
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B53705A12C121644FE68B95D37677B354858A065
+magnet:?xt=urn:btih:70C476DD5A224C4029C3593BCEFEEA8CEE1017C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,28 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022637   (729033) от 02.06.2016
+###  Публикация: 1283840   (731951) от 18.02.2019
 
-Muska - Artist Focus 57 (2016) [MP3|320 кб/с] <Trance>
+Обои - Desktop Wallpapers Full HD. Part (384) [JPG]
 
->>Архив торрентов
->>Архив Музыки
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Muska - Uhne (Original Mix) (07:42)
-02. Muska - Aropax (Original Mix) (07:34)
-03. Muska - From The Block (Original Mix) (06:32)
-04. Muska - Insight (Original Mix) (06:09)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:23:53
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:816E2355AAA436A72AC35C8BE0BF4841C9B30CC5
+magnet:?xt=urn:btih:DF9340CD048845BBB6B11D76B91E0CB9E4C5154D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,28 +157,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022512   (729032) от 02.06.2016
+###  Публикация: 1283741   (731950) от 18.02.2019
 
-VA - Progressive House & Trance Vol 4 (2016) [MP3|320 кб/с] <Trance, Progressive, House>
+VA - Car Songs: The 70s (2019) 4CD [MP3|320 Kbps] <Pop Rock, Disco, Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 12Saturnus - Thats Me (3:24)
-02. Akit_ Lab - Red Sunrise (6:08)
-03. Alex Ch_ - Hurricane (3:04)
-04. Alex Greenhouse - Rain (3:32)(   Читать дальше...   )Жанр: Trance, Progressive, HouseПродолжительность: 02:32:53
+CD01:
+01. McFadden & Whitehead - Ain't No Stoppin' Us Now
+02. Earth, Wind & Fire - September
+03. Heatwave - Boogie Nights(   Читать дальше...   )Жанр: Pop Rock, Disco, JazzПродолжительность: 04:34:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:699C26A49B1B9DD13007CF606369431DB3B67CCC
+magnet:?xt=urn:btih:5C3D668C2C472E4F7F5F8BE091328F5B28EAA16C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,28 +186,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022401   (729031) от 02.06.2016
+###  Публикация: 1283228   (731949) от 18.02.2019
 
-Футбол. Чемпионат Европы 1996. Финал. Чехия - Германия (30.06.1996) HDTVRip [H.264/720p-LQ] (2016)
+Артур Хейли | Клиника: анатомия жизни (2019) [MP3]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Телеканал Матч ТВ в преддверии Евро 2016 предлагает вспомнить лучшие матчи прошлых чемпионатов Европы.
-
-30 июня 1996 года.
-Лондон. Стадион "Уэмбли". 73 611 зрителей.(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Геннадий Орлов и Олег Жолобов)Продолжительность: 01:57:22
+Артур Хейли — классик современной американской литературы. Его произведения — это своеобразные «куски жизни». Аэропорт, отель, больница, Уолл-стрит — всякий раз замкнутое пространство, в котором переплетаются страсти, амбиции и — судьбы. Такова жизнь. Таковы и романы Хейли.
+Больница.
+Здесь лечат и спасают людей.
+Вот единственное, по сути, отличие больницы от любого (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 16:00:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB8AFA507D5530AE98E86774447C3EA423B35B4D
+magnet:?xt=urn:btih:2EC219A63F8EFF39D2BDB06AF62A8856D365DA03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,258 +215,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022526   (729030) от 02.06.2016
+###  Публикация: 1283786   (731948) от 18.02.2019
 
-Herb Ellis & Joe Pass - Seven, Come Eleven (1973) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In A Mellow Tone [07:35]
- 02.Seven, Come Eleven [05:10]
- 03.Prelude To A Kiss [05:36]
- 04.Perdido [04:53](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1288A03681B6286835E05C05FFBFF6BB3A086FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022613   (729029) от 02.06.2016
-
-Cedar Walton Trio - Cedar Walton (1985) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Third Street Blues [07:14]
- 02.Magical Lady [07:33]
- 03.Short Comings [05:45]
- 04.Voices Deep Within [08:52](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84B0C2E1779DFBB2C81ED39D9D9FE7F8BC1D866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530541   (729028) от 11.02.2022
-
-VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Credo - Siesta Del Sol (Laid Back Summer Remastered Cut) (4:58)
-02. Cafe Americaine - Solitude Charmante (Level One Remastered Mix) (4:21)
-03. Miss Lopez - Jeso Creadu (Paraiso Verda Mix) (5:32)
-04. Vladi Strecker - Over the Sea (Island Sounds Deluxe Remastered Mix) (7:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF690E4102D45CCE0F012B17253BFB8F2BC2B1C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530525   (729027) от 11.02.2022
-
-Хоккей. НХЛ 2021-2022. Вашингтон Кэпиталз - Монреаль Канадиенс (10.02.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729027.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 февраля 2022, пятница. 03:00 МСК
-Стадион: Белл-центр (Монреаль, Канада), 500 зрителей (2% при вместимости 21 302)
-Главный судья: Кайл Реман (Стеттлер, Канада); Главный судья: Грэм Скиллитер (Ла Ронж, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4466B81F6170809B1CC9FFC8D7C2FD3CFFCF5726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530432   (729026) от 11.02.2022
-
-Woe Unto Me - Spiral-Shaped Hopewreck (2021) EP [FLAC|Lossless|image + .cue] <Melodic Doom, Death, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And every piece of a being was washed away by the (1:11)
-02. Spiral-Shaped Hopewreck (11:31)
-03. Dissolving and then forming a new image, so (0:51)
-04. Sad and Slow (6:07)(   Читать дальше...   )Жанр: Melodic Doom, Death, Progressive MetalПродолжительность: 00:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28FB30587346EAEA56E6B2A4937D9513112A5D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530518   (729025) от 11.02.2022
-
-Хоккей. НХЛ 2021-2022. Питтсбург Пингвинз - Оттава Сенаторз (10.02.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729025.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 февраля 2022, пятница. 03:00 МСК
-Стадион: Канадиен Тайр-центр (Оттава, Канада), 500 зрителей (2% при вместимости 20 500)
-Главный судья: Ти Джей Люксмор (Тимминс, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14D49B980569A20F67560AD5BF4FC0E5203D001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530543   (729024) от 11.02.2022
-
-VA - The Soundgarden Winter Collection 2022 (2022) [AAC|~341 Kbps] <Organic House / Downtempo, Progressive House, Melodic House & Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodaishin, RYAN (AR) - Fates (8:12)
-02. Berni Mora - The Forgiveness Garden (8:14)
-03. Larrosa & Gardoqui - Isolation (8:00)
-04. Seiji Niizawa - Konbanwa (8:06)(   Читать дальше...   )Жанр: Organic House / Downtempo, Progressive House, Melodic House & TechnoПродолжительность: 03:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B547F633942EDC3FB5DEB68D63F98927DE92308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530478   (729023) от 11.02.2022
-
-VA - Oriental India Chill Lounge - Mystic Buddha Ethnic Cafe Moods (2019) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo, Ethnic, World>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Banghra Lounge Voices - Kamasutra in Heaven (5:09)
-02. Buddha Vibes - Summer Breeze in India (Goa Beach Extended Mix) (10:12)
-03. Lahore Dhol Xpress - Ceylon Blend (Singh Style Mix) (4:51)
-04. Bedroom Buddha - Mumbai Nights (Bar Del Mar Cafe Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Ethnic, WorldПродолжительность: 01:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8654C81D64A6B1FD3CA9D43D8A577622D13A8D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530491   (729022) от 11.02.2022
-
-MORTEN - DJ Mag Italy Radioshow (2022-02-02) [MP3|~245 Kbps (V0)] <Electro House>
+VA - Cleopatra Records presents: Industrial Music For Fitness (2009) [MP3|320 Kbps] <Industrial, Aggrotech, EBM>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David Guetta & MORTEN - Permanence
-02. Anyma ft. Meg Myers - Running
-03. ARTBAT & Pete Tong ft. Jules Buckley - Age Of Love (ARTBAT Rave Mix)
-04. David Guetta & MORTEN & Roland Clark - Alive Again(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:59:04
+01. Noise Unit - Corroded Decay
+02. Razed In Black - A Drug Against War
+03. Burning Retna - Why
+04. Pitbull Daycare - You Make Me Feel So Dead (As Heard In Saw)(   Читать дальше...   )Жанр: Industrial, Aggrotech, EBMПродолжительность: 03:23:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0E24C72BE5153EBB7B357619C10EF060A14862B
+magnet:?xt=urn:btih:81BE9FA2029D4063AEC3AFAED1DEAF2032DD478C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -539,28 +244,130 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530546   (729021) от 11.02.2022
+###  Публикация: 1282486   (731947) от 18.02.2019
 
-VA - Urban Grooves (Urban Funk Breaks Dub Hip Hop Beats) (2022) [AAC|~311 Kbps] <Jazz, Nu Jazz, Funk, Electronic, Broken Beat, Dub>
+Жизнь: первые шаги / Life: First Steps (2018) HDTVRip (серии 1-3) (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые дни, недели и месяцы жизни каждого животного - самые напряженные. Им предстоит научиться сложным вещам тогда, когда они наиболее уязвимы. Однако природа создала множество стратегий, позволяющих малышам дожить до взросления, несмотря ни на что. Мы увидим, как наши крошечные герои сражаются в битве, каждый шаг которой приводит их всё ближе к успеху.Производство: Великобритания, Offspring Films, Sky TelevisionЖанр: Документальный, природа, флора, фаунаРежиссер: Дэн ПероунПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C6C13DFCA39570DF4EAC205D90B2C6108C7225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283879   (731946) от 18.02.2019
+
+Журнал | Домашняя энциклопедия здоровья №1 (71) (февраль 2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словом можно убить, а можно вернуть к жизни. Мы способны вложить в слово любовь, помощь, дружественное отношение, и это вызовет соответствующее чувство в том, к кому оно обращено.
+Таким же образом мы можем менять собственную жизнь, настроение, состояние здоровья. Что, кстати, доказывают многочисленные исследования...Жанр: здоровье, домоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD067A691ECE42AAAC181F33FEA2FDE65629013D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283837   (731945) от 18.02.2019
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (217) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0F86965A92259BE8094E534353E257AB49DC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283044   (731944) от 18.02.2019
+
+Станислав Бабицкий | Без пяти лет апокалипсис (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир будущего. У которого нет будущего. Есть только славное прошлое и машина времени, чтобы нырять в те века, где/когда люди жили долго и счастливо. Правда, заплатить за путешествие в прошлое придётся по очень завышенному тарифу. На первый взгляд эта сделка покажется не слишком выгодной. Но не забывайте, будущего у вас … тоже нет.Жанр: Научная фантастикаПродолжительность: 05:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1C7141FDC533CD40915C50726755ABD2F60C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283749   (731943) от 18.02.2019
+
+Дикие сердцем / Wild at Heart (1990) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. LTJ XPerience, Anduze - Infiltrator (5:26)
-02. DOUT.D - Mathematic (2:28)
-03. Vito Lalinga (Vi Mode inc project) - Get It (4:34)
-04. Anduze - How To Love A Good Man (3:33)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Funk, Electronic, Broken Beat, DubПродолжительность: 01:58:19
+Сейлор и Лула спасаются от безжалостной команды наемных убийц, нанятых безумной матерью Лулы Мариэттой. В погоню за беглецами вначале пускается дружок Мариэтты, частный детектив Джонни, а когда Джонни возвращается ни с чем, Мариэтта призывает на помощь своего бывшего любовника, гангстера Сантоса…Производство: США / PolyGram Filmed Entertainment, Propaganda FilmsЖанр: Триллер, Драма, Комедия, КриминалРежиссер: Дэвид ЛинчАктеры: Николас Кейдж, Лора Дерн, Уиллем Дефо, Дж.Э. Фримен, Криспин Гловер, Дайан Лэдд, Кэлвин Локхарт, Изабелла Росселлини, Гарри Дин Стэнтон, Грейс Забриски, Шерилин ФеннПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: ОтсутствуютПродолжительность: 02:04:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55BAA83A29490794DC3B31342E50592D0C5E55B3
+magnet:?xt=urn:btih:1F211D166CF8AD3195D0C1CCE2110B50D748561A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,28 +375,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530210   (729020) от 11.02.2022
+###  Публикация: 1283848   (731942) от 18.02.2019
 
-Bireli Lagrene - Electric Side (2008) Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+Картинки - Wallpaper pack - Abstraction 37 [JPG]
 
->>
->>
+>>Графика, Арт, Разное
+>>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hips [5:41]
-02. Incertitude [4:55]
-03. Thimothee [9:21]
-04. Jack Rabbit [2:33](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:57:54
+Подборка обоев на тему абстрактная графикаФормат: JPGРазрешение файлов: 1920x1080-6000x4500
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:501324D3D12924D4C45888D604219AC7FBC17110
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,28 +401,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530373   (729019) от 11.02.2022
+###  Публикация: 1283833   (731941) от 18.02.2019
 
-VA - Latin Flavors, Vol. 1 (Latin Chill Music) (2013) [AAC|~349 Kbps] <Lounge, Chill Out, Bossa Nova>
+Обои - Ultra HD 3840x2160 Wallpaper Pack 371 [JPG]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Leo de la Rosa - Camino Del Sol (3:38)
-02. Scat - Que Vengo (4:25)
-03. La Estación Del Mar - Qué Bonito (3:59)
-04. Florito - Nambuco (7:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Bossa NovaПродолжительность: 01:09:30
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:745EAE1D6B2C6883FBD2168FA4ACDB6F2A94EA94
+magnet:?xt=urn:btih:95D27DAA5BA3E67F858587CA60A317491B328F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,25 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530420   (729018) от 11.02.2022
+###  Публикация: 1283278   (731940) от 18.02.2019
 
-Meganebu! | Клуб очкариков [2013, TV, 12 эп.] WEBRip 1080p raw
+Yann Tiersen - ALL (2019) Mute Artists Ltd. [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Ambient, Contemporary>
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Они – не такие, как все, и таинственное устройство с дужками и стеклами для них вовсе не оптический инструмент, не модный аксессуар и даже не фетиш массовой культуры. Это - знак Пути, высокого предназначения и принадлежности к новому, совершенному человечеству! Именно так думает 17-летний Акира Сома, создавший в Гималайской технической школе «клуб очкариков», который (   Читать дальше...   )Производство: Студия Studio Deen / スタジオディーンЖанр: повседневность, комедияРежиссер: Ямамото СобиПеревод: Наталия ИшоваЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+01. Tempelhof (6:09)
+ 02. Koad (6:01)
+ 03. Erc’h (9:21)
+ 04. Usal Road (2:59)(   Читать дальше...   )Жанр: Neoclassical, Ambient, ContemporaryПродолжительность: 01:02:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD926067D4697C0571913718E3BFAE19061C9FCE
+magnet:?xt=urn:btih:72D1B2854CD40FAF3BB02464304F526F034E8ABF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,28 +456,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530374   (729017) от 11.02.2022
+###  Публикация: 1283869   (731939) от 18.02.2019
 
-VA - Latin Flavors, Vol. 2 (Latin Chill Music) (2016) [AAC|~340 Kbps] <Lounge, Chill Out, Bossa Nova>
+Векторный клипарт - Motorcycles - Vector Graphics [EPS]
 
->>
->>
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dj Pantelis - That Summer (The Balearica Anthem) (4:15)
-02. Leo de la Rosa - Te Pienso (Marga Sol'S Balearic RMX) (4:14)
-03. Zaranda - Blanco (4:52)
-04. Pep Lladó - Vai Vedere (5:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, Bossa NovaПродолжительность: 01:07:28
+Векторный клипарт для дизайна.
+Мотоциклы
+26 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:53BA3EDA54668EB710D0CB8147C45BFAC5FF168E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,28 +484,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530379   (729016) от 11.02.2022
+###  Публикация: 1283461   (731938) от 18.02.2019
 
-VA - Latin Flavors, Vol. 4 (Latin Chill Music) (2020) [AAC|~324 Kbps] <Lounge, Chill Out, Bossa Nova>
+Вероника Иванова | Свобода уйти, свобода остаться (2019) [MP3]
 
->>
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Michael e - Mallorcan Soul (Original Mix) (5:19)
-02. Raquel Silva Joly - Dindi (Original Mix) (4:02)
-03. Raquel Silva Joly - Preciso Aprender a Ser So (Original Mix) (6:22)
-04. Artur Bayramgalin - Tangerine Coast (Original Mix) (3:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, Bossa NovaПродолжительность: 01:04:15
+Ваша судьба расписана от рождения и до смерти, даже на свет вы появились в полном согласии с правилами, почти такими же старыми, как весь ваш род. Служба так тесно переплетена с жизнью, что вы и сами иногда не понимаете, где заканчивается одно и начинается другое. Жену вы тоже выбрали себе сами, окончательно и бесповоротно, и все, что остается, это только полюбить (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 12:02:31
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CF1026302DAF586B8AB8E76FBF8D9FBC537A492F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,28 +510,193 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530377   (729015) от 11.02.2022
+###  Публикация: 1283714   (731937) от 18.02.2019
 
-VA - Latin Flavors, Vol. 3 (Latin Chill Music) (2018) [AAC|~340 Kbps] <Lounge, Chill Out, Bossa Nova>
+Константин Душенко | История знаменитых цитат (2018) [FB2]
 
->>
->>
+>>Разное (категория книг)
+>>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ignacio Fernández - Magic (Original Mix) (4:13)
-02. Nicholas Gunn - Fiesta Patria (Original Mix) (3:14)
-03. Ignacio Fernández - Por Otro Mundo (Original Mix) (3:17)
-04. Groove Gauchos - The Bossa Saloon (Laid Back Mix) (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, Bossa NovaПродолжительность: 01:07:37
+Популярные цитаты – одна из важных частей культуры; нередко это формулы нашего мышления. Знать, откуда они появились и что они означали в разное время, – дело вовсе не лишнее.
+
+Позволю себе предположить, что даже осведомленный читатель узнает немало нового о том, что он считал хорошо известным.
+(   Читать дальше...   )Жанр: Афоризмы, Цитаты, Культурология, ЯзыкознаниеФормат: FB2
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:36EB5F5DFC76E22805B7256C499025538D4B893E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 324343   (731919) от 16.04.2011
+
+Провал во времени / Retroactive (1997) HDTVRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под ярким солнцем Великой Американской равнины, на одинокой, продуваемой всеми ветрами автозаправочной станции происходит жестокое преступление. Эти, леденящие душу события происходят на глазах Карен, попутчицы человека, оказавшегося беспощадным убийцей. Спасаясь от его преследования, Карен вновь и вновь возвращается в прошлое, но всего лишь на 20 минут назад для (   Читать дальше...   )Жанр: Фантастика, Триллер, КриминалРежиссер: Луис МорноАктеры: Джеймс Белуши, Робби Тибо-младший, Джесси Боррего, Фрэнк Уэйли, Шэннон Уирри, Кайли Трэвис, Шерман Ховард, Гай БойдПеревод: Русский многоголосый закадровый (ТК "СТС")Субтитры: русские, английскиеПродолжительность: 01:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BAAEA9C3FB9D48F4DE7C40125DA3BCA93F9AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021621   (731913) от 30.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 23 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddy Huntington - Physical Attraction ( 1989 )
+02. Morena - Open Your Heart ( Energy Mix 1991 )
+03. O'Kay - I Won't Forget ( 1989 )
+04. Miko Mission - Two For Love ( Mozzart Mix 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F50881B6C34E10F45E62E665C876C9084C5B7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021652   (731911) от 30.05.2016
+
+Журнал | Садовник №6 (133) (июнь 2016) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто хочет сделать свой приусадебный участок красивым, не потратив при этом огромных средств; для тех, кто считает, что работать нужно с удовольствием, а отдыхать - красиво. Пять разделов журнала: «Участок», «Сад», «Огород», «Дом» и «Арсенал», - повествуют о сезонных работах за городом, рассказывают обо всех особенностях и секретах, которые необходимы (   Читать дальше...   )Жанр: Сад, огород, цветы, дизайн участкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA1430C16B9E9C5B89C3CE441CA9DCF75F3F922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021386   (731909) от 30.05.2016
+
+Юлия Запольская - Midnight in Moscow (LP) (1970) [MP3|128 кб/с] <retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сердце
+02. Бежит река
+03. Выхожу одна я на дорогу
+04. Не брани меня, родная(   Читать дальше...   )Жанр: retroПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C54CA17B2E9EA3527CD2FCFB0B20E8E3387730B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021615   (731907) от 30.05.2016
+
+А. К. Байбурин (ред.) | Этнические стереотипы поведения (1985) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник посвящен описанию и анализу стереотипных форм поведения у народов Европы, Азии, Америки, Австралии. Наряду с теоретическими вопросами рассматриваются конкретные проявления стереотипизации поведения, особенно характерные для этикета, обрядов, игрового поведения и других сфер деятельности. Выявляются исторические корни стандартов поведения, принятых у разных (   Читать дальше...   )Жанр: История, психология, этнография, этика, культурологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5897E500DE4878F46A218007D92BD5E62DC021F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021599   (731905) от 30.05.2016
+
+VA - Wonderful Melodic Chillstep [Compiled by Zebyte] (2016) [MP3|320 кб/с] <Chillstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gelvetta - Me And You [07:12]
+02. Valefim Planet - Morning Forest [04:48]
+03. Diamans - Reach Heavens [04:32]
+04. Odesza - I Play You Listen [04:52](   Читать дальше...   )Жанр: ChillstepПродолжительность: 01:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040ACA3B16B01E5612B846D91933A04D20774ED1
 ```
 
 https://mybot314.ru/tekegram_catalog/

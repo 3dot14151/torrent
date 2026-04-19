@@ -1,3 +1,172 @@
+###  Публикация: 968036   (158268) от 22.12.2015
+
+VA - The Sound Of Whartone Winter 2015 (21.12.2015) [MP3|320 кб/с] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonny Wharton - I Feel It (Original Mix) [06:50]
+02. Dirty Secretz - Trippin' (Original Mix) (feat. Rebe) [08:06]
+03. Adam Sharpe - Afrocan (Original Mix) [06:07]
+04. James Kininmonth - Sleepless (Original Mix) (feat. Ruth Sharples) [08:03](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57B18C5AE954F1F332C825093AEA1EF652B2BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696231   (157962) от 22.12.2015
+
+Exoplanet - Discography 2 Albums & 26 EP (2005-2014) [MP3|320 кб/с]<Progressive House, Techno, Downtempo, Breaks, IDM, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Star (Dmitry Molosh Remix) (07:31)
+ 02. Intrepid Traveller (Luis Bondio 'Welfare' Mix) (07:49)Жанр: Progressive House, Techno, Downtempo, Breaks, IDM, Deep House |Продолжительность: 00:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F52CC4C41BDD9A3D09C759249A2CC42D5ACB62B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600389   (157723) от 27.12.2022
+
+VA - World Sound The Best Of 2022 [MP3|320 Kbps] <House, Funky House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kevin Andrews - Pick Me Up (Jackin Mix) (4:48)
+02. Felix Da Funk - Portixol (Original Mix) (5:50)
+03. Ivan Kay & Fiorez - Burning (Original Mix) (5:23)
+04. Michael Seumeren & Emiel Roche - I Am Oldscool (Original Mix) (5:03)(   Читать дальше...   )Жанр: House, Funky HouseПродолжительность: 05:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B4D4716E55554C3326719F929B4443D7FA4070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085898   (156833) от 22.12.2016
+
+VA - Deep and Loud (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tec 77 - Mediterranean - Dan Rubell Remix
+02. Shivana faction - Elementary Levels
+03. Thrill Rules - Hyped
+04. Najwars - Deep Trading(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F7DD32FC1F25F06B0C96AE56DC412C973CB673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968325   (156621) от 23.12.2015
+
+VA - Hed Kandi Anthems (2015) [MP3|320 кб/с] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. StoneBridge - Put 'Em High (feat. Therese)Жанр: Funky, Club HouseПродолжительность: 11:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882D4D50F2D66E40B620F8E99DEE45F6811F2796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270474   (156408) от 19.12.2018
+
+VA - Christmas Dance Party 2018-2019 (Best of Dance, House & Electro) (2018) [MP3|320 Kbps] <House, Dance, Electro-House, Bigroom>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spikaa feat. Deja - Home (Radio Mix)
+02. Sean Norvis feat. Pacha Man and Alexandra Mitroi - Bad Girls (Radio Edit)
+03. John Reyton - Out Of The Dark (Radio Edit)
+04. Geo Da Silva - Pump It Up (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Electro-House, BigroomПродолжительность: 02:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3619A1AE7B058B83FE2EFB235344ABE8870BE511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270658   (155998) от 20.12.2018
 
 VA - Christmas & Chill, Vol. 2 (Have Yourself A Little Deep House Hangout) (2018) [MP3|320 Kbps] <Deep House>
@@ -571,186 +740,6 @@ VA - Deep House Top 1000, Vol.1-Armada Music (2018) [MP3|320 Kbps] <House, DeepH
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A04A72A4F5DA3F4F1E7CA227D121C70D56EF4656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590291   (146176) от 16.12.2012
-
-VA - SoSexy - Deep House Selection Vol.1-2 (2012) [MP3|320 кб/с]<House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diego Suarez - Bossa and Trip
-02. Marco Van Erpen - Keep On Dreamin
-03. Tiapason - Day Dream
-04. Tiapason - Wasting Time
-05. DJ Joseph B - All Kinds of Everything
-06. DJ Jerry - Keep in Mind
-07. Diego Suarez - Guitar Reverse
-08. Love Pacific Industries - Conselvee
-09. Musixx - Test Giose
-10. 4th Floor - A Night in New York(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 06:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F9DDAFA046960BB915A38AB0C29C83BE70530A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519976   (145529) от 26.12.2021
-
-VA - Seveneves Best of 2021 (2021) [MP3|320 Kbps] <Funky, Club-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Hofmann - Show Me What You Got (02:43)
-02. AirDice - Momento (Radio Edit) (02:39)
-03. Jake Dile; Valentino Vines - Light It Up (Radio Edit) (03:23)
-04. DJ Bass-T - Call You MIne (02:57)(   Читать дальше...   )Жанр: Funky, Club-HouseПродолжительность: 02:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BF7B81A454A07499B124BE266FB6AD4DDE2116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272417   (144825) от 27.12.2018
-
-VA - House Anthems (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reza, D.O.N.S., Rio De La Duna - Kongo (D.O.N.S. & Rio De La Duna Remix)
-02. Ian Faze - Funk It (Original Mix)
-03. Chris Lay, Wulky - Kush (Wulky Remix)
-04. Sol N Beef - Night Shift (Peter Brown Remix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 03:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E360F1C8042A489E357B6487E824DC9D1E688237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087745   (144748) от 28.12.2016
-
-VA - Tiesto - AFTR:HRS (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuits d'Etoiles & Noemie – Un Autre Monde feat. Noemie (AFTR:HRS Mixcut) (04:24)
-02. Niklas Ibach & Dan Reeder – The Blues feat. Dan Reeder (AFTR:HRS Mixcut) (02:23)
-03. Florian Paetzold – Easy (AFTR:HRS Mixcut) (04:12)
-04. Autograf – Heartbeat (Alex Schulz Remix) (AFTR:HRS Mixcut) (02:52)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30162082D2B0D0BE008A5335BED17AE962DCA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194333   (144266) от 28.12.2017
-
-VA - Hed Kandi - Twisted Disco (2010) [FLAC|Lossless|tracks] <House, Electronica>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144266.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: (01:16:31)
-01. Bobby Burns & Afrojack - Ghettoblaster
-02. DJ Gregory & Sidney Samson Feat. Dama s - Dama s Salon
-03. Timmy Vegas - Get Off Your Arse And Jam(   Читать дальше...   )Жанр: House, ElectronicaПродолжительность: 02:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157CB5E2B4E04A5A2D9F0F9D1F82C342F4486456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272585   (143115) от 28.12.2018
-
-VA - Moulton Music Presents Best Of 2018 (2018) [MP3|320 Kbps] <House, Soulful, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen Craig - Lierre (Original Mix) (06:26)
-02. Angelo Ferreri - Soul Scan (Original Mix) (05:24)
-03. Chris Lum & Homero Espinosa - Deeper I Go (Original Mix) (06:27)
-04. David Harness & Joi Cardwell Ft. Reelsoul - Power Of Us (Original Mix) (06:02)(   Читать дальше...   )Жанр: House, Soulful, Deep HouseПродолжительность: 01:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E17A10A26666CF40F5D73BBACF28AF95252C2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

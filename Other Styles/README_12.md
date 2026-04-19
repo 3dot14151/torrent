@@ -1,3 +1,183 @@
+###  Публикация: 1356562   (978002) от 31.01.2020
+
+Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Bath (01:25)
+02. Witchcraft (02:09)
+03. Eat Me (01:07)
+04. Arise (03:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100D3D6290EE76F99674D326CC8E40452C08CF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356563   (977949) от 31.01.2020
+
+Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Bath (01:25)
+02. Witchcraft (02:09)
+03. Eat Me (01:07)
+04. Arise (03:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCABCDCC039A2BB72619ADCC624FFC2113BA0CA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742875   (976958) от 07.01.2014
+
+Ah Nee Mah (Diane & David Arkenstone) - Ancient Visions (2005) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Circle (5:26)
+02. Song of the River (5:42)
+03. Canyon Echoes (5:11)
+04. Shaman's Dream (5:05)(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1BCBFF4F6333C98BF2DB75BAAA61229131F7B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616189   (976836) от 09.02.2013
+
+Glenn D. Wright & R. Arduini - Best Of New Age (2CD) (1999) [MP3|320 кб/с]<New age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976836.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:55) 01. Chasing A Dream
+(3:56) 02. Velvet Wind
+(4:46) 03. Morning Mist
+(4:24) 04. Swept Away
+(5:43) 05. Jason
+(3:41) 06. Soaring Free
+(3:48) 07. Whispering Winds
+(4:20) 08. Reflections In Time
+(3:41) 09. Shadow Dancing
+(6:04) 10. Forest Path(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F67122AD107CA905BBAD5C475791FB5EF6B43D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356817   (976765) от 01.02.2020
+
+Thomas Newman - 1917 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1917 (01:17)
+02. Up the Down Trench (06:19)
+03. Gehenna (03:35)
+04. A Scrap of Ribbon (06:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3301BA1AAA9C341C4E4B5C5AB5F90C2F0811DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974420   (976718) от 11.01.2016
+
+Era - The Mass (2003) SACD [FLAC|Lossless|tracks + .cue] <New Age, Modern Classical, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mass (3:41)
+02. Looking for Something (4:09)
+03. Don't Go Away (4:24)
+04. Don'Era - If You Shout (3:49)(   Читать дальше...   )Жанр: New Age, Modern Classical, DowntempoПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA7DB4B211A8132AB2F552F1E24191575CA9B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974808   (975681) от 12.01.2016
 
 Michele McLaughlin - Undercurrent (2015) [MP3|320 кб/с] <New Age, Piano>
@@ -573,183 +753,6 @@ Richard Ackrill - The Lightness of Being (2012) [MP3|320 кб/с]<New age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C1645612714832C143D1B687C5EEABD7EFC46D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616974   (971187) от 13.02.2013
-
-The Nymphs - Language of the Nymphs (2012) [MP3|192 кб/с]<New age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971187.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:39) 1. Sa Na Du
-(6:56) 2. Waka Zia
-(6:26) 3. Donde Djembeh
-(4:26) 4. Umna Sa
-(4:46) 5. Na No Mi Ne
-(5:46) 6. Adjah Bihem
-(5:04) 7. Nouri SamahЖанр: New age, Instrumental, RelaxПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517AA0BD7BCF379130E5DEDB194E8DEA3B78F4EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975823   (970810) от 16.01.2016
-
-Enigmatic Obsession - Secrets Of Seduction (2005) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening My Eyes (feat. Luisa Fernandez)
- 02. In The Recent Past (feat. Luisa Fernandez)
- 03. The Delta Of The Red River
- 04. Northern Horizon (feat. Helene Horlyck)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852E17BAA6FC3127B90764A5012EC5DF3216DD60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975770   (970807) от 16.01.2016
-
-Jens Gad (ex.-Enigma) - Le Spa Sonique (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (1:28)
- 02. El Momento (6:02)
- 03. Navajo (4:43)
- 04. The Orbiting Suns (4:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBA6E7A85538AB46C31A8F34467479428CB205F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976103   (970803) от 16.01.2016
-
-Ennio Morricone - Correspondence (La Corrispondenza) Original Soundtrack (2016) [MP3|320 кб/с] <Soundtracks, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Casa Sul Lago
-02. Una Stella, Miliardi Di Stelle
-03. Improvvisazione In Sol
-04. Stuntgirl(   Читать дальше...   )Жанр: Soundtracks, InstrumentalПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3818881BBC80C75B2B45A14C9497DA05FCF151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357245   (970732) от 06.02.2020
-
-Tom Kenyon - Songs of Magdalen (2005) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Meeting at the Well (4:17)
-02. I and My Beloved (8:36)
-03. Sar'h's Song (3:27)
-04. The Skies over Jerusalem (2:54)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D2ACF8BC2BD56579349B59B37512F5F92FF300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357327   (970644) от 06.02.2020
-
-Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Old Oak Wood
-02. Jade
-03. I Love The Rain
-04. Cherry Blossom Street(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

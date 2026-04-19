@@ -1,3 +1,148 @@
+###  Публикация: 1662830   (187405) от 19.09.2023
+
+Linda Jo Rizzo - Passion (The Original Maxi-Singles Collection) (2023) Compilation, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion
+02. You're My First, You're My Last (Maxi Version)
+03. Perfect Love (Maxi Version)
+04. Heartflash (Tonight) (Maxi Version)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91580579590AD87DA61198E2B54C1029363DC2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591588   (187116) от 18.11.2022
+
+D.White & DimaD. - The Butterfly Effect (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Have Fun Tonight (Album Version)
+02. 600 Km (Album Version)
+03. Verone (Album Version)
+04. You Are My Love(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E71520147202A36FA249EB66F9E4EF97D5D965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427144   (183719) от 27.11.2020
+
+Savage - The Hits (2020) [FLAC|Lossless|image + .cue] <Pop, EuroDance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cry Tonight
+02. Only You
+03. Radio
+04. A Love Again(   Читать дальше...   )Жанр: Pop, EuroDanceПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DCF4254AD01C3E3693322CB53A7715DA197C62E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826887   (173578) от 19.10.2025
+
+AlimkhanOV A. - The Best (The 5th Album) (2025) 2CD, Limited Edition [FLAC|Lossless|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best (4:21)
+02. Strong (4:54)
+03. Walking In The Chinatown (4:39)
+04. Run Away (4:08)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1432650FFCED7A45FC1183C5F83C63BF3246428A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669672   (172587) от 17.10.2023
+
+Amanda Lear - The Sphinx•1976-1983 ( 2006 ) 3CD [FLAC|Lossless|tracks + .cue] <Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fashion Pack - ( Studio 54 ) ( Albom Version ) - 1979
+02. Love Your Body - 1983
+03. Intellectualy - 1979
+04. Enigma ( Give A Bit Of Mmh To Me ) - 1978(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 02:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C7D04B6AEFF23F6511866D29237223D1F1E668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596290   (170298) от 09.12.2022
 
 Fancy - Diamonds Forever Part I (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco, Euro-Disco>
@@ -605,148 +750,6 @@ CD1:
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436130   (138684) от 30.12.2020
-
-Silent Circle - Chapter 80s (2020) [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Ask Me Why 3:58
-02. Luxury 3:52
-03. Heaven Waits 3:24
-04. Can You Hear Me 4:52(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445B677A6AC8AC074FA53368387E698C93AC7361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679459   (138018) от 25.11.2023
-
-The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, Nu-Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Second Chance (feat. Kimberly Davis) (The Shapeshifters Reprise)
-02 – Bring On The Rain (feat. Joss Stone)
-03 – Slippery People (feat. Ramona Renea & Fiorious)
-04 – Finally Ready (feat. Billy Porter)(   Читать дальше...   )Жанр: Electronic, Disco, Nu-Disco, HouseПродолжительность: 2CD, 02:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC10AB3CAC5EFB2ECA89DBFEA4E2DC95E46E25A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679452   (137740) от 25.11.2023
-
-Baccara - When I'm With You (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Dance, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I’m with YouЖанр: Dance, Euro-DiscoПродолжительность: 00:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6455FF780848CE603C465F778FD7029266697C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680956   (133350) от 01.12.2023
-
-Fancy - Viva La Vida (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viva La Vida (Radio Edit)
-02. My Heart Is Cold As Ice
-03. Feel The Heat
-04. Brothers & Sisters(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED177C699D52E1F3CF25EF5D009D43D48486ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681659   (132368) от 04.12.2023
-
-VA - Michiel Van Der Kuy Dance With Me  Ultimate Collection Part 3 (2022) [FLAC|Lossless|tracks] <Synth-pop, Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claudia T. - Dance With Me (Dance Version) [5:22]
-02. Attack Feat. Sisley Ferré - Special Love (Special Edit) [6:05]
-03. Gina - Let Me Free (Dance Version) [5:37]
-04. Rygar - Spaceraiders (Dance Version) [5:45](   Читать дальше...   )Жанр: Synth-pop, Euro-Disco, Italo-DiscoПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E00860A7B3897682F8B9DFE1410B03B43634934
 ```
 
 https://mybot314.ru/tekegram_catalog/

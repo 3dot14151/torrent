@@ -1,3 +1,90 @@
+###  Публикация: 1189796   (269621) от 07.12.2017
+
+VA - Amsterdam. The End Of Year Album (Mixed by Three Drives) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  F.G. Noise & Andrew Manning  -  Amsterdam (Original Mix)  8:45
+02.  Brent Rix  -  Lunar Halo (Original Mix)  7:03
+03.  Marco Mc Neil  -  Discovery (Original Mix)  7:58
+04.  Fabrice  -  Northern Lights (Original Mix)  6:45(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0791B3BD42E6A169346F78BBA8816BAB46ECF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189946   (269618) от 07.12.2017
+
+VA - The Best Of Suanda True (Mixed by Tom Exo) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Attila Syah - Malang Rain (Extended Mix)
+02 Tom Exo - Skywatch (Extended Mix)
+03 Nomosk - Duel (Original Mix)
+04 F.G. Noise & Tom Exo - Skyworld (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8FB7FDC4EB2BD0F883BCBFF0F54F7A02800930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266831   (269207) от 03.12.2018
+
+VA - Trance Pure (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amitacek - Blonde in Violet (Radio Mix)
+02. Air-T - Moments of Life (Radio Summer Mix)
+03. Damis - Balisto
+04. Miky - Nomad (Club Mix Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9715E786AE798AF1B078B7869879F1EDCB4C5FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338630   (269004) от 16.11.2019
 
 Misja Helsloot - WhatTheHelsloot (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -658,93 +745,6 @@ VA - Best of Trance (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3833623630A0F2039C7F2482993642C13A1B54A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191757   (263378) от 16.12.2017
-
-VA - A State Of Trance Year Mix (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263378.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Armin van Buuren  -  A State of Trance Year Mix 2017 Once Upon a Time (Intro)  2:16
-002.  Omnia, DRYM  -  Enigma  2:58
-003.  Yoel Lewis  -  Tuviana  2:53
-004.  Sound Quelle, Max Meyer, Brandon Mignacca  -  Andromeda  3:34(   Читать дальше...   )Жанр: TranceПродолжительность: 08:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE6D79AEE632BDF24020EE8D0FFE21C0A5CF152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192539   (263256) от 17.12.2017
-
-VA - Alter Ego: Best Of 2017 (Mixed by Luigi Palagano & Duncan Newell) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BRKDWN X Joel Freck - Because Of Love (feat Amy Kirkpatrick - Nathan Red radio edit/Remixes)
-02. Joaquin Limon & Straight Up - Voices (Michael Fearon radio edit)
-03. Anden State - Tranquility (radio edit)
-04. Vast Vision - Hello Sunshine (Ander One radio edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101136174F3DA1379828C19CAA56BA5EBD0808A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192461   (263254) от 17.12.2017
-
-VA - Outburst Presents: Prism Vol. 2 (Mixed by Tempo Giusto & Mark Sherry) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Thick As Thieves - Any Time (Original Mix)
-02 Mark Sherry - Imbecile (Original Mix)
-03 Stuart Ferguson - Rellik (Original Mix)
-04 Ikorus - Suplex (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F2EBD110BD5FDCAC3D566C992E110701B93FAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

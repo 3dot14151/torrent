@@ -1,3 +1,29 @@
+###  Публикация: 1093569   (933008) от 15.01.2017
+
+Disney Infinity Trilogy (2013-2016) [Ru/En] (20161216/dlc) Repack R.G. Механики [Gold Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disney Infinity 3.0 Edition - это аркадная песочница, посвященная героям различных франчайзов «Диснея». В третьей части Disney Infinity к героям «Пиратов Карибского моря», мультфильмов студии Pixar и супергеройской киновселенной Marvel впервые присоединятся персонажи «Звездных войн».Тип издания: RepackРазработчик: Avalanche Software, Ninja Theory, Sumo Digital, Studio Gobo и United Front GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1754D51C467F14D9B4CBBB9B81BC7B04EE81F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094723   (928419) от 18.01.2017
 
 Bionic Commando (2009) [Ru/Multi] (1.0) Repack Other s
@@ -646,32 +672,6 @@ Batman: Arkham Asylum (2009) [Multi] (1.1) License GOG [Game of the Year Edition
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADA9A92D01DA64264055DB89B27658A622C0A1D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492309   (903333) от 29.08.2021
-
-Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра является продолжением нашумевшей серии игр Batman: Аркхем. События разработанной студией WB Games Montréal игры протекают в расширенном городе Готэм и происходят за несколько лет до событий в Batman: Arkham Asylum и Batman: Аркхем Сити, первых двух играх популярной серии. Действия игры происходят до захвата Готэма опаснейшими преступниками: молодой и неопытный (   Читать дальше...   )Тип издания: LicenseРазработчик: WB Games Montreal, Splash DamageЖанр: Action, Beat 'em up, StealthЯзык озвучки: Английский, Немецкий, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DCBB967A332C211355C13BE45DB437C7D6FD3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

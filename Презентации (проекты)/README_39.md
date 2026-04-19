@@ -1,3 +1,107 @@
+###  Публикация: 933975   (504160) от 03.09.2015
+
+Проекты - VideoHive - Fashion Promo - 9801178 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82015DF866A6C728F2D10273ED48CF0D40EAFD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934030   (503088) от 04.09.2015
+
+Проекты - VideoHive - Hotel Video Bundle Pack [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой пакет для оформления фильма в корпоративном стиле. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8511405130C5CDD1E7C3DD4AD9D17196F761F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934338   (502006) от 05.09.2015
+
+Проекты - VideoHive - Mobile App Promo - Story 2 - The Appres [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект посвящен мобильным приложениям. Редактируется в АЕ.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917C36F84FB9C046D99FBB45E0A84F2ED96FC01A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935766   (497159) от 10.09.2015
+
+Проекты - VideoHive - Favorite Company Timeline [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания презентации в корпоративном стиле . Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449BA5078037C77D620CB80371A42A6472AB7F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935585   (497093) от 10.09.2015
 
 Проекты - VideoHive - Awards Pack III - 11333607 [AEP]
@@ -568,112 +672,6 @@ Fashion Sale - Store Promo - - это быстрый, стильный аним�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FA321207D345D38D59D19B2C8E4B7DA82DEA351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821847   (485763) от 15.09.2014
-
-VideoHive - Kino Type - 5745121 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485763.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoHive - Kino Type Вы можете использовать его в качестве текста презентации, названия и добавления сообщения оригинальным и интересным образом.
-Проект 2013 годаФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F4E071A2FDB8667142F3FAD2B5D45F06A1B5C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159298   (485672) от 19.08.2017
-
-Проекты - VideoHive - Hot Summer Festival - 20336846 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485672.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Hot Summer Festival» -  это динамичный дизайн и стильный внешний вид.
-Проект создан для того, что бы оригинально и творческим способом отобразить рекламу предстоящей вечеринки, фестиваля или другого знаменательного события.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006D90610DB8C0860B5E68B72B252D52CEC08136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821887   (485647) от 15.09.2014
-
-Проекты - VideoHive - The Big News - 5549275 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета в виде исторических событийФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE3338ABFEF67F98CBBE66B2478BE74A164A921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821890   (485643) от 15.09.2014
-
-VideoHive -  Broadcast Design - News Package - 126180 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых первых новостных проектов в VideoHiveФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20251B5E0ECDF4117658E05E833D1810CF7911E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

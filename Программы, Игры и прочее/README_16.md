@@ -1,29 +1,3 @@
-###  Публикация: 1842959   (1049039) от 17.12.2025
-
-PianoMeter – Piano Tuner v4.1.1 Mod by Alex.Strannik [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и удобный инструмент для настройки фортепиано. Оригинальный дизайн. Есть заранее заготовленные параметры по моделям. Полезная вещь... и не только для настройщиков.Тип издания: ProРелиз состоялся: 16.12.2025Разработчик: Willey PianoПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402BA4D7A1A9922F7FC9FF7C84211E1B7D885314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842957   (1049037) от 17.12.2025
 
 One Read / Все Документы Читатель - Офис v1.2.7 Mod by vadj [Ru/Multi]
@@ -110,7 +84,7 @@ Universal Copy v7.0.2 Мод by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048890.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Universal Copy v7.0.1 Мод by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048488.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Universal Copy v7.0.1 Мод by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048468.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F78E79234E218F14D313F7C9403D45623526361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841845   (1048372) от 13.12.2025
+
+AirBrush: ИИ Фоторедактор v7.22.0 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Овладейте искусством селфи с AirBrush — мощным редактором фото и видео! Благодаря простым в использовании функциям вы можете обрабатывать свои селфи и фото с помощью инструментов, созданных, чтобы усиливать естественную красоту, сохраняя при этом природное очарование.Тип издания: Premium / ModРелиз состоялся: 12.12.2025Разработчик: PPIXOCIAL LABS PTE. LTD.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AFE3C7B991F60AF61D7AA5B33ECC3B12DEF90F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,54 @@
-###  Публикация: 1858524   (1060421) от 11.03.2026
+###  Публикация: 1863308   (1063478) от 04.04.2026
 
-VA - Deep Night Deep House 8 (2026) [MP3|320 Kbps] <Deep House>
+Hanwave - Favorites Collection (2026) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love in Bus
+02 - Feel Me
+03 - I'm Sorry
+04 - Stay Tonight(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-Disco, OtherПродолжительность: 01:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E7D71FA30FBE43358BA2606FC2FA4AAB0782B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863461   (1063461) от 04.04.2026
+
+VA - 60 minutes. Old School Dance Music vol.35 (mixed by Dj V) (2025) [MP3|320 Kbps] <Disco House, Club House,  Tribal House,  Latino House, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. GeoM, Dimitris Athanasiou - Holding on - Dimitris Athanasiou Remix (6:00)
-02. Dimitris Athanasiou - Around You (5:32)
-03. Cj Borika - Lost in Dream (4:58)
-04. HazyHero - Better You Than Me (5:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:19:30
+01-Francesco Diaz Feat. Benjamin Boyce - Across The Sea (Denis The Menace & Jerry Ropero Club Remix)
+02-Axwell Feat. Steve Edwards - Watch The Sunrise (Bob Sinclar Remix)
+03-Everything But The Girl - Corcovado (Knee Deep Classic Club Mix Ben Watt Vocal Re-edit)
+04-Full Intention Pres. Hustle Espanol - Do The Spanish Hustle (Gray & Pearn's Dtension Mix)(   Читать дальше...   )Жанр: Disco House, Club House,  Tribal House,  Latino House, DanceПродолжительность: 1:00:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A860011E2FD190C90610DB83DA3BC6CF488D8D9E
+magnet:?xt=urn:btih:E1F4069DD94A18A9D8B6DC035B9AE604EAA62F09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,608 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858061   (1060202) от 08.03.2026
+###  Публикация: 1863292   (1063440) от 04.04.2026
 
-VA - Russian Hits 2024 (2024) [MP3|320 Kbps] <Pop, hip-hop, electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060202.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:16]. 001-Ислам Итляшев - Танцы
-[2:28]. 002-H1gh - Ю Май Харт, Ю Май Соул
-[3:15]. 003-Enrasta - Ахуехала
-[2:23]. 004-Isupov & Asafy - По газам(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 09:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C190E47711A0DA3FB3C249B1024857773C19C8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857909   (1060048) от 07.03.2026
-
-VA - No Name Compilation Part 70 Remixes (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Electronic, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Celine Dion - All By Myself
-02 - Gershon Kingsley - Popcorn (Ænnovation Remix)
-03 - Modern Talking - Cherokee Highway  (Bollekman Remix)
-05 - C.C.Catch - Cause You Are Young (Andex Disco Remix)(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Electronic, RemixПродолжительность: 00:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC799315FDF3640B93295A0F838E091BAB6579C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857896   (1060043) от 07.03.2026
-
-VA - Узоры (mixed by Dj V) (2026) [MP3|320 Kbps] <Organic House, Melodic House, Folk Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1060043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Белолуна - Русалки (Extended Mix)
-02-Amonita - Улетай (Alexey Union & ETNE Remix)
-03-Ranta, Katya Olszewska - Сказка (Original Mix)
-04-Krasa Rosa & M.O.S. - Соловей (Extended Mix)(   Читать дальше...   )Жанр: Organic House, Melodic House, Folk DanceПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CDBBC0F4D400346A3CF97D9665B2A5A9D5FB1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857906   (1060022) от 07.03.2026
-
-Adriano Celentano best (1960-2021) [MP3|320 Kbps] <pop,electronic,rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060022.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:02] . 001-Impazzivo Per Te
-[2:22] . 002-24 000 Baci
-[2:46] . 003-Nata Per Me (& Orchestra Giulio Libano)
-[2:31] . 004-La Mezza Luna (& Orchestra Giulio Libano)(cover Martin Lauer)(   Читать дальше...   )Жанр: pop,electronic,rockПродолжительность: 10:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD185F4BD75726F91E1DA096FDB4D1DE3D9C7E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857568   (1059995) от 08.03.2026
-
-Ai - No name compilation part 68 S. Yesenin covers (2026) [MP3|320 Kbps] <Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Мне Осталась Одна Забава  (Cover Dj Malinova)
-02 - Не Жалею, Не Зову, Не Плачу  (Cover Dj Malinova)
-03 - Отговорила Роща Золотая  (Cover Dj Malinova)
-04 - Пускай Ты Выпита Другим...  (Cover Dj Malinova)(   Читать дальше...   )Жанр: OtherПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6655188BE2CAA6A325B0ECC61524615A868985D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857664   (1059896) от 07.03.2026
-
-VA - No name compilation part 69 Other (2026) [MP3|320 Kbps] <Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Davpulse - Heart Again
-02 - Dynave - I Regret Loving You
-03 - Nezon - Neon Wildflower
-04 - Dynave - You Didn’t Know Why I Loved(   Читать дальше...   )Жанр: OtherПродолжительность: 01:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE79097BACB11C1A94F385F4796E6C98B945AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857804   (1059830) от 07.03.2026
-
-VA - Music - Pop vol.Two (2026) [MP3|320 Kbps] <Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DISCOMAN - Яка ж ти красива (03:36)
- 02. MATRANG - Заманчивая (03:36)
- 03. REFLEX - Всё, что хотела (03:09)
- 04. T-Killah - Ты нежная (03:45)(   Читать дальше...   )Жанр: Pop, OtherПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A6AEFECA7D3B46AF3C6FC0405F67F28D10CDF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857421   (1059678) от 06.03.2026
-
-VA - No name compilation part 67 Assorted (2026) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dj Karabas - Space Odyssey
-02 - Nezon - Sapphire Rain
-03 - Diazza - Brave and Beauty
-04 - Chris Isaak - Silver Flame(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5067F745AC74B88C2FE4D30131AEE8E38928DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857202   (1059606) от 04.03.2026
-
-VA - Music News For Forum vol.164 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059606.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ekaterina Shelehova - Mist (04:03)
- 002. Allen Lutrix - Gangsta's Paradise (03:14)
- 003. A-mase & Alysia Sun - Broken Dreams (03:25)
- 004. Ampris - Dark Side (02:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9ADFB1F0C460B3A07499B25BB8DF801B2237C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857193   (1059581) от 04.03.2026
-
-VA - No name compilation part 66 remixes (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Electronic, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Modern Talking - You're My Heart You're My Soul (Umideep Remix)
-02 - Savage - Only You  2026 (Voyage Remix)
-03 - Blue System - My Bed is Too Big (Reyvi Remix)
-04 - Modern Talking - Cherokee Highway (Voyage Remix)  2026(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Electronic, RemixПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB01E97F33C2ADE5483C38ECAD9FD0D67BFC8F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857353   (1059495) от 05.03.2026
-
-VA - Music - Pop vol.One (2026) [MP3|320 Kbps] <Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alena - Прощальный ответ (04:48)
- 02. Great Lion - Wellcome (Extended Mix) (05:29)
- 03. Ilya Fisherman - По чужим головам (04:03)
- 04. Lumen - Можно! (04:01)(   Читать дальше...   )Жанр: Pop, OtherПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68061A9FFCF4DB8BE988879BFC0EF4C77C7E68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856995   (1059442) от 03.03.2026
-
-Lovrite - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Back to Our Time
-02 - Goodbye My Love
-03 - Stay Tonight
-04 - L’Amour au Froid(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B305F5147E2EA6C9482E57014D1395FEF2F6D6B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857022   (1059319) от 04.03.2026
-
-VA - No name compilation part 65 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - DJ Calma - Echo
-02 - Imazee - Silent Night
-03 - Bellara - Forgive Me
-04 - DJ Calma - Cosmic Love(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B835932568EBBA21AB5BBE5AE3C8F1D8BA77C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856896   (1059273) от 03.03.2026
-
-VOYAGE - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Simple Boy
-02 - Come Back To Me
-03 - Your Heart Is Beating
-04 - My Wound(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A99EDB30ECF2D581891F74194AA658D721F418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856590   (1058984) от 01.03.2026
-
-Ai - No name compilation part 64 Relaxing Smooth Soul Ballads (2026) [MP3|320 Kbps] <Relaxing ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Say My Name Again
-02 - I’d Rather Go Blind for You  ( A Love I Wasn’t Ready to Lose)
-03 - Red Wine in the Dark
-04 - Soft Bite in the Dark(   Читать дальше...   )Жанр: Relaxing balladsПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6B928B2971D54AB3097C4CB568086CB6DB3D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856589   (1058983) от 01.03.2026
-
-Ai - No name compilation part 63 Relaxing Smooth Soul Ballads (2026) [MP3|320 Kbps] <Relaxing ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Danger in My Heels
-02 - Slow Motion Touch
-03 - Velvet Hours
-04 - Velvet After Dark(   Читать дальше...   )Жанр: Relaxing balladsПродолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B39F52529EBFBEB67C9CBE2FB4DA85EDFD8660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856588   (1058982) от 01.03.2026
-
-VA - No name compilation part 62 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Vocal, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Davvi - Porque
-02 - KASIMOFF - We Were No
-03 - Umideep - Lolita
-04 - MENDA - Your Name(   Читать дальше...   )Жанр: Electronic, Vocal, OtherПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97484CAD08598E9A2A638A047D3CFF0AA614E0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856584   (1058981) от 01.03.2026
-
-Cypress Hill - Compilation (1991-2025) [MP3|320 Kbps] <Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money ❂ Black Sunday-Live At The Royal Albert Hall 2025
-02. (Rock) Superstar (B-Side) (& Chino Moreno & Everlast) ❂ Skull & Bones 2000
-03. How I Could Just Kill A Man ❂ Cypress Hill 1991
-04. When The Shit Goes Down ❂ Black Sunday 1993(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 05:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4499AFF964E1102743C846E95739CE32B09349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856261   (1058914) от 27.02.2026
-
-Danekoo1 - Remixes (2026) [MP3|320 Kbps] <Instrumental, Electronic, Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Demis Roussos - Forever and Ever (Danekoo1 remix)
-02 - Era - Ameno (Danekoo1 remix)
-03 - C.C.Catch - Jump In My Car (Danekoo1 remix)
-04 - Modern Talking - Do You Wanna (Danekoo1 remix)(   Читать дальше...   )Жанр: Instrumental, Electronic, Pop, Dance, OtherПродолжительность: 00:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F6E77AD5BB66520F4AD2D3984DE754AC2297D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856188   (1058912) от 27.02.2026
-
-VA - No name compilation part 61 Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Danekoo1 - Save Me
-02 - Umar Keyn & Musicant - My Sky Is Dark
-03 - Music for Soul - Your Heart Tonight
-04 - Stive Morgan - Into The Night(   Читать дальше...   )Жанр: Electronic, Eurodisco, Eurodance, OtherПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF88FFCE544E924AB4E5E9FCD3A3866106B0D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856485   (1058796) от 28.02.2026
-
-VA - Russian Rock 2019-2020  [MP3|320 Kbps] <rock>
+VA - REDISCOVER The ’60s Rock (2026) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[3:41]. 001-7Б - Майская звезда
-[3:51]. 002-Стереозвук - Без тебя
-[3:29]. 003-Инкогнито - Воздух
-[3:31]. 004-Ночные снайперы - Рим(   Читать дальше...   )Жанр: rockПродолжительность: 08:54:03
+001. Big Brother The Holding Company - Piece Of My Heart (4:15)
+002. The Rolling Stones - (I Can't Get No) Satisfaction (Mono) (3:42)
+003. Jimi Hendrix - All Along the Watchtower (4:01)
+004. Bob Dylan - Like a Rolling Stone (6:11)(   Читать дальше...   )Жанр: RockПродолжительность: 05:30:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA8182C6AE938614A4ABF7C72F9909379EF33AEA
+magnet:?xt=urn:btih:BDA135A0C93B9F8E2A5A2BEC6DFF2CCB1431A8AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +85,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856003   (1058759) от 26.02.2026
+###  Публикация: 1863377   (1063439) от 04.04.2026
 
-VA - No name compilation part 60 remixes (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Electronic, Remix>
+VA - REDISCOVER The '70s: Rock (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063439.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aerosmith - Sweet Emotion (4:34)
+002. Tom Petty - American Girl (3:30)
+003. Pink Floyd - MoneyЖанр: RockПродолжительность: 11:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846858505D3EABBFE3A05B698F6A35C6BE7FD8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863385   (1063438) от 04.04.2026
+
+VA - REDISCOVER THE '80s: Rock (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063438.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bon Jovi - You Give Love A Bad Name (3:42)
+002. Bruce Springsteen - Glory Days (4:18)
+003. Def Leppard - Pour Some Sugar On Me (Remastered 2017) (4:27)
+004. Van Halen - Panama (2015 Remaster) (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 11:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D1FD4D4B0695C58136CCBD69181EA485CCE37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863495   (1063433) от 04.04.2026
+
+VA - REDISCOVER THE '90s Rock (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. TOOL - Stinkfist (5:11)
+002. Alice In Chains - Man in the BoxЖанр: RockПродолжительность: 11:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81B6AEE3088CA4AD3C0D6AFFE5B4B66180975F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863514   (1063422) от 04.04.2026
+
+VA - No Name Compilation Simply listen music Part 81 Other (2026) [MP3|320 Kbps] <Dance, Other>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Modern Talking - Geronimo's Cadillac (VOYAGE Remix)
-02 - Milli Vanilli - Girl You Know It's True (VOYAGE Remix)
-03 - Modern Talking - Don't Let Me Go (VOYAGE Remix)
-04 - CC Catch - Cause You Are Young (VOYAGE Remix)(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Electronic, RemixПродолжительность: 01:45:32
+01 - Dynave - Love in Youth
+02 - Hanwave - Me Quede Solo
+03 - Dynave - Painful Love
+04 - Marco - Midnight Fever(   Читать дальше...   )Жанр: Dance, OtherПродолжительность: 02:05:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B46FD3273133E5DF3D8DBEAF31FAB38851BCA377
+magnet:?xt=urn:btih:6AAF46FF4177DD82408DE25BA11EBB395E85D35E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +198,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855805   (1058402) от 25.02.2026
+###  Публикация: 1863613   (1063358) от 05.04.2026
 
-Amanda Lear - Compilation (1977-2025) [MP3|320 Kbps] <Pop, Disco>
+Joe Bonamassa - mix (2026) [MP3|320 Kbps] <Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Bonamassa - Dust Bowl (04:33)
+ 02. Walter Trout ft. Joe Bonamassa - We’re All In This Together (07:56)
+ 03. Joe Bonamassa - Drive (05:47)
+ 04. Joe Bonamassa - Prisoner (06:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2907A7B3F96A6F16B0D51BBF8F6197CF4971C46A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863614   (1063354) от 05.04.2026
+
+VA - REDISCOVER The '2000s Rock (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063354.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Linkin Park - Numb (3:07)
+002. 3 Doors Down - Kryptonite (3:53)
+003. Creed - Higher (5:16)
+004. Three Days Grace - I Hate Everything About You (3:51)(   Читать дальше...   )Жанр: RockПродолжительность: 07:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0402971DACFD9645C3B5F0B3D6D1DC0AB8EB89E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863687   (1063303) от 05.04.2026
+
+Adex - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Electric Dreams
+02 - Forgot to Read
+03 - When You Don’t Reply
+04 - Broken Inside(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A125730436F89225172CD317E7B70C6855B6C6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863659   (1063302) от 05.04.2026
+
+VA - Russian Hits 2023 [MP3|320 Kbps] <Pop, hip-hop, electronic>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When I Was Your Favourite Singer ❂ Looking Back 2025
-02. Always On My Mind (& Elvis) ❂ Brief Encounters Reloaded 2010
-03. Amour(s) ❂ Looking Back 2025
-04. Are You Lonesome Tonight (& Elvis) ❂ My Happiness 2014(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 03:46:53
+[3:21]. 001-Султан Лагучев - На той вечеринке
+[3:09]. 002-Роман Ткаченко - Кайфую
+[2:43]. 003-Зомб - Наша Таня горько плачет
+[3:29]. 004-Subbota - Мороз(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 07:36:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78996CAD91EA36F7EFDAAB067B51F070A241E251
+magnet:?xt=urn:btih:473BC30671F667D23120B4B94281FEDCFF0395C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,57 +314,434 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855751   (1058398) от 25.02.2026
+###  Публикация: 1863642   (1063299) от 05.04.2026
 
-VA - Russian Hits 2025 (2025) [MP3|320 Kbps] <Pop, hip-hop, electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058398.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:15]. 001-Dima Sneg - Опиум
-[3:31]. 002-Полина Гагарина - Полина
-[2:11]. 003-Siiya & Muzika Tamara - А когда не
-[2:37]. 004-Xcho & Пабло & Mr Lambo - Качало(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 08:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800D8EBC6EAD310B0839F9CD989592EAEC15FA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855557   (1058263) от 23.02.2026
-
-VA - No name compilation part 59 Assorted (2026) [MP3|320 Kbps] <Electronic, Pop, Dance, Other>
+VA - No Name Compilation Simply listen music Part 82 Other (2026) [MP3|320 Kbps] <Dance, Other>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063299.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Ai - Fading Echos
-02 - Saidjan - Stay With Me
-03 - Riltim - Dusk Till Dawn
-04 - Delih - Ocean Pulse(   Читать дальше...   )Жанр: Electronic, Pop, Dance, OtherПродолжительность: 00:56:22
+01 - Smtve - Only You
+02 - Korgstyle Life - My Love for You
+03 - Sergey Chekalin - Spring Again
+04 - Aurora Night - Did to Me(   Читать дальше...   )Жанр: Dance, OtherПродолжительность: 01:25:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F54744983DF63F0EABFA8D40EE85D57872688D3D
+magnet:?xt=urn:btih:F4A3E64351F14776005D4D3A6BDDBA08AE16B08A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863759   (1063202) от 06.04.2026
+
+Chris Norman & Smokie - Compilation (1975-2026) [MP3|320 Kbps] <Soft rock, Pop rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (I Just) Died In Your Arms Tonight (& Cutting Crew) ❂ Uncovered Too 2001
+02. A Spaceman Came Travelling (& Chris de Burgh) ❂ Light A Candle-The Christmas Album 1996
+03. Ain't It Funny How It Works ❂ Wild Horses-The Nashville Album 1998
+04. Bang Bang ❂ Burnin' Ambition 1993(   Читать дальше...   )Жанр: Soft rock, Pop rockПродолжительность: 14:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15049DBB45FE96ADA1E92349FB625DCE2ADA881D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863733   (1063201) от 06.04.2026
+
+VA - Euro Hits 2020  [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063201.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:10] . 001-Dua Lipa - Love Again
+[2:07] . 002-R3Hab & Timmy Trumper - 911
+[2:59] . 003-24Kgoldn & Imanbek - Valentino
+[3:29] . 04-DJ Jedy - Sometimes(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 06:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B377689592223553C46A3DF53CC87C5AAF039C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863715   (1063200) от 06.04.2026
+
+Rudolf Kinski Project - XIV (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Ghost (Rudolf Version) (2:40)
+02. Light It Up (2:56)
+03. I Catch Your Bright (Rework) (2:39)
+04. Radio Wave (3:17)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9266CF65C0E0AEBFDF289D1787528779F56A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863868   (1063157) от 06.04.2026
+
+VA - ZYX Italo-Disco New Generation Vinyl Edition (2023) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Magic Carillon (Also Playable Mono Remix) (5:30)
+02. Italove - At The Disco (Also Playable Mono Remix) (6:10)
+03. Carino Cat - Passion Of Love (Extended Version) (6:40)
+04. Excitations and Fred Ventura - State Of Confusion (Italoconnection Remix) (6:32)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 04:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D255A278075979A98CC21C1E5DB52B40629EA63E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863903   (1063150) от 06.04.2026
+
+Joe Bonamassa - mix (2026) Part Two [MP3|320 Kbps] <Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Bonamassa - The Ballad of John Henry (06:29)
+ 02. The Bluesbones - I Try (06:11)
+ 03. Joe Bonamassa - Different Shades of Blue (04:39)
+ 04. Joe Bonamassa - Just 'Cos You Can Don't Mean You Should (06:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78277DD7AAB4E0235D7DAA284DA5C4A15A77F266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863970   (1063082) от 07.04.2026
+
+Ai - No Name Compilation Simply listen music Part 85 old songs in a new way (2026) [MP3|320 Kbps] <Cover, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Не Надо ( Сергей Кузнецов (Проект Лёха))
+02 - Осень (Маленький Принц)
+03 - Я Больше Не Прошу (Мираж)
+04 - Безумный Мир (Мираж)(   Читать дальше...   )Жанр: Cover, PopПродолжительность: 01:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099F2F0DE97DFAB57F685E46E09FCCA9322163A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863964   (1063079) от 07.04.2026
+
+Ai - No Name Compilation Simply listen music Part 84 Just Cover (2026) [MP3|320 Kbps] <Cover, Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Do You Wanna (Cover Modern Talking)
+02 - In the Heat of the Night (Cover Sandra)
+03 - V.I.P. (They're Callin' Me Tonight) (Cover C. C. Catch)
+04 - Mon Amie (Cover Bad Boys Blue)(   Читать дальше...   )Жанр: Cover, Pop, Dance, OtherПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814012A2E07B0BE8263B2313FE859C602F290474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863961   (1063078) от 07.04.2026
+
+VA - No Name Compilation Simply listen music Part 83 Just Cover (2026) [MP3|320 Kbps] <Cover, Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Era, Adex - Ameno
+02 - А. Рыбников, Mavrodaki - Тема Мечты (Музыка Из Кф Полет С Космонавтом)
+03 - Craig David, Sting, Rodle - Rise & Fall
+04 - Radiorama, Magic Diamond - Aliens (Part Ii)(   Читать дальше...   )Жанр: Cover, Pop, Dance, OtherПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743E9EE19EEDC86FFC036F371E99C4DB651AB200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864009   (1063033) от 07.04.2026
+
+VA - Лучшие хиты ,,НАЗАД в СССР 2,, В современной обработке (2026) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Вне Времени- Два кусочека колбаски [03:34]
+02.KulMuzika- Пазишен Намба Уан [07:31]
+03.Aleks-Audio- Перекрёсток (Ты ушла рано утром) [04:39]
+04.Master Factory- Девочка Сегодня в Баре [04:33](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB1AAF59B564F5DBFF5CA2576737798CDF34998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864029   (1063025) от 07.04.2026
+
+Daniele Gazzarin - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Last Curve
+02 - The Hunt in the Night
+03 - Hero
+04 - March 8 - Woman(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987BDA832A39F323BCB062AF11F1D9A5325E3CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861253   (1062925) от 26.03.2026
+
+Frezee - Favorites Collection Part 7 (2026) [MP3| 320 Kbps] <Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мы Стали Другими
+02 - Синий Экспресс
+03 - Песенка-Чудесенка
+04 - Мама(   Читать дальше...   )Жанр: OtherПродолжительность: 00:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED9C7B0DEE71B008128D2D967D09B239A218B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861683   (1062777) от 27.03.2026
+
+Сплин best (1994-2025) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062777.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:37] . 01-Звери
+[5:36] . 02-Сказка (remake 1994)
+[5:05] . 03-Что ты будешь делать?
+[3:24] . 04-Нечего делать внутри(   Читать дальше...   )Жанр: rockПродолжительность: 04:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4F4A9656BCA7F1F60742F84E3ED1A6C01E0642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861252   (1062605) от 24.03.2026
+
+Jumanov - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Galaxy
+02 - Sea
+03 - Old Love
+04 - Without You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792CA59B77A1D8DC66EAFE2B40887230170692FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861212   (1062599) от 24.03.2026
+
+Мумий Тролль best (1985-2022) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062599.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:20] . 001-Алло, попс!
+[2:32] . 002-Девушки эмансипэ
+[3:54] . 003-Кассетный мальчик
+[2:58] . 004-Делай меня точно(   Читать дальше...   )Жанр: rockПродолжительность: 08:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E859BC9B168A0CC68E1C533B16BEBB931436BC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

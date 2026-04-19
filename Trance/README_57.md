@@ -1,3 +1,90 @@
+###  Публикация: 1701844   (116012) от 23.02.2024
+
+VA - Ancient Egypt Seasons - Peret (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila x Lostly - The Unknown (Extended Mix) [6:09]
+02. Paul Denton - Recoil (Extended Mix) [6:50]
+03. Ferry Tayle x Cris Grey - Echoes Of The Nile (Extended Mix) [7:35]
+04. Stoneface & Terminal - North Cape (Asteroid Extended Remix) [8:08](   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C492E3926C079DFFA97BE92362FE0E201D752B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701843   (115979) от 23.02.2024
+
+VA - Ancient Egypt Seasons - Akhet (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila x Chapter 47 x Richard Bedford - Edge Of Tomorrow (Extended Mix) [8:57]
+02. Giuseppe Ottaviani - Conscious Mind (Extended Mix) [5:53]
+03. Bryan Kearney - Encanta (Extended Mix) [6:44]
+04. John Askew - Bat Shit Crazy (Extended Mix) [6:38](   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B17840FC1C0363FD4CA4F7F8177095FBF863CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703160   (114995) от 29.02.2024
+
+VA - Uplifting Only Top 15: February 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Fletcher & Ruslan Aschaulov - Valentina (Howlex Intro Remix) [5:27]
+02. Maratone & Saphron & Hardcode - Walk Through Shadows (Jimmy Chou Extended Remix) [6:49]
+03. Marco Torrance & Natasha Jaffe - Fragile (Extended Trance Mix) [7:35]
+04. Revolution 9 - Remember (Extended Mix) [6:22](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82F81FDEE68023A48B7F621FC5EDECFAE1FC8B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703710   (114817) от 01.03.2024
 
 VA - The Sound of 2024 Mix 2: Santiago (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -658,93 +745,6 @@ VA - Uplifting Only Top 15: April 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7484D0A95AA43D86E615B650AFC54409C44ADD25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719949   (110389) от 02.05.2024
-
-Opera Trance Featuring Emma Shapplin - Spente Le Stelle (The Remixes - Part One) (2000) [MP3|320 Kbps] <Progressive House, Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Spente Le Stelle (Yomanda Radio Edit) [00:03:25]
-02 - Spente Le Stelle (yomanda Remix) [00:07:25]
-03 - Cuor Senza Sangue (Odji De C. Remix) [00:05:43]
-04 - Spente Le Stelle (Yomanda Dub) [00:07:23](   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 00:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3C75CE4840FB86AF79F1037346CDD5C3DE487F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720146   (110384) от 02.05.2024
-
-VA - Trance Fusion Vol. 02 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spencer Lee - I Can't Stand It (Original Mix) [4:11]
-02. Magnetti - Living In The Present (Original Mix) [3:18]
-03. Horizon One - Don't Wake Me Up (Original Mix) [3:16]
-04. Quiet 5torm - Transparency (Extended Mix) [6:04](   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD013BF1B10C6054768871DBAB3DB306F46DE667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720735   (110158) от 05.05.2024
-
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 02 (2024) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamcast - Be There (Dax&Atragun Remix) [6:11]
-02. Lightworks - Push (Original Mix) [6:40]
-03. iThur - Limitless (Club Mix) [7:21]
-04. TP One - With Every Breath (Instrumental Mix) [6:21](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2A81F0515133AD881ED0AEDE9412726D2512B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

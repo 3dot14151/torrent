@@ -1,3 +1,204 @@
+###  Публикация: 1339195   (266942) от 18.11.2019
+
+Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motion Picture Soundtrack) (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christophe Beck - Introduction (01:00)
+02. Christophe Beck - The Northuldra (02:36)
+03. Christophe Beck - Sisters (01:06)
+04. Christophe Beck - Exodus (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD975F8111585B5803938D728A0172E806451E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339198   (266936) от 18.11.2019
+
+Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригинальный саундтрек / Делюкс версия) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Introduction (01:00)
+02. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - The Northuldra (02:36)
+03. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Sisters (01:06)
+04. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Exodus (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51E0044EB5917B86704AB727EF09AF190939279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339199   (266874) от 18.11.2019
+
+Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригинальный саундтрек / Делюкс версия) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Introduction (01:00)
+02. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - The Northuldra (02:36)
+03. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Sisters (01:06)
+04. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Exodus (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429B54DB55C4BB228E540228631C7C832DE9AF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339194   (266868) от 18.11.2019
+
+Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motion Picture Soundtrack) (2019) Deluxe Edition [FLAC 2.0|96/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christophe Beck - Introduction (01:00)
+02. Christophe Beck - The Northuldra (02:36)
+03. Christophe Beck - Sisters (01:06)
+04. Christophe Beck - Exodus (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF243289236070B24CFB99A7F2A3DF20FABC8F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266560   (266727) от 06.12.2018
+
+Simonetti, Morante, Pignatelli - Tenebre (1982) The Complete Original Motion Picture Sound Track, 1997, CD [MP3|320 Kbps] <Electronic, Disco, Stage & Screen>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenebre (4:34)
+02. Gemini (3:12)
+03. Slow Circus (2:31)
+04. Lesbo (5:18)(   Читать дальше...   )Жанр: Electronic, Disco, Stage & ScreenПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B62ECBEE7005E5E7F716AC9DEFA5D879294F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339011   (266153) от 19.11.2019
+
+VA - All American Country Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Country, X-Mas>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266153.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Travis Tritt - All I Want for Christmas Dear Is You
+2. Lila Mccann - Christmas Is Here Again
+3. Trick Pony - Winter Wonderland
+4. Clay Walker - Cowboy Christmas(   Читать дальше...   )Жанр: Country, X-MasПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB59AAA563322C622D01045FB0155BEE191C9218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339315   (266151) от 19.11.2019
+
+Wings Of An Angel - The Golden Cage Of Tradition (2019) [FLAC|Lossless|Web-DL|tracks] <New Age, Doom Jazz, Folk Ambient, Drone>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandstone Almanac (1:21:05)
+02. Mimic Your Favorite Gimmick (58:00)Жанр: New Age, Doom Jazz, Folk Ambient, Drone, Funeral JazzПродолжительность: 02:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6885D4C123F893FFE9104489A6EA448CD842BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190424   (265154) от 12.12.2017
 
 Henry Jackman and Matthew Margeson - Kingsman: The Golden Circle Soundtrack (2017) [MP3|320 Kbps] <Score>
@@ -542,209 +743,6 @@ Lisa Stanley - Heart and Soul (2017) [FLAC|Lossless|WEB-DL|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C6713A967C239FD6E899C96E9993DD7943DECD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191315   (263449) от 16.12.2017
-
-Albert Artemyev - The Living Universe (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263449.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  The living Universe
-2.  The pieces of the planets
-3.  Cosmic mind
-4.  Extraterrestrial(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B9FA1E0DDF7A804027CD45F8E20E6CBF19A391B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191264   (263392) от 16.12.2017
-
-Eva Cassidy - Acoustic (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop, Jazz>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early Morning Rain (Acoustic) (4:06)
-02. Wayfaring Stranger (Acoustic) (3:05)
-03. Kathy's Song (Acoustic) (4:34)
-04. Wade In The Water (Acoustic) (2:36)(   Читать дальше...   )Жанр: Folk, Pop, JazzПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D2C59505D7D7DD9B3FF7F5E9803942AEB93237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192498   (263100) от 17.12.2017
-
-Gipsy Kings - Instrumental Best (1995) [FLAC|Lossless|image + .cue] <Flamenco, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inspiration (3:47)
-02. Ritmo De La Noche (3:33)
-03. Luna De Fuego (3:45)
-04. Pharaon (4:07)(   Читать дальше...   )Жанр: Flamenco, InstrumentalПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83575BD258EB493AA39A895053676A41618C9519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340462   (262918) от 26.11.2019
-
-Seymour Light Orchestra - That Ole Devil Called Love (1987) [FLAC|Lossless|image + .cue] <Instrumental, Ballad, Contemporary>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Smile Without You - Barry Manilow (3:15)
-02. Crying - Joe Melson (3:06)
-03. First Time Ever I Saw Your Face - Joe Melson (3:23)
-04. Hard to Say I'm Sorry - Joe Melson (2:59)(   Читать дальше...   )Жанр: Instrumental, Ballad, ContemporaryПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA80903DFB42EBE2CD64FB46B930B584ACA79DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340474   (262906) от 26.11.2019
-
-Imaginary Sound Project - Synthesizer Dreams - World Hits On Synthesizer (1991) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Day In Paradise - Phil Collins (3:52)
-02. Lady In Black - Ken Hensley (3:29)
-03. Bright Eyes - Mike Batt (4:04)
-04. To Love Somebody - B, M & R Gibb (4:38)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499F3B6FE375FAE1E4F5A84D5E6A4AA67925CF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340296   (262895) от 26.11.2019
-
-Amanaska - Panorama (2003) [MP3|320 Kbps] <World Music, Ethno, Worldbeat>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incantation
-02. Distant Worlds
-03. Meridien
-04. Panorama(   Читать дальше...   )Жанр: World Music, Ethno, WorldbeatПродолжительность: 01:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34D102253E1F33AA99455AA7272F90C234A60E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192579   (262748) от 18.12.2017
-
-Atom Music Audio - Immortals: Massive Hybrid Epic Tracks (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asura [03:09]
-02. Immortalized [03:01]
-03. War Gods [03:35]
-04. God Screamer [03:21](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16CCDC732F30260B1794D3918642C710848D203D
 ```
 
 https://mybot314.ru/tekegram_catalog/

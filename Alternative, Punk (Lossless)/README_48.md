@@ -1,3 +1,32 @@
+###  Публикация: 1335960   (282384) от 05.11.2019
+
+Cigarettes After Sex - Cry (2019) Partisan Records [FLAC|Lossless|tracks + .cue] <Indie Rock, Dream Pop, Ambient Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let Me Go (4:23)
+ 02. Kiss It Off Me (4:30)
+ 03. Heavenly (4:47)
+ 04. You're the Only Good Thing in My Life (4:35)(   Читать дальше...   )Жанр: Indie Rock, Dream Pop, Ambient PopПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDD62AF4613AD3E2FEDC7AFD0C33EDD91537DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336472   (279170) от 07.11.2019
 
 Turnover - Altogether (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -716,35 +745,6 @@ My Vitriol - The Secret Sessions (2016) [FLAC|Lossless|tracks] <Alternative Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73674B6E9ACD16F944BC22EDA1E9E52284BD4BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268106   (264433) от 09.12.2018
-
-Stand Atlantic - Skinny Dipping (2018) [FLAC|Lossless|tracks + .cue] <Pop-Punk, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lavender Bones
-02. Bullfrog
-03. Skinny Dipping
-04. Speak Slow(   Читать дальше...   )Жанр: Pop-Punk, AlternativeПродолжительность: 00:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1759E0CBF4DF1F97819AEC059367D4B92B67BF1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1539767   (656118) от 27.03.2022
+
+VA - The 80s (2022) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656118.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fleetwood Mac - Everywhere (2018 Remaster) (3:43)
+002. Joy Division - Love Will Tear Us Apart (3:24)
+003. The Smiths - This Charming Man (2011 Remaster) (2:42)
+004. a-ha - Take On Me (3:49)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4111D10955AE143BD6B33B4DFE9DAC3F720A7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140541   (655893) от 06.06.2017
 
 P.R. Computer - P.R. Computer (1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Modern Classical, Experimental>
@@ -725,40 +754,6 @@ N/AЖанр: DiscoПродолжительность: 01:19:29
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500B33858116CBFC52B41373FBDDE98327014D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517524   (647147) от 01.07.2012
-
-Flo Rida - Wild Ones (2012) [MP3|320 кб/с]<Pop, Dance, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whistle
-02. Wild Ones (feat. Sia)
-03. Let It Roll
-04. Good Feeling
-05. In My Mind, Pt. 2 (feat. Georgi Kay)
-06. Sweet Spot (feat. Jennifer Lopez)
-07. Thinking Of You
-08. I Cry
-09. Run (feat. RedFoo of LMFAO)Жанр: Pop, Dance, R&BПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13306F1CB388651C3B0C310D5FCE42A9FA244C75
 ```
 
 https://mybot314.ru/tekegram_catalog/

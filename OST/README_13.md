@@ -1,3 +1,38 @@
+###  Публикация: 529934   (564594) от 01.08.2012
+
+Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [MP3|320 кб/с]<OST Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564594.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lolita (2:22)
+ 2. Love in the Morning (3:38)
+ 3. I'm in the Mood for Love (2:57)
+ 4. Amor (2:58)
+ 5. Take Me to Bed (2:53)
+ 6. Lolita on Humbert's Lap (3:36)
+ 7. Tain't What You Do (It's the Way That You Do It) (2:57)
+ 8. Lolita in My Arms (1:38)
+ 9. Requiescant (2:13)
+ 10. Civilization (Bongo, Bongo, Bongo) (3:20)(   Читать дальше...   )Жанр: OST ScoreПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0A0C41614EA60C659374A3B6B25F6371E262BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529933   (562947) от 02.08.2012
 
 Nelson Riddle & Bob Harris - Lolita / Лолита (Режиссёр Stanley Kubrick) (1962) [MP3|320 кб/с]<OST Score>
@@ -732,35 +767,6 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D107D105DCF431293E2655AB7063222911768785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927215   (529929) от 12.08.2015
-
-Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantastic Four Prelude
-02. The Garage
-03. The Unveiling
-04. Baxter(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AF5B133D712339D04EF0EBACA5FFD319FEBFCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

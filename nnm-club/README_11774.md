@@ -1,22 +1,25 @@
-###  Публикация: 1042286   (579115) от 12.08.2016
+###  Публикация: 1041409   (583407) от 08.08.2016
 
-Проекты - VideoHive - 165 Transitions & 28 Titles Pack Motion Graphics - 17024070 [AEP]
+VA - Drive Best Hits Compilation Vol.10 (2016) [MP3|256 Kbps] <Pop>
 
->>Проекты
->>Элементы (проекты)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-165 Transitions & 28 Titles Pack Motion Graphics - пакет переходов и текстовых элементов для ваших видео-шедевров.Формат: AEP
+01. Kaya Stewart - Sleepover
+02. Dj Marcous Feat. Aria - Tourist
+03. Cade - Care
+04. Chris Brown - Liquor(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCA266A2B1323F10D57B206296A773AE1E013386
+magnet:?xt=urn:btih:F9DBB73B11A61C16EFDD066531DAD5722E6D0B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 407805   (579114) от 12.08.2016
+###  Публикация: 1041233   (583406) от 08.08.2016
 
-Вдребезги (2011) DVDRip [H.264]
+Vigilante 8 - 2nd Offense (2000) [MP3|320 кб/с]<OST>
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Other Styles
+>>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что делать с людьми, которые нам так мешают в нашей жизни? Может их убить? А можем ли мы убить? А кто может убить?
-…Две девушки-маньячки сбивают велосипедиста, убивают педофила, угоняют машину у гламурного подонка…
-…Известный ди-джей ведет скандальное шоу, где прикалывается над слушателями. После очередного эфира ди-джея похищают…
-… Жена, мечтающая порвать с мужем, (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Роман КаримовАктеры: Никита Дювбанов, Артем Ткаченко, Равшана Куркова, Иван Николаев, Александр Плющев, Александр Дульщиков, Кристина Казурова, Евгения Абрамова, Павел Дикан, Тимур КрючковПродолжительность: 01:29:15
+Рип основан на основе оригинального образа игры01. V8 Theme
+02. V8 Theme (Remix)
+03. Chassey's Chase
+04. Convoy Country(   Читать дальше...   )Жанр: OSTПродолжительность: 00:35:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5663FE52BCEC48A77A34F058E8A0F2452F3D202D
+magnet:?xt=urn:btih:EF3613831C9FC1A570956963092685F8F8CE6AC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042380   (579113) от 12.08.2016
+###  Публикация: 810447   (583400) от 05.08.2014
 
-Танцуй со мной (2016) WEB-DLRip
+VA - My Favourite Hits of 1986 (12CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth pop, New wave, Pop rock, Rock>
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Некоторые учатся танцевать, а другие рождены для этого. То же самое и в любви. Итальянский режиссер Лука Маретти приезжает в Россию, чтобы снять танцевальный фильм о своей первой любви. Выбирая исполнительницу главной роли, Лука влюбляется в молодую актрису Катю. Катя же влюбляется в Никиту — исполнителя роли молодого Луки — известного танцора и обольстителя. Теперь (   Читать дальше...   )Производство: РоссияЖанр: Мелодрама, КомедияРежиссер: Михаил ШевчукАктеры: Анастасия Новикова, Лука Саббиони, Юрий Кригер, Нонна Гришаева, Лукерья Ильяшенко, Анар Халилов, Василий Ракша, Александр Резалин, Александра Киршина, Екатерина Шмакова и др.Перевод: ОригиналПродолжительность: 01:40:54Реклама: присутствуют аудио и видео вставки рекламы.
+182. Yngwie J. Malmsteen - Trilogy Suite Op 5
+183. C.C. Catch - Stop-Draggin' My Heart Around
+184. Benjamin Orr - Stay The Night
+185. Sandra - Mirror Of Love(   Читать дальше...   )Жанр: Disco, Pop, Synth pop, New age, Pop rock, RockПродолжительность: 01:12:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D7E5D98E80431597190DDC1A6450222126744BD
+magnet:?xt=urn:btih:678C9C8DA0726004B23E1A6FD72F93CDFCE7356F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +85,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554083   (579112) от 29.05.2022
+###  Публикация: 810009   (583397) от 05.08.2014
 
-Och - II (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, Krautrock>
+Призвание / The Calling (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
 
->>
->>
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Jag Ar Har, Jag Ar Har (00:06:19)
-02 - Baum Baur (00:03:43)
-03 - Akksa (00:04:56)
-04 - Den Samm Bor I Tarim (00:04:45)(   Читать дальше...   )Жанр: Psychedelic, Space Rock, KrautrockПродолжительность: 00:40:04
+Опытный детектив Хейзел Микаллеф начинает расследование убийства пожилой респектабельной дамы и вскоре понимает,
+что это преступление — лишь одно из звеньев в цепи аналогичных злодеяний, совершенных жестоким серийным маньякомПроизводство: США |  Stage 6 Films, Manis Film, Breaking Ball FilmsЖанр: ТриллерРежиссер: Джейсон СтоунАктеры: Сьюзен Сарандон, Джил Беллоуз, Эллен Бёрстин, Тофер Грейс, Дональд Сазерленд, Кристофер Хейердал,
+Кристин Бут, Аманда Бругел, Паулино Нюнс, Джейн МоффатПеревод: ОтсутствуетЯзык субтитров: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:53F262CF8B4539577C5FE2CE67E36398D7E6B3E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +113,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554082   (579111) от 29.05.2022
+###  Публикация: 810507   (583395) от 05.08.2014
 
-Black Void - Antithesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Punk>
+Галина Гончарова | Проект "Крейсер" (2014) [FB2]
 
->>
->>
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Void (00:04:23)
-02 - Reject Everything (00:04:48)
-03 - Death to Morality (00:05:03)
-04 - Tenebrism of Life (00:04:16)(   Читать дальше...   )Жанр: Black Metal, PunkПродолжительность: 00:38:29
+Первый роман цикла «Крейсер».
+Звездные империи, космические корабли, пираты, работорговцы и жертвы генетических экспериментов - люди, выращенные, чтобы стать живым разумом громадного корабля. Так люди или генетические конструкты, монстры без чувств и души?
+Ответить на этот вопрос должна девушка по имени Аврора. Ей предстоит пройти долгий путь. Учеба, армия, флот… (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B05CB96FF9CEE55DC4480AE9C90417C32A1EE8AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +141,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553993   (579110) от 29.05.2022
+###  Публикация: 810132   (583393) от 05.08.2014
 
-Peth - Merchant Of Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner, Hard Rock>
+Приключения мистера Пибоди и Шермана / Mr. Peabody & Sherman (2014) BDRip [1080p]
 
->>
->>
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Dwarvenaught (00:04:29)
-02 - Amok (00:03:45)
-03 - Abolish The Overseer (00:04:43)
-04 - Let Evil In (00:04:35)(   Читать дальше...   )Жанр: Psychedelic, Stoner, Hard RockПродолжительность: 00:40:09
+Мистер Пибоди — бизнесмен, изобретатель, ученый, нобелевский лауреат, гурман, двукратный олимпийский чемпион и гений… который кроме всего прочего является собакой. При помощи своего самого неординарного изобретения — машины ВЕЙБЕК — мистер Пибоди и его приемный сын Шерман мгновенно перемещаются в прошлое, где становятся свидетелями самых важных исторических событий (   Читать дальше...   )Производство: США / Classic Media Productions, DreamWorks AnimationЖанр: Мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Роб Минкофф / Rob MinkoffАктеры: Тай Бурелл, Макс Чарльз, Эриель Винтер, Стефен Колбер, Лесли Манн, Эллисон Дженни, Стэнли Туччи, Том МакГрат, Лэйк Белл, Зак КаллисонПеревод: Дублированный (Лицензия CEE)Язык субтитров: Русский (forced, full), украинский (forced, full), английский (full, SDH, SDH-colored)Продолжительность: 01:32:29
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9CB0B3E522496FE6FA0998ED54D44F1654621545
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +167,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554003   (579109) от 29.05.2022
+###  Публикация: 810111   (583391) от 05.08.2014
 
-Riddle Me This - Universal Ego (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore>
+Третий акт / The Magic of Belle Isle (2011) HDRip
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Prelude In D-Sharp Harmonic Minor
-2. 86
-3. Parasite
-4. The Faceless (feat. Eemeli Bodde)(   Читать дальше...   )Жанр: Alternative, MetalcoreПродолжительность: 00:36:01
+Знаменитый писатель возвращается в маленький город, в котором стал известным. Здесь он пытается раскрыть талант у одной маленькой девочки, которая еще не научилась отпускать свое воображение на волю...Производство: СШАЖанр: Драма, КомедияРежиссер: Роб РайнерАктеры: Морган Фриман, Кенан Томпсон, Вирджиния Мэдсен, Эмма Фурманн, Мадлен Кэрролл, Николетт Пьерини, С.Дж. Уилсон, Эш Кристиан, Дебарго Саньял, Фред УиллардПеревод: Многоголосый закадровый, профессиональный (Кинопоказ)Продолжительность: 01:49:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:900AC58A2660FF27ECB570227564F8CFCB0A7758
+magnet:?xt=urn:btih:8D8CF109F9CE7032FC5E812F7756F9E2D10B86B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,56 +193,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554087   (579108) от 29.05.2022
+###  Публикация: 1301786   (583385) от 13.05.2019
 
-Crypt Monarch - The Necronaut (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Morning Star Through Skull (00:15:41)
-02 - Rex Meridionalis (00:10:12)
-03 - Aglaophotis (00:10:08)Жанр: Stoner Rock, Doom MetalПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336C8E628EA20773978493EB95B82D7F431842D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554039   (579107) от 29.05.2022
-
-Horehound - Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal>
+Electrocution - Inside The Unreal (1993) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Hiraeth (00:06:27)
-02 - Godful (00:05:17)
-03 - Sword on Fire (00:05:23)
-04 - The Agent (00:05:53)(   Читать дальше...   )Жанр: Stoner Doom MetalПродолжительность: 00:33:59
+01. Premature Burial (03:47)
+02. Rising Of Infection (03:35)
+03. They Died Without Crosses (04:20)
+04. Growing Into The Flesh (Bleed To Death) (03:30)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B780162C5A9562600EB54F5126A85D7AE6EA76A
+magnet:?xt=urn:btih:B4C52CC9A7B41D2D987ED46B420878E936BEC923
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,28 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554042   (579106) от 29.05.2022
+###  Публикация: 1301940   (583384) от 13.05.2019
 
-Besvarjelsen (Besvärjelsen) - Atlas (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom>
+Phil Dwyer & Don Thompson - Look For The Silver Lining (2013) Triplet Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Cardinal Ride
-02. Acheron
-03. Clouds
-04. House of the Burning Light(   Читать дальше...   )Жанр: Stoner Rock, DoomПродолжительность: 00:47:10
+01. If I Were a Bell [6:18]
+02. Guess I'll Hang My Tears Out to Dry [8:05]
+03. Just You Just Me [6:11]
+04. Autumn Nocturne [6:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7438DFCCE63CA199AFD05BC5FF10998744891C5
+magnet:?xt=urn:btih:D56784C3C730FC63A848D2C59B301E80AE13F470
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,28 +251,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554052   (579105) от 29.05.2022
+###  Публикация: 1301706   (583383) от 13.05.2019
 
-Assignment - Assimilation (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
+Cardhop 1.2.4 [Multi]
 
->>
->>
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Velvet (04:28)
-02. Shadow of a Doubt (03:25)
-03. Lay All Your Love on Me (04:23)
-04. The Running Man (03:49)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:30:49
+До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
+
+Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.05.2019Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:12BE5DAA8DC974BFD443EE34936FA83AECA59470
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,28 +279,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554181   (579104) от 29.05.2022
+###  Публикация: 1301692   (583382) от 13.05.2019
 
-Alistair Terry - Yonge At Heart (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+Gasoline Stars - Good Looks, Bad Behaviour (2014) [APE|Lossless|image + .cue] <Glam Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сольный альбом Alistair Terry, который был записан после того, как бывшая группа фронтмена "Pet Hate" прекратила свое существование. Интересно, что Alistair Terry начал записывать свои песни с 15 лет, часть этих идей вошли в этот единственный сольный проект, который ему предложил сделать бывший продюсер "Pet Hate" Roger Boden. Альбом вышел на (   Читать дальше...   )01. Destiny (2:28)
-02. Moon Over Malaya (3:15)
-03. Language Of Love (3:12)
-04. I Thought I Needed You (3:52)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:11
+01. Good Looks, Bad Behaviour
+02. L.O.V.E
+03. Where In Somewhere
+04. Exotic Thrill(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:36:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61CED2FD77874C0899CE4C0A7D9513FBC05020EF
+magnet:?xt=urn:btih:F106FBFDFA7CD012E1B0D3833D977E622801505D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,170 +308,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554319   (579103) от 29.05.2022
+###  Публикация: 1041320   (583381) от 08.08.2016
 
-Томас Висландер и др. | Мама My и Ворон (2021) [MP3, Pandorica Pond]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая шведская корова Мама My оседлала велосипед! А потом отправилась в город и записалась в библиотеку. Ну и конечно, её закадычный друг Ворон решил не отставать. Однажды утром он превратился в Тигриного ворона и нагнал страха всю округу. Но и тут не перещеголял Маму My, потому что Мама My— лучшая корова!Жанр: Детская литература. СказкаПродолжительность: 02:18:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554043   (579102) от 29.05.2022
-
-Gramma Vedetta - The Hum of the Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Progressive, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Chance to Win the Orb (00:06:23)
-02 - Starlight Portal Show (00:05:26)
-03 - Robots for War (00:04:57)
-04 - A Broken Time Machine (00:03:18)(   Читать дальше...   )Жанр: Psychedelic, Progressive, Stoner RockПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E1A3303AE704FA9292CCE6F1994249198DBA8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554076   (579101) от 29.05.2022
-
-Secret Alliance - Solar Warden (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're All In
-02. The Countdown
-03. Walking Man
-04. Last Day(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF211124461AB597E354A64815D22E05941079F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554008   (579100) от 29.05.2022
-
-Changing Tides - Impair The Vision (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579100.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Grondslag
-2. Pattern
-3. A Common Misconception
-4. White Eyes(   Читать дальше...   )Жанр: Alternative, MetalcoreПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554029   (579099) от 29.05.2022
-
-Evil - Book Of Evil (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (A Terrible Thing) (00:00:50)
-02 - Divine Conspiracy (00:03:29)
-03 - Evil Never Dies (00:04:03)
-04 - Future Denied (00:03:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDE54BBCBF920AA339F1169372D1E2F32E3B37C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554171   (579098) от 29.05.2022
-
-Rufus Reid & Akira Tana - Looking Forward (1995) Evidence [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+Gov't Mule - The Tel-Star Sessions (2016) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Billy [5:21]
-02. Gold Minor [6:42]
-03. The Duke [5:32]
-04. Skyline [8:33](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:11
+01. Blind Man In The Dark
+02. Rocking Horse
+03. Monkey Hill
+04. Mr. Big(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFE9D433AD69B81928542E6E57D52A6815D2EBE7
+magnet:?xt=urn:btih:B84398017482E4189465A3636119AE08CA146A24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,54 +337,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554058   (579097) от 29.05.2022
+###  Публикация: 1041279   (583380) от 08.08.2016
 
-Morhana - Eternal War (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (00:01:46)
-02 - Eternal War (00:03:48)
-03 - Legions of Triumph (00:05:21)
-04 - High Noon (00:04:17)(   Читать дальше...   )Жанр: Symphonic Folk MetalПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10CB8435714CB8AFAA89768F028DFB0653B1066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553916   (579096) от 29.05.2022
-
-D-Block Europe (DBE) - Home Pussy (2019) single [MP3|320 Kbps] <Hip-Hop, Trap, British Hip-Hop>
+Гонка во имя спасения / Race to Redemption  (2016) BDRip [H.264/720p] [EN]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Home PussyЖанр: Hip-Hop, Trap, British Hip-HopПродолжительность: 0:03:25
+После того, как она потеряла своего отца, девушка должна побороть свою неуверенностью в себе и посмотреть в лицо своим страхам, чтобы состязаться в опасной гонке, во имя спасения своей семьи.Производство: США, 33 PicturesЖанр: драма, семейныйРежиссер: Тедди СмитАктеры: Даниэль Кэмпбелл, Люк Перри, Эйден Флауэрс, Кэндис Мишель Барли, Томас Мерфи, Эми Брассетт, Лэнс Э. Николс, Джереми Сэнд, Тони Сензамици, Дин УэстПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:22:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FB7219ED4A3CDAC06FF214A6C2F13A1C6395956
+magnet:?xt=urn:btih:4C91629E09AB53D7508D3098139C84E047B58EC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,140 +363,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554174   (579095) от 29.05.2022
+###  Публикация: 1041281   (583379) от 08.08.2016
 
-Skills - Different Worlds (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape Machine (3:27)
-02. Blame It On The Night (3:06)
-03. Different Worlds (4:13)
-04. Losing The Track (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920502   (579094) от 23.07.2015
-
-Licrest - Nothing (2015) [MP3|320 кб/с]<Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579094.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Broken Inside
-2. Nothing
-3. Decay
-4. What Ends In Pain(   Читать дальше...   )Жанр: Doom/Death MetalПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CD853800792BF8635ED9257AEEF65ED284D6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920793   (579093) от 23.07.2015
-
-Fred Hersch - Point in Time (1995) /2005, Landy Star/[FLAC|tracks+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Point in Time [06:12]
-02. You Don't Know What Love Is [06:53]
-03. As Long As There's Music [06:58]
-04. Spring Is Here [04:34](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD18F1A5C0EF72C309D124C887B3823E81806C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920800   (579092) от 23.07.2015
-
-Air - Air Mail (1981) [APE|image+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BK [08:58]
-02. RB [08:23]
-03. CT, JL [18:26]Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8C58D2AF18A5680656FBAF1001FF06A8F6BB89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920633   (579091) от 23.07.2015
-
-Анна Харитонова | Светлое имя — мать (1984) [PDF]
+Гонка во имя спасения / Race to Redemption  (2016) BDRip [H.264/1080p] [EN]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новая книга лауреата премии Союза журналистов СССР посвящена советским женщинам — нашим современницам, совершившим материнский и трудовой подвиг. Героини очерков — люди самых разных профессий: доярки, полеводы, агрономы из разных краев, областей и автономных и союзных республик. С особой теплотою и сердечностью рисует автор характеры женщин в сложных, порой драматических (   Читать дальше...   )Жанр: Проза, очеркФормат: PDF
+После того, как она потеряла своего отца, девушка должна побороть свою неуверенностью в себе и посмотреть в лицо своим страхам, чтобы состязаться в опасной гонке, во имя спасения своей семьи.Производство: США, 33 PicturesЖанр: драма, семейныйРежиссер: Тедди СмитАктеры: Даниэль Кэмпбелл, Люк Перри, Эйден Флауэрс, Кэндис Мишель Барли, Томас Мерфи, Эми Брассетт, Лэнс Э. Николс, Джереми Сэнд, Тони Сензамици, Дин УэстПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:22:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9ECB85F9A2513F6A92E84123B62A5F0ED2CF720E
+magnet:?xt=urn:btih:21C7BABD0E17DDEA4D15498D2FDFB727838C4C3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,28 +389,324 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 920692   (579090) от 23.07.2015
+###  Публикация: 1041431   (583378) от 08.08.2016
 
-Anthelion - Obsidian Plume (2015) Japanese Edition [FLAC|image+.cue]<Symphonic Black Metal>
+Mark Wood - Turbow (2016) [MP3|320 Kbps] <Symphonic Rock, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583378.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 朔時 / Scythe Returns at Dusk
-02. 黑羽 / Obsidian Plume
-03. 夏夜飛霜 / Ethereal Frost of the Darkness
-04. 殘暮破曉 / Residual Twilight Dawn(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:48:32
+1. Fire 'n Ice (5:38)
+ 2. Attitude Adjustment (7:04)
+ 3. Inferno (5:04)
+ 4. Wood's Bolero (4:16)(   Читать дальше...   )Жанр: Symphonic Rock, Hard RockПродолжительность: 00:43:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA63EC4E6026D95D82509AFD5B28ABB552CB73C2
+magnet:?xt=urn:btih:0122BC18446D752FE63EDA00EB8848C0C3B204E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041456   (583377) от 08.08.2016
+
+Тамара Крюкова | Хрустальный ключ (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто рос в деревне или хотя бы проводил там летние каникулы, знает, какая это замечательная пора – лето за городом! Брат с сестрой Петька и Даша, приехали после школы к бабушке в деревню. И узнали из её рассказа, что болото близ дома было в старину целебным озером хрустальной чистоты. А назвали его Ведьминым из-за колдуньи, которая – ради сохранения своей молодости (   Читать дальше...   )Жанр: СказкаПродолжительность: 08:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CDA167207D14D20805202D9302E9651851FAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041340   (583376) от 08.08.2016
+
+Кремлёвские похороны. Лаврентий Берия (2008) DVBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизни советских вождей были окружены множеством легенд. Но не только жизни… Почти все представители советской аристократии умерли так, что историки до сих пор спорят, пытаясь разобраться в естественных, на первый взгляд, причинах кончины и отделить пропаганду и домыслы от фактов.
+Со смертью очередного кремлёвского властителя на фоне официальных некрологов и демонстративного (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйРежиссер: Владимир Буробин,Продолжительность: 00:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C277F088CB4F8DD1D44BDC330208EE37072D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041294   (583375) от 08.08.2016
+
+Журнал | Электронные компоненты и системы №2 (214) (апрель-июнь 2016) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежеквартальный журнал предназначен для разработчиков и производителей аппаратуры электронной и электротехнической промышленности, средств телекоммуникаций, компьютерных управляющих систем, промышленной, транспортной и бытовой электроники. На страницах журнала публикуются статьи о новых электронных компонентах и их применении, новых технологиях, даются обзоры новинок (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99015B93C86C340A2A68C3508C67BD7E77AF81A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041039   (583374) от 08.08.2016
+
+В. А. Зорин | Основы дипломатической службы (1977) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная работа представляет собой второе, дополненное и исправленное, издание книги видного советского дипломата В. А. Зорина.
+
+В ней освещаются основы дипломатической службы главных типов современных государств мира и международных организаций. Главное внимание уделяется принципам и методам ленинской внешней политики и советской дипломатии.
+(   Читать дальше...   )Жанр: История, политология, экономика, дипломатияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F235B827070F5DD31EDCDD72434116A7A318BFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717155   (583373) от 08.08.2016
+
+Шел Силверстайн | Лафкадио, или Лев, который отстреливался (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как все на свете устроено? Кто-то – охотник, а кто-то – лев. Охотники палят из ружей по львам, а львы стараются съесть охотников. А что случится, если лев и охотник поменяются местами? Лев будет стрелять, ну а охотник, где теперь этот охотник...
+Герой книги Шела Силверстайна Лафкадио - как раз тот лев, который начал отстреливаться. А еще с элегантной небрежностью (   Читать дальше...   )Жанр: Приключение, фантастикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F66D2676E7AF20663040697899DD4C06891CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041247   (583372) от 08.08.2016
+
+Журнал | Школа гастронома №7 (281) (2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто любит готовить. В каждом номере - множество полезной и интересной информации: советы и тонкости приготовления блюд от известных шеф-поваров, кондитеров, кулинарных блогеров; практическая информация о продуктах, которые используются в рецептах, а также о приправах, гарнирах и напитках, которые с ними идеально сочетаются. Мастер-классы сопровождаются (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7998C94E0638D2CAD3074037C23EA8C9CE27B68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041056   (583371) от 08.08.2016
+
+В. Н. Колбановский, Ю. А. Шерковин (сост.) | Проблемы социальной психологии и пропаганда (1971) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тематика сборника, впервые подготовленного по этим проблемам коллективом научных работников, весьма актуальна. Исследуются, в частности, такие вопросы, как социальная природа пропаганды, роль эмоциональных факторов в пропагандистском воздействии, радио и телевидение в системе массовой коммуникации и др. Особое внимание уделяется критике буржуазной социальной психологии (   Читать дальше...   )Жанр: История, политология, психология, семантикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E10324B11FDFF07F64379B0D0328F7B8E90AFAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041307   (583370) от 08.08.2016
+
+Нечто с двумя головами / The Thing with Two Heads (1972) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Максвелл Киршнер находится при смерти, но упорно пытается сопротивляться, ставя на себе самые разнообразные эксперименты. В конце концов, когда доктор Киршнер понимает, что пришел его смертный час, он приказывает своим помощникам пересадить его голову в новое молодое тело. Обрадованные возможностью отомстить своему тщеславному, жестокому и расистски настроенному (   Читать дальше...   )Производство: СШАЖанр: Фантастика, триллер, драмаРежиссер: Ли ФростАктеры: Рэй Милланд, Рузвельт Грайр, Дон Маршалл, Роджер Перри, Челси Браун, Кэтрин Боманн, Джон Дуллаган, Джон Блисс, Брюс Кимболл, Джейн КеллемПеревод: Профессиональный многоголосый (AMC)Субтитры: ОтсутствуютПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9FC5461CCB8D32E59063C43C1BB7A15A2953337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925778   (583369) от 08.08.2016
+
+Жертвоприношение (2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583369.jpg" />
+</div>
+
+
+###  Подробнее
+
+К 70-летию со дня атомной бомбардировки Хиросимы.
+
+Свой роман о первой и последней на планете атомной войне Герберт Уэллс написал, когда принцип расщепления атома еще даже не был научной теорией. Тайны ядерной физики только начинали открываться. Ужас атомного взрыва английский фантаст предсказал за три десятилетия до Хиросимы и Нагасаки.
+Ядерная физика – величайшее (   Читать дальше...   )Телекомпания: ВГТРКЖанр: ДокументальныйПродолжительность: 00:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A505909B2F674A26A5359B6061FE103D264BBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041063   (583368) от 08.08.2016
+
+Л. Войтасик | Психология политической пропаганды (1981) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583368.jpg" />
+</div>
+
+
+###  Подробнее
+
+К числу работ, продолжающих традиции марксистских исследований проблем пропагандистского воздействия, следует отнести предлагаемую монографию Леслава Войтасика «Психология политической пропаганды». Автор книги хорошо известен в Польше.
+
+Читатель с большим удовлетворением воспримет книгу Л. Войтасика, значительно обогащающую понятийный аппарат теории пропаганды, формулирующую (   Читать дальше...   )Жанр: История, политология, психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94484C460224ADCCCB19ED94CAA7D464B3DE25D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041361   (583367) от 08.08.2016
+
+Виктория Колягина | Психология страхов дошкольников (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583367.jpg" />
+</div>
+
+
+###  Подробнее
+
+онография посвящена проблеме эмоционального самочувствия дошкольников. Рассматриваются теоретические аспекты изучения страхов детей дошкольного возраста при нормальном развитии и речевом дизонтогенезе.Приводятся научно обоснованные данные исследования о специфике проявления страхов у дошкольников с общим недоразвитием речи, заиканием, в сравнении с нормально развивающимися (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEDDF9844A713D3F39F837869C744C1DC7E2B7CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

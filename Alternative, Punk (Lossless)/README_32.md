@@ -1,3 +1,32 @@
+###  Публикация: 1310789   (545241) от 26.06.2019
+
+The Cat Empire - Stolen Diamonds (2019) [FLAC|Lossless|tracks + .cue] <Funk, Alternative, Reggae>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kila (03:48)
+02. Stolen Diamonds (04:22)
+03. Oscar Wilde (03:45)
+04. Ready Now (03:14)(   Читать дальше...   )Жанр: Funk, Alternative, ReggaeПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4AD8AC281C060EA9F0D2A163A1B03D401E110A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310803   (545235) от 26.06.2019
 
 A Projection - Framework (2017) [FLAC|Lossless|tracks + .cue] <New Wave, Post-Punk, Goth Rock>
@@ -714,35 +743,6 @@ The Kills - Black Rooster E.P (2002) EP [FLAC|Lossless|tracks + .cue] <Indie Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84A22E24FF9E5D46BDF858FF5401A189F2D066B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313923   (522328) от 11.07.2019
-
-The Kills - Blood Pressures (2011) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Garage Rock, Lo-Fi>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Starts Slow (4:05)
- 02. Satellite (4:13)
- 03. Heart Is a Beating Drum (4:20)
- 04. Nail In My Coffin (3:33)(   Читать дальше...   )Жанр: Alternative Rock, Garage Rock, Lo-FiПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DCF5AF6D0E0321F45D8615197184F847A255EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

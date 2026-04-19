@@ -1,3 +1,32 @@
+###  Публикация: 1019783   (748333) от 24.05.2016
+
+Grids for Instagram 3.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grids переносит лучшее из Instagram на ваш Mac.
+
+* Простой настраиваемый интерфейс. Работает в полноэкранном режиме и в небольшом окне.
+* Идеальное попиксельное расположение элементов и рендеринг. Поддержка дисплеев Retina. Ваши фото в Instagram никогда не выглядели так потрясающе.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 мая 2016Разработчик: ThinkTime CreationsПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAEE7C4F712521A41D6D3BA229B0CC6741579B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281904   (748286) от 10.02.2019
 
 TunesKit M4V Converter 5.0.0 [En]
@@ -115,7 +144,7 @@ onOne Software Plug-In Suite 5.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_747175.jpg" />
 </div>
 
 
@@ -669,32 +698,6 @@ Sierra Cache Cleaner, предлагет пользователю широкий
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1251E5275AE8BA1EE3779734DD036B207BC262CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524714   (742364) от 17.01.2022
-
-NanoBrowser 1.5.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742364.jpg" />
-</div>
-
-
-###  Подробнее
-
-NanoBrowser - это еще один из минималистичных браузеров с дружественным интерфейсом, прост и удобен в использованииТип издания: macOS SoftwareРелиз состоялся: 14.01.2022Разработчик: © 2018 Axe1lyzeПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074022ED6A2D3B88932EED99056DA5CFBCCC341B
 ```
 
 https://mybot314.ru/tekegram_catalog/

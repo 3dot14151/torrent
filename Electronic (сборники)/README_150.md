@@ -1,3 +1,177 @@
+###  Публикация: 1066870   (410185) от 27.10.2016
+
+VA - Sound Free Kicks Drops (2016) [MP3|320 Kbps] <House, Electro House, Future House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410185.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ATB & Stanfour - Face To Face (Junkx Remix)  6:23
+002. Nicky Romero & Sunnery James & Ryan Marciano - S.O.T.U. Ft. Fast Eddie (Original Mix)  5:08
+003. Twoloud - Greatest DJ (Original Mix)  5:09
+004. EDX & Tamra Keenan - Warrior (Hailing Jordan Remix)  5:28(   Читать дальше...   )Жанр: House, Electro House, Future House, Club, DanceПродолжительность: 09:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0B658CC889C738D62716FA6E5A93F8875A0F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066952   (410060) от 27.10.2016
+
+VA - 50 Dance Free Your Mind (2016) [MP3|320 Kbps] <House, Nu Disco, Euro, Vocal, Dancecore, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betty Who - I Love You Always Forever (StoneBridge & Damien Hall Instrumental)  5:49
+02. Danny Avila ft Haliene - High (Radio Edit)  3:10
+03. Destructo ft Problem - Winning (Extended Clean)  4:15
+04. Andy Grammer - Fresh Eyes (DJ Mike D Mix) (Radio Edit)  3:26(   Читать дальше...   )Жанр: House, Nu Disco, Euro, Vocal, Dancecore, ClubПродолжительность: 03:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60D1243AFA60CEA7CAD95684A7C8DDF248E2E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413430   (409989) от 03.10.2020
+
+VA - Record Super Chart 656 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bastard! - F..k That (3:38)
+02. DJ Smash feat. Poët - БЕГИ (3:06)
+03. twocolors - Lovefool (3:10)
+04. AronChupa & Little Sis Nora - The Woodchuck Song (2:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C892A61E15ACA626F78D80C22872430B75D246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066697   (409909) от 27.10.2016
+
+VA - Deep House Collection Vol.94 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409909.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Alexander Hristov - Let's Dance (Original Mix) 6:48
+002.Alex Senna & Garciaz & Too Low - Lost Voices (Too Low Remix) 5:34
+003.Alex Spite - Extase (Original Mix) 4:41
+004.Alex Spite - Hello My Love (Original Mix) 6:01(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8FB027BD93C510BF585CF196314E0D14363AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066777   (409908) от 27.10.2016
+
+VA - PromoDJ TOP 100 Club Tracks October (2016) [MP3|320 Kbps] <Remixes, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409908.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.50 Cent - What Up Gangsta (Alex Menco MashUp)
+002.A-Mase.DJ feat. NAD1N - Московская Ночь (Original Mix)
+003.Adriana & DJ Anton Maluta - Falling From The Sky (DJ Fusion Remix)
+004.Andrew Rai, Jako Diaz, Angelisa - Surrander Feat. Angelisa (No Hopes Remix)(   Читать дальше...   )Жанр: Remixes, Dance, ClubПродолжительность: 07:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07867136DB415D497A4358510D2BDC6DA2D63F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413397   (409865) от 03.10.2020
+
+VA - Beatport Club House: Electro Sound Pack #175 (2020) [MP3|320 Kbps] <Club House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409865.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brasslover - Shake Your Body (Club Mix)
+002. Sean Crazz feat. Anne - I Wanna Find You
+003. Sam Halabi - Same Thing (Original Mix)
+004. Dckz - Bring That Beat (Radio Edit)(   Читать дальше...   )Жанр: Club House, ElectroПродолжительность: 12:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EE5A98F1CE9EBA98D6CB4D8A5B91C42AE0BF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948676   (409794) от 21.10.2015
 
 VA - Halloween Lounge Collection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -589,182 +763,6 @@ VA - Dubstepium vol. 4 (2012) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6274EE89B051271CEA1C5CD628BE59FE7DABB8DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326041   (407426) от 18.09.2019
-
-VA - Seclusion: Techno Electronic Party (2019) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407426.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. El Brujo - Backdoor Intruder (Original Mix)
-002. Tilthammer - Nosferatu
-003. Subjected - Unsure
-004. Asky - Don't Care(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8101031C7F024C18C50EC77ADC2995219A5AC92F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413701   (407245) от 05.10.2020
-
-VA - Beatport Psy Trance: Electro Sound Pack #183 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407245.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Teorema - Tar Tak (Original Mix)
-002. Kiraz - Avenue 13
-003. Shyisma - Antana (Original Mix)
-004. X-Side - Unexplained(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E2ABB05712D6741C781897332D2010376D241F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413702   (407239) от 05.10.2020
-
-VA - Beatport Drum And Bass: Electro Sound Pack #184 (2020) [MP3|320 Kbps] <Drum & Bass, Bass, Bassline>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407239.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deformaty - Dimension 5
-002. Furney - New York Silver Haze
-003. Evergen - Mind Bender
-004. Soul Intent - Rude Raver(   Читать дальше...   )Жанр: Drum & Bass, Bass, BasslineПродолжительность: 08:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73053C8AB029F5C467182372321923A10B210E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560180   (406913) от 14.10.2012
-
-ATB - All the Best (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406913.jpg" />
-</div>
-
-
-###  Подробнее
-
-ATB - All the Best (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 02:53:51Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:  (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D736A4472946AD7759410350DDEE68F9A9F2616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413901   (406831) от 06.10.2020
-
-VA - The Key To Your Joy (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406831.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Romderful - I Know
-002. Manny Cristo - Truth
-003. Murkage Dave - Every Country
-004. A.T.L.D.V. - Luv This Life Of Mine(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070FE780B7688657E1338994CAD32399FFB7FFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413981   (406771) от 06.10.2020
-
-VA - Top50: Tracks Deep House Ver.22 (2020) [MP3|320 Kbps] <Deep-House, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. Adina Butar - In Search Of Sunrise (Original Mix) [4:14]
-02. SixthSense & DTALM - Love Melody (Original Mix) [6:27]
-03. Madonna - Frozen (S.ONE Remix) [6:57]
-04. ZGOOT - Random Meeting (Original Mix) [5:51](   Читать дальше...   )Жанр: Deep-House, ElectronicПродолжительность: 05:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFDAA38623D0726B8BCB3D6A1BCE726FE070D60
 ```
 
 https://mybot314.ru/tekegram_catalog/

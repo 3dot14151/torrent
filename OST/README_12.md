@@ -1,3 +1,32 @@
+###  Публикация: 1298085   (602127) от 26.04.2019
+
+Alan Silvestri - Avengers: Endgame / Мстители: Финал (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Totally Fine (04:30)
+02. Arrival (01:50)
+03. No Trust (03:09)
+04. Where Are They? (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2200CA7F36190D7FBA634F8D5D9E199833ADDD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298533   (601750) от 28.04.2019
 
 Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) Single [MP3|320 кб/с]<Soundtrack>
@@ -735,41 +764,6 @@ Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09B6391B532DC859FF29DD1DB3E9A4A741E397DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529934   (564594) от 01.08.2012
-
-Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [MP3|320 кб/с]<OST Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564594.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lolita (2:22)
- 2. Love in the Morning (3:38)
- 3. I'm in the Mood for Love (2:57)
- 4. Amor (2:58)
- 5. Take Me to Bed (2:53)
- 6. Lolita on Humbert's Lap (3:36)
- 7. Tain't What You Do (It's the Way That You Do It) (2:57)
- 8. Lolita in My Arms (1:38)
- 9. Requiescant (2:13)
- 10. Civilization (Bongo, Bongo, Bongo) (3:20)(   Читать дальше...   )Жанр: OST ScoreПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0A0C41614EA60C659374A3B6B25F6371E262BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

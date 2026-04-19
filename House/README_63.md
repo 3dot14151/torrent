@@ -1,3 +1,175 @@
+###  Публикация: 1839042   (261708) от 26.11.2025
+
+VA - Balearic Deep-House Winter 2026 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi.5, Dry & Bolinger - Your Soul 03:23
+02. Steen Thottrup, Eva Scolaro & Calmabohain - Deeper Love (Calmabohain Remix) 03:22
+03. Music Of The Earth - Iou Boarders 05:17
+04. Simone Intrieri - Lie Machine (Extended Mix) 07:46(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33BB6CE28B13A0212D63247682EBD8652962BE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735256   (261682) от 08.07.2024
+
+VA - Polyptych Limited: Year Four (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inessa & IN-sane - Loved And Lost (Original Mix) [6:48]
+02. Rukhman - Forgotten Days (Original Mix) [5:53]
+03. OHM (LB) - Leap Of Faith (Original Mix) [5:43]
+04. Maz (EG) - Conquer Your Fears (Original Mix) [6:35](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C42A34E13DB64AD94B09D54C59DE9CA211EC8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838777   (261552) от 24.11.2025
+
+VA - Ministry of Sound - The Annual 2026 (2025) 2 CD [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261552.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Calvin Harris & Clementine Douglas - Blessings 03:39
+02. MK feat. Chrystal - Dior 02:49
+03. Disco Lines & Tinashe - No Broke Boys 02:44(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A513CD7BC376CB38193BDE39B1C4BBF8E9D66AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838503   (260622) от 23.11.2025
+
+VA - Purified Chronicles 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradoks x Jono Stephenson feat. Frynn - Pulling Me To You (Extended Mix) [5:06]
+02. Corren Cavini - Daydream (Extended Mix) [6:16]
+03. Paradoks - C'est Toi (Extended Mix) [5:11]
+04. Alex Breitling - Skyfall (Extended Mix) [5:46](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7ACAC2BE99051328B5E455A73764A90E85157B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504260   (260476) от 02.06.2012
+
+Barcode Brothers - 2 Альбома , 4 Сингла (2000-2002) [MP3|320 кб/с]<Trance, Euro-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance, Euro-HouseПродолжительность: 00:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C62F48D09511288A7DF8350B91449C37D8AD31D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503435   (259555) от 30.05.2012
+
+Groove Coverage feat. Rameez - Think About The Way (WEB) (2012) [MP3|320 кб/с]<Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Think About The Way (Single Edit) 03:13
+02. Think About The Way (Club Mix) 04:40
+03. Think About The Way (Extended Version) 04:38
+04. Think About The Way (Rob & Chris Remix) 04:55
+05. Think About The Way (DJane HouseKat Remix) 04:01Жанр: Electronic, DanceПродолжительность: 00:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F73FE04C67C17BCAEC451C670151883E039566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503408   (259522) от 30.05.2012
 
 Alice DeeJay - Better Off Alone (Laidback Luke Remixes) (WEB) (2011) [MP3|320 кб/с]<Electronic, Dance>
@@ -589,180 +761,6 @@ VA - Best Of Deep House (2012) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFD86A539653A92152A05A0734A811221468ED6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110916   (247548) от 16.06.2023
-
-DJ Грув - Ты не со мной (2008) [MP3|320 kbps]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты Не Со Мной (при уч. Иракли,Гарик DMC B,Батишта)
-02. Счастье Есть 2008
-03. Forever Dancing (при уч. А. Чумакова)
-04. I Want You (при уч. Audio DJs(Android,M.Pravda)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7CCBA4EFCA0DF0000AE44AC12BFA272330167F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 16500   (247534) от 17.06.2023
-
-DJ Грув - Последние Киноремиксы (2007)
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вокзал прощания из к/ф "17 мгновений весны"
-02 - Камыш 2007
-03 - Прелюдия из к/ф "9 рота"
-04 - Вальс из к/ф "Мой ласковый и нежный зверь"(   Читать дальше...   )Жанр: electronic
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A99B58489A1BEE274BFC71173C6EE5AC85ED57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833471   (246136) от 01.11.2025
-
-VA - Hot Summer Vibes - Ibiza Session Volume 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Broject - Dark Love (Cry) (Extended Club Mix) 05:39
-02. Poni Punkflwr & A Girl Called Inge - See At Last (Extended Mix) 05:04
-03. Poni Punkflwr - For Me (Too Deep) (Extended Mix) 06:42
-04. Boston Brewls - Garlic Groove (Daven Bell Remix) 05:11(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 03:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE37279D2EB5ECFA2260E5C243F9D55493E827A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623353   (246067) от 01.04.2023
-
-VA - Miami Sessions 2023 (Mixed by Milk & Sugar) (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk & Sugar & Barbara Tucker - My Lovin (Milk & Sugar Re-Rub) [5:58]
-02. Avicii & Sebastien Drums - My Feelings For You (Mark Knight Remix) [6:15]
-03. Martin Wright & La Fitte - Ma Ai O (Extended Mix) [5:42]
-04. Soul Avengerz feat. Krysten Cummings - Heard It All Before (Rogers Surgery Mix) [7:30](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2B4DDD3E6E4C681941034081EC6FD69E510745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631177   (245264) от 04.05.2023
-
-VA - Spring Break Miami 2023: Best Of Dance & House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teknova - Weekend 2K23 (Original Mix) [2:15]
-02. Deep Emotion & Dani Corbalan - Now You're Gone (Original Mix) [2:46]
-03. MaxRiven - Back To The 2000s (Original Mix) [2:28]
-04. Stephan F & Ya-Ya - Feel The Vibe (Original Mix) [2:47](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF7342C8CA5E897595E72BBB0A527E4C0B234D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065450   (245082) от 23.10.2016
-
-VA - Urban Stories Deep House Vol.5 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ismael Rivas - U Got to See the Light
-02. Mark Reeve - Leaving Night
-03. Aki Bergen - 17
-04. Lucas Keizer - Space City(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA2483234D45AE85D17F59F834FCDEF18F35F31
 ```
 
 https://mybot314.ru/tekegram_catalog/

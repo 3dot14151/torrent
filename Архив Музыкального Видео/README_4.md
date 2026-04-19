@@ -1,3 +1,55 @@
+###  Публикация: 536836   (509763) от 23.08.2012
+
+DJ Rhiannon - All The Girls Do It (2012) [H.264/1080р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88733AED3086F82FFBA11B6504784EAC24381C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536833   (509754) от 23.08.2012
+
+Wisin & Yandel ft. Chris Brown ft. T-Pain - Algo Me Gusta De Ti (2012) [H.264/1080р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF9B55488C159AC32C7FC09FB6C29CDF0E865B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536839   (509744) от 23.08.2012
 
 ATB - Authentic Reaction (2012) [H.264/720р] WEBRip
@@ -625,58 +677,6 @@ Papa Roach - Still Swingin (2012) [H.264/1080р] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6F84D40FDB17BDACA7749A316062127A09B4995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543782   (493583) от 06.09.2012
-
-Muse - Madness (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative RockПродолжительность: 00:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62252278AA801971718087C667E051EF94CD56E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544099   (491969) от 07.09.2012
-
-Audio Girls feat. Mr. On - My Prisoner (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F5268D6D6B1ABFCBA7B851A1EDDA863875B946
 ```
 
 https://mybot314.ru/tekegram_catalog/

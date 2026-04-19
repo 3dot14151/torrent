@@ -1,3 +1,61 @@
+###  Публикация: 1270180   (215220) от 17.12.2018
+
+Alan Walker - Different World (2018) Japanese Edition [MP3|320 Kbps] <Electronic, Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215220.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alan Walker - Intro
+2. Alan Walker & Sorana - Lost Control
+3. Alan Walker & Julie Bergan - I Don't Wanna Go
+4. Alan Walker, K-391 & Emelie Hollow - Lily(   Читать дальше...   )Жанр: Electronic, Dance, PopПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983EB964A1D0161292658E65CFBE7CAC4CC1AA39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426256   (214794) от 24.11.2020
+
+VA - Love Pop Songs (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved (03:02)
+ 02. Jovanotti - Baciami Ancora (04:41)
+ 03. Ellie Goulding - How Long Will I Love You (02:29)
+ 04. Lady Gaga - Million Reasons (03:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202D621927FC6F330B5650D7A72F147C2949A9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426347   (214465) от 24.11.2020
 
 VA - Best Christmas Songs (2020) [MP3|320 Kbps] <Pop>
@@ -687,64 +745,6 @@ VA - Now That's What I Call 90's Pop (2023) CD, Compilation [MP3|320 Kbps] <Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:842CD8CAD698D43F254DFB276BAD79A013728C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616063   (206192) от 28.02.2023
-
-VA - Romantic Collection. Volume 5 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mungo Jerry - In The Summertime
-02. Santana - Smooth feat. Rob Thomas
-03. Elton John - A Word In Spanish
-04. Duran Duran - Come Undone(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABDE7E5B2A966D3296D99AFC5FF6CEFF42B2BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615960   (206171) от 28.02.2023
-
-VA - Romantic Collection. Golden 70s (2000) [OGG Vorbis|480 Kbps] <Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Leave Me Now - Chicago
-02. How Deep Is Your Love - Bee Gees
-03. Stumblin In - Smokie
-04. I Do, I Do, I Do - Abba(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D806A0DA4B5822494FF11E84E44A6D236E28C1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

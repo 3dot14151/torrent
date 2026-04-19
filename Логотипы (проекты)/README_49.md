@@ -1,3 +1,114 @@
+###  Публикация: 1772845   (31178) от 12.01.2025
+
+Проекты - VideoHive - Epic Smoke 2 Logo Reveal - 56101945 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Smoke Logo 2 — это эпический шаблон AE 4K с потрясающей атмосферой и динамически анимированным облаком дыма, которое кружится, раскрывая ваш логотип.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9C725EE1C412B6BFDE19BF1DD6FA00630B146C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772850   (31173) от 12.01.2025
+
+Проекты - VideoHive - Plexus Logo Reveal - 56179530 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Plexus 3d Logo Reveal — это проект After Effects на основе Plexus, который использует стильную комбинацию эффектов для раскрытия и улучшения ваших логотипов.
+
+Музыка предоставлена в демо версии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610FC155645754F9FE108A11AB6E33C41D7AA353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773615   (30755) от 16.01.2025
+
+Проекты - VideoHive - Radiant Logo Reveal - 56114603 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой проект с логотипов для ваших творческих задач.
+
+Музыка предоставлена в демо версии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E7CF5452AB40F1877DEAAF6788FE97C7F9D534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774066   (30527) от 18.01.2025
+
+Проекты - VideoHive - Glitch Logo Animation - 56036501 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон для создания видео с вашим логотипом с глитч эффектом.
+
+Для наглядности создал с логотипом нашего любимого клуба (только без музыки). Можно смотреть в превью.
+(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10748C889F900E29EC512C809A1336035BA5766F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774204   (30445) от 19.01.2025
 
 Проекты - VideoHive - Logo Reveal - 56085464 [AEP]
@@ -599,114 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DD75164F52BA75B040D951BDB08ED2F30719C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787810   (23306) от 27.03.2025
-
-Проекты - VideoHive - Smoke Logo Reveal - 56781656 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый проект с логотипом с эффектом дыма.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CA2C1EA3A99F22442CD7C99B2C012F76A3810C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788003   (23193) от 28.03.2025
-
-Проекты - VideoHive - Thunder Storm Logo Reveal - 56749990 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый проект с логотипом молниями.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5D18BCE61AED1961BA49463A1119E01953F48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788278   (23099) от 29.03.2025
-
-Проекты - VideoHive - Fast Photo Intro Logo - 56812405 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast Photo Intro Logo - разработан для придания отличного вида вашему логотипу.
-
-Музыка предоставлена в демо режиме.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51136C5BE24203EA6398ABE1A67689ED354FCCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788258   (23091) от 29.03.2025
-
-Проекты - VideoHive - Logo Reveal - 56686772 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logo Reveal - разработан для придания отличного вида вашему логотипу.
-
-Музыка предоставлена в демо режиме.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6DAD50BD441E4C30A475A81C1E0DC201688CC85
 ```
 
 https://mybot314.ru/tekegram_catalog/

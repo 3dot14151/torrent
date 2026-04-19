@@ -1,22 +1,109 @@
-###  Публикация: 909530   (627922) от 17.06.2015
+###  Публикация: 1034855   (632602) от 14.07.2016
 
-Подшивка журналов | Woodturning №278, 280 (апрель, июнь 2015) [PDF] [En]
+VA - Pro Dj School World (2016) [MP3|222-320 Kbps] <UK Funky, Bassline, Progressive, Electro, Happy Sound, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632602.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tritonal - Ginsu (Original Mix) 05:12
+002. The Groovement - Look Into My Eyes (Radio Edit) 03:22
+003. Artistic Raw - Drop The Bass 04:38
+004. John Jacobsen, G-Martinez - Feel It (Original Mix) 07:22(   Читать дальше...   )Жанр: UK Funky, Bassline, Progressive, Electro, Happy Sound, ClubПродолжительность: 09:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC8A3CD7CCD7B8D132DBF01EFF76E8F69DFEE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034318   (632601) от 14.07.2016
+
+VA - Selected Uplifting Spiral (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SCHALA -  Night Sky (Extended Mix) 5:18
+02. Ana Criado & Denis Kenzo -  Beautiful Creature (Intro Mix) 6:25
+03. Paul Oakenfold -  Shanghai Baby (Joyriders Remix) 6:01
+04. TrancEye -  Skylight (Original Mix) 6:41(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 03:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1A9F8B567F862A683F75188BC8108E928FC95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034994   (632600) от 14.07.2016
+
+Caellus & Camulus - Genesis (2016) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introducciуn (Original Mix) (1:49)
+02. La' Kreinto (Original Mix) (9:37)
+03. Ancient Solitude (Original Mix) (7:54)
+04. Dei Milites (Original Mix) (8:41)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB077547F4495E97D5B7B26473F25BC52803D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034951   (632599) от 14.07.2016
+
+Журнал | Таинственые истории №15 (2016) [PDF]
 
 >>Журналы
->>Хобби (журналы)
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Woodturning - журнал, посвященный токарной обработке дерева. Обзоры материалов, инструментов и технологий, а также идеи для творчества.Жанр: столярное делоФормат: PDF
+Всё самое таинственное и необычное из жизни простых людей, нас с вами. Рассказ от первого лица и немного о таинственном в биографиях знаменитых людей.Жанр: Популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE44EFA733545E3DA845F346E9E7A30AC7E7A811
+magnet:?xt=urn:btih:4504158155875AF8B23C9FA1B1CE515F92FACE40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 909480   (627921) от 17.06.2015
+###  Публикация: 1034608   (632598) от 14.07.2016
 
-Baidu Browser 40.17.1000.248 [Multi]
+С. Н. Худяков | Всегда ли будет существовать религия? (1958) [DJVU]
 
->>Архив торрентов
->>Архив Программ
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Baidu Browser – довольно симпатичный и удобный браузер с RSS-агрегатором и поддержкой вкладок. Так, несмотря на практически неизвестность для пользователей Рунета и соответственно, меньшую популярность по сравнению со своими более именитыми конкурентами, Spark Browser обладает множеством полезных функций, делающий интернет-серфинг более простым и дружелюбным. Поддерживаются (   Читать дальше...   )Язык интерфейса: Английский, тайский и португальский
+На примерах  из  современной  жизни  автор  показывает,  что ликвидация  эксплуатации,  распространение  знаний,  рост  культуры  и  развитие  науки  не  оставляют  почвы  для  религиозной веры,  что  вместе  с  построением  коммунизма  исчезнет  и  религия.Жанр: История, религиоведение, политологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DB5A12DF9C1E24F20673F60C14CABD68D02DDCF
+magnet:?xt=urn:btih:C8B5226AA955F9CA7273BD1213F492FBA55B85AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +137,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 908417   (627920) от 17.06.2015
+###  Публикация: 1034850   (632597) от 14.07.2016
 
-Граница / The Border (1982) WEB-DL [H.264/720p]
+А. И. Соболев | Народная демократия — новая форма политической организации общества (1953) [PDF]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632597.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На границе с Мексикой процветает коррупция и несправедливость. Бандиты похищают мексиканских младенцев, чтобы потом продавать их в бездетные американские семьи. Все коллеги Смита преспокойно "закрывают это глаза", но Чарли - не из таких, а посему он решает во чтобы то ни стало восстановить справедливость!Производство: США | Efer Productions, Universal PicturesЖанр: Драма, криминалПеревод: Профессиональный (двухголосый закадровый)Язык субтитров: АнглийскийПродолжительность: 01:48:21
+Возникновение и развитие народной демократии необходимо рассматривать конкретно-исторически, ибо, как учит опыт народно-демократических стран Европы и Азии, народная демократия имеет этапы своего развития, и в зависимости от этапа меняется ее классовое содержание.
+
+Первый этап — это этап антиимпериалистической, антифеодальной революции, в ходе которой возникает народная (   Читать дальше...   )Жанр: История, политологияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8ED0A4A33DADBDC942DCD8A6A2D69A6048B46544
+magnet:?xt=urn:btih:4FCE5F4F4FCBA4DD477D25D8DD76DE130F07299D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,370 +165,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 909513   (627919) от 17.06.2015
+###  Публикация: 1035005   (632596) от 14.07.2016
 
-А. А. Чикин | Самодельная астрономическая труба из очковых стекол (1924) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для умелых рук. С 30 рисунками автора. Библиотека журнала "В мастерской природы".Жанр: Астрономия, самоделкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861A4EABADC17C7C3439694746E136AC23C972E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909485   (627918) от 17.06.2015
-
-Free Studio 6.5.2.616 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение представляет собой пакет бесплатных программ компании DVDVideoSoft для обработки и создания мультимедийных файлов. Внутри общего интерфейса утилиты разбиты на ряд категорий (Youtube, Качалки, Конвертеры, Рекордеры, Редакторы). Богатый функционал программы позволяет выполнять все наиболее востребованные действия с медиа-ресурсами, а простой интерфейс рассчитан (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A461534FEA95FCCD73F633E746DD05438EA6E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144313   (627917) от 22.06.2017
-
-Футбол. Чемпионат Мира 2017 U-20. 1/8 финала. США — Новая Зеландия (01.06.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 июня 2017 года, четверг. 14:00 МСК
-Молодежной Чемпионат мир 2017 по футболу до 20 лет. Плей-офф
-1/8 финала
-США — Новая Зеландия(   Читать дальше...   )Телекомпания: TSN 3Жанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6773684FB528E6098DF5640A7B180FE290947E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144333   (627916) от 22.06.2017
-
-Футбол. Чемпионат Мира 2017 U-20. 1/4 финала. Италия — Замбия (05.06.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627916.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 июня 2017 года, понедельник. 11:00 МСК
-Молодежной Чемпионат мир 2017 по футболу до 20 лет. Плей-офф
-1/4 финала
-Италия — Замбия(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E719132E1EF4362EB354567DE5033D0973BE80AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144443   (627915) от 22.06.2017
-
-Баскетбол. Чемпионат Европы 2017. Женщины. Группа D. 3-й тур. Черногория – Россия (19.06.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627915.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 июня 2017 года, понедельник. 19:00 МСК
-Чемпионат Европы 2017. Женщины. Групповой турнир.
-Группа D. 3-й тур
-Черногория – Россия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6EB18DBF366CF372A6D7A92FF4AC5F77EA3075F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144319   (627914) от 22.06.2017
-
-Футбол. Чемпионат Мира 2017 U-20. 1/4 финала. Португалия — Уругвай (04.06.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627914.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 июня 2017 года, воскресенье. 12:00 МСК
-Молодежной Чемпионат мир 2017 по футболу до 20 лет. Плей-офф
-1/4 финала
-Португалия — Уругвай(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C9B6A8D80C2A716A4C86D8806F049DCCE2B616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144337   (627913) от 22.06.2017
-
-Футбол. Чемпионат Мира 2017 U-20. 1/4 финала. Мексика — Англия (05.06.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627913.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 июня 2017 года, понедельник. 14:00 МСК
-Молодежной Чемпионат мир 2017 по футболу до 20 лет. Плей-офф
-1/4 финала
-Мексика — Англия(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26723399C650CEE8EADB1B4C2BBEB7793D2D9EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144502   (627912) от 22.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа A. 2-й тур. Россия — Португалия (21.06.2017) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627912.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июня 2017 года, среда. 18:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа A. 2-й тур
-Россия — Португалия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C7A1D633DE9D170668F262D8500E1F0967FC64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144547   (627911) от 22.06.2017
-
-Jerome Sabbagh - Plugged In (2012) Bee Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive [05:23]
-02. Special K [03:58]
-03. Aisha [07:10]
-04. Jeli [05:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5171A59C686281232BA70DA1DA51D93B12308FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144519   (627910) от 22.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа A. 2-й тур. Мексика — Новая Зеландия (21.06.2017) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627910.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июня 2017 года, среда. 21:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа A. 2-й тур
-Мексика — Новая Зеландия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95652C47DF9F28B44F88FBCB5689F2EBC3C051E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144505   (627909) от 22.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа A. 2-й тур. Россия — Португалия (21.06.2017) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627909.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июня 2017 года, среда. 18:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа A. 2-й тур
-Россия — Португалия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9C1974BF2AE902730CE797E8F5D2C665A06B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144513   (627908) от 22.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа A. 2-й тур. Мексика — Новая Зеландия (21.06.2017) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627908.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июня 2017 года, среда. 21:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа A. 2-й тур
-Мексика — Новая Зеландия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90D82ED8E7D0957B4172BB85A4DA59D77F98EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144471   (627907) от 22.06.2017
-
-VA - Clinique Sampler (Part 94) (2017) [MP3|320 Kbps] <House,Progressive House>
+VA - Bonzai & Friends 500 - Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Breaks, Tech House>
 
 >>Electronic
->>House
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex Philipp - Be U (Nico Ferrero Remix)
-02. Bob Zopp - Durch Die Nie (Juan Astudillo Remix)
-03. John Cosani - World For All (Original Mix)
-04. Michael A - Frankield (Original Mix)(   Читать дальше...   )Жанр: House,Progressive HouseПродолжительность: 01:16:06
+01. Phi Phi - Hiccup (East Cafe Remix) (7:16)
+02. East Cafe - Minus Ten (Gai Barone Ode To That Night Remix) (7:44)
+03. Alexey Lisin & Alexandra Pride - Sum Of Space feat. Alexandra Pride (Matan Caspi Remix) (6:50)
+04. Airwave - Vega Shining (Satinka Remix) (10:18)(   Читать дальше...   )Жанр: Progressive House, Breaks, Tech HouseПродолжительность: 02:43:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E611B20B6AB0A369ABE1D1C000A1F48FC58728DF
+magnet:?xt=urn:btih:6E05101FC7AB892B54340F6561245416C56AB77A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,194 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144545   (627906) от 22.06.2017
+###  Публикация: 1034520   (632595) от 14.07.2016
 
-Idrees Sulieman & Benny Bailey - Swiss Radio Days: Jazz Live Trio Concert Series, vol.25 (1970, 1975, 1982, 1983) 2011, TCB [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanza [08:06]
-02. Stella By Starlight [10:40]
-03. Summertime [12:35]
-04. I Can’t Get Started [08:44](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC21A2AB867F8BEE5CBBDE7CFEEFC40FBDE0886E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543671   (627905) от 12.04.2022
-
-PopDo 2021.2.8 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита PopDo - это удобный список задач для строки меню Mac, отображающий все ваши дела в одном окне. Он поддерживает поиск, фильтрацию и сортировку для быстрого перехода к нужной задаче.Тип издания: macOS SoftwareРелиз состоялся: 11.04.2022Разработчик: © 2020-2021 DS9 Software LtdПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7373B87078378FD9E54FA273B17FF08E5C2D8F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543770   (627904) от 12.04.2022
-
-Делия Росси | Хризантема с шипами (2021) [MP3, Валерия Егорова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что ждет одинокую женщину, приехавшую в незнакомый маленький городок на окраине королевства? Любопытство горожан? Новые знакомства? А если не все из них будут приятными? А если любопытство проявит не кто-нибудь, а сам хозяин графства? Все эти вопросы предстоит решить Александре Эйден. А еще ей придется разобраться с собственной жизнью, раскрыть несколько тайн и попробовать (   Читать дальше...   )Жанр: Любовно-фантастический романПродолжительность: 12:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE68208ECD5E7E4A76D3619ABFAAFB2FCEBF639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543184   (627903) от 12.04.2022
-
-Voices Of Grief - Verses About Sin And The Guise Of Sorrow (2022) [MP3|320 Kbps] <Black, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purgatory [00:01:23]
-02. Whores (The Curse Is Exorbitant Pride) [00:06:47]
-03. In Ominous Reverie [00:09:33]
-04. Don't Blame Me For My Cold Skin [00:06:23](   Читать дальше...   )Жанр: Black, Doom MetalПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0717B086F12040765BA3C52055635CE41E6F7208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543762   (627902) от 12.04.2022
-
-Екатерина Флат | Похищенная невеста (2021) [MP3, Юлия Артемова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магические кланы много лет враждуют, и лишь истинный король сможет положить конец этой войне. И лорд Рейден из клана Арейс – один из главных претендентов на престол. Он – прославленный воин и могущественный маг, он опасен и готов на все ради достижения своей цели.
-И он поклялся, что хоть из-под земли меня достанет. Что ж, удачи. Я уж точно сдаваться не собираюсь (   Читать дальше...   )Жанр: Любовное фэнтези, Фэнтези про драконовПродолжительность: 09:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572BC6F615B6AA9D430BFDD8AE56C0EB6C74F464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543722   (627901) от 12.04.2022
-
-Go Ahead And Die - Go Ahead And Die (2021) [FLAC|Lossless|image + .cue] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Truckload Full of Bodies
-02. Toxic Freedom
-03. I.C.E. Cage
-04. Isolated / Desolated(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3C09B105B6F312295FDB90DD8F79931D8DD5BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543698   (627900) от 12.04.2022
-
-Leader Of Down - The Screwtape Letters (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+The Lizards - Reptilicus Maximus (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cat's Eye Night
-02. Holloway Motel
-03. Hitman
-04. The Screwtape Letters(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:10
+01. Ton On The One (feat. David Lanik)
+02. Evil Eyes (feat. Frank Marino)
+03. Incurable
+04. Crash (feat. Vinnie Moore)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:55:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8071BAD958568F391C20E6EAC90DE82B30BD5B1
+magnet:?xt=urn:btih:3527D1BECAB45C285FFC26425E59C5D00B38583B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,28 +223,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543477   (627899) от 12.04.2022
+###  Публикация: 1034824   (632594) от 14.07.2016
 
-Mike Campbell & The Dirty Knobs - External Combustion (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+VA - Top 100 Massive DJs Infinity (2016) [MP3|320 Kbps] <Trance, Progressive, Stadium Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632594.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren & Bullysongs -  Freefall (Heatbeat Extended Remix) 5:19
+002. Mark Sixma & Emma Hewitt -  Restless Hearts (Club Mix) 5:44
+003. Gareth Emery -  Huracan (Ben Gold Remix) 5:27
+004. Feel & Adara -  Disappear (DRYM Remix) 4:36(   Читать дальше...   )Жанр: Trance, Progressive, Stadium TranceПродолжительность: 09:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A6C02A5122BBF19757A5D45BF8B02D5AABA153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034823   (632593) от 14.07.2016
+
+Tinsley Ellis - Red Clay Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wicked Mind (03:54)
-02. Brigitte Bardot (03:23)
-03. Cheap Talk (04:38)
-04. External Combustion (04:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:45
+01. All I Think About
+02. Givin' You Up
+03. Callin'
+04. Anything But Go(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9502E13237D0B231B1ECF38711EB070BBEA00CF
+magnet:?xt=urn:btih:BDB1F609EA4B8D576FBD2B62FC4DC5B5092FF1CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,24 +281,308 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543174   (627898) от 12.04.2022
+###  Публикация: 1034582   (632592) от 14.07.2016
 
-Desires Dawn - Один (2022) [MP3|320 Kbps] <Progressive Metalcore, Djent>
+Adrenaline Mob - Men Of Honor (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_627898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Найти [00:00:47]
-02 Один [00:03:19]
-03 Баланс Души [00:03:57]
-04 Другой [00:04:04](   Читать дальше...   )Жанр: Progressive Metalcore, DjentПродолжительность: 00:37:28
+01.  Mob Is Back    04:34
+02.  Come On Get Up    04:10
+03.  Dearly Departed    04:57
+04.  Behind These Eyes    05:33(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D8B35883C8E5CCB3004D999D85CA2F7ABB8D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035018   (632591) от 14.07.2016
+
+Audioglider - Subaquamarine (2016) [FLAC|Lossless|tracks] <Deep House, Progressive House, Electronica>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stockholm Syndrome
+02. Aerial View
+03. Edison Spark
+04. The Keymaster(   Читать дальше...   )Жанр: Deep House, Progressive House, ElectronicaПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AEE8A89D890AFACDF446206F98560C4EED0894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034858   (632590) от 14.07.2016
+
+Jon Secada – Heart, Soul & A Voice (1994) [APE|Lossless|image + .cue] <RPop Rock, Rhythm & Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whipped
+02. Take Me
+03. If You Go
+04. Good Feelings(   Читать дальше...   )Жанр: RPop Rock, Rhythm & BluesПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF5D7F2B00441E737F7A716692DD23A171BD5F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034913   (632589) от 14.07.2016
+
+Third World War - Third World War 2 (1973) 2001, TW Records [MP3|320 Kbps] <Hard Rock, Blues Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632589.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yobo
+2. Urban Rock
+3. Coshing Old Lady Blues
+4. Rat Crawl(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Rock & RollПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B128984139F6CEF1C8844882DB61C7F87BD63441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034911   (632588) от 14.07.2016
+
+Third World War - Third World War (1971) 2001, TW Records [MP3|320 Kbps] <Hard Rock, Rock & Roll, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632588.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ascension Day
+2. M. I. 5's Alive
+3. Teddy Teeth Goes Sailing
+4. Working Class Man(   Читать дальше...   )Жанр: Hard Rock, Rock & Roll, Psychedelic RockПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F988F982D36DF2276BCFA1329EB9E629446E614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034867   (632587) от 14.07.2016
+
+VA - LUXEmusic - Топ Июнь (2016) [MP3|320 Kbps] <Club House, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Gaudino Vs Nari And Milani - MangoMan (Filatov & Karas Extended Remix)
+02. Art Brothers & All Stars - BetonoMASHalka #1 (Dmitry V Crazy Mash)
+03. Calvin Harris ft. Rihanna - This Is What You Came For (Chippon Remix)
+04. Carlas Dreams - Sub Pielea Mea #Eroina (DJ Denis Rublev & DJ Alixs Remix)(   Читать дальше...   )Жанр: Club House, Deep House, Electro HouseПродолжительность: 03:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB553BE65D1D8CB3BB2CC549CFD589B757E75C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034814   (632586) от 14.07.2016
+
+VA - Open Oceans - Trance Session (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632586.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Relocate & Robert Nickson -  Initium (Ferrin & Morris Remix) 7:40
+002. Feel & Aelyn -  If You Feel Love 7:46
+003. Kaimo K -  Peek-A-Boo 7:08
+004. Alexander Spark -  Octavus 5:40(   Читать дальше...   )Жанр: Trance, Melodic, HarmonicПродолжительность: 12:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4394B11052325AD4C02B9D169CE63D7EFFF9B19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034978   (632585) от 14.07.2016
+
+Koan - Placidity (2016) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fiction Pt. 1 (Placidity Mix) (8:51)
+02. Calm (Placidity Mix) (8:24)
+03. Evening Delusions (6:16)
+04. Out of Focus (Placidity Mix) (7:13)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 02:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47915793186ADF6390157CCB0C562ABD9B697FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034991   (632584) от 14.07.2016
+
+Blocs 2.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой способ создания красивых сайтов.
+Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
+
+Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 июля 2016Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ABABA480305CC4A64FDA9DA7C0366581AAF4CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520352   (632583) от 08.07.2012
+
+Робокоп / RoboCop (2014) [Н264/720p-LQ] HDTVRip [Трейлер] [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши дни, Лос-Анджелес. Двадцать лет спустя после закрытия программы «Робокоп», городские власти решают возобновить проект.Жанр: Фантастика, БоевикРежиссер: Жозе ПадильяАктеры: Гари Олдман, Сэмюэл Л. Джексон, Юэль Киннаман, Эбби Корниш, Хью ЛориПеревод: ОтсутствуетФормат: MKVПродолжительность: 00:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E2ACE521127630002655A6AB37D60E2EAAC766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520397   (632581) от 08.07.2012
+
+Roger Waters The Wall Live 4 Show Edit (Remastered) (2010) [1080p] HDRip
+
+>>След.
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_632581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный спектакльЖанр: RockПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 01:51:38
 
 ## Скачать торент
 ```bash
@@ -700,26 +594,131 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543824   (627897) от 12.04.2022
+###  Публикация: 520348   (632579) от 08.07.2012
 
-Pixelmator Pro 2.4 [Multi/Ru]
+Андрей Заморский | Создание сцены разрушений при помощи Nuke и 3ds max (RayFire, FumeFX) [2012] PCRec
 
->>Архив торрентов
->>Архив 4Apple
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
-Много неразрушающих про. инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2022Разработчик: © 2022 Pixelmator TeamПоддерживаемая ОС: macOS 10.15Язык интерфейса: Русский, Английский и др.
+Жанр: Работа с видеоПродолжительность: 05:56:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04128DDF9A11A41B401A7A67AB9EDC8CAEAF2959
+magnet:?xt=urn:btih:63E99882F28DEBE5942BEDE9BBB5B745507FB56D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520360   (632578) от 08.07.2012
+
+Три метра над уровнем неба: Я тебя хочу / Tengo ganas de ti (2012) CamRip
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_632578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проведя два года в Лондоне, Аче возвращается домой, чтобы начать новую жизнь: устроиться на работу, завести новых друзей. Однако многое изменилось и встреча с Джин заставляет Аче почувствовать то, что он чувствовал только к Баби — своей первой большой и настоящей любви…Жанр: Драма, МелодрамаРежиссер: Фернандо Гонзалез МолинаПродюсер: Мерседес Гамеро, Джозеп Аморос, Хуан Карлос КароАктеры: Марио Касас, Мария Вальверде, Клара Лаго, Альваро Сервантес, Андреа Дуро, Луис Фернандез, Марина Салас, Диего Мартин, Нереа Камачо, Ману ФульолаПеревод: ДублированныйПродолжительность: 02:00:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520076   (632577) от 08.07.2012
+
+cFosSpeed 8.02 Build 1972 Final [MULTi / Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_632577.jpg" />
+</div>
+
+
+###  Подробнее
+
+cFosSpeed - это сетевой драйвер, который привязывается к имеющимся интернет-соединениям и оптимизирует передачу данных посредством приоритезации трафика. Приоритезация трафика - метод оптимизации интернет-трафика, предоставляющий максимальную скорость при минимальных задержках. Вы можете использовать cFosSpeed с маршрутизатором и/или DSL-модемом или с кабельным модемом. Так же возможно использование с прочими типами интернет-соединений. cFosSpeed поддерживает большой выбор соединений, таких как DSL, cable, ISDN, UMTS и другие. Программа поможет сохранить малое время задержки в сети (ping), чтобы сделать интернет-приложения с настолько быстрым откликом, насколько это возможно. Также, одной из главных целей cFosSpeed является улучшение пропускной способности, путем устранения заторов в сети. Интерфейс программы переведен на множество языков, включая русский язык.Название программы: cFosSpeedЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520361   (632575) от 08.07.2012
+
+Александр Кузьменко | Cinema 4D для начинающих [2011] PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632575.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нашем курсе мы познакомимся c: моделированием, освещением, материалами, анимацией. Также автор делится практическими советами, чтобы вы не совершали лишних ошибок и как нельзя лучше насладились работой в Cinema 4D. Сравнивается рендеринг с Global Illumination и без. Подробно рассматриваются принципы навигации. Просмотрев этот пятичасовой курс хотя бы затем, чтобы оценить не удавшиеся шутки автора, вы сделаете свои первые шаги в работе с этой замечательной программой.Жанр: Работа с графикойПродолжительность: 04:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266225F36B43CFFEA64597AED02335589F43F3A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519940   (632573) от 08.07.2012
+
+Соло на клавиатуре 9.0.5.39 + 3 в 1 RePack (& portable) by KpoJIuK [Русский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_632573.jpg" />
+</div>
+
+
+###  Подробнее
+
+"СОЛО на клавиатуре" — это обучающая программа, позволяющая в короткий срок научиться быстро печатать на клавиатуре компьютера. Автор курса машинописи — известный психолог и журналист, преподаватель факультета журналистики МГУ Владимир Владимирович Шахиджанян. Нескольким сотням тысяч пользователей компьютера хорошо известна программа "СОЛО на клавиатуре", по которой многие научились набирать слепым десятипальцевым методом. В последней, девятой, версии изменён интерфейс, стал увлекательнее подход к обучению, добавлены игры и тесты — всё сделано для того, чтобы каждый проходящий «СОЛО» за относительно короткий срок овладевал слепым десятипальцевым методом и в значительной степени развивал лучшие черты своего характера: целеустремлённость, выносливость,
+настойчивость, выдержку. Версия программы «3 в 1» включает в себя три курса: «Русский курс», «Английский курс»
+и «Укрощение цифр».Название программы: Соло на клавиатуреЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

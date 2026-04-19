@@ -1,3 +1,176 @@
+###  Публикация: 1855795   (1058483) от 24.02.2026
+
+Anton Ishutin Classics (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casablanca (5:55)
+02. Feel So Good (7:10)
+03. Do You Wanna (5:35)
+04. Brash (8:04)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA57270C3D54DB67B1282CF5ADE3C334ECB2F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855594   (1058241) от 23.02.2026
+
+Andreiclv - Cityscapes EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058241.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ninsei 06:24
+2. Chiba 08:42
+3. L5 O'Neill 05:12
+4. Food Courts 05:12Жанр: Dub TechnoПродолжительность: 00:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB9A7238CC29356F0AE42F4254DEEBC86C92E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855063   (1058045) от 21.02.2026
+
+DeepWoods - Right on Time (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right on Time ( Original mix ) 05:41
+02. Right on Time ( DeepWoods Remix ) 06:10
+03. Right on Time ( Kris Dubinsky Remix ) 07:38
+04. Right on Time ( Spilt Silo Remix ) 05:36Жанр: Dub Techno, AmbientПродолжительность: 00:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1276F66138EFD36B29971922B1AB9A76A706FC46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855055   (1057999) от 21.02.2026
+
+Coppice Halifax & Monoaxial - ABX10 (2011) [FLAC|Lossless|tracks + .cue] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monoaxial – Neglected	6:40
+02. Coppice Halifax – Helial Phases	7:12
+03. Monoaxial – 1000 Vacuum TubesЖанр: Dub Techno, AmbientПродолжительность: 01:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9AB9564B735EFB415F9E029732140370581DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855332   (1057946) от 22.02.2026
+
+VA - Lounge Mix 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kevin Havis - Without (2:14)
+02. Anka - Gravity (3:04)
+03. Johny Luv - Ocean Drive (3:22)
+04. Elegant Ape - Anymore (3:07)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D97ACDBCAD7156335EE9BD117256C3A5B8104D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855380   (1057910) от 22.02.2026
+
+VA - February Afro House Essentials (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristian Ferrer - Careless Whisper (3:21)
+02. N.E.O.N - Silent Night (3:42)
+03. Elegant Ape - Moving through the night (4:44)
+04. N.E.O.N - Viva a Vida (3:59)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389C54CFE13514CFBC0E221EC5741CA2FB1DD794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855056   (1057906) от 22.02.2026
 
 Decoside - Reload (2012) 2CD [FLAC|Lossless|tracks + .cue] <Techno, Dub Techno, Ambient>
@@ -569,180 +742,6 @@ Boris Brejcha - Christmas Mix 2024 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5542936868E55D6632590B4F4C460C65AA0849B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841220   (1047844) от 09.12.2025
-
-VA - 100% Ibiza (The Late Night Club Closings 2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francesco Diaz - Frequencies (Video) (2:58)
-02. Steen Thottrup - Dreamers (Stefano Martiago Remix) (5:03)
-03. Kornpluck - Tincture (Vocal Mix) (5:23)
-04. Jacob Ireng - Contemplation (2:37)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1D65E6DBFFA7A3A960A9EE2C861745707BEFE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839797   (1046769) от 30.11.2025
-
-VA - House Clubhits Megamix 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P!mp The D!sko - Show (3:16)
-02. Damir Pushkar - Smell on Your Skin (2:48)
-03. Les Bisous - Reach Out (2:44)
-04. Hawk - Black Betty (2:35)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6711780BF4EF721887A10D435A76FDB4E4B3258E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839638   (1046695) от 29.11.2025
-
-VA - Autumn Lounge (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.E.O.N - On Repeat (2:59)
-02. Johny Luv - Kiss the Sky (3:58)
-03. Sharapov - Keep On Rising (5:25)
-04. Johny Luv - Crossroads (3:46)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A30D26A9B8F44A44CF606EC181AEA8E392AD3BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601901   (1046337) от 02.01.2023
-
-VA - Songspire in Tulum 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Guy Didden, Mats Westbroek -  Dusk (Grigoré Remix)  (4:24)
-02.  Ceas -  Memories (Dizharmonia Remix)  (2:50)
-03.  Paravorik -  Words  (4:00)
-04.  Joel Oliver -  Cascade (My Friend Remix)  (4:04)(   Читать дальше...   )Жанр: EDM, Progressive House, Melodic House & TechnoПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E36900E0F68E99691C405818A33C3590A5E031B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602200   (1046110) от 05.01.2023
-
-VA - Beach Lounge Selected, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Amanda Pryce, Medsound -  Don't Do Love  (4:03)
-02.  7Dreams -  Take My Hand  (4:47)
-03.  Medsound -  Sunride  (6:09)
-04.  Dj Aristocrat -  Ticket  (4:57)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Chill HouseПродолжительность: 00:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95776D9ABB187ED37AEF026245D7FD240C9E3989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602209   (1046102) от 05.01.2023
-
-VA - Beach Lounge Selected, Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Medsound -  Beach Lounge Selected Vol 1 (Continuous DJ Mix)  (1:00:35)
-02.  KLar & PF & Diana Di -  One Day (Original Mix)  (8:14)
-03.  Magnus & Sandy H -  Going On (Medsound Remix)  (5:15)
-04.  3615 Nuits Blanches -  Don't Wanna Dance (Douze Don't Wanna Dub)  (6:59)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Chill HouseПродолжительность: 02:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A6103E92DB2688AAEFC297BCDEF9B348D81DFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

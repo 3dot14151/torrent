@@ -1,3 +1,90 @@
+###  Публикация: 1334370   (296371) от 28.10.2019
+
+mindXpander - A Tribute To Laserdance (2000) [FLAC|Lossless|image + .cue] <Spacesynth, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Run (6:00)
+02. Enemy On Earth (5:39)
+03. The Challenge (5:56)
+04. New Adventures (5:54)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E39333374DB22D23ABE1C4B275054F136EFAE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334367   (296369) от 28.10.2019
+
+Humphrey Robertson - Synthesizer Dance Christmas Edition (2005) [FLAC|Lossless|tracks + .cue] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come All Ye Faithful (4:21)
+02. White Christmas (6:17)
+03. Jingle Bells (4:28)
+04. The Christmas Song (3:52)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309A353F0EF985F8821211DCCF165B7B8C55B72D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961929   (295204) от 04.12.2015
+
+Fancy - Voices From Heaven (2004) [FLAC|tracks+.cue]<Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices From Heaven (3:25)
+02. Snowwhite Tigers (3:44)
+03. Still In The Mood For Christmas (4:32)
+04. Jingle Bells And Candy Canes (4:07)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24E20B04289E0B80565152A850F1AB38ECC9968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961940   (294840) от 04.12.2015
 
 Modern Talking - Universe - The 12th Album (2003) [FLAC|tracks+.cue]<Europop, Synth-pop, Ballad, Euro House>
@@ -654,93 +741,6 @@ New Order - Singles (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <New W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60601CD8CC1197CE7164CDC200DC573BF51FFE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191528   (264106) от 14.12.2017
-
-New Order - Music Complete (2015) [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop, Pop-Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Restless (5:28)
- 02. Singularity (5:37)
- 03. Plastic (6:55)
- 04. Tutti Frutti (6:23)(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop-RockПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF56146E50E9C5DA72BCB2C9F3D5CF431E2AD63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340479   (263746) от 23.11.2019
-
-VA - Synthwave Dreams, Vol. 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Levitati.On - Arcade Love (Original Mix) (5:31)
-02. The Frost - Drive Night (Original Mix) (4:17)
-03. Aurolab - I Can't Forget (Original Mix) (7:12)
-04. Synthwave Goose - Tyumen 1985 (Original Mix) (3:50)(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9ED60AF8B850D07DB693610D6132C09ED885440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340476   (263745) от 23.11.2019
-
-VA - Synthwave Dreams, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurolab - Neo-Disco (Original Mix) (5:21)
-02. Anton Romezz - Freedom (Original Mix) (7:14)
-03. Levitati.On - Arcade Love (Born In '82 Remix) (3:54)
-04. Dashevsky - Nyagan 1985 (Original Mix) (4:55)(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C445769ED3EA4DE1B8AD5A6C7183456E748B9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

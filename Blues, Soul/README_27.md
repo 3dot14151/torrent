@@ -1,3 +1,32 @@
+###  Публикация: 1249739   (431203) от 25.09.2018
+
+The Alabama Lovesnakes - III (2018) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tired Of Trying (04:42)
+02. The Flower And The Bee (02:28)
+03. Daddy's Gone Shooting (04:04)
+04. Damn, Amsterdam! (03:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9314CC91786C75B4696239435196D549ADC6E28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063981   (430342) от 18.10.2016
 
 Nick Michael Taylor - Sweet Sour And Blue (2015) [MP3|320 Kbps] <Blues>
@@ -724,35 +753,6 @@ Val Starr & The Blues Rocket - I Always Turn The Blues On (2017) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05BDA7AA580760F2C22B3AD995F37DC5FB7003E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413315   (409995) от 03.10.2020
-
-Ben Granfelt - True Colours (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victorious (04:52)
- 02. No Turning Back (05:28)
- 03. Hey Stranger (04:33)
- 04. Arms of an Angel (05:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C296F5BCDD2062255D5FF3E5ED92BB699BE91415
 ```
 
 https://mybot314.ru/tekegram_catalog/

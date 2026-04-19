@@ -1,3 +1,90 @@
+###  Публикация: 1790917   (21760) от 11.04.2025
+
+VA - 12.04, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrey Klimkovsky - Are We Alone in the Universe (7:30)
+02. Аэросса - Радиоволна ПС1 (5:05)
+03. Олег Гуртовой и группа VEGA - Пульсар (2:58)
+04. Outspin - Expanse (Radio Edit) (3:19)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, SynthwaveПродолжительность: 01:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92328D68023EF7D8449E253098D1A77B93E9A3CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792816   (20712) от 21.04.2025
+
+VA - Sonic Space, Vol. I (2024) [FLAC|Lossless|WEB-DL|tracks] <Space Music, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аэросса - Время полёта (5:30)
+02. Angelo Taylor - Space Station (3:50)
+03. Олег Гуртовой и группа VEGA - Космопорт Москва (4:13)
+04. Dmitry Zavalishin - Space Apprentice (5:42)(   Читать дальше...   )Жанр: Space Music, AmbientПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0132A802320602B7D6C0997E77851A38CABCA4AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792804   (20687) от 21.04.2025
+
+Erasure - Don't Say You Love Me (2005) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Say You Love Me  (Jeremy Wheatley Single Mix) [00:03:45]
+02. Lie to Me [00:02:58]
+03. Don't Say You Love Me  (Mark Moore & Eon Vox Remix) [00:05:38]
+04. Don't Say You Love Me  (ATOC's Rock 'N 'Ravin' Vocal Remix) [00:07:05](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC1124DDC48D96D6113C6491DBEEEFD981E3701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792929   (20678) от 21.04.2025
 
 Erasure - Make Me Smile (Come Up and See Me) (2003) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>

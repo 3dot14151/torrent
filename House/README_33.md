@@ -1,3 +1,96 @@
+###  Публикация: 511166   (667452) от 16.06.2012
+
+Calm Pres K.F. - From Dusk Till Dawn (2012) [MP3|320 кб/с]<Deep House, Ambient>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dusk Till Dawn
+02. Summer Flow
+03. Flying
+04. Keep On Drivin
+05. Fly Like A Bird
+06. Goodbye & Hello
+07. River To The Ocean
+08. New Day
+09. Autumn Rain
+10. Peace Of Mind2012Жанр: Deep House, AmbientПродолжительность: 01:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5DB8DB8FD48105A38C292F58952569757B6A5F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512021   (665854) от 17.06.2012
+
+VA - Balance Series (25 альбомов) (2001-2012) [MP3|320 кб/с]<Progressive House, Progressive Trance, House, Electro, Techno, Minimal, Tech House, Dubstep, Ambient>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все кому нравится прогрессивно звучащая танцевальная музыка уже давно поместили серию “Balance” в разряд самых интересных диджейских миксов, откуда она вышибла Global Underground. За это скажeм спасибо Филу К, Джеймсу Холдену, Крису Фортье и Джимми Ван М – как наиболее отличившимся.CD1Продолжительность: 01:18:40
+
+01. Gianni Callipari - Whybee (4:41)
+02. Simon Baker & Robert James - All Of A Sudden (3:15)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2BBC33AB6769626326B7F381BD74B312530AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137983   (665714) от 28.05.2017
+
+VA - Sunshine Dance 6 (2017) [MP3|320 Kbps] <Future House, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Neon City Inc - Music Shower (Radio Edit) 3:17
+02.  Santino Kluge - Fly (Club Edit) 3:03
+03.  DJ Rosso - Dance In The Sun (Radio Edit) 3:22
+04.  Beerg - Fireball (Radio Edit) 3:55(   Читать дальше...   )Жанр: Future House, Progressive, DanceПродолжительность: 02:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B8E8891C5E06D6DEB5F82A1A0C03A60C3142D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137622   (665651) от 28.05.2017
 
 VA - The Loft Capturing: the Soul of House Music (2017) [MP3|320 Kbps] <Deep House, Chill House>
@@ -658,99 +751,6 @@ VA - Power Dance Workout Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2459A4CA5A76656EF8B6367473B516FBC5949E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514699   (658066) от 24.06.2012
-
-16 Bit Lolitas - Supermarkt (2012) [MP3|320 кб/с]<Deep House, Progressive Breaks>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Different Light, Same Window
-02. Settle The Score (with Lucy Iris)
-03. Happy Hardcore Still Works
-04. Fat Fly
-05. Snake Inverter
-06. Blanket
-07. Na Na Nahana (with Lucy Iris)
-08. Traffic Jam Survival Kit
-09. Not The Ideal Grandson After All
-10. Unkle feat. Nick Cave - Money And Run (16 Bit Lolitas Remix)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2833FFD523CE2D5B566882CDD6286F463FBAC9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539487   (657210) от 26.03.2022
-
-VA - Sports Megamix 2022 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer - Let It Go (Extended Mix) 4:14
-02. The Disco Boys - Funk Decision (Extended Mix) 4:33
-03. Coca Dillaz - Show Me (Radio Edit) 3:11
-04. Skeeter - Fresh (Original Mix) 5:15(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F0FFA7492D8E48A754C5C8C4E8321FCEEF3C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140264   (657002) от 05.06.2017
-
-VA - Best Of Atec - Summer (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick.Sal - Dark Road (original mix) (06:31)
-02. Ben Polzin - Desire For Freedom (original mix) (08:11)
-03. Patrick Tijssen, Maickel Telussa - Gods House (Ultraverse Remis) (06:45)
-04. Nightbob, Wesper - Groove 59 (Nightbob dub) (12:07)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5497AACDFBEE1DD586BFAEE597AEF7C0669C54C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

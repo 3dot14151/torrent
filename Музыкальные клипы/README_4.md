@@ -1,3 +1,200 @@
+###  Публикация: 615031   (978774) от 07.02.2013
+
+Nelly Furtado - Waiting For The Night / Waiting For The Night (2012) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nelly Furtado - Waiting For The NightЖанр: МузыкаРежиссер: Nelly FurtadoАктеры: Nelly FurtadoПеревод: ОтсутствуетПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:361C7D82EB97D8B94A8C20E9D060CEBC70D01DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437633   (977475) от 17.01.2012
+
+Katy Perry - Лучшее видео [24 видеоклипа] (2007-2011) DVDRip, HDRip, WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Поп-музыка
+Продолжительность: 01:14:32Формат: AVI, MKV, MP4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0EE60B59A2D00B0978C5DBB59F0B3741958952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355798   (976658) от 01.02.2020
+
+Architects (UK) - 34 Music Videos (2006-2019) WEB-DL [Н.264/480p/720p/1080p-LQ] <Math-Metalcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976658.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 Architects-In_The_Desert-x264-2006-SRP [608 x 344].mkv
+2007 Architects - You'll Find Safety (Dir by Perrone Salvatore - Xavy) [1280 x 720].mp4
+2007 Architects-Buried_At_Sea-x264-2007-SRP [704 x 456].mkv
+2008 Architects - We're All Alone (Final Version) (By Ryan Mackfall) [640 x 360 ].mkv(   Читать дальше...   )Производство: Century MediaЖанр: Math-MetalcoreПродолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC0F67EE6D4611A04F8A3BAA03CD4B93671D9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355787   (976574) от 01.02.2020
+
+Вадим Самойлов - 15 Music Videos (2012-2019) WEB-DL [H.264/480p/720p/1080p-LQ] <Alternative Rock>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976574.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 - Звездочёт [656 x 480].mkv
+2012 - Никогда [854 x 468].mp4
+2012 - Чёрная луна [656 x 480].mkv
+2015 - Алхимик [1280 x 720].mp4(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38DFC791554417963EFDA76708AB0B5CF98A82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974574   (975575) от 12.01.2016
+
+VA - Зимний марафон № 218: Зимняя волна новинок (2015-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (11.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Amna ft. Robert Toma - In oglinda (Marc Rayen and Electric Pulse Remix) (Official Video) (00:03:31)
+02. Bahh Tee - Взрослеем (С днём рождения) (Премьера!) (00:03:53)
+03. Cardiknox - On My Way (Official Video) (00:04:09)
+04. Cee Jay ft Laurish - Ar Dae Wonder (Official Video) (00:04:19)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, Шансон, House, TranceПродолжительность: 01:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D452665C4A2943974F06C4120C9A47CD6D2570E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356783   (975530) от 02.02.2020
+
+U-ka saegusa IN db Film Collection Vol.1 -Shocking Blue- (2003) DVDRip [H.264/480p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый DVD группы U-ka saegusa IN db, содержит коллекцию клипов и запись двух живых выступлений.
+
+Источник: лицензионный DVD5VIDEO CLIPПроизводство: Япония, B-VisionЖанр: J-PopСубтитры: отсутствуютПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8828D1AAC427B78C977F18CEB6CB8E4CB1D7E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354843   (975453) от 02.02.2020
+
+Behemoth - 6 Music Videos (2011-2020) WEB-DL [H.264|VP9/2560p/1080p/720p-LQ] <Death Metal, Black Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975453.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 Behemoth - Lucifer (Uncensored) (1280 x 720).mp4
+2019 Behemoth - Bartzabel (1920 x 1080).mkv
+2019 Behemoth - Sabbath Mater (2560 x 1440).mkv
+2019 Behemoth - Wolves Ov Siberia (Radio 1 Session) (1920 x 1080).mkv(   Читать дальше...   )Жанр: MetalПродолжительность: 00:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CF6D6ADC1892DC95DE91088E1FFCA820422CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616196   (974857) от 10.02.2013
 
 Гэри Мур / Gary Moore - Ballads & Blues 1982-1994 (1994) DVDRip
@@ -512,194 +709,6 @@ N'Klabe ft. Yomo - Me Gustas Muchisimo (2013) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:289B34E5CE01357B8D0936E76AC5C76908B5A93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976607   (968530) от 18.01.2016
-
-Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968530.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Best Of Videos of Depeche Mode 1980-200601. Just Can't Get Enough	3:41
-02. Everything Counts	        3:59
-03. People Are People	        3:40
-04. Master And Servant	        3:50(   Читать дальше...   )Жанр: Synth-popПеревод: ОтсутствуетПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF4AB89B9327DC65F4F3CBEBDF64F97845AF32DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619446   (967734) от 16.02.2013
-
-Paramore -  Now (2013) [1080p] HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative Rock, Pop PunkПродолжительность: 00:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF4BC64CB693552EEA7868C2301C7BDE897517B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618404   (967688) от 16.02.2013
-
-Сборник видеоклипов / Symphonic, gothic  metal (female voice) HDTV 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник музыкальных видеоклипов разных исполнителей в отличном качестве.Жанр: Symphonic, gothic  metalПродолжительность: ~02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F715757D101865CB0A7AF25DD7505E15283C042A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618158   (967560) от 16.02.2013
-
-Сборник видеоклипов Metal Rock 2012 / Metal Rock Clips 2012 (female fronted) HDTV 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник музыкальных видеоклипов разных исполнителей в отличном качестве.Жанр: Metal RockПродолжительность: ~02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76282BF0C803CF0D985B464D3B1994DABB43AF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618159   (967348) от 16.02.2013
-
-Сборник видеоклипов 2012 года / Music Video (2012) HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов зарубежных исполнителей 2012 года в высоком качестве.Жанр: Музыка, клипы, PopПродолжительность: ~04:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CAA25BF191B56C9CB58BB686762AC0B52E89AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619645   (966183) от 17.02.2013
-
-Dj Vj Magrao - Festa Mix Volume 1 (2013) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rihanna, Chris Brown, Katy Perry, Mariah Carey, Flo Rida, Justin Bieber, Nicki Minaj, The wanted, Pitbull and More...Жанр: PopПродолжительность: 01:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6034C727A27FD352AD21E514A25319D98A5AF782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977534   (965412) от 21.01.2016
-
-VA - Зимний марафон № 220: Зимний Снегопад Хитов (2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (20.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alai Oli ― Тлен (Премьера!) (00:03:36)
-02. Alberto Ciccarini - Clorophilla (Official Video) (00:03:46)
-03. Alexander Project - Весь мир с тобой (Премьера!) (00:04:37)
-04. All Давай - Ай как больно (Премьера!) (00:04:09)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, Шансон, IndieПродолжительность: 01:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1655826636DC41B1D153115735325D22B451B364
 ```
 
 https://mybot314.ru/tekegram_catalog/

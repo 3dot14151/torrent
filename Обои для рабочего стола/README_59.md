@@ -1,3 +1,29 @@
+###  Публикация: 947602   (417971) от 17.10.2015
+
+Обои - Природа 213 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на природную тематикуФормат: JPGРазрешение файлов: 1680x1050 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F56214CB8C76E801E8D3AB45F99FBF87E32A85A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947608   (417969) от 17.10.2015
 
 Обои - Mix148. 2560x1600 [JPG]
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:170A290256D0EB6D5297D6FF6973D64F87D6D733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561842   (405981) от 18.10.2012
-
-Nature Wallpapers (17.10.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32B8CFB6B16B36FCCB8FC1F44A2D0DA265AA864
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1860850   (1063177) от 
+###  Публикация: 1860850   (1064189) от 30.03.2026
 
 Александр Софикс - Дискография (2004-2009) [MP3|320 Kbps] <New age, Instrumental>
 
@@ -7,7 +7,7 @@ https://t.me/izofen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064189.jpg" />
 </div>
 
 

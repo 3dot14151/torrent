@@ -1,3 +1,32 @@
+###  Публикация: 1254546   (373185) от 14.10.2018
+
+VA - Running with Rock!!! 2018 Session [MP3|320 Kbps] <Rock, Miscellaneous>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Francisco's - Owner of a Lonely Heart (130 BPM)
+02. Interface - Rock the Casbah (130 BPM)
+03. Kikka - Somebody to Love (130 BPM)
+04. Dj Hush - The Harlem Shuffle (130 BPM)(   Читать дальше...   )Жанр: Rock, MiscellaneousПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0C871F22C966434FFDF91CAA3D0B5AE1050A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950280   (372576) от 25.10.2015
 
 Cold Blood - The Best Of Cold Blood (1995) [MP3|320 кб/с]<Jazz-Rock, Funky Blues>
@@ -728,35 +757,6 @@ ZZ Top - ZZ Top FM Broadcast June 1980 (2020) [MP3|320 Kbps] <Blues Rock, Southe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ACA10101817645C27B3EE9171F608C2033EE0F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416537   (367348) от 16.10.2020
-
-VA - Hard Rock Anthems (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitesnake - Still Of The Night (2017 Remaster) [6:40]
-02. Winger - Seventeen [4:05]
-03. Dio - Rainbow In The Dark [4:17]
-04. RATT - Lay It Down [3:26](   Читать дальше...   )Жанр: RockПродолжительность: 02:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF3C72B8828AEF2820DD8A0354533CFFE337B23
 ```
 
 https://mybot314.ru/tekegram_catalog/

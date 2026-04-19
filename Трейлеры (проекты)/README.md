@@ -1,5 +1,31 @@
 https://t.me/izofen
-###  Публикация: 1861442   (1062483) от 
+###  Публикация: 1865062   (1064889) от 13.04.2026
+
+Проекты - VideoHive - Epic Trailer - 62382836 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Trailer — это динамичный After Effects шаблон, сочетающий в себе агрессивную типографику, быстрый монтаж и интенсивные визуальные эффекты.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C1AF3E45BDD76100D38B1D5E50596E84FE0FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861442   (1062483) от 25.03.2026
 
 Проекты - VideoHive - Cinematic Glitch Action Trailer - 62120129 [AEP]
 
@@ -653,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:401FCCE26EB89DF4259F4221D619CEF8C952476B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987332   (925741) от 17.02.2016
-
-Проекты - VideoBlocks - Movie Promo [AEP]
-
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания трейлера к фильму.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F77E18AA1A1B0082D2A6241F3A4EC1944EFC4479
 ```
 
 https://mybot314.ru/tekegram_catalog/

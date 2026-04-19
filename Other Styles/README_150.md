@@ -1,3 +1,235 @@
+###  Публикация: 1342381   (223796) от 02.12.2019
+
+Dr. Jeffrey Thompson - Theta Meditation System 2.0 (1999) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Impressions (32:02)
+02. Mind's Eye (31:58)Жанр: New Age, Meditative, HealingПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB4D8B2C3682C332E833D3F6A690A144430ECEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625987   (223659) от 19.11.2020
+
+Karamazov Twins - Шапито-Шоу (2011) [FLAC|Lossless|image + .cue] <OST, Art-Pop, Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Karamazov Twins — российская рок-группа, созданная в Майкопе Жаком Поляковым. Сейчас группа перебралась в Москву и уже успела войти в топ-листы совершенно разных людей от режиссера Сергея Лобана до Петра Мамонова. Наибольшую известность группе принесла работа над музыкой к фильму Шапито-шоу (2011).
+
+Сами музыканты говорят, что их задачей является сочетание несочетаемого, (   Читать дальше...   )01. 3-15-9-20 (3:11)
+02. Мама (2:08)
+03. Песня Баретского (1:57)
+04. Песня Веры и Киберстранника (1:57)(   Читать дальше...   )Жанр: OST, Art-Pop, RockПродолжительность: 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116218F92F4AAFF91D39742717EE05BB2E9331AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470460   (223407) от 19.11.2020
+
+Yanni - Live at The Acropolis (1994) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yanni - Santorini (6:59)
+02. Keys to Imagination (7:35)
+03. Until The Last Moment (6:38)
+04. The Rain Must Fall (7:25)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D951B4D52FBCB31F90BFA6F9770B20FE998FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292092   (223319) от 19.11.2020
+
+James Last - Gold: Greatest Hits (2003) [APE|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biscaya (4:05)
+02. Der Einsame Hirte (5:43)
+03. Traumschiff Thema (2:38)
+04. Der Landarzt (3:25)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536AABFD080414880B1D9285C804CF7626BE903D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268988   (223270) от 13.12.2018
+
+Pam Asberry - Thankful Heart, Joyful Mind (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Gesu Bambino
+02 – Sing We Now of Christmas
+03 – Wexford Carol
+04 – White Christmas(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486150F05F9D4FBC6B7569AF925B6F2417671017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268367   (223237) от 13.12.2018
+
+Painted Water - Forever With You (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223237.jpg" />
+</div>
+
+
+###  Подробнее
+
+02. Forever with You
+03. Last of Its Kind
+04. Rabbit of Glen Coe Hills
+05. Highland People(   Читать дальше...   )Жанр: New Age, Instrumental, Neo-ClassicalПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C7CA5D461F6B88783F3B5516CCE73F9CF8AE2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651158   (223211) от 05.08.2023
+
+Spiritual Front - The Queen Is Not Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Dark Cabaret, Nihilist, Suicide Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Ill [00:03:23]
+02. Ask [00:03:25]
+03. There Is A Light That Never Goes Out [00:04:04]
+04. How Soon Is Now? [00:04:56](   Читать дальше...   )Жанр: Neofolk, Dark Cabaret, Nihilist, Suicide PopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CCAD6B6F05A0E9840734500201043684ADF53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342386   (221561) от 04.12.2019
+
+Serial Cleaner - Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob Zahn - Music to Hide Corpses To (Main Menu Theme)
+02. Robert Purzycki - No Sweat
+03. Jan Sanejko - Sucker Punch
+04. Jan Sanejko - Horoscope Date(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730133466277A06E9A1261695214BED2E6B51CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965217   (221537) от 16.12.2015
 
 VA - Grand Theft Auto San Andreas Official Soundtrack (2004) 8CD, Box Set [FLAC|tracks]<Electronic, Hip Hop, Jazz, Rock, Reggae, Latin, Funk / Soul, Non-Music>
@@ -519,244 +751,6 @@ Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных го
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0DEBE8CB2B5D123B78F4EFB9C0FA1D1414543B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269515   (219577) от 15.12.2018
-
-Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skylar Grey - Everything I Need (Film Version) (03:16)
-02. Rupert Gregson-Williams - Arthur (04:41)
-03. Rupert Gregson-Williams - Kingdom of Atlantis (03:26)
-04. Rupert Gregson-Williams - It Wasn't Meant to Be (03:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07341E9A24B3A72CB0F63BC8C9851B2F46241D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587873   (219534) от 11.12.2012
-
-Two Steps From Hell - Two Steps From Heaven/SkyWorld (2012) /WEB/ [FLAC (tracks)|Lossless]<Trailer Music>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Is Hell That Ends Well
-02. Titan Dream
-02-1. Titan Dream (No Solo Voice)
-02-2. Titan Dream (No Choir)
-03. Skyworld
-04. El Dorado
-05. The End Is The Beginning
-05-1. The End Is The Beginning (No Choir)
-06. All The Kings Horses
-07. Realm Of Power(   Читать дальше...   )Жанр: Trailer MusicПродолжительность: 02:26:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652021   (219500) от 09.08.2023
-
-Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acoustic Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drang
-02. Unruhe
-03. Jagd
-04. Freitanz(   Читать дальше...   )Жанр: Dark Acoustic FolkПродолжительность: 02:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CCAD725236867EB21D91CD25D4999DF74069CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514173   (219468) от 02.12.2021
-
-Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse 2CD Box Set (2004) Original Motion Picture Soundtrack [FLAC|Lossless|image + .cue] <Classical, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный саундтрек к фильму Жерара Корбьо "Король танцует" ("Le Roi Danse")01. Te Deum Motet a deux choeurs (02:16)
-02. La Bocanne primitive (01:43)
-03. La Bocanne compliquee (01:06)
-04. Troupe d'Astree dansante (00:46)(   Читать дальше...   )Жанр: Classical, Stage & ScreenПродолжительность: 01:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3969704C73E3E3337C64D94539103E46EA194F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268541   (219420) от 15.12.2018
-
-Danheim - Runagaldr (2018) [MP3|320 Kbps] <Nordic Folk, Dark Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danheim & Sigurbodi - Runatal 6:05
-02. Egilsson 5:49
-03. Feikinstafir 3:55
-04. Fella 3:12(   Читать дальше...   )Жанр: Nordic Folk, Dark FolkПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D17C9A9B3E2402088F84AC1E8B7BECDCECE552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966376   (218822) от 18.12.2015
-
-Tom Barabas - Piano Impressions (1994) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impressions (5:28)
-02. Awakening (8:16)
-03. Circle of Friends (5:40)
-04. Traces of Time (5:44)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:60:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2BAC9C4A76A2A9CBD2FDD84EBC0131B50119C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966680   (218815) от 18.12.2015
-
-Tom Barabas - Magic In December (1991) [FLAC|tracks + cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic In December (4:27)
-02. Silent Night (5:03)
-03. Inner Joy (6:29)
-04. What Child is This (5:03)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5C2485CACA82541991F093475A57DCD5BF75EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966454   (218798) от 18.12.2015
-
-Tom Barabas - It s A New Life (1998) Remaster, 2004, ТМЕ/Правительство Звука [FLAC|image + .cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218798.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. It's A New Life
- 2. Love Is Here
- 3. Stacia
- 4. Rhapsody For Peace(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25BAEF2416E7AE10BA09B408DF14B7B8E1FD5482
 ```
 
 https://mybot314.ru/tekegram_catalog/

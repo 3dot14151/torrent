@@ -1,3 +1,61 @@
+###  Публикация: 1856547   (1059105) от 28.02.2026
+
+VA - The Sound of 2026, Chapter 1: Toronto (Night Mix) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F4T4L3RR0R - The Right Man in the Wrong Place (Intro - Mixed) 01:16
+02. Lexy Chae - Neon Lotus (Original Mix - Mixed) 05:19
+03. F4T4L3RR0R - The Hoax (Original Mix - Mixed) 06:17
+04. Dmitry Kostyuchenko - Take Off (Original Mix - Mixed) 03:05(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F02941D31A527526BA2286CB12F06CC5F652D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856332   (1058955) от 27.02.2026
+
+OTTAGON / Giuseppe Ottaviani - AZZURRO Ep (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Ottaviani pres. OTTAGON & KhoMha - Metanoia (Extended Mix) [05:00]
+02. Giuseppe Ottaviani pres. OTTAGON feat. TW3LVE - Feel It Coming (Extended Mix) [04:26]
+03. Giuseppe Ottaviani pres. OTTAGON feat. Lake Silver - What The Future Holds (Extended Mix) [04:51]
+04. Giuseppe Ottaviani pres. OTTAGON - The Underground (Extended Mix) [05:06](   Читать дальше...   )Жанр: TranceПродолжительность: 00:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CABF262F2FB0FF920611F390861C109988CE251C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856306   (1058948) от 27.02.2026
 
 VA - D.Trance 113 (2026) [MP3|320 Kbps] <Trance>
@@ -686,64 +744,6 @@ VA - Progressive Trance Awakening, Vol. 10 (2026) [MP3|320 Kbps] <Trance, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2FB7A8C5A0C59132EE5ECD7621CADAA6D527FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848429   (1052666) от 17.01.2026
-
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 16 (2026) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AMNOR - Prophect Loading (Extended Mix) [5:10]
-02. Loud2High - Empty Sky (Extended Mix) [5:16]
-03. Airo - Chronicles (Extended Mix) [5:34]
-04. AGENTBOY - Poison In The Blood (Original Mix) [4:07](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC6C33BDB63AF7E2DE85FA3D1631CF5EA22695B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848426   (1052665) от 17.01.2026
-
-VA - Trancendence, Vol. 07 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vivacity (NO) & Nico Cranxx - Liberation (Extended Mix) [6:57]
-02. Status Zero & TSI - Turbocharged Stratified Injection (Original Mix) [5:48]
-03. Ramundo - Finding You (Original Mix) [3:15]
-04. Scott Cameron & Suzanna Dee - Learning To Breathe Again (Extended Mix) [6:24](   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63B535144262EC06EF912F228506F52BE0B7BA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

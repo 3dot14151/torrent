@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1862490   (1063397) от 
+###  Публикация: 1865745   (1065508) от 17.04.2026
+
+VA - Black Hole Trance Music 04-26 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarstone & Susie Ledge - Haunt Me (Extended Mix) 07:46
+02. Airbase - Everything Else Could Wait (Extended Mix) 07:11
+03. Ram & MIDI Kittyy - Rapture (Extended Mix) 05:21
+04. Craig Connelly & Liel Kolet - Endless Sky (Extended Mix) 08:33(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30FD79B4447D4C71C40DD2AFF5DEE5A65D58219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864393   (1064699) от 
+
+John 00 Fleming - The Lost Tribe (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John 00 Fleming - Guiding Spirits 11:56
+02. John 00 Fleming - Alone 10:23
+03. John 00 Fleming - Planning The Demise 10:13
+04. John 00 Fleming - Butter Child 08:29(   Читать дальше...   )Жанр: TranceПродолжительность: 02:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F452C03CE75F773639FA4A78B1684CC6FE078DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862490   (1064094) от 30.03.2026
 
 VA - Trance Fusion, Vol. 18 (2026) [MP3|320 Kbps] <Trance>
 
@@ -7,7 +65,7 @@ VA - Trance Fusion, Vol. 18 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064094.jpg" />
 </div>
 
 
@@ -28,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862526   (1063299) от 
+###  Публикация: 1862526   (1064005) от 31.03.2026
 
 VA - Uplifting Only Top 15: March 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
@@ -36,7 +94,7 @@ VA - Uplifting Only Top 15: March 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064005.jpg" />
 </div>
 
 
@@ -57,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861098   (1062645) от 
+###  Публикация: 1861098   (1062645) от 24.03.2026
 
 VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 18 (2026) [MP3|320 Kbps] <Trance, Progressive>
 
@@ -86,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861520   (1062377) от 
+###  Публикация: 1861520   (1062377) от 26.03.2026
 
 VA - We Love Progressive Trance 2026 (2026) [MP3|320 Kbps] <Trance, Progressive>
 
@@ -115,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860829   (1062086) от 
+###  Публикация: 1860829   (1062086) от 22.03.2026
 
 Dennis Sheperd - The Next Generation - Extended Mixes (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
@@ -144,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860543   (1061892) от 
+###  Публикация: 1860543   (1061892) от 21.03.2026
 
 VA - Trancendence, Vol. 09 (2026) [MP3|320 Kbps] <Trance>
 
@@ -173,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860534   (1061889) от 
+###  Публикация: 1860534   (1061889) от 21.03.2026
 
 Sharon Valerona - Voice Of Suanda (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
 
@@ -202,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860527   (1061888) от 
+###  Публикация: 1860527   (1061888) от 21.03.2026
 
 Jennifer Rene - Voice Of Suanda (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
 
@@ -231,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860521   (1061887) от 
+###  Публикация: 1860521   (1061887) от 21.03.2026
 
 VA - Miami Hits 2026 (2026) [MP3|320 Kbps] <Trance>
 
@@ -260,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860432   (1061826) от 
+###  Публикация: 1860432   (1061826) от 20.03.2026
 
 VA - Progressive Trance Awakening, Vol. 12 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
@@ -289,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860438   (1061804) от 
+###  Публикация: 1860438   (1061804) от 21.03.2026
 
 VA - Ablazing Spring Sessions 2026 (2026) [MP3|320 Kbps] <Trance>
 
@@ -318,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860145   (1061784) от 
+###  Публикация: 1860145   (1061784) от 19.03.2026
 
 VA - Future Sound of Egypt Miami 2026 Compilation (2026) [MP3|320 Kbps] <Trance>
 
@@ -347,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860149   (1061781) от 
+###  Публикация: 1860149   (1061781) от 19.03.2026
 
 VA - Vocal Anthems Miami 2026 (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
 
@@ -376,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859917   (1061359) от 
+###  Публикация: 1859917   (1061359) от 18.03.2026
 
 VA - Trance Anthems 2026 (2026) [MP3|320 Kbps] <Trance>
 
@@ -405,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859251   (1061086) от 
+###  Публикация: 1859251   (1061086) от 15.03.2026
 
 VA - Friends of A State Of Trance, Vol. 1 (Mixed by Ferry Corsten) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
@@ -688,64 +746,6 @@ A State of Trance 001:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85EEDCDA42B1A4A3756917B14C9FFDE8A198B21B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856547   (1059105) от 28.02.2026
-
-VA - The Sound of 2026, Chapter 1: Toronto (Night Mix) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F4T4L3RR0R - The Right Man in the Wrong Place (Intro - Mixed) 01:16
-02. Lexy Chae - Neon Lotus (Original Mix - Mixed) 05:19
-03. F4T4L3RR0R - The Hoax (Original Mix - Mixed) 06:17
-04. Dmitry Kostyuchenko - Take Off (Original Mix - Mixed) 03:05(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F02941D31A527526BA2286CB12F06CC5F652D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856332   (1058955) от 27.02.2026
-
-OTTAGON / Giuseppe Ottaviani - AZZURRO Ep (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Ottaviani pres. OTTAGON & KhoMha - Metanoia (Extended Mix) [05:00]
-02. Giuseppe Ottaviani pres. OTTAGON feat. TW3LVE - Feel It Coming (Extended Mix) [04:26]
-03. Giuseppe Ottaviani pres. OTTAGON feat. Lake Silver - What The Future Holds (Extended Mix) [04:51]
-04. Giuseppe Ottaviani pres. OTTAGON - The Underground (Extended Mix) [05:06](   Читать дальше...   )Жанр: TranceПродолжительность: 00:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABF262F2FB0FF920611F390861C109988CE251C
 ```
 
 https://mybot314.ru/tekegram_catalog/

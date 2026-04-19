@@ -1,3 +1,282 @@
+###  Публикация: 596468   (131325) от 30.12.2012
+
+SaBo-FX - Erotic (Final Countdown 2012 remake) [H.264/720p] (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название песни: EroticЖанр: Музыка, PopПродолжительность: 00:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D485740F7C6A1CEEF927366546A232E3B9A4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596859   (130968) от 31.12.2012
+
+Progressive Rock - Rock Legends (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка клипов выступлений классиков прогрессивного рока.01. John Wetton - Starless
+02. Rick Wakeman - Catherine Parr
+03. Focus - Eruption
+04. Emerson, Lake and Palmer - Barbarian
+05. Curved Air - Vivaldi
+06. Family - The Weaver's Answer
+07. Barclay James Harvest - Poor Man's Moody Blues
+08. Steve Hackett - Clocks
+09. Soft Machine - Tale of Taliesyn
+10. Van der Graaf Generator - Theme One(   Читать дальше...   )Жанр: Музыка, RockАктеры: Rick Wakeman, Focus, Barclay James Harvest, Steve Hackett, Uriah Heep,and more.Продолжительность: 01:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBD2FBC4CD93B5C0201F22B34668703FD1FE51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596674   (130751) от 31.12.2012
+
+Дискотека Авария - Ноги-ноги (2012) [H.264/720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка, PopПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2E707027A7DB6CE50CE7AF91A9647B31D9C710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573254   (126163) от 25.12.2023
+
+Алиса - Видеоколлекция (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126163.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Али́са» — русская рок-группа, образованная в 1983 году в Ленинграде.
+По опросам Ромир, «Алиса» входит в десятку самых популярных рок-групп России1.Экспериментатор
+2.Мое поколение
+3.Мы вместе
+4.Время менять имена(   Читать дальше...   )Жанр: Музыка, РокПродолжительность: 01:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4669268989BB1ED015D38D1AA756B3F69FBA1A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 169818   (117747) от 14.02.2024
+
+Запрещенное к показу на ТВ видеоклипы / Banned, Uncensored & Uncut Music Videos (2009) Screener
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117747.jpg" />
+</div>
+
+
+###  Подробнее
+
+2Pac - All About You (Uncensored Version).mpg
+2Pac - How Do You Want It (XXX Version).mpeg
+50 Cent - Disco Inferno (DVDSCR Uncensored).mpg
+50 Cent - ft G Unit - My Buddy (Uncensored Version).mpg(   Читать дальше...   )Жанр: +18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BF60F68B5ADCB4A34AEF9D48A7223768B8C442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698879   (116952) от 18.02.2024
+
+Scooter - Video collection - Chapter 1 (1994 - 1997) DVDRip [H.264/1080p-LQ] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список всех клипов группы за первую главу их творчества вместе с видео-комментариями.Производство: ГерманияЖанр: Techno, Happy HardcoreРежиссер: Eric Will, Rainer Thieding, Russel Curtis, Rainer Thieding, Robert BröllochsАктеры: H.P. Baxxter, Rick J. Jordan, Ferris BuellerПеревод: ОтсутствуетСубтитры: РусскиеПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC3DAD53AB6E80B4DDE0A1E582009B8C0AE8CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702436   (114690) от 02.03.2024
+
+Scooter - Video collection - Chapter 2 (1998 - 2002) DVDRip [H.264/1080p-LQ] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник всех клипов группы за вторую главу их творчества вместе с видео-комментариями.Производство: ГерманияЖанр: Techno, Happy HardcoreРежиссер: Rainer Thieding, Patric Ullaeus, Marc Schoellermann, Michael MenkeАктеры: H.P. Baxxter, Rick J. Jordan, Axel CoonПеревод: ОтсутствуетСубтитры: РусскиеПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2309B4AB907C105C065C499149623CF5BDDB6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709199   (112227) от 02.04.2024
+
+Scooter - Video collection - Chapter 4 (2007-2012) DVDRip, WEBRip [H.264/1080p-LQ] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник всех официальных клипов группы за четвёртую главу их творчества.Производство: ГерманияЖанр: Techno, Happy Hardcore, JumpstyleРежиссер: Michael Menke, Volker Hannwacker, Marc Schölermann, Oliver Sommer, Sebastian Therre, Dennis Hinz, Manuel Cortez, Marcus Sternberg, Mark FeuerstakeАктеры: H.P. Baxxter, Rick J. Jordan, Michael SimonПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F71C88FC8A694E2C97172741D32DE9DE0FE25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718545   (110936) от 25.04.2024
+
+Леонид Агутин — «Бог об этом не просил» (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Божественное и реальное соединяется в анимационном видео на песню Леонида Агутина «Бог об этом не просил», в нём используется предельно доступная символика и заложена понятная философия. Оживающие люди с дорожных знаков и указателей — свидетельство божественного присутствия во всём. На протяжении ролика схематичные человечки с пиктограмм покидают привычные места (   Читать дальше...   )Жанр: PopРежиссер: Денис КузьминПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203FFD6364A78ACADDD02FD609AB58F0C97F6F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718919   (110779) от 27.04.2024
+
+Леонид Агутин — «Всё не зря» (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не дочитав старый роман
+И сняв очки,
+Наш капитан выключил свет
+В кают-компании...Жанр: PopРежиссер: Артур ХарламовПродолжительность: 00:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21172242694CD6E268FCCB9FD7C28DCA89BF5244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722042   (109798) от 10.05.2024
 
 Dessar - Кошмар (посв. студентам РГГУ) (2024) WEBRip [H.264/1080p-LQ]
@@ -413,270 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F46CC9EC22787ECB5ABD9764FC77CF714022A1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478098   (86322) от 04.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 04 Пиратская Вечеринка 4.36Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D85EDF089B6E41644ADB75A4272D2CE9E52C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477653   (86121) от 03.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 03 Пиратская Вечеринка 4.28Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196D6FF2E9F6EE96E2797E922EA28696D09EF43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477147   (85945) от 02.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 02 Пиратская Вечеринка 4.25Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E181F0D66E1FC8E4F68E0E20857137AA4EC9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476396   (85752) от 01.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 01 Пиратская Вечеринка 4.35Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B6A76FEB2C578831193D2598865C581F9C58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476015   (85555) от 31.03.2012
-
-Видеоклипы «t.A.T.u.» - All The Things She Said. Пиратская Вечеринка HD x264 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85555.jpg" />
-</div>
-
-
-###  Подробнее
-
-«All the Things She Said» — первый сингл с дебютного англоязычного альбома «200 km/h in the Wrong Lane» группы «Тату», выпущенный 10 сентября 2002 года. Стал первым синглом российских исполнителей, который занял первое место в британском чарте UK Singles Chart, удерживая позицию в течение четырёх недель. По итогам 2003 года сингл занял 6-е место по продажам в Великобритании (   Читать дальше...   )Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 04 мин 08 сек (00:04:08)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7139303D63F6C06D99794BD8A38368F79774E76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345731   (84945) от 28.03.2012
-
-Аркона - Клипография (2008 - 2011) DVDRip
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Viking metal/Pagan metalПродолжительность: 00:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECB0562DE5BBB1FCCE8FE9FCBDB642D4C86F5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474092   (84939) от 28.03.2012
-
-Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F1B1D93C5EC67326741A32FFD3A23AFE704E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471656   (83696) от 22.03.2012
-
-Мегамикс Philizz Video YearMix 2012 Vol. 1 Пиратская Вечеринка HD x264 1080p 3,9Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Вы долгое время ждали и теперь он здесь. Все закручено и заверчено мегамиксом от голландского ви-джея Philizz.
-И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра YearMix 2012! Продолжение следует!Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 54 мин 28 сек (00:54:28)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09B742AFC7BA32399B0D5DCCEF09BBCB124E70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470281   (83066) от 19.03.2012
-
-Мегамикс Philizz Video YearMix 2011. Пиратская Вечеринка HD x264 1080p 6,64Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Вы долгое время ждали и теперь он здесь. Все закручено и заверчено мегамиксом от голландского ви-джея Philizz.
-И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра YearMix 2011! Продолжение следует!Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 57 мин 51 сек (00:57:51)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574A9B43AA7475B8BCE9EE20C0BFCBAAB2DC0C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470049   (82932) от 18.03.2012
-
-Видеоклипы Digital Musical Rays 2010. Пиратская Вечеринка Blu-Ray x264 DTS 1080p 13Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Видеоклипы Digital Musical Rays-Vol 01 20101: Hindi New Songs. И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра Blu-Ray!
-
-Данный релиз для тех, кому не "по карману" оригинал 36,3 Gb: Видеоклипы Digital Musical Rays 2010. Пиратская Вечеринка Blu-Ray DTSЖанр: TV, Video, Popular music, Pop musicПеревод: Не требуетсяПродолжительность: 2 часа 53 мин 13 сек (02:53:13)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0C394640A5F1ACD8A6DEA8EB19BEBE622F95E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

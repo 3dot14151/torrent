@@ -1,3 +1,29 @@
+###  Публикация: 1579478   (336413) от 27.09.2022
+
+The Art of Mankind - Archetype (2018) 2CD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Melodic Death MetalПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A46EC58244140806D3F8857A1C2269DD31342E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074821   (335764) от 20.11.2016
 
 Loudness - Lightning Strikes (2016) 30th Anniversary Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -711,35 +737,6 @@ Dragon Guardian - Destiny of the Sacred Kingdom (2012) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:379E5A9DD79B420D6128A68DCDCE5DD8BBDDA133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597410   (166743) от 14.12.2022
-
-Eizo Sakamoto - Speed Metal Show (1999) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 蜘蛛伯爵 3:52
-02. ハローワーク'99 2:28
-03. 文京恋歌 5:06
-04. 我SOSー空想Cityー 1:43(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B65DF738996C0D4DBAC5AF28B810B28B0E1DB34
 ```
 
 https://mybot314.ru/tekegram_catalog/

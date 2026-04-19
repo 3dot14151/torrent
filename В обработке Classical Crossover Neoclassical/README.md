@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1863278   (1063977) от 
+###  Публикация: 1863278   (1063460) от 04.04.2026
 
 Z. Richard Rowling - Gnossiennes Jazz Noir (2025) [MP3|320 Kbps] <Jazz Noir, Piano, Compositional Ambient>
 
@@ -7,7 +7,7 @@ Z. Richard Rowling - Gnossiennes Jazz Noir (2025) [MP3|320 Kbps] <Jazz Noir, Pia
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063460.jpg" />
 </div>
 
 

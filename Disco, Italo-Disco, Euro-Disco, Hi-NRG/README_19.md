@@ -1,3 +1,61 @@
+###  Публикация: 1230335   (617301) от 11.06.2018
+
+VA - Italo Dance Summer Hits (2012) [MP3|320 Kbps] <Italo-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hessencia - Cosmo (The Arcane Charmers Remix) 06:28
+02. Hoxygen feat. Krystal Em & Scio - Only Smoke (The Arcane Charmers Remix Edit) 03:36
+03. DJ Doddo - Tu sei (Radio Edit) 03:09
+04. Il Viaggiatore - Respiro (Vocal Mix) 03:30(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 02:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390273957452DCF7023854475C954C2628E857DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230328   (617300) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 18 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F. Monieri - Up Medley Walk Away
+02. Shane - Simba
+03. New Glory - Run Along The Road
+04. Stop Limit Line - Colonel(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F1ACEDA62C8541C9515A37F3508A0FD00050CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230538   (614059) от 13.06.2018
 
 Mystic - 4 Singles (1977) 7" [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -700,64 +758,6 @@ VA - Ballerina: The Tribute to Shanghai (2017) [MP3|320 Kbps] <Synth-pop, Italo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AF58BBF04083B953A438BDECAF06FAB332ED436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298911   (599758) от 01.05.2019
-
-VA - I Love Disco - Grand Prix 70's (2010) [MP3|320 Kbps] <Electronic, Italo Disco, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599758.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Donna Summer - I Feel Love
-02. Gary's Gang - Keep On Dancin'
-03. Eddy Rosemond - Wake Up And Move... Funk It(   Читать дальше...   )Жанр: Electronic, Italo Disco, DiscoПродолжительность: 02:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E1ABCDCA9B29F2CD5774C2CFFAD0FA56F5FCAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038896   (599536) от 30.07.2016
-
-Kasso - 2 Albums (1982, 1984) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkman (5:30)
-02. One More Round (4:37)
-03. On The Sea (3:27)
-04. I Wanna Know (4:43)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70271813E41CC330826057E349C35F476C89EE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

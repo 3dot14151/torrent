@@ -1,3 +1,235 @@
+###  Публикация: 1618976   (201355) от 14.03.2023
+
+VA - Enigma-Forest-Transit 11 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Youssou N'Dour & Neneh Cherry - 7 Seconds
+02. Indigo - Tomorrow is Maybe
+03. WES - Alane
+04. Ofra Haza - Im Nin'Alu(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB2BA028EFCBE7A68CDB7BE8EC7D1883BF57DAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130500   (200614) от 28.03.2023
+
+Jed Kurzel  - Alien: Covenant  / Чужой: Завет (2017) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incubation
+02. The Covenant
+03. Neutrino Burst
+04. A Cabin On The Lake(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188E57A988EAD438F3F8F37D8EA2050BBC4583DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622930   (200595) от 31.03.2023
+
+Fausto Papetti - Exitos De Fausto Papetti (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amantes (3:21)
+02. Laura (2:06)
+03. La Sombra De Tu Sonrisa (2:28)
+04. Amor Mio (3:45)(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D803627E089CD3DC3290DAFFEDF1822A887EDAD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621689   (200470) от 31.03.2023
+
+The Sri Chinmoy Bhajan Singers (Шри Чинмой) - Sing (2008) [FLAC|Lossless|tracks + .cue] <Indian, Bhajan>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maha Kali Maha Kali
+02. Chitta Ranjan Ghose
+03. He Madhyamda
+04. Jharna-kala oishi manjula(   Читать дальше...   )Жанр: Indian, BhajanПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEDF6AF471968CE77AAF4174F3C4FBE723B9EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624512   (200302) от 06.04.2023
+
+Король и Шут - Король и Шут (Официальный саундтрек), Часть 1 (2023) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200302.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Прыгну со скалы (Из сериала «Король и Шут»)
+2. Лесник (Из сериала «Король и Шут»)
+3. Внезапная голова (Из сериала «Король и Шут»)
+4. Камнем по голове (Из сериала «Король и Шут»)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB372F501036D2054F8615DBF622B2DD3160429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624518   (200287) от 06.04.2023
+
+Король и Шут - Король и Шут (Официальный саундтрек), Часть 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200287.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Прыгну со скалы (Из сериала «Король и Шут»)
+2. Лесник (Из сериала «Король и Шут»)
+3. Внезапная голова (Из сериала «Король и Шут»)
+4. Камнем по голове (Из сериала «Король и Шут»)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B1E3493BFDE0843EAA36BB474D5448DDEC15D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 156512   (199888) от 24.10.2025
+
+Enigma - The Platinum Collection (2009) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_199888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadeness (Part 1) (4:20)
+02. Mea Culpa (Orthodox Version) (4:01)
+03. Priciples Of Lust (3:27)
+04. Rivers Of Belief (4:24)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 03:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B2B2433555787882EF95C3CD2DF6E80CD511F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627165   (199392) от 22.04.2023
+
+Ricardo - Klangschalen-Musik (2009) [FLAC|Lossless|tracks + .cue] <Meditative, Tibetan Bowls>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loslassen vom Alltag
+02. Die Entspannung genieben
+03. Sich rundherum Wohlfuhlen
+04. Die innere Ruhe genieben(   Читать дальше...   )Жанр: Meditative, Tibetan BowlsПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CE5CE60AA9CBF2991DD54FD22C1BE1E0DFA3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629310   (199323) от 26.04.2023
 
 The Church Organ All Stars - Best of the Church Pipe Organ and the Hammond B-3 Organ for Christmas, Halloween and More! (2008) [MP3|320 Kbps] <Hammond, Instrumental, Jazz>
@@ -513,234 +745,6 @@ Sinoia Caves - Beyond The Black Rainbow (2014) [FLAC|Lossless|tracks + .cue] <So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8993DCB5EAFEBB9285DFBF50C288056FB88EBB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657194   (192137) от 05.09.2023
-
-Hans Zimmer, Lebo M, Elton John - Король Лев / The Lion King (2017-2019) Walt Disney Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный сборник содержит в себе два музыкальных альбома с музыкой из мультфильма Король лев: версия ремейка The Lion King 2019 года, а так же Score сборник The Lion King Legacy Collection. Данные альбомы были выпущены в частичном HD (Hi-Res) формате 24bit/44,1khz на онлайн цифровых площадках.Жанр: Soundtrack, scoreПродолжительность: 03:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C71CCD83D0F5C23B0777A11F91DC21361D200C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657652   (192009) от 05.09.2023
-
-VA - Nature's Magic The Voyage of the Whale (1996) [FLAC|Lossless|image + .cue] <Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cavatina
-02. In Too Deep
-03. Theme From Love Story
-04. Hymne(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06002A6E98EA672B1706D40316D0C20BCF84E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586489   (191601) от 04.11.2022
-
-The Monks of Sherab Ling Monastery - Sacred Tibetan Chant (2003) [FLAC|Lossless|tracks + .cue] <Non-Music, Mantras, Tibetan Buddhism>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mahamudra Lineage Prayer & Meditation
-02. Mahakala Puja (Yeshe Gonpo) - Invocation and Offering to Mahakala
-03. Mahakala Puja (Yeshe Gonpo) - Receiving Blessings and Dedicating the Merit to World Peace and HarmonyЖанр: ReligiousПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614CDD87C2DFF684A7E996135C0129F015CC9EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657967   (191532) от 07.09.2023
-
-Anuvida & Nik Tyndall - 3CD (1995-2005) [FLAC|Lossless|tracks +.cue] <New Age, Meditative, Reiki>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Mountains
-02. Wonderous Secrets
-03. A Dream in the Sky
-04. Healing Essence(   Читать дальше...   )Жанр: New Age, Meditative, ReikiПродолжительность: 02:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F21BECA983230409AA300718D9144176120E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657611   (191432) от 07.09.2023
-
-VA - Atomic Heart, Vol. 3 (Original Game Soundtrack) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191432.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Particles/кошечка/Atomic Heart - Prekrasnoe Dalyoko
-2. ScaryON/BassnPanda/Atomic Heart - BEA-D Theme
-3. Geoffplaysguitar/Atomic Heart - Colossus BEA-D
-4. ScaryON/BassnPanda/Atomic Heart - Electronica IM02(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116DDB3353491E7E849328DCDBDF8E39DACCAAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588642   (191063) от 06.11.2022
-
-VA - Knockin' on Heaven's Door (1997) [FLAC|Lossless|image + .cue] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gedanken Ьber Das Meer (0:45)
-02. Knockin' on Heaven's Door (4:02)
-03. Love And Rockets (3:24)
-04. Silver Whale (Single Version) (3:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43F4DF302B64818B4141733306852335C9B1785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588749   (191061) от 06.11.2022
-
-VA - Ambient for Relaxation & Meditation Vol. 2 (2022) [MP3|320 Kbps] < Meditation, Relaxing, Spa Music, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skifi - Rainbow Catchers
-02. Yu Nothing - Gathering on the Island  (Day Dream Mix by Masa)
-03. Inerflaya - Osti Reisen
-04. Chris Hauer - Sweet Sun(   Читать дальше...   )Жанр: Meditation, Relaxing, Spa Music, New AgeПродолжительность: 03:45:26 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85235082E5D274F0ED26F89021D386E9EC64EACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588100   (191048) от 06.11.2022
-
-James Last - Ocean Drive (Easy Living) (2001) [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crocketts Theme
-02. Ocean Drive
-03. Wo die Sonne scheint
-04. Orange Blossom Special(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3172019C98896181DCB48F576BED5D1A4CC76596
 ```
 
 https://mybot314.ru/tekegram_catalog/

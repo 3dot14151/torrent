@@ -1,3 +1,206 @@
+###  Публикация: 1430419   (173868) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 11 (2017) [AAC|~313 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Sunrays Melody (Piano Clouds Mix) (5:58)
+02. For Found Future - My Book of Dreams (Far Away Mix) (5:35)
+03. Jazzy System - The Next A (Deep Cool Mix) (6:27)
+04. Jean Mare - Vector (Wide Atmoshere Mix) (5:00)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B54577E7C5B6A91B04EAAFBA94F5B690F016AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430407   (173856) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 15 (2019) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Mare - Breath of Dawn (Atmosphere Voice Mix) (4:34)
+02. Book of Dreams - Master of Voices (Place of Mystic Sounds Cut) (4:19)
+03. Artenovum - Voyage (Enigmatic Spirit Mix) (5:04)
+04. Guardians of Secret - Endless Movements (Alchemy Mix) (5:06)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60603FF8A4D6A55B2CC45F9786A7853E680FC444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430448   (173837) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 8 (2016) [AAC|~323 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lebensart - Eastern Sunset (World Colours Mix) (5:03)
+02. Lebensart - Die Leichtigkeit des Seins (Klangteppich Mix) (5:34)
+03. Buddhatronic - Trance Icon (Modern Deep Choir Mix) (4:28)
+04. Jean Mare - Dandelons in Space (Deep Flow Ambient Lounge Mix) (7:21)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E90F4203C780E602F117450E5D22433073D4BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430412   (173828) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 13 (2018) [AAC|~311 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Deep Siberian Landscape (East River Long Mix) (4:35)
+02. Richard Bonnee - Reflecting (Deep Space Mix) (5:11)
+03. Jean Mare - Ns 10 (Deep Space Late Night Mix) (4:14)
+04. Artenovum - Mystic Island (Chilling Time Mix) (4:32)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D6A56C8A625763A9EEEA800105CFDEA130A7D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430409   (173816) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 14 (2019) [AAC|~309 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Dream Away (Deep Moods Chillout Mix) (5:24)
+02. Jean Mare - Light Score (Mystic Downbeat Mix) (4:45)
+03. Richard Bonnee - Cliffhanger (Deep Electronic Cut) (4:45)
+04. Pascheba - Mentira (Mystic Beat Mix) (5:21)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8675E166579C6948E4968780B295132359D74025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430457   (173809) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 6 (2015) [AAC|~305 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Der Moment (Wellness Deluxe Version) (6:33)
+02. Dream Project - Where Are You (Deep Moods Chillout Mix) (4:13)
+03. Jean Mare - Such a Lonely Time (Groovy Downbeat Mix) (4:11)
+04. Bernon - Waterline (Slow Motion Mix) (6:28)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAB91A559A4639EB96B2EEA5D210A64C16B0C29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430466   (173748) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 4 (2014) [AAC|~315 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lebensart - My Forest Time (Mystic Gregorian Voice Mix) (5:24)
+02. Artenovum - Timeline (Ambient Deluxe Mix) (4:58)
+03. Jean Mare - Et Cetera (Opus Chillout Mix) (6:31)
+04. Wallenski - Plektronica, Pt. 1 (7:30)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D903E67E9E0CAA347ECCD24E94672C5B177886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430464   (173739) от 10.12.2020
 
 VA - The Forest Chill Lounge, Vol. 5 (2014) [AAC|~318 Kbps] <Chillout, Lounge, Downtempo>
@@ -539,209 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3C0567480367C8A68CC849EC3984E5D9F226A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430812   (169945) от 11.12.2020
-
-Sody - real growth takes time (2020) [AAC|~273 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. butterfly (3:09)
-02. hold it all together (3:02)
-03. i'll be there (2:24)
-04. scary part of me (3:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6903C0F482C4078DB0E60AD389F683712CF3A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430717   (169906) от 11.12.2020
-
-Григорий Лепс - Честь имею! Мой первый срок (Высоцкий) (2020) [AAC|~329 Kbps] <Chanson, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой первый срок (2:01)
-02. Татуировка (2:07)
-03. Счётчик щёлкает (2:00)
-04. Я был душой дурного общества (2:10)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39F563738D278A19D9A2347F8A87FDC4C0C8E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430731   (169889) от 11.12.2020
-
-Григорий Лепс - Честь имею! Городской романс (Высоцкий) (2020) [AAC|~328 Kbps] <Chanson, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подумаешь, с женой не очень ладно (1:36)
-02. В пику, а не в черву (2:08)
-03. Попутчик (2:44)
-04. Про соседа-завистника (2:02)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED8023FD1CAC4546A3E965C0205F22D59E9EB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430707   (169880) от 11.12.2020
-
-Владимир Высоцкий - Оригинал пятый (октябрь - декабрь 1973 года) [Часть 1] (2020) [AAC|~182 Kbps] <Acoustic, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. «То ли в избу и запеть…» (3:31)
-02. Песенка про метателя молота (1:31)
-03. Песня командировочного (3:13)
-04. Песня про стукача (1:50)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:696865C06D514A7D4CD29F3E408CA8B621899E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430696   (169876) от 11.12.2020
-
-Владимир Высоцкий - Оригинал второй (май - декабрь 1972 года) [Часть 2] (2020) [AAC|~183 Kbps] <Acoustic, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Разведка боем (2:31)
-02. Золотая середина (2:57)
-03. Песня про белого слона (2:49)
-04. Песня лётчика (2:05)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BE4C860168759A1CEBECEB41FF5AE5D8C880C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430698   (169871) от 11.12.2020
-
-Владимир Высоцкий - Оригинал второй (май - декабрь 1972 года) [Часть 3] (2020) [AAC|~193 Kbps] <Acoustic, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тот, который не стрелял (2:42)
-02. Чужая колея (3:20)
-03. Мишка Шифман (2:57)
-04. Затяжной прыжок (4:42)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA75B34E87EB91EB1CAF2F4295B8B8095ECED0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430703   (169861) от 11.12.2020
-
-Владимир Высоцкий - Оригинал четвертый (1973 год) [Часть 2] (2020) [AAC|~187 Kbps] <Acoustic, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я был слесарь шестого разряда (1:27)
-02. «Передо мной любой факир - ну просто карлик…» (1:13)
-03. «Говорят, арестован…» (1:01)
-04. «Вот раньше жизнь!..» (1:44)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470BFC74DCF572519FE552B390498363E97D8DC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

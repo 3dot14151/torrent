@@ -1,24 +1,25 @@
-###  Публикация: 1446518   (1032757) от 09.02.2021
+###  Публикация: 1444164   (1034674) от 01.02.2021
 
-Downie 4 v4.1.17 [Multi/Ru]
+VA - New Italo Disco Music Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
 
->>Архив торрентов
->>Архив 4Apple
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 09.02.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
+01. Estimado - This My Lady Like the Night (Extended Version) (8:56)
+02. Birizdo I Am - Dont Go (Extended Version) (6:11)
+03. Diamond Rain - Mystic Night (Extended Version) (6:11)
+04. Nikita Fomin - I Dont Wanna Lose You (Extended Version) (6:28)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EF7AEF8B4C206A6D43DE66DA793795871A36C21
+magnet:?xt=urn:btih:B715BF61A3616A72D6086E3172CC50A7267516FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,220 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446492   (1032756) от 09.02.2021
+###  Публикация: 1444381   (1034673) от 01.02.2021
 
-Templates for Keynote - DesiGN 7.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Templates for Keynote - DesiGN - новый взгляд для ваших презентаций Keynote! Более 500 красиво структурированных, элегантных тем для Keynote дает вам огромную свободу, чтобы превратить вашу презентацию в победителя. Все темы разбиты на несколько тематических разделов - бизнес, путешествия, экология, портфолио, карты стран и др.
-Каждая тема включает в себя, по меньшей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2020Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA67E648BE3CAEB0007E83853BEFA5774657F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446533   (1032755) от 09.02.2021
-
-TinkerTool System 6 v6.97 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032755.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2021Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C4BD73617ADE10554B1CF9A0B78C6F5B55AA1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446593   (1032754) от 09.02.2021
-
-EXTSY - EDM Charts Rewind Mix 2020 (2020-12-30) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MEDUZA ft. Dermot Kennedy - Paradise
-02. Tiësto - The Business
-03. Robin Schulz ft. Alida - In Your Eyes
-04. Nea - Some Say(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669DEB5EDE0746B52EF7817F43F49C6122D3F6F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446521   (1032753) от 09.02.2021
-
-Hype 4 Pro v4.1.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hype открывает для пользователей возможность создавать красивые, интерактивные и анимированные веб сайты с использованием WYSIWYG-редактора, основной фишкой которого является автоматическая кодировка в HTML5 при экспорте готового материала.Тип издания: macOS SoftwareРелиз состоялся: 09.02.2021Разработчик: Tumult Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA15D73A5FF3DE507D87E2C6B0F7769D65092941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446486   (1032752) от 09.02.2021
-
-Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [MP3|320 Kbps] <Crossover Prog. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open My Eyes (03:27)
- 02. International Feel (03:07)
- 03. Can We Still Be Friends (04:39)
- 04. Collide O Scope (04:59)(   Читать дальше...   )Жанр: Crossover Prog. RockПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FC73B05DE939A71F9919265BC324353EECDA17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446212   (1032751) от 09.02.2021
-
-Сто к одному (07.02.2021) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B07B7937E9A2A59E39A5022DB1E95A1291FB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446581   (1032750) от 09.02.2021
-
-Fuerte & Daveepa - EDM Rewind Mashup Mix 2020 (2021-01-28) [MP3|320 Kbps] <Electro House, Big Room, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fuerte played:
-01. MEDUZA ft. Dermot Kennedy - Paradise (Instrumental) w/Topic ft. A7S - Breaking Me (Acappella) w/Robin Schulz ft. Alida - In Your Eyes (Acappella)
-02. David Guetta & MORTEN - Nothing w/BROHUG - Shatter
-03. Sixth Sense - Cyberpunk(   Читать дальше...   )Жанр: Electro House, Big Room, Bass HouseПродолжительность: 00:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583C042BB158F11D9F34F2BC44EBB2C1721129CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446511   (1032749) от 09.02.2021
-
-Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog. Rock>
+Syrinx Call - Mirrorneuron (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Open My Eyes (03:27)
-02. International Feel (03:07)
-03. Can We Still Be Friends (04:39)
-04. Collide O Scope (04:59)(   Читать дальше...   )Жанр: Crossover Prog. RockПродолжительность: 01:04:57
+01. Bit By Bit 05:29
+02. Deceptive Illusion 04:59
+03. The Arctic Will Die 04:19
+04. Breakdown 06:13(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:02:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6041EF2875EE34E4A18930BD7CB8B6E93955D58E
+magnet:?xt=urn:btih:98AEEF3A587FB10A105FC1D48C33ADF4019E04C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -247,387 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446605   (1032748) от 09.02.2021
+###  Публикация: 1444158   (1034672) от 01.02.2021
 
-Ka - Behind The Scenes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (5:48)
-02. Amsterdam (2:51)
-03. RS6 (3:19)
-04. Donker & Regen (2:51)(   Читать дальше...   )Производство: Hella CashЖанр: Hip-Hop, Abstract Hip-HopПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E148F6C0E24BECA56A4CFD5CD7FD28EE8599B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446539   (1032747) от 09.02.2021
-
-TinkerTool System 7 v7.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032747.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2021Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51228BD819B5D5AF1995F82E1D18EF0AACB81716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446501   (1032746) от 09.02.2021
-
-Олег Баянов - Воркута - Amsterdam (2009) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Авторитет
-02. Амстердам
-03. Воркута
-04. Воркута (ремикс)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92D044249C0FAB718D6A529F71C4346B7AFA42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446527   (1032745) от 09.02.2021
-
-VA - Espectrum II, EP2 (2021) AvantRoots [FLAC|Lossless|tracks|Vinyl] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulshar - Accept Fate (05:47)
- 02. Biodub - Unterfluss (08:04)
- 03. Heavenchord - Spacechord (07:32)
- 04. Julian Perez - Wolframio (06:27)Жанр: Dub TechnoПродолжительность: 00:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0484B885476A552615D6610B503B381613556543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446611   (1032744) от 09.02.2021
-
-Odessa Kane - Left to Bear Arms (2015) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LTBA Intro (0:30)
-02. Riot (2:50)
-03. 1994 (2:23)
-04. GPT (4:35)(   Читать дальше...   )Производство: Beatrock MusicЖанр: Hip-Hop, Underground Hip-HopПродолжительность: 00:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488E464D0B054C6C636E8E6BFE570737FC3E0067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446584   (1032743) от 09.02.2021
-
-Клайв Гриффорд | Космос за 30 секунд (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032743.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассказано о том, как образовалась вселенная и какое будущее ее может ожидать. Что такое звезды, и какие бывают типы звезд, что представляет собой солнце, и какие планеты входят в солнечную систему, какие бывают галактики, и как люди получают новые сведения о космосе.Жанр: Познавательная литература для детейПеревод: О. ПерфильевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB70CCF552A7A86E0E55952FBE93E084EA859560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446607   (1032742) от 09.02.2021
-
-Людмила Доманская | Каждый малыш хочет знать. Большие и маленькие машины (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш ребёнок живёт в особом мире, где есть большие — любящие его взрослые — и маленькие — такие же малыши, как и он сам. Если машинка стала одной из его любимых игрушек, эта книга окажется для крохи прекрасным подарком. На её страницах представлены машины всех видов и размеров. Пора познакомиться с ними поближе, узнать, где они работают, как помогают людям, и, самое (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E8001482BEFB8B6F602D8C8EB3CB705A932D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446429   (1032741) от 09.02.2021
-
-VA - DNBB Recap 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R-Vee - Let It Go (05:28)
-02. Simplification - Sunset (04:29)
-03. Jungie, Mystific - Dare (06:48)
-04. Mystific - The Sun (System & Wise Remix) (04:58)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BAFFB0D7B1AFD5D481CFED4A8CACB54314950D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446490   (1032740) от 09.02.2021
-
-iA Writer 5.6.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2021Разработчик: Information Architects Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BD1CA23E7496CB898113885B28811B0BEB2F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446572   (1032739) от 09.02.2021
-
-Екатерина Рождественская | Балкон на Кутузовском (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адрес – это маленькая жизнь. Ограниченная не только географией и временем, но и любимыми вещами, видом из окна во двор, милыми домашними запахами и звуками, присущими только этому месту, но главное, родными, этот дом наполняющими.
-Перед вами новый роман про мой следующий адрес – Кутузовский, 17 и про памятное для многих время – шестидесятые годы. Он про детство, (   Читать дальше...   )Жанр: Современная отечественная прозаПродолжительность: 08:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87DCD28FCAA1D280B3C49161D9F2ED7FE26763B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446558   (1032738) от 09.02.2021
-
-Роско Арбакл. Семейная жизнь Мейбл и Фатти / Mabel and Fatty's Married Life (1915) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбежавшая обезьяна забралась в дом Мейбл и Фатти. А Мейбл кажется, что их дом хотят ограбить.Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Роско АрбаклАктеры: Мэйбл Норманд, Роско Арбакл, Дэн Альбертс, Джо Бордо, Джимми Брайант, Мэй Буш, Глен Кэвендер, Элис Девенпорт, Фрэнк Хэйес, Элис ХауэллПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F5B810E3E3D6D0448F1FEC13DFF2E415B5FBAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446613   (1032737) от 09.02.2021
-
-Карин Фоссум | Инспектор Конрад Сейер (Книга 2). Не оглядывайся! (2019) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пропала шестилетняя девочка. Какой-то подозрительный тип увез ее в автомобиле, и читатель замер в ожидании ужасного преступления.
-Но события принимают неожиданный оборот: у маленького лесного озера полиция находит тело другой — пятнадцатилетней девочки.
-В небольшом городке, где все друг друга знают, в нормальных, на первый взгляд, семьях скрываются страшные тайны. (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E95A4BA5E7DE68FA1A2C58AF3E39C4CA7E23C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446623   (1032736) от 09.02.2021
-
-Nas - King's Disease (2020) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King's Disease (1:51)
-02. Blue Benz (2:21)
-03. Car #85 (feat. Charlie Wilson) (3:28)
-04. Ultra Black (feat. Hit-Boy) (3:18)(   Читать дальше...   )Производство: Mass Appeal – MSAP0094CDЖанр: Hip-HopПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DA37896B51444D7B632270D2644ECC81972799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446610   (1032735) от 09.02.2021
-
-J.J. Mack - You Can Make It Dancin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+VA - New Italo Disco Music Vol. 6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Street Dancin' (5:02)
-02. Hang On Sloopy (5:34)
-03. You Can Make It Dancin' (5:01)
-04. Na, Na, Hey, Hey, Kiss Him Goodbye (5:01)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:20:37
+01. Estimado - I Bridge New Life (7:07)
+02. Kristian Conde - Don't Give It Up (Maxi Version) (4:45)
+03. The Crosslines - Starlight (Maxi Version) (5:17)
+04. Nation In Blue - I Want U (Extended Version) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39AADE04907E3F75F10023F3BD30039467B72996
+magnet:?xt=urn:btih:F7E3C43FC3D96F4818B62DE17A87167F2808CA6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,25 +85,136 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446573   (1032734) от 09.02.2021
+###  Публикация: 1443818   (1034671) от 01.02.2021
 
-Национальный лес Бриджер-Титон / Bridger-Teton National Forest (2018) WEBRip [H.264/2160p]
+The Cancel - Diversity (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:16)
+02. Pending (01:42)
+03. 5 Year (03:00)
+04. Other Content (02:14)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F711C1DC28A76BE3724BAF79EBCB643AE9D9CA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444416   (1034670) от 01.02.2021
+
+Privacy Eraser Free 5.8.0 Build 3816 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9876DF1430B6BA05BFD7C668A4AA58C5F3DF7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444480   (1034669) от 01.02.2021
+
+Тайна Марики Рекк (2012) DVB
+
+>>Документалистика и Телепередачи
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему одни считали Марику Рёкк русской шпионкой, а другие – любовницей Канариса, работавшей на немецкую разведку? Почему в судьбе Марики Рёкк – единственной немецкой актрисы – Советский Союз принял такое большое участие? Об этом в документальном расследовании "Совершенно секретно" рассказывают дочь Марики Рёкк – Габриэла Якоби, её партнер по танцам Клаус (   Читать дальше...   )Производство: РоссияЖанр: Документальный, биография, история, расследованиеРежиссер: Алексей АленинЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910A2BDCA73B145ADD66DF73B8B2E911B7C415C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444405   (1034668) от 01.02.2021
+
+Dave Dee, Dozy, Beaky, Mick and Tich - The Best of (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold Tight (2:51)
+02. The Wreck of the Antoinette (3:24)
+03. Save Me (3:19)
+04. Here's a Heart (3:29)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CB2A1E68F46A331CBAC3CB8073D30AD106A0C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444283   (1034667) от 01.02.2021
+
+Город льва поднимается / Lion City Rising (2020) WEBRip [H.264/2160p]
 
 >>Документалистика и Телепередачи
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Исследуйте высокие горные вершины, скалистую и красивую пустыню, кристально чистые альпийские озёра. Изобилие дикой природы и безграничные возможности для отдыха - это Бриджер-Тетон.Производство: СШАЖанр: Документальный, видовойРежиссер: Братья ПаттисПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:24
+Сингапур пережил невероятные изменения за последние 8 лет, и я попытался запечатлеть как можно больше из них. В этом фильме не использовались постоянные камеры, требовалось регулярное посещение объекта в течение 988 съёмочных дней и более 3300 снятых кадров.Производство: СингапурЖанр: Документальный, видовойРежиссер: Кейт ЛутитПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85F9D7110C2D1DA5D074541772E3153BD38CF5E7
+magnet:?xt=urn:btih:262C9A652384858FD6A2BC15242392056C9DD66E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,27 +222,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446597   (1032733) от 09.02.2021
+###  Публикация: 1444306   (1034666) от 01.02.2021
 
-Андрей Мерников, Ирина Попова | 200 любимых страниц для почемучек. Что? Когда? Зачем? Почему? (2017) [PDF]
+VA - Silent Shore: Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Lyf - Alive (Extended Mix)
+02. Christopher Corrigan - Sleepless Nights (James Kitcher & Adam Taylor Remix)
+03. Andy Kern (DE) - Accelerate (Original Mix)
+04. Drival - Momentum (Triode Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94861E05647C8CE52DB7887C28AEB6D85E5F038B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444313   (1034665) от 01.02.2021
+
+Mountain Duck 4.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mountain Duck позволяет монтировать любой удаленный FTP, SFTP, WebDAV, Azure Cloud Storage, S3, Google Cloud Storage, Google Drive и OpenStack Swift как локальный диск в Finder.
+В приложении реализована поддержка всех основных протоколов для подключения к любому серверу.
+Открывайте файлы на удаленном сервере любым приложением и работайте как на локальном томе, а (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2021Разработчик: David KocherПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF5010CDC3F70774BE43EBE0DED73443C721E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443821   (1034664) от 01.02.2021
+
+The Cancel - Reply from Space (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro from space (01:46)
+02. Ghost (01:42)
+03. NY in night (02:49)
+04. Lullaby from the moon (03:11)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A78E16D9D4F6560794FFF40755174A90C7B68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444438   (1034663) от 01.02.2021
+
+Светлана Колчина | Русский язык. Сочинение на ЕГЭ по новым критериям. Карманный справочник (2019) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В твоей голове то и дело возникают миллионы вопросов и тебе, конечно же,хочется знать ответ на каждый из них? Прочитай эту книгу — и ты восполнишь все пробелы в своих знаниях, изучив такие темы, как Вселенная и космос, человек и его здоровье, животные, наука и техника, окружающий мир!
-
-Ты будешь в курсе абсолютно всего: что такое йодль, когда появился список чудес (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+Книга содержит пошаговые рекомендации по написанию сочинения на ЕГЭ по русскому языку. Приводится анализ критериев оценивания с пояснениями и комментариями, подробный алгоритм написания, а также образцовые сочинения на основе различных по проблематике текстов. В пособии учтены все изменения в системе оценивания сочинения по русскому языку в 2019 году.
+Издание адресовано (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E2F569CDD0EB65809BD08AE89964B336F494E5E
+magnet:?xt=urn:btih:7473C8284D811B0B22843D0BEE88108F1AC3939C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,25 +335,378 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446488   (1032732) от 09.02.2021
+###  Публикация: 1444167   (1034662) от 01.02.2021
 
-KPlayer 2.1.0 [En]
+VA - New Italo Disco Music Vol. 9 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
 
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-KPlayer - простой и надежный видеоплеер для Mac OS с поддержкой субтитров и аппаратного ускорения H.264/HEVC, для более гладкого воспроизведения видео в формате 1080p и 4K.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: BoHoon KimПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+01. The Crosslines - To The Space (Extended Version) (5:15)
+02. Diamond Rain - Follow The Rainbow (Extended Version) (5:14)
+03. Birizdo I Am - Just Tonight (Maxi Version) (5:45)
+04. Nikita Fomin - When You Said Goodbye (Extended Version) (5:49)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:10:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10F8A67127C3D45C1211BFFA9466F82A98EA0091
+magnet:?xt=urn:btih:510820729A69B51402EE176A6E5D170E64221B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444163   (1034661) от 01.02.2021
+
+VA - New Italo Disco Music Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - A Voice in the Dark (Bringing The Light Mix) (6:49)
+02. TDHDriver - Leave Russia (4:17)
+03. Digitalo - Say Yes (Extended Version) (6:52)
+04. Birizdo I Am - Unbelievable (Extended Version) (7:11)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074BE9222363B9903AA1BFD7A28A99500E067C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444425   (1034660) от 01.02.2021
+
+О. Артемова | 200 интересных фактов (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что любят есть зайчата? Умеет ли ворона петь? Что такое баллиста? Как изобрели очки? Об этом и многом другом узнает маленький читатель из замечательной иллюстрированной книги, в которой собраны самые интересные факты об окружающем мире.
+
+Для младшего школьного возраста.Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8464D7A596F108A49EFA8CB789B17F1AC9E9050D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444278   (1034659) от 01.02.2021
+
+Михаил Полюга | Прискорбные обстоятельства (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034659.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Евгений Николаевич, что-то затевается, не знаю достоверно что, но… одно знаю: подлянка! Мне кажется, вас взяли в разработку», — тихо сказал опер прокурору, отведя его за угол. В последнее время Евгению Николаевичу и так казалось, что жизнь складывается из ряда прискорбных обстоятельств. Разлаживаются отношения с руководством. Без объяснения причин уходит жена, оказывается (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 17:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD6A9F7C47E6CD91DA659E94D325F3B6D1D0173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443694   (1034658) от 01.02.2021
+
+E-Trophee Andros. Сезон 2020-2021. Этап 5. Валь Торренс. Гонка 1-2 (29-30.01.2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034658.jpg" />
+</div>
+
+
+###  Подробнее
+
+E-Trophee Andros — французский национальный чемпионат по автогонкам на ледяных трассах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:29:50 + 01:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD011240BD18786095B4D996E2EEC119F17C5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444424   (1034657) от 01.02.2021
+
+Секрет равновесия (2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной 1911 года в Петербурге отмечался юбилей первой отечественной железной дороги – Царскосельской. По случаю этого знаменательного события Русское техническое общество устроило выставку, "гвоздём" которой была модель гироскопической железной дороги. По одному единственному кольцевому рельсу, проложенному в зале, бойко бегал маленький состав из трёх вагончиков. (   Читать дальше...   )Производство: Россия, ТК "Культура", ООО "Под знаком Пи"Жанр: Документальный, познавательный, научно-популярныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD824FC3950E1FBE9ED862E16AC0EDE657770EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444144   (1034656) от 01.02.2021
+
+VA - New Italo Disco Music 1 (Selected by DJ Adamski) (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Split Mirrors - The Right Time (Digimax Remix) (5:23)
+02. Amaretto - Through the Night (Extended Version) (8:00)
+03. Estimado - Your Eyes (Extended Version) (9:29)
+04. Birizdo I Am - I Love Italo Disco (Extended Version) (6:48)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8012F8F9D72E5DCA72F1D8B79E2E5E24D2635660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444487   (1034655) от 01.02.2021
+
+Биографии: Кельвин Кляйн - джинсовый король / Biography - Calvin Klein: A Stylish Obsession (2006) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034655.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце 70-х американская общественность была шокирована появлением на рекламных плакатах юной Брук Шилдс в чрезвычайно непристойном, по мнению пуританских Штатов, виде. Нет, все, что могло вызвать нарекания, было целомудренно прикрыто одеждой, и все-таки... все-таки фото Брук в джинсах от Кляйна вызвало целый скандал. Девушку сочли слишком юной, фото - слишком эротичным. (   Читать дальше...   )Производство: СШАЖанр: Документальный, биография, историяРежиссер: Алан ГолдбергПеревод: Двуголосый закадровый, профессиональный (ТРК «Петербург-Пятый канал»)Субтитры: отсутствуютПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA641215B05837028F5396DC9C08DD8F3922186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444404   (1034654) от 01.02.2021
+
+Стамбул / Istanbul (2020) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это мой первый таймлапс-фильм, состоящий из 4500 кадров, который я создал, объединив несколько десятков интервальных видео, снятых мною за 6 месяцев.Производство: ТурцияЖанр: Документальный, видовойРежиссер: Тарик СанджаклыПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15540CAD5827B8EFEC360E731F3550BAB3E6159E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444310   (1034653) от 01.02.2021
+
+VA - Acoustic Versions of Pop Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talisha Karrer - Hazard (03:30)
+02. Shannon & Keast - Jealous (04:32)
+03. Landa - Nothing Breaks Like a Heart (03:44)
+04. Logan York - Stay with Me (03:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2D8947FDDB4E485A2FEF0A3B58AE682D322DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444322   (1034652) от 01.02.2021
+
+Эдуард Веркин | Звездолет с перебитым крылом (2020) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга состоит из двух частей «Звездолёт с перебитым крылом» и «Каникулы что надо», и в этом виде издается впервые. Это очень важно, потому что в первой части мы видим один мир, во второй другой, но только прочитанная целиком история позволяет читателю увидеть третий мир, намеренно скрытый автором.Жанр: Социальная фантастикаФормат: M4BПродолжительность: 09:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBFB0B50D0D4FD3FCA505EFE8426CFF10FD6B026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444277   (1034651) от 01.02.2021
+
+А.В. Блинский (сост.) | Азы Православного Богослужения (2001) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034651.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу книги положен труд протоиерея Александра Рудакова «Краткое учение о Богослужении Православной Церкви», написанный более века назад в соответствии с программой «для испытания желающих получить аттестат в знании предметов гимназического курса». Мы сочли необходимым дополнить и объяснить некоторые тезисы автора, указать особенности сегодняшнего Богослужения, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C88D34B359E0FA03F3A643A014326B6E1D0EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444284   (1034650) от 01.02.2021
+
+Татьяна Степанова | Колесница времени (2019) [MP3, Леонтина Броцкая]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разве могла Катя Петровская, сотрудница Пресс-службы ГУВД Московской области, представить себе, какие жуткие события впереди связаны с таким простым на первый взгляд убийством шофера из богатого дома на темной аллее у железнодорожной станции? Но в ОВД «Прибрежный» майор Лиля Белоручка не считала это дело простым, что-то ее настораживало.
+Два убийства, произошедшие (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCA6F9848E6A5FE726CE90A93B701AB4CEE327A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444483   (1034649) от 01.02.2021
+
+Брижит Бардо. Эволюция любви (2010) DVB
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она была самой желанной женщиной на планете. Миллионы мужчин готовы были отдать всё за один её поцелуй. Кинематографисты выстраивались в очередь, предлагая баснословные гонорары. Брижит назвали символом 50-х, она ввела в моду купальник-бикини, прическу "бабетта", а ее бюст в 70-м году стал моделью для символа Франции - Марианны...Производство: РоссияЖанр: Документальный, биографияРежиссер: Александр ГоршановЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B7C0803F0346CF8EBE66B337A130BFAEC017E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

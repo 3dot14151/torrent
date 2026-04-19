@@ -1,3 +1,29 @@
+###  Публикация: 1323602   (435811) от 04.09.2019
+
+Desktop Wallpapers Full HD. Part (509) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DD9FC2AF30E9B27B523688CB07C90AFAA4DE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323600   (435805) от 04.09.2019
 
 Desktop Wallpapers Full HD. Part (508) [JPG]
@@ -652,32 +678,6 @@ Wallpapers - Обои для рабочего стола - Разное (13000 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C37864AC0DFC36AA3B98BAFB32E3403146A7E503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411202   (429391) от 24.09.2020
-
-Картинки - Views of Europe Wallpapers [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429391.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1920x1200-7952x4473
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AFAA05D87B287D3CFEBD9A00DC6F100A36AE51
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 911396   (618310) от 22.06.2015
+
+Marina Kaye - Fearless (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homeless (3:41)
+02. Mirror Mirror (3:49)
+03. Dancing With The Devil (3:38)
+04. Sounds Like Heaven (ft. Lindsey Stirling) (4:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3989946097E9437C4851C97FBECCFE8884FD7FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911400   (618150) от 22.06.2015
+
+Ben Liebrand - Iconic Groove (2015) 2CD [MP3|320 кб/с]<70's Retropop, Synth Pop, Disco, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618150.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Weekend (feat. James ''D-Train'' Williams) (06:54)
+02. We Are the Night (feat. James ''D-Train'' Williams) (06:17)
+03. Get On Up (feat. Caroline Dest) (06:55)(   Читать дальше...   )Жанр: 70's Retropop, Synth Pop, Disco, FunkПродолжительность: 02:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CDBA705C66809FED4CF3DE8D57FD792A8600CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145936   (618079) от 27.06.2017
 
 Paradisio - Greatest Hits (20th Anniversary) (2017) [MP3|320 Kbps] <Eurodance, Pop>
@@ -693,64 +751,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD3203611E548756FFAF198AF11EA0FFB5F0EF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296530   (611849) от 17.04.2019
-
-VA - Happy Easter Dance 3 (2019) [MP3|320 Kbps] <Dance, Clubce>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Street - Stars (DJ THT Remix Edit)
-02. Shaolin Master ft. Ruby Blu - Party Hard (Fairfield Radio Edit)
-03. Tale & Dutch ft.Bart Reeves - The Message (Reload) (G! Bootleg Edit)
-04. DJ Sanny J;Fabrizio E Marco - Everyday (D@nydj Edit RMX)(   Читать дальше...   )Жанр: Dance, ClubceПродолжительность: 02:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1CFBE47266A65A43D02D9EEEF851CE894CB539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296524   (611847) от 17.04.2019
-
-VA - Ballermann Die Hits 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611847.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Isi Glck - Das Leben ist ne Party (Harris Ford 3:58
-002. DJ Robin - Cordula Grn 3:04
-003. DJ Malle - Helikopter 117 (Mach' den Hub Hub Hub) 4:06
-004. Partynator - Mama Laudaaa 3:39(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D9B3B5072A5995DB8A24940B045B127A2A2638
 ```
 
 https://mybot314.ru/tekegram_catalog/

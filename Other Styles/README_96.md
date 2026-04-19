@@ -1,3 +1,224 @@
+###  Публикация: 530990   (542289) от 05.08.2012
+
+Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Namania (4:09)
+2. N'tesse (4:31)
+3. Africa (4:50)
+4. Fimani (4:26)
+5. N'ba (4:38)
+6. Mali Ba (4:42)
+7. Barra (3:46)
+8. N'Teri (4:34)
+9. Nta Dima (3:03)
+10. Massake (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531222   (542043) от 05.08.2012
+
+Two Steps From Hell - Nemesis (2007) [MP3|320 кб/с]<OST Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542043.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dark Ages (3:29)
+ 2. Nemesis (1:23)
+ 3. Clash Of Empires (3:07)
+ 4. Atlantis (2:02)
+ 5. Army Of Justice (2:05)
+ 6. Tristan (2:38)
+ 7. Road To Revelation (2:01)
+ 8. God Of Lightning (2:04)
+ 9. Sons Of War (1:57)
+ 10. The Immortals (2:13)(   Читать дальше...   )Жанр: OST ScoreПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9721AEEAEEA00DF6475386F781FC60DE54E4C1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531355   (541830) от 05.08.2012
+
+Astor Piazzolla - Edicion Critica (2005) 7CD [FLAC|Lossless]<Latihin, Tango>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invierno Porteno [08:24]
+02. Verano Porteno [03:55]
+03. Otono Porteno [06:01]
+04. Primavera Portena [05:33]
+05. Buenos Aires Hora Cero [04:03]
+06. Retrato De Alfredo Gobbi [07:47]
+07. Revolucionario [05:22]
+08. Kicho [06:24]
+09. Casa Pueblo [03:53]
+10. Flaco Aroldi [02:36](   Читать дальше...   )Жанр: Latihin, TangoПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049929   (541573) от 06.09.2016
+
+Ocean Waves For Sleep - Collection Of Ocean Sounds (2016) [MP3|320 Kbps] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean SoundsRefreshing Sleep
+02. Ocean SoundsBeach Paradise Relaxation
+03. Ocean SoundsParadise
+04. Ocean SoundsCalm Ocean(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E02D10C559A79FE226B39A7CE90625CE503B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925471   (541322) от 06.08.2015
+
+Kaan Luum - Potala Mousse (2015) [MP3|320 кб/с]<New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Space
+02. Feathers
+03. Silver Lake
+04. Letter from Kaan Luum(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80738A44B01C470FDEBDCDE99B75C8E6C9717639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925308   (541109) от 06.08.2015
+
+Claude Ciari - Sentimental (2003) [FLAC|Lossless]<Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shinobi Meet Yogiri
+02. White Guitar
+03. Leave the Lapse Of Time
+04. See No One(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37415B47166AC4C3853DF024A9B2E912130C4EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925493   (541102) от 06.08.2015
+
+VA - LOVE Instrumentals (2002) [FLAC|image+.cue]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже сама восточная интерпретация известных лирических треков в таком инструментальном исполнении была для меня интересна. Но, к тому же, она ещё оказалась и очень мелодична. Думаю, что эти "любимые инструменталки" станут любимыми и для Вас.01. original singer LEANN RIMES - Can't Fight The Moonlight (Theme from 'Coyote Ugly')  (3:38)
+02. original singer SAVAGE GARDEN - I Knew I Loved You  (3:58)
+03. original singer CELINE DION - My Heart Will Go On (Love Theme from 'Titanic')  (4:37)
+04. original singer MARIAH CAREY - Without You  (3:38)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A565A5B66C7F8951438747B3B762211EDB32D819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050149   (540756) от 07.09.2016
 
 Timothy Olson - Bedtime (2016) [MP3|320 Kbps] <Electronic, Easy Listening, New Age>
@@ -570,229 +791,6 @@ James Last - James Last and his Orchestra play music of Andrew Lloyd Webber (199
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECBE08DADAA00BA6153BDE2B124C3FA23D8AB2D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310637   (538018) от 01.07.2019
-
-VA - A Native American Odyssey- Inuit to Inca (1998) [MP3|320 Kbps] <Native American, World, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kashtin - Akua Tuta (Montagnais/Canada (4:57)
-02. Tudjaat - Qiugauiit (Inuit/Canada) (2:39)
-03. Andrew Vasquez - Wind River (Apache/USA) (2:01)
-04. Bill Miller - Ghost Dance (Mohican/USA) (3:38)(   Читать дальше...   )Жанр: Native American, World, FolkПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1159B63943F062A1AB6917C9016ACE770CBF89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531579   (537754) от 07.08.2012
-
-Raymond Lefevre et Son Grand Orchestre - Japanese Limited Mini LP SHM-CD (6CD) (1965-1976/2009) [FLAC|Lossless]<Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Porque te Vas
-02 - Je Vais Taimer
-03 - Qu'est-ce Qui Fait Pleurer Les Blondes
-04 - Je T'Aime Tu Vois
-05 - Save Your Kisses For Me
-06 - Le Concerto de La Mer
-07 - Derriere L'Amour
-08 - Avan de Nous Dire Adieu
-09 - Et Mon Pere
-10 - Ca Va Pas Changer Le Monde(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A519CA2197453D2882ACE26C78161AA93128C8DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 367016   (536909) от 23.07.2011
-
-VA - The World Of The Spanish Guitar Vol. 1 /2CD/ (2011) [MP3|320 kbps]<Instrumental, Flamenco, Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 201101. Ottmar Liebert . . . . . . . .  The Night . . . . . . . . . .  4:21
-02. Govi . . . . . . . . . . . . .  Mosaico . . . . . . . . . . .  5:26
-03. Oscar Lopez. . . . . . . . . .  Bailando Rumba. . . . . . . .  4:13
-04. Vicente Amigo. . . . . . . . .  Pan Caliente. . . . . . . . .  5:42
-05. Tomatito . . . . . . . . . . .  Paseo los Castanos. . . . . .  4:53
-06. Jesse Cook . . . . . . . . . .  Breeze from Saintes Maries. .  5:23
-07. Armik. . . . . . . . . . . . .  Moonlight Cafe. . . . . . . .  4:46
-08. Robert Michaels. . . . . . . .  Cupid's Dance . . . . . . . .  4:57
-09. NovaMenco. . . . . . . . . . .  Lorca . . . . . . . . . . . .  3:13
-10. Pavlo. . . . . . . . . . . . .  Midnight Dance. . . . . . . .  3:24(   Читать дальше...   )Жанр: Instrumental, Flamenco, GuitarПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0DBE3B81CA95A93A18EC23923D86BC70EEA1C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239400   (536844) от 06.08.2018
-
-Mythos - Eros (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kawakari (4:29)
-2. Eros (4:48)
-3. Catana (4:16)
-4. Allure (4:34)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:21:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108088BCEA081F282B1C486AFD788446A3E47F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311625   (536387) от 02.07.2019
-
-Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epiphany [03:03]
-02. Turning Point [03:17]
-03. Reflection [03:23]
-04. Innocence [02:55](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2C31713C78A248D82E7BC1B0732A32D7A14624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311630   (536318) от 02.07.2019
-
-Atom Music Audio - EON II (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serene [03:36]
-02. Oceans Apart [04:43]
-03. Wings of Eternity [03:38]
-04. Celestial Sphere [03:47](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729FA7D60079502A13E66370D94493A74D053C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532827   (536166) от 08.08.2012
-
-Raimonds Pauls / Раймонд Паулс - Zelta 60 (2CD) (1996) [MP3|320 кб/с]<Pop,Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ояр Раймонд Паулс (латыш. Ojrs Raimonds Pauls; (р. 1936) — советский и латвийский композитор, дирижёр, пианист, политический деятель. Народный артист СССР (1985). Почётный доктор Латвийской академии наук.
-Автор музыки множества эстрадных хитов, мелодий к фильмам. Инициатор международных конкурсов молодых исполнителей популярной музыки «Юрмала» и «Новая волна».
-В 1958 Раймонд Паулс получил высшее образование в Латвийской государственной консерватории им. Я. Витола, у профессора Германа Брауна по классу фортепиано. После окончания курса в 1958 году Раймонд Паулс работал в Рижском эстрадном оркестре, выступал с концертами в Грузии, Армении, на Украине. С 1964 года до начала 1970-х годов являлся руководителем этого оркестра.1. Kurzeme (3:11)
- 2. Perlu Zvejnieks (3:19)
- 3. Pie Juras Dzive Mana (3:59)
- 4. Vella Kalpu Dziesma (2:16)
- 5. Ta Es Tevi Milesu (2:50)
- 6. Tris Runci (3:58)
- 7. Genoveva (3:25)
- 8. Kerijas Dziesma (3:27)
- 9. Vieglpratiga Sirds (3:19)
- 10. Tala (3:27)(   Читать дальше...   )Жанр: Pop,InstrumentalПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D4A7701FD0A7959F61706CD4047CFB39A030A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

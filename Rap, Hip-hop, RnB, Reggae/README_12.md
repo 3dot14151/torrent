@@ -1,3 +1,32 @@
+###  Публикация: 1511201   (789364) от 20.11.2021
+
+Bahh Tee - 33 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белые Найки [04:24]
+02. Ветер и Берёза (feat. Turken) [06:43]
+03. Три сестрёнки [02:56]
+04. Прожигаю [02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC1661988A2B58D9C2A7084506D17558896D90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511205   (789361) от 20.11.2021
 
 ST - Высотка (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ MiyaGi & Эндшпиль - HAJIME Part.1 (2016) [MP3|256-320 кб/с] <Rap, Hip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD1D58B83BED1CD7BC0444A50D33661F84C1113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212646   (775034) от 13.03.2018
-
-Грот - Лучшее (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Обитатели рая
-02. Лиза
-03. Кровь с кислородом
-04. Рубежи(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB7E7134B33A3713024DB5071E3548D4A43749A
 ```
 
 https://mybot314.ru/tekegram_catalog/

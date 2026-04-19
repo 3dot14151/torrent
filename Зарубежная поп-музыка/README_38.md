@@ -1,3 +1,61 @@
+###  Публикация: 1547225   (603436) от 27.04.2022
+
+VA - DMC Dance Mixes 299 (2022) [MP3|320 Kbps] <House, Tech House, Bassline, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aluna & Diplo & Durante - Forget About Me (Club Mix)
+02. Blinkie Ft. Izzy Bizu - Wind Blows (Extended)
+03. Burns - Talamanca (AmyElle Extended Remix)
+04. Chapter & Verse - You Know It's Time (Extended)(   Читать дальше...   )Жанр: House, Tech House, Bassline, VocalПродолжительность: 01:19:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED57D06FF835547A5E189AF948D39CF5F186A675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547221   (603434) от 27.04.2022
+
+VA - DMC Dance Mixes 298 (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alesso & Katy Perry - When I'm Gone (VIP Extended)
+02. Clean Bandit Ft. A7S - Everything But You (VIP Mix Extended)
+03. Deekline & Project 5 - Without You (Extended)
+04. Disco Fries - Family Affair (Hawk & Beyge Extended Remix)(   Читать дальше...   )Жанр: House, Breaks, Dance-pop, VocalПродолжительность: 01:18:14 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E1E58586C7095570386D0CAD64C5C97004A595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547227   (603427) от 27.04.2022
 
 VA - DMC Dance Mixes 299 Ibiza (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, Vocal>
@@ -693,64 +751,6 @@ n.Lannon - Falling Inside (2015) [OGG|444-549 кб/с]<Indie Pop Folktronica, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90803976D2464EF7E4782A6CCE9D5EE825F3731F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299727   (594969) от 04.05.2019
-
-VA - Schlager für Alle 4 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594969.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Eloy de Jong - Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
-02. Thomas Anders feat. Florian Silbereisen - Sie sagte doch sie liebt mich(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E8CA5FA17B3038ABE10DEF86FE3C88489B8A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299909   (594724) от 04.05.2019
-
-VA - 110 Hits 2019 Vol.2 (2019) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594724.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Angèle - Tout oublier
-02. Pedro Capó - Calma (Remix)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 06:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2000C344FAA031EBF5F1F87C8DD21A2F5BE1E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -524,7 +524,7 @@ Maki Goto - 4 albums + 3 Eps (2003-2011) [FLAC|Lossless]<JPop,dance,hello projec
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_832102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_832102.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Cally Kwong - 4 albums[selected] (1986-1993) [FLAC|Lossless]<Chinese,Hongkong,di
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_821391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_821391.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Heartsdales - 2 альбома (2005-2006) [FLAC|Lossless]<J pop, Jurban, hip-ho
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_811999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_811999.jpg" />
 </div>
 
 

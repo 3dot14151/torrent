@@ -1,3 +1,61 @@
+###  Публикация: 1492121   (902474) от 30.08.2021
+
+VA - Guided By The Heart (2021) [MP3|320 Kbps] <Alternative, rock indie>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902474.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Atlas Mountains - Coucou
+002. Baits - Feelings
+003. Major Murphy - Blind
+004. Elbow - Can't Stop(   Читать дальше...   )Жанр: Alternative, rock indieПродолжительность: 07:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383CC47F80861E615EEEA1112CD22EA654902DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492082   (902412) от 30.08.2021
+
+VA - Afro Bass (2021) [MP3|320 Kbps] <Jungle, D&B, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902412.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Hybrid - Badboy
+002. Jungle Department - Side A
+003. Kumarachi & Dj Hybrid - Never Stop
+004. Deekline, Ed Solo - Bam Bam(   Читать дальше...   )Жанр: Jungle, D&B, Electro BassПродолжительность: 07:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616E322F0A05DFDC397E4CAE1E97DC56B44A82F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492123   (902406) от 30.08.2021
 
 VA - NRW: Clubbing Tech House (Vol.01) (2021) [MP3|320 Kbps] <Club, Dance, Tech House>
@@ -690,64 +748,6 @@ VA - Empire Records - Golden Drum (2017) [MP3|320 Kbps] <Dubstep, Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F32D7462509E8381FD27B86588B181333C42F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100509   (899784) от 04.02.2017
-
-VA - Empire Records - Romantic Drum (2017) [MP3|256-320 Kbps] <Dubstep, Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Slok - Story of my life (Original Mix)
-02. Samone - Here I Am
-03. Meg Myers - Desire (Hucci Remix)
-04. Vincent VEGA Feat Milaxa - Leave Behind (Ivan Spell Remix)(   Читать дальше...   )Жанр: Dubstep, Drum & BassПродолжительность: 01:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29403A43073418EDF3FE66D8256150E79DED29C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992661   (899302) от 03.03.2016
-
-VA - How Deep Is Your Love (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Festina Lente - Feel It - Fab Stellar Remix
- 02. Deep-X - See Things Around
- 03. Daniel Floor - Thinkin' About You
- 04. Colt! - Dub3m - Lowpole Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86984FB36682813D0F11B2FC48E902DDD8FDCACE
 ```
 
 https://mybot314.ru/tekegram_catalog/

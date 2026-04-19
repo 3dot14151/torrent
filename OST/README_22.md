@@ -1,3 +1,32 @@
+###  Публикация: 1337901   (271656) от 13.11.2019
+
+Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Merrymaker (01:19)
+02. Better Days Past (01:57)
+03. The Merrymaker Murderer (01:17)
+04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FE62A37521EAA41AC518433D793050DF0727A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338176   (270621) от 14.11.2019
 
 Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Complete Score) (2019) [MP3|320 Kbps] <Soundtrack>
@@ -740,35 +769,6 @@ Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:843E1C979723BC3193E22375AC6BBADD376745E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269518   (219897) от 15.12.2018
-
-Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hostage, Pt. 1 (07:29)
-02. Will & Sarah (03:56)
-03. Welcome To Heaven (02:40)
-04. Botha (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47619DFC3AEE548A6EF1EA4B617180FAAA8ACFC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

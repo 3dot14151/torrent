@@ -1,3 +1,32 @@
+###  Публикация: 1602256   (1046012) от 06.01.2023
+
+L'One (Леван Горозия) - Концерт с симфоническим оркестром (Live 8_X 2022) (2023) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро (Live 8_X 2022) [00:02:33]
+02 - Ракета, Твой день настал (Live 8_X 2022) [00:02:54]
+03 - Сон (Live 8_X 2022) [00:04:07]
+04 - Дорога (Live 8_X 2022) [00:03:24](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DC7AFE57BAF55F482EA643CD72D92355C320DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581379   (1045802) от 08.01.2023
 
 Вася Васин - 4 Albums (2009-2023) [MP3|320 Kbps] <Rap, Hip-Hop, Spoken Word>
@@ -714,35 +743,6 @@ The Cancel - Diversity (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F711C1DC28A76BE3724BAF79EBCB643AE9D9CA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443821   (1034664) от 01.02.2021
-
-The Cancel - Reply from Space (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro from space (01:46)
-02. Ghost (01:42)
-03. NY in night (02:49)
-04. Lullaby from the moon (03:11)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A78E16D9D4F6560794FFF40755174A90C7B68B
 ```
 
 https://mybot314.ru/tekegram_catalog/

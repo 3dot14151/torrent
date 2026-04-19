@@ -1,3 +1,32 @@
+###  Публикация: 1475214   (1012407) от 06.06.2021
+
+VA - Сборник 15-NP-Love Songs. Vol.1 (1994) [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ad Libitum - Поздно уже...
+02. М. Катаева – Боль
+03. Д. Медведев – Осень
+04. Л. Сегида – Последний поцелуй(   Читать дальше...   )Жанр: РорПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D56C59346C3BCAF63E32741AA826CBF5BE33F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475223   (1012392) от 06.06.2021
 
 Little Big - Covers (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rave>
@@ -719,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6DA37087B91B96DA74D64420825AA1E7F9EDE7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363288   (943752) от 27.02.2020
-
-Екатерина Разумовская - Остановка сердца (2005) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Остановка сердца
-02. О тебе, для тебя
-03. Наша история
-04. Кричи шёпотом(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F245DDEB55A5C84936D7B9F9EE8FEABBA05578
 ```
 
 https://mybot314.ru/tekegram_catalog/

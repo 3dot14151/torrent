@@ -1,3 +1,200 @@
+###  Публикация: 516625   (643508) от 03.07.2012
+
+Jorgen Ingmann - Guitar Romantic Collection, vol. 3 (1990) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643508.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:59) 01. Verde
+(2:58) 02. Stardust
+(2:16) 03. Blue Balloon
+(2:27) 04. This Is My Song
+(2:29) 05. La Balanga
+(3:52) 06. If We Only Had Time
+(2:15) 07. Marguerite
+(3:09) 08. Classical Touch
+(2:52) 09. I Am Just A Girl
+(2:49) 10. Nostalgia(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB3FDF880E2580208917F13C039F5CF6E1982C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517021   (643320) от 03.07.2012
+
+VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Well-Tempered Clavier (24), collection of preludes & fugues, Book I, BWV 846-869 (BC L80-103): P  [03:21]
+   Composer   Johann Sebastian Bach (1685 - 1750)
+
+ 02. Sonata for oboe & continuo in G minor, H. 549, Wq. 135: Adagio  [02:19]
+   Composer   Carl Philipp Emanuel Bach (1714 - 1788)
+   Performer   Rama Jucker (Cello), Ursula Holliger (Harp) & Heinz Holliger (Oboe)
+
+ 03. Prelude for piano No. 15 in D flat major, Op. 28/15, CT. 180  [05:58]
+   Composer   Frйdйric Chopin (1810 - 1849)
+   Performer   Marisa Robles (Harp)(   Читать дальше...   )Жанр: ClassicalФормат: 2CDПродолжительность: 01:08:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518135   (643313) от 03.07.2012
+
+VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeux Interdits ("Spanish Romance"), for guitar  [01:50]
+   Common Name   Spanish Romance, Jeux Interdits For Guitar
+   Composer   Anonymous
+   Performer   Pepe Romero (Guitar)
+
+ 02. Suite española No. 1, for piano, Op. 47, B. 7: Sevilla (Sevillanas)  [04:37]
+   Common Name   Sevilla Sevillanas, Suite Espanola 1 For Piano
+   Composer   Isaac Albйniz (1860 - 1909)
+   Performer   Eduardo FernandezЖанр: Classical GuitarФормат: 2CDПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292820   (643184) от 31.03.2019
+
+Андрей Дергачев - Возвращение (2004) [FLAC|Lossless|tracks + .cue] <Soundtrack, Ambient, Non-Music>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Под водой (2:04)
+02. Старик (1:43)
+03. Мелкий (0:13)
+04. В спальне (5:04)(   Читать дальше...   )Жанр: Soundtrack, Ambient, Non-MusicПродолжительность: 0:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB21847BF950E16EE6EBE34EDF84286E22FB88D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227868   (642902) от 28.05.2018
+
+Loreena McKennitt - Lost Souls (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642902.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Spanish Guitars and Night Plazas (06:41)
+2. A Hundred Wishes (04:34)
+3. Ages Past, Ages Hence (05:27)
+4. The Ballad of the Fox Hunter (05:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF54873E889E9CC7D6309EE38FA80EB79D37289D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518255   (642881) от 03.07.2012
+
+VA - Золотые Хиты Советского Кино - 2 Альбома (2011) [MP3|256 кб/с]<Soundtrack, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642881.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Песенка о шпаге (Достояние республики) (2:49)
+ 2. Ночной разговор (3:04)
+ 3. Синема (Человек с бульвара Капуцинов) (4:02)
+ 4. Разговор со счастьем (Иван Васильевич меняет профессию) (2:41)
+ 5. У природы нет плохой погоды - Служебный роман (3:00)
+ 6. Я пережил и многое, и многих ("О бедном гусасре замолвите слово") (3:16)
+ 7. Жалобы Марселлы ("Собака на сене") (2:07)
+ 8. Ветер перемен (3:56)
+ 9. Блиндажи той войны... (2:10)
+ 10. Берег Моря (Вперед Гардемарины) (2:31)(   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 05:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4988B1C8155DF6751FDF9C72B712AC20DE6968E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142580   (642704) от 14.06.2017
 
 Johnny Cash - The Real... Johnny Cash (2011) 3CD [FLAC|Lossless|tracks + .cue] <Country>
@@ -593,192 +790,6 @@ Miss Congeniality / Мисс Конгениальность (1-2 части) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3C0E1850EA919601FE185B496ADAFABC772C0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518974   (639111) от 05.07.2012
-
-Sex And The City 2 / Секс в большом городе 2 (2010) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639111.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alicia Keys - Rapture (4:47)
- 2. Dido - Everything to Lose (4:28)
- 3. Cee Lo - Language of Love (3:59)
- 4. Erykah Badu - Window Seat (4:50)
- 5. Natacha Atlas - Kidda (4:56)
- 6. Michael McGregor - Euphrates Dream (3:37)
- 7. Liza Minnelli - Single Ladies (Put A Ring On It) (3:13)
- 8. Ricki-Lee - Canґt Touch It (2:51)
- 9. Alicia Keys - Empire State of Mind (Part II) Broken Down (3:33)
- 10. Jennifer Hudson and Leona Lewis - Love Is Your Color (3:41)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BDA098700CE7F2767FB8EDCA7F01A687DBD074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143016   (639074) от 16.06.2017
-
-Wuauquikuna - The Best of Wuauquikuna (2016) [MP3|320 Kbps] <Native American, Chillout, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way of life (04:47)
-02. Amanecer (06:05)
-03. The last Inka Warriors "Siwar" (04:35)
-04. Sayri Nan (06:25)(   Читать дальше...   )Жанр: Native American, Chillout, WorldПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB91942AB1CE51F11002FD64C024F9DF75D35C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519180   (639003) от 05.07.2012
-
-V.A. - Pedro Del Mar - The Perfect Lounge Collection (3CD) (2012) [FLAC|Lossless]<Chillout, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639003.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность: 01:19:19
-
-01. Pedro Del Mar - Playa Del Lounge (intro mix)
-02. Pedro Del Mar & Blue Tente - You Left (Alexei Zakharov Ambient mix)
-03. The Movement - Rainmaker (Chillout mix)
-04. System F - Exhale (Tim Besamusca's Lounge mix)
-05. Steve Forte Rio - Blossom (Lounge mix)
-06. Hysteria - Talking Eyes (Chillout mix)
-07. Eximinds - I Feel You (Chillout mix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 03:55:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033373   (638229) от 11.07.2016
-
-Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638229.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Au Dessous Des Nuages 10:47
-2. Brooklyn 5:19
-3. Movements In Love 8:20
-4. Futura 5:03(   Читать дальше...   )Жанр: Trance, AmbientПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFFD21C3E67A247C59DD83F517F9AABF5753F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033451   (638046) от 11.07.2016
-
-A.R. Rahman - Best Of A.R. Rahman - Nadaan Parindey (2013) [MP3|320 Kbps] <Bollywood>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pappu Can't Dance.mp3
-02 - Saadda Haq.mp3
-03 - Kaise Mujhe.mp3
-04 - Nadaan Parindey.mp3(   Читать дальше...   )Жанр: BollywoodПродолжительность: 01:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CBD87C09BBA9A46979E038290F3F4E933A9E702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033381   (637942) от 11.07.2016
-
-Angus & Julia Stone - Angus & Julia Stone (2014) Deluxe Edition [FLAC|Lossless|tracks] <Indie Pop, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  A Heartbreak    04:16
-02.  My Word For It    04:08
-03.  Grizzly Bear    04:08
-04.  Heart Beats Slow    04:35(   Читать дальше...   )Жанр: Indie Pop, FolkПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AAC67873E89BCB55E9ADF857842D88669BAB6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

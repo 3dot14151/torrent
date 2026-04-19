@@ -36,7 +36,7 @@ Oxxxymiron - Национальность: нет (2025) [MP3|320 Kbps] <Rap, Hi
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049026.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048136.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Noize MC - Алхимия (2025) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047411.jpg" />
 </div>
 
 
@@ -137,6 +137,35 @@ Noize MC - Алхимия (2025) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D29360679A84E69A6361AD068B7D3FB036236FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601880   (1046316) от 02.01.2023
+
+Вася Васин - Танец с саблями (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Великий Питер
+2. Мания величия
+3. Танец с саблями
+4. Мудрые слова(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FCD57656C77BA8C12D1C41F1DC8B5B86885791
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,35 +746,6 @@ Face - Искренний (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC0D004ACC2AECA87587C329A113A7F998F0E6E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462801   (1020831) от 16.04.2021
-
-RAM - TRAUMATIX 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Возьмем [03:10]
-02. Men in Black [02:41]
-03. Hesoyam (feat. LeanJe) [03:22]
-04. Как S1mple [02:06](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729E68132D1D2F1815C5D0DAD1FD2C738AC37447
 ```
 
 https://mybot314.ru/tekegram_catalog/

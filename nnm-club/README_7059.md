@@ -1,277 +1,22 @@
-###  Публикация: 1151845   (779303) от 26.02.2018
+###  Публикация: 200605   (781506) от 13.05.2010
 
-DiRT 4 (2017) [Multi] (1.8/dlc) Repack =nemos=
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779303.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiRT 4 игроков ожидает новый революционный режим Your Stage, в котором вы сможете создать бесконечное количество уникальных трасс, нажатием одной кнопки - достаточно выбрать локации и характеристики маршрута, и игровой движок сделает все за вас - создаст уникальный уровень по вашим параметрам.Тип издания: RepackРазработчик: CodemastersЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59085C6090F75FF238A323BABA5F809F39ACE046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208304   (779302) от 26.02.2018
-
-Специалист | Python. Уровень 1-2 (2018) PCRec [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы занимаетесь программированием и хотите повысить свою квалификацию или систематизировать имеющиеся знания и навыки? Хотите изучить перспективный язык программирования Python? Вы - системный администратор или IT-специалист и у вас возникла необходимость в освоении данного языка программирования? Тогда этот курс именно для Вас!Производство: Борисов Игорь ОлеговичЖанр: Python, Веб-программированиеПродолжительность: 34:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD790030574E8AD38988B7EE728416EE95DD6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209498   (779301) от 27.02.2018
-
-VA - FG Top 10 February 2018 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orphyd - Apex (Original Mix) 06:18
-02. Francesco Sambero - Uoy (Original Mix) 05:46
-03. Novan Vs. Titus1 - Only Love (feat Luke McMaster - Max Freegrant extended remix) 05:28
-04. Amst - Sexerei (Original Mix) 06:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9119FB94A7CC6DD74B26F1E9125864CCE0E342F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209624   (779300) от 27.02.2018
-
-VA - Faces Of House Vol.4 (2018) [MP3|320 Kbps] <House, Funky House, Groove House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kort feat. Jessica Symonds  -  For You (J Paul Getto Remix)  5:34
-02.  DJ Wady & Dvit Bousa  -  Touch (Original Mix)  6:58
-03.  Dani Masi & J8Man  -  Missing (Original Mix)  6:38
-04.  Groove Motion  -  My Life (Original Mix)  6:34(   Читать дальше...   )Жанр: House, Funky House, Groove HouseПродолжительность: 01:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283259879DE7CADA732874A305746EAB673677F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209548   (779299) от 27.02.2018
-
-VA - Chilling Sounds, Vol. 6 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ArcticA - Blueland (Original Mix)  03:21
-02. ArcticA - New World (Original Mix)  06:34
-03. Black-edem - Escape (Original Mix)  04:05
-04. DJ Sasha Fart - Time (Original Mix)  05:32(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2246112814FBACFFD6F424DAE6BB5B033DE609C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209425   (779298) от 27.02.2018
-
-VA - Hed Kandi Anthems & Artwork (2010) [FLAC|Lossless|tracks] <House, Electro, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jamiroquai - Love Foolosophy (Knee Deep's Re-Edit) (6:15)
-02.Shakedown - At Night (6:43)
-03.Stone Bridge Feat. Therese - Take Me Away (Vocal Mix) (5:36)
-04.Soulshaker Feat. Lorraine Browne - Hypnotic Erotic Games (Soulshakers Orginal Club Mix) (6:43)(   Читать дальше...   )Жанр: House, Electro, DiscoПродолжительность: 05:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA07D00BEA66E49A891A6D3C5FB94A0093F9F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209381   (779297) от 27.02.2018
-
-Шэрон Гаскин | Забытое время (2017) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький Ноа по ночам задыхается, просится домой и не узнает свою маму Джейни. Что делать матери-одиночке, жизнь которой и без того грустна: принять страшный диагноз врачей или поверить невероятной идее эксцентричного психиатра о переселении душ? Психиатр убежден: Ноа перестанет страдать, когда душа, живущая в нем, найдет свою семью из прошлой жизни. По мнению Джейни, (   Читать дальше...   )Жанр: Современная зарубежная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46B293226B239CCEFDB58DB137DFE010D556A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209612   (779296) от 27.02.2018
-
-Secret Rule - The Key to the World (2017) [MP3|320 Kbps] <Symphonic melodic metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779296.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Key (0:41)
- 2. The Song Of The Universe (5:10)
- 3. Empty World (4:35)
- 4. Are You Gone? (3:07)(   Читать дальше...   )Жанр: Symphonic melodic metal, Female VocalПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E8DCC21EC9AE0E6011DEC2EA3F8CD56FAB9215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209511   (779295) от 27.02.2018
-
-VA - Sexy Lounge Music Songs Selection for Dj (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Copponi - At Midnight 03:45
-02. St. Project - L.A. Sunset 04:34
-03. Giacomo Bondi - A Noite Passa 04:40
-04. Brass - Boston Beat 04:47(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B515D5FA014FB0819B5BF18A2F89D2D8A299EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209588   (779294) от 27.02.2018
-
-ActRaiser & Tremah - Tipping Point (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+Клинок ведьм (Лезвие ведьм) [Сезон 1] / Witchblade (2001) DVDRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love For You (04:56)
- 02. Tipping Point (feat LaMeduza - vocal mix)  (05:36)
- 03. No Place Like Home (05:05)
- 04. Tipping Point (ActRaiser's instrumental) (05:16)Жанр: Drum & BassПродолжительность: 00:20:53
+Клинок ведьм — такое имя носит красивый браслет с горящим камнем, что наливается светом при виде врага, и превращается в смертельное оружие, когда его хозяйке грозит опасность. Он уже много веков сам выбирает себе хозяйку. Женщина, которой достался этот браслет, должна обладать особыми магическими способностями и обостренным чувством справедливости. Сара Пиццини, (   Читать дальше...   )Производство: США / Blade TV ProductionsЖанр: Боевик, ФэнтезиРежиссер: Ральф Хемекер, Брэдфорд Мэй, Дэвид Джексон, Пол Холахан, Нилл Фирнли, Джеймс Уитмор-мл. и др.Актеры: Янси Батлер, Дэвид Чокачи, Энтони Кистаро, Уилл Юн Ли, Эрик Этебари, Лазар Роквуд, Джон Хенсли, Кэтрин Уинслоу, Нестор Серрано, Билл МакДональд и др.Перевод: Профессиональный многоголосный закадровый (студия "Инис" по заказу ТВ3)Продолжительность: 11 х ~00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:242B1774BC2C952BF0A186B50E44E00FCDC86E0C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,28 +24,133 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209561   (779293) от 27.02.2018
+###  Публикация: 200587   (781499) от 13.05.2010
 
-KeyKey 2.4.1 [Multi]
+Большое Я / The Big I Am (2010) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жестокая ирония судьбы, за короткое время жулик Микки Скиннер входит в высшую лигу, как глава жестокой банды Лондона, которая занимается сделками связанными с торговлей людьми.Жанр: Триллер, драма, криминалРежиссер: Ник Ауэрбах / Nic AuerbachВ ролях: Лео Грегори, Винсент Риган, Майкл Мэдсен, Роберт Фусилла, Стивен Беркофф, Пол Кэй, Беатрис Розен, МС Харви, Филип Дэвис, Терри СтоунПеревод: Любительский (двухголосый)Формат: AVI
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185059   (781495) от 13.05.2010
+
+VA - New Crystal Vibrations. Compilation 1 - 11 (2010) [MP3|192-320 kbps]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, AmbientПродолжительность: 27:30:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391310   (781493) от 19.06.2020
+
+BusyCal 3 v3.10.1 (build 401019) [Multi]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781493.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
+BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.06.2020Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391186   (781491) от 19.06.2020
+
+Gene Krupa - 1930-e - 1940-e (2001) 2CD, Jazz After Hours [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781491.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Like the Fella Once Said [2:33]
+02. Down Argentina Way [3:06]
+03. Full Dress Hop [2:46](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:20:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391307   (781490) от 19.06.2020
+
+AweEraser 4.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-KeyKey — учимся слепому набору
-Слепая десятипальцевая печать — штука полезная. Даже если вы пишите только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
-
-Чтобы научится слепому набору не нужны учителя и дорогостоящие курсы. KeyKey работает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Sergiy VynnychenkoПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Украинский и Английский
+AweEraser - это безопасный «ластик» данных Mac. Он может безопасно и навсегда удалить данные с жесткого диска / носителя, окончательно удалить файлы Mac, стереть жесткий диск и стереть уже удаленные данные в Mac OS. Он также предлагает инструменты для пакетного удаления приложений на вашем Mac и очистки истории браузеров, кэшей, конфиденциальности и т. д.Тип издания: macOS SoftwareРелиз состоялся: 18.06.2020Разработчик: MagoshareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D555107E88C5E1754DAE5867E28F2F38FFC27EC
+magnet:?xt=urn:btih:39C4CF1AD5A0E4F5045C9C37D3140D4C202F17FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,28 +158,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209606   (779292) от 27.02.2018
+###  Публикация: 1391268   (781487) от 19.06.2020
 
-Phil Tangent - Drawing You (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+We Versus The Shark - Goodbye Guitar (2020) [MP3|320 Kbps] <Math Rock, Indie Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. As Much As I Can Take (feat Hannah Eve) (05:40)
- 02. Drawing You (06:04)
- 03. Illuminate (05:39)
- 04. Mea Culpa (05:37)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:28:39
+01. No Negative Space Rules Forever (03:36)
+ 02. We All Get a Raise (03:25)
+ 03. Righteous Vibes (03:47)
+ 04. I Am Never Going Home For Christmas Again (03:47)(   Читать дальше...   )Жанр: Math Rock, Indie RockПродолжительность: 00:36:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BB5C9517D6E56E077C6DE4DCCD743928C6A96F6
+magnet:?xt=urn:btih:5A6A0A2068CBAD945F1BD7E830A97C81BDA14420
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +187,302 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209645   (779291) от 27.02.2018
+###  Публикация: 1391316   (781485) от 19.06.2020
 
-VA - Deep House Collection Vol.158 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Dash 5.1.7 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для следующих языков, сред программирования и баз данных.Тип издания: macOS SoftwareРелиз состоялся: 18.06.2020Разработчик: Bogdan PopescuПоддерживаемая ОС: macOS 10.14 и новееЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391172   (781483) от 19.06.2020
+
+PDF Search 9.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781483.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Search - это утилита, которая имеет революционный алгоритм поиска, специально разработанный для документов PDF. Время на получение информации в ваших документах PDF будет минимальным. Это позволит вам мгновенно найти то, что вы ищете в тысячах документов. Это система интегрирована. Вы можете начать поиск непосредственно из системного меню, например, Spotlight.Тип издания: macOS SoftwareРелиз состоялся: 16.06.2020Разработчик: Muharrem OzkanПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CBC5E4B5067D9982CAA9B5C339C1EB9B6A9702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200675   (781481) от 13.05.2010
+
+ReaConverter Pro 5.5 [Multi (Ru)]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_781481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конвертер графических файлов с дополнительными особенностями.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199847   (781473) от 13.05.2010
+
+Меч 3хDVD5 (сезон 1, серии 1-25 из 25)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши дни. Москва. Растущий мегаполис выходит из-под контроля милиции. Уровень преступности растет в геометрической прогрессии. Максу Калинину 35 лет, он бывший офицер разведки ВДВ, оперативник УБОП. После 10 лет работы его увольняют со службы по фиктивному обвинению, без права в дальнейшем работать в органах правопорядка, а опасный преступник выходит на свободу без (   Читать дальше...   )Жанр: Боевик, ДрамаРежиссер: Рустам Уразаев, Виктор КонисевичАктеры: Эдуард Флеров, Роман Курцын, Тимур Ефременков, Дарья Повереннова, Виктория ФишерПеревод: ОригинальныйПродолжительность: 1913 минут
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200579   (781466) от 13.05.2010
+
+Colin McRae: DiRT Коллекция [Ru/En] (RePack) 2007-2009 | R.G.ReCoding
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть знаменитого хита Colin McRae: DiRT от создателей Race Driver: GRID готова ворваться в ряды лучших гонок планеты! Лучшие традиции автосимуляторов приумножены великолепием современных технологий. Вас ожидает невероятный и захватывающий тур по Америке, Европе и Азии. Представленные на выбор трассы сразят наповал даже самых продвинутых поклонников жанра. От классических кольцевых гонок до уникальных заездов с прыжками на трамплинах, рампами и даже пиротехникой.
+
+Продвинутый режим одиночной игры позволит вам сесть за руль навороченных спортивных машин и бросить вызов лучшим гонщикам современности. Попробуйте подняться на вершины карьеры, исколесите весь мир! Заработайте на новые автомобили различных классов, включая классические гоночные авто и даже знаменитую Subaru Impreza WRX, на которой сам Колин Макрей одержал победу в чемпионате. Попробуйте силы в основных гонках и особых состязаниях, побейте рекорды и станьте лидером общего зачета. Вашими наставниками и советчиками, а также конкурентами в борьбе (   Читать дальше...   )Тип издания: перепакованная лицензияРазработчик: Codemasters StudiosЖанр: Гоночный Симулятор / Arcade / Racing (Cars) / Simulator / 3DЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200717   (781463) от 13.05.2010
+
+Hard Truck / Ex Machina Антология [Ru] (L) 2008
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: лицензияЖанр: Arcade / RPG / Action / Racing / 3D / Privateer / TraderЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391248   (781462) от 19.06.2020
+
+The Spitfires - Life Worth Living (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start All Over Again (03:06)
+ 02. It Can't Be Done (03:38)
+ 03. Life Worth Living (03:08)
+ 04. Tear This Place Right Down! (03:17)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C544240EFF18339A0629F0C05CD65633A35A98A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391290   (781461) от 19.06.2020
+
+Литл Бэйби Бам - Песни для детей про вкусную еду (2020) [MP3|320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кушай овощи
+02. Мороженое (Вкусное Мороженое)
+03. Я люблю фрукты
+04. Пекарь маффинов(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C055C78F56E14E197EB2525B36BC35541DF61631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391258   (781460) от 19.06.2020
+
+Литл Бэйби Бам - Ежедневные рутинные песни для детей (2020) [MP3|320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты спишь
+02. Чистим зубки
+03. Я люблю фрукты
+04. Учимся одеваться!(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8159DA3DF31D6D697CCFC464EFF7F7D41172200E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391261   (781459) от 19.06.2020
+
+Литл Бэйби Бам - Играй, танцуй, смейся! (2020) [MP3|320 Kbps]<Детские песни>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Медведь пошёл через гору
+02. На охоту мы за львом
+03. А вот и мы, привет!
+04. Янки Дудл(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391242   (781458) от 19.06.2020
+
+VA - Summer Bass: Jungle Essentials (2020) [MP3|320 Kbps] <D&B, Jungle>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 7even (Gr) - Amartia (Original Mix) 5:50
-02. A-Mase & Sharliz - SKY (Original Mix) 6:26
-03. Aaron Mcclelland - You (Radio Edit) 3:45
-04. Abriviatura IV - Mantra (Original Mix) 5:20(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:23:13
+01. Limit - Tell Me
+02. Dynamic Destruction - Bubbles
+03. Rebuilder - Follow Me
+04. Changer - Locals (Original Mix)(   Читать дальше...   )Жанр: D&B, JungleПродолжительность: 05:46:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A01E7B6B99CE7AF3CF2766A8EE2179B4A873446
+magnet:?xt=urn:btih:D531BA9BE6B36BBB2B517B4C60E7A7383649F9DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,292 +490,124 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209600   (779290) от 27.02.2018
+###  Публикация: 1391315   (781457) от 19.06.2020
 
-AwakeFM - Interceptor (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biokernel (05:28)
- 02. The Submariner (06:01)
- 03. Interceptor (05:46)Жанр: Drum & BassПродолжительность: 00:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A6F5D3DDE05FC6559257B83FC9F6FD15964144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209494   (779289) от 27.02.2018
-
-Neveryon - The Blind Side (2018) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Intro
-02 The Blind Side
-03 A Prayer from the Abyss
-04 Oblivion(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99C23F9FDC84C42CA03457E305EAFDF9A716E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209286   (779288) от 27.02.2018
-
-Mathieu Age - Feminin Sacre (2018) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liberation salvatrice (3:31)
-02. Energie interne (3:43)
-03. D'ouverture a la guerison Reiki (3:26)
-04. Musique therapeutique (4:17)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9185269FDF90E6AF6E64CF4AB5C7409472888C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209627   (779287) от 27.02.2018
-
-The Creatures - 6 Albums, 1 Compilations (1982-1999) [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одни из пионеров  итало-диско. The Creatures - проект с элементами шоу, основанный двумя продюсерами и аранжировщиками Mario Flores, Maurizio Sangineto.Список альбомов:
-1982 - Expansion
-1983 - Believe In Yourself
-1985 - Illusion(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 05:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7276293F3FCE8A1D51A64370F227229B1ACB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209587   (779286) от 27.02.2018
-
-Максим Милованов | Неоновый мир (2017) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночная клубная культура – гимн поколения или опасный миф? На этот вопрос пытаются ответить случайно окунувшаяся в ночную жизнь героиня романа и два милицейских следователя, расследующие серию загадочных убийств. В увлекательной детективной манере роман изучает и выворачивает наизнанку все невидимые стороны жизни ночного мегаполиса. «Неоновый мир» – что спрятано за (   Читать дальше...   )Жанр: Криминальные боевики, Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0089105FD70B52264AB8B2F38299CB5B28EDF72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209658   (779285) от 27.02.2018
-
-В.М. Кириллин (отв. ред.) | Древняя Русь: Пространство книжного слова. Историко-филологические исследования (2015) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит научные статьи, посвященные древнерусской истории, словесности, музыкальной культуре, а также современному восприятию и интерпретации древнерусских реалий. Основу сборника составили труды сотрудников отдела древнеславянских литератур ИМЛИ им. А.М.Горького РАН и их коллег из других учебных и исследовательских учреждений. Все публикации сопровождаются (   Читать дальше...   )Жанр: Литература, культураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069BD8624304E25AC35EEF3B9AFB15C4EE6D5822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209595   (779284) от 27.02.2018
-
-Aperio - Nostalgia / Seasons Changing (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia (04:14)
- 02. Seasons Changing (feat. Mindfield) (04:55)Жанр: Deep Drum & BassПродолжительность: 00:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B989EA951A81A649B256A2E1A110ACBAB6321F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209384   (779283) от 27.02.2018
-
-Тор Юдолл | Тысяча бумажных птиц (2018) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть – конец всему? Нет, неправда. Умирая, люди не исчезают из нашей жизни. Только перестают быть осязаемыми. Джона пытается оправиться после внезапной смерти жены Одри. Он проводит дни в ботаническом саду, погрузившись в болезненные воспоминания о ней. И вкус утраты становится еще горче, ведь память стирает все плохое. Но Джона не знал, что Одри хранила секреты, (   Читать дальше...   )Жанр: Современная зарубежная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8688F34C2D53184A2D8A980F53650999C7BB6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209591   (779282) от 27.02.2018
-
-HumaNature, Skeletone, Silence Groove - There's Delight (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HumaNature & Skeletone & Silence Groove - Sparkling Orb (07:03)
- 02. Silence Groove - There's Delight (05:36)
- 03. HumaNature & Silence Groove - People Don't Care (05:39)Жанр: Drum & BassПродолжительность: 00:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1964F883D7B866A33200280123E517640DED2FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209402   (779281) от 27.02.2018
-
-Andrew Kinsella - Cosmic Dawn (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779281.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cosmic Dawn (10:20)
-2. Primal Seed (8:42)
-3. Convergence (5:05)
-4. Stardust (8:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B72532E34CBB01FD270CE18478C4A4FC5C06825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209628   (779280) от 27.02.2018
-
-Vivaldi 1.14.1077.55 Stable [Multi/Ru]
+Allavsoft Video Downloader Converter 3.22.6.7473 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - это мощный видео загрузчик с поддержкой скачивания фильмов, музыкальных клипов,
+плейлистов, видео, уроков с видеохостингов, таких, как YouTube, Facebook, Dailymotion и других более чем 100 сайтов.
+Помимо скачивания видео в оригинальном формате, Allavsoft также может скачивать и конвертировать скачанное видео в популярные видео (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EAB84C131A770D3DE03108E314BBD052216EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391223   (781456) от 19.06.2020
+
+Filmwizard Full 3.2.0 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filmwizard - это простой в использовании инструмент для создания фильмов. Он может записывать, редактировать и создавать высококачественные фильмы и кодировать их в файлы MPEG-4 или публиковать их непосредственно на видео сайтах, таких как Youtube, для вашей аудитории.Тип издания: macOS SoftwareРелиз состоялся: 02.06.2020Разработчик: SeasoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391159   (781455) от 19.06.2020
+
+4K Stogram Pro for Mac 3.0.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781455.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 18.06.2020Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A9AA0FE12D65203ADAD9E1E2A5AF38629AEC7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391204   (781454) от 19.06.2020
+
+Черти Тихого Омута - Поганая нечисть и етитская сила (2017) [MP3|320 Kbps] <Horror Punk, Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Омут
+2. История одной девушки
+3. Болотный огонь
+4. Упырь(   Читать дальше...   )Жанр: Horror Punk, RockПродолжительность: 00:19:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391295   (781453) от 19.06.2020
+
+Vivaldi 3.1.1929.40 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781453.jpg" />
 </div>
 
 
@@ -661,7 +617,7 @@ Vivaldi 1.14.1077.55 Stable [Multi/Ru]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BA1077E0DB83C824D1C7565BD69FEFE5EFAB2F8
+magnet:?xt=urn:btih:03CAE9B9576D7BED42D8E649E2F653D0620082F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,54 +625,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209514   (779279) от 27.02.2018
+###  Публикация: 1391260   (781452) от 19.06.2020
 
-VA - Polychrome Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+Jessica Wolff - Para Dice (2020) [MP3|320 Kbps] <Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ella's Song (03:14)
+ 02. Perfect Kind of Wrong (03:45)
+ 03. All the Right Things (03:19)
+ 04. The Sunny Side of the Bay (03:28)(   Читать дальше...   )Жанр: Modern RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200189822206B1E38F6B48AB988AA1733B600896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391243   (781451) от 19.06.2020
+
+VA - June EDM DJ Mastermix (2020) [MP3|320 Kbps] <House, EDM>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781451.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren - Lonely For You
+002. Stan Kolev - Turiya
+003. Nytron - The J A M
+004. Ck Pellegrini - Hey(   Читать дальше...   )Жанр: House, EDMПродолжительность: 10:25:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391193   (781450) от 19.06.2020
+
+QLab Pro 4 v4.6.5 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gunston - Thing Changes (05:53)
- 02. Gunston - Thing Changes (Zero T Remix) (05:14)
- 03. Phonograph - Pressure Funk (05:00)
- 04. Phonograph - Revolutionary (05:11)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:40:55
+QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 18.06.2020Разработчик: Figure 53, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27C9FD317444A1B01E4400F445467E9C6CD29AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209501   (779278) от 27.02.2018
-
-Журнал | Моя любимая дача №4 (108) (апрель 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный иллюстрированный журнал, содержащий практические советы по огородничеству, садоводству и ландшафтному дизайну, рекомендации экспертов и садоводов. В каждом номере - садоводческий лунный календарь. На вопросы читателей отвечают эксперты и редакция.Популярный иллюстрированный журнал, содержащий практические советы по огородничеству, садоводству и ландшафтному (   Читать дальше...   )Жанр: Дом, сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9F8E79B84DD589E9CFEDABF9E4356CE47DFD10
+magnet:?xt=urn:btih:FA37A9E4266B91F1019CA35586418A5AFA2BA909
 ```
 
 https://mybot314.ru/tekegram_catalog/

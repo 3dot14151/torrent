@@ -1,3 +1,235 @@
+###  Публикация: 1685855   (126967) от 20.12.2023
+
+Sex Music Zone - Bad Romance: Sexy Girl, Sensual Sounds for Erotic Massage (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Vibes (3:16)
+02. Heartbeat (3:33)
+03. Take Me Home (3:16)
+04. Obsessed (3:53)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62F3E34EA0DE1FF1C1B426F23E92D0A22163E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823889   (126113) от 12.10.2025
+
+VA - The Orient Collective: Desert Tones (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ildar Bik - Talika (5:49)
+02. Gabriel Slick - Searching (5:08)
+03. Inessa - Atacama (7:09)
+04. Tibetania - Orchard (5:43)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 02:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA81BF075B1E4AD45AEFA5D3BB0A5102A8BBEF35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687327   (125612) от 26.12.2023
+
+Leo Rojas - Best Of (2023) [FLAC|Lossless|WEB-DL|tracks] <Panflute, Native american, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Spirits
+02. Dusk
+03. Silver Moon
+04. Dreamcatcher(   Читать дальше...   )Жанр: Panflute, Native american, EthnicПродолжительность: 01:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB67818317638833F36525E4C928202AE167ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687950   (125322) от 28.12.2023
+
+Sambodhi Prem - Sunlight Rain River (1995) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timeless Light
+02. Sunlight Rain River
+03. Circle Within
+04. The Dance of Rain Declares the Sun(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88278A7544925CC7D710C16A620C3B515F89748B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688743   (125097) от 30.12.2023
+
+VA - Бременские музыканты (Официальный саундтрек к фильму) (2023) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125097.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Георгий Табуркин/Юлия Пересильд - Серенада Трубадура. Детство
+2. Георгий Табуркин - Песня маме
+3. Влад Герман - Серенада Трубадура (15 лет)
+4. Сергей Бурунов/Валентина Ляпина - Дуэт Короля и Принцессы(   Читать дальше...   )Жанр: OSTПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23805BD425267F824AE6E9D5BB08BF1DE45C0BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689566   (124542) от 03.01.2024
+
+VA - House M.D. - Original Television Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massive Attack - Teardrop (Theme Song) 5:32
+02. Gomez - See The World 4:04
+03. Michael Penn - Walter Reed 3:41
+04. Elvis Costello - Beautiful 3:50(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37482F4440E88EE379BA08769242DDC748137A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689569   (124383) от 04.01.2024
+
+Kirill Pokrovsky - Music from the Divinity Universe (2004) Limited Edition Soundtrack [FLAC|Lossless|image + .cue] <Soundtrack, Neo-Classical, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Divinity - The Title Track 4:18
+02. After The Great War 2:09
+03. Divine Divinity - The Title Track 4:55
+04. Urge For Power 4:27(   Читать дальше...   )Жанр: Soundtrack, Neo-Classical, AmbientПродолжительность: 01:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712606B541A076AEC67A93ADC212D923AA0E4B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690064   (124182) от 05.01.2024
+
+Игорь Слуцкий - Царю Царей (2021) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время не ждет
+02. Ностальгия
+03. Вдохновение
+04. Пучина(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F526C3D6DAFBE9CFB5FC799B7154F483D70F50B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690580   (123806) от 08.01.2024
 
 Deva Premal - Deva (2018) [FLAC|Lossless|tracks + .cue] <Mantras>
@@ -513,238 +745,6 @@ VA - Александр Зацепин. 31 июня (2021) [MP3|320 Kbps] <Sound
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F08E2E23990C9FAC124C894B4B7477B99288CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696488   (119484) от 03.02.2024
-
-Владимир Девятов - Матушка Россия (2024) [MP3|320 Kbps] <Folk, Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Развяжите мои крылья (Духовный стих) [00:03:12]
-02 - Матушка Россия [00:04:07]
-03 - Калинка [00:03:12]
-04 - Курень [00:03:22](   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42CD29EC06A1C9EDCF18DCAF12B1442E8279AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696377   (119360) от 04.02.2024
-
-Paul Mauriat - Love Sounds Journey (1988) [OGG Vorbis|480 Kbps] <Jazz, Pop, Classical, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  36 North 140 East
-02.  Poupee De Soie
-03.  Oh La La Osaka
-04.  La Baie Des Lumieres(   Читать дальше...   )Жанр: Jazz, Pop, Classical, Easy ListeningПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB51F5CE3B954AA8D3A70429B85527204F9A1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696170   (119359) от 04.02.2024
-
-Paul Mauriat - Nagekidori (1987) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Bird of Wounds (Nagekidori)
-02.  Didn't We Almost Have it All
-03.  Camp Fire
-04.  Back to Pyramids(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0AE3654E221A3D9F89B99D4BA0DDED44F84EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696696   (119358) от 04.02.2024
-
-Paul Mauriat - Iberia (1990) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Amor De Mis Amores
-02.  Iberia, Siempre Iberia
-03.  Andalucia
-04.  Jeux Interdits(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBC83D142CCA272720F92DCBF928D5E4465F5C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696361   (119356) от 04.02.2024
-
-Paul Mauriat - Souvenirs D'Ete (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Classical, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  L.Amour Est Blue
-02.  Une Belle Histoire
-03.  Perle Fisher
-04.  Love Story(   Читать дальше...   )Жанр: Jazz, Pop, Classical, Easy ListeningПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200B824FB246B3EC264EB8D6738A40BFF88F8AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696719   (119346) от 04.02.2024
-
-Paul Mauriat - Bossa Nova Wave (1991) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Amigo
-02.  Viagem
-03.  Vazio (Esta faltando uma ciisa em mim)
-04.  Somos todos iguais esta noite (E O Circo de Novo)(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A4D164FA785D90D8A9FF22491A23C94211EF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698824   (118327) от 10.02.2024
-
-Sex Music Zone - Night Sexual Trap: Erotic Chill Trap Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillout Shots (3:50)
-02. Mystical Space (3:56)
-03. Sensual Vibes (3:15)
-04. Totally Relax (3:15)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A642C5D01B535C66D735BAECCE3CF4317821BE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697689   (118275) от 10.02.2024
-
-VA - Sensual Piano Jazz: Restaurant Week 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tamara Erotique - Sexy Music Lounge (Go to the Club) (3:08)
-02. Jazz Erotic Lounge Collective - Sensual Massage (Erotic Games) (5:31)
-03. Sexting Jazz Music - Erotic Lounge (4:32)
-04. Tamara Erotique - French Kiss (Paradise) (3:51)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F80CBDB5B5A8B4BCE58736FDF237D23F6B6D131
 ```
 
 https://mybot314.ru/tekegram_catalog/

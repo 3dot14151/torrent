@@ -1,3 +1,32 @@
+###  Публикация: 1757017   (39306) от 25.10.2024
+
+VA - The Intrigue Of Jazz (2024) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luther Allison - I Owe It All To You
+002. Nubya Garcia - Clarity
+003. Dan Pugach & Nicole Zuraitis - Little Fears
+004. Myele Manzanza - Universal Language(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 12:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20A35DDCFA134330C549D6E8AD218182DC7579F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757207   (39174) от 26.10.2024
 
 VA - Midnight Halloween Jazz (2024) [MP3|320 Kbps] <Jazz>
@@ -716,35 +745,6 @@ VA - Hammond Blues Music (2025) [MP3|320 Kbps] <Jazz, Blues, Hammond>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C746F2B500D50FE329D5C5B5E91E22695420D0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798163   (17578) от 21.05.2025
-
-VA - Blues ballad positive (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17578.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joe Bonamassa - Going Down (Live) [06:13]
-002. Blues Company - Red Blood [04:43]
-003. Dire Straits - Calling Elvis [06:24]
-004. Marty Friedman - Undertow [04:22](   Читать дальше...   )Жанр: Blues, Slow Blues, InstrumentalПродолжительность: 07:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763DC7B647B660C9F1A6B5B073B37892024136F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

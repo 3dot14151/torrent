@@ -1,31 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1863151   (1063811) от 
-
-Сборники - SICKBOAT - Glitch Effects: Real Glitch Texture Overlays Vol.1 [MOV, JPG, WAV]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный набор инструментов для создания эффектов глитча. Совместимый со всеми программами для видео и фотомонтажа, Real Glitch Effects текстур с эффектом глитча, включающий фоны, шумы, статические помехи, переходы, изображения в формате JPEG и звуковые эффекты! Более 55 видеоэффектов и более 190 изображений с эффектом глитча в разрешении 4К позволяют добиться идеального (   Читать дальше...   )Формат: MOV, JPG, WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4892ED72E656FBE0574AF06E26A1FD396E33AB58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862620   (1063341) от 
+###  Публикация: 1862620   (1064044) от 31.03.2026
 
 Сборники - Creative Market - GLITCH SCULPTURES COLLECTION - 26700938 [PNG, JPG]
 
@@ -33,7 +7,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064044.jpg" />
 </div>
 
 
@@ -53,7 +27,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862656   (1063295) от 
+###  Публикация: 1862656   (1064001) от 31.03.2026
 
 Сборники - Creative Market - Cottagecore Decorative Frame clipart - 292023887 [PNG, JPG]
 
@@ -61,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064001.jpg" />
 </div>
 
 
@@ -79,7 +53,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861448   (1062480) от 
+###  Публикация: 1863151   (1063682) от 03.04.2026
+
+Сборники - SICKBOAT - Glitch Effects: Real Glitch Texture Overlays Vol.1 [MOV, JPG, WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный набор инструментов для создания эффектов глитча. Совместимый со всеми программами для видео и фотомонтажа, Real Glitch Effects текстур с эффектом глитча, включающий фоны, шумы, статические помехи, переходы, изображения в формате JPEG и звуковые эффекты! Более 55 видеоэффектов и более 190 изображений с эффектом глитча в разрешении 4К позволяют добиться идеального (   Читать дальше...   )Формат: MOV, JPG, WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4892ED72E656FBE0574AF06E26A1FD396E33AB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861448   (1062480) от 25.03.2026
 
 Сборники - Envato - Essential Geometry Grid Backgrounds - ERYKJ6R [PNG, SVG, PSD, PAT]
 

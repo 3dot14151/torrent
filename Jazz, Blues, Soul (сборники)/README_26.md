@@ -1,3 +1,32 @@
+###  Публикация: 1798163   (17578) от 21.05.2025
+
+VA - Blues ballad positive (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17578.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe Bonamassa - Going Down (Live) [06:13]
+002. Blues Company - Red Blood [04:43]
+003. Dire Straits - Calling Elvis [06:24]
+004. Marty Friedman - Undertow [04:22](   Читать дальше...   )Жанр: Blues, Slow Blues, InstrumentalПродолжительность: 07:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763DC7B647B660C9F1A6B5B073B37892024136F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805984   (12032) от 09.07.2025
 
 VA - Midnight Whiskey Blues (2025) [MP3|320 Kbps] <Blues>

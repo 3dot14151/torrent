@@ -1,3 +1,29 @@
+###  Публикация: 931111   (512872) от 25.08.2015
+
+Обои - Beautiful Landscapes Wallpapers (Set 88). 1920x1200 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на природную тематикуФормат: JPGРазрешение файлов: 1920x1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FBB458BCE0CC41627E8989C9FCB4F160166EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931118   (512871) от 25.08.2015
 
 Обои - Computer Desktop Wallpapers Collection 1294 [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E9459972F237F519161C06CA023E0D78ED821C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232206   (508277) от 01.09.2010
-
-Картинки - Котяры [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотографии прикольных кошек - часть первая.Формат: JPGРазрешение файлов: 437х658 - 750х563
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

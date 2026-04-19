@@ -1,3 +1,61 @@
+###  Публикация: 1478635   (1010214) от 20.06.2021
+
+VA - Beat Splash: Psy Trance Mixtape (2021) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grady G - United States
+02. Distorted Forest - A Missed Call
+03. Sixsense - Blow
+04. Impulser And Zenix - Fly(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 09:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE4CB01F02FF0A38AC8815CF86EA35D89DAD44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478628   (1010193) от 20.06.2021
+
+VA - Hot Summer Party Uplifting Trance (2021) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010193.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Life Nik - Cosmo
+002. Andrew Rayel - My Harmony
+003. Vyacheslav Sketch - Experiment
+004. Janberg - Sleeping Orchestra(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 12:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5761C561FA080576146D2B86E9F0E14AE818721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478639   (1010095) от 20.06.2021
 
 VA - All Stars Of Vocal Trance (2021) [MP3|320 Kbps] <Vocal Trance>
@@ -687,64 +745,6 @@ VA - Private Summer Theme: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:768E6A711FBCD8D501B932BDC0984BC5E0E6149F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482521   (1007614) от 08.07.2021
-
-VA - Beatport Electro House: Sound Pack #314 (2021) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007614.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Sunburst Band - He Is
-002. Michael Cassette - Through The Windows
-003. Kazantip - Deep Impact
-004. Igor Bartyuk - Dzëmgi(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33480147B459815F8E6F36C77C36DA60B951D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482511   (1007596) от 08.07.2021
-
-VA - EDC: Deep House Cafe Del Mar (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apoll - Mental Mox Modus
-02. M.Ono - Super Bock
-03. The Godfathers - Back 2 Back
-04. Audaks - Dance Of The Butterflies(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF9C1AAD7795FF2CAFD7516D104EA73EEAE21AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

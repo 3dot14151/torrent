@@ -1,3 +1,32 @@
+###  Публикация: 1065343   (416640) от 24.10.2016
+
+Nick Cave - HTV Music History (2001) Compilation [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where The Wild Roses Grow (duet with Kylie Minogue)   (03:55) 
+02. The Curse Of Millhaven   (06:50) 
+03. Henry Lee (with PJ Harvey)   (03:53) 
+04. Thirsty Dog   (03:46) (   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969701BA87B5867D2EF601D9B7FFB8A8926459C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065437   (416632) от 24.10.2016
 
 Jimmy Eat World - Integrity Blues (2016) [FLAC|Lossless|tracks] <Alternative Rock, Power Pop>
@@ -717,35 +746,6 @@ Marilyn Manson - Heaven Upside Down (2017) [FLAC|Lossless|tracks] <Alternative R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A84F00906135D6685F8394BBE5E137CE0312B4CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171671   (394720) от 06.10.2017
-
-Liam Gallagher - As You Were (Deluxe Edition) (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Brit Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wall Of Glass (3:44)
- 02. Bold (4:00)
- 03. Greedy Soul (3:35)
- 04. Paper Crown (3:29)(   Читать дальше...   )Жанр: Rock, Brit PopПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA2F56EB05B301F8B9BB1ED59E592D293C5B072
 ```
 
 https://mybot314.ru/tekegram_catalog/

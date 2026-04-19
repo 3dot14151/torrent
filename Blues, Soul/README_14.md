@@ -491,6 +491,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346141   (645508) от 05.06.2011
+
+SunnyLand Bluesband - 4 альбома (1997-2002) [MP3|320 kbps]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_645508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues-RockПродолжительность: 03:48:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292689   (645187) от 30.03.2019
 
 Stef Paglia - Never Forget (2019) [MP3|320 Kbps] <Blues Rock>
@@ -720,35 +746,6 @@ Royal Southern Brotherhood - Don't Look Back (2015) [MP3|320 Kbps] <Electric Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:600AF6B867E52D7CFA724F6563947418F224FE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907118   (641843) от 10.06.2015
-
-Snowy White - Highway To The Sun (1994), Reissue/2010, Repertoire Records [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway to the Sun (04:57)
-02. Can't Find Love (05:36)
-03. Burning Love (05:08)
-04. Loving Man (04:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59481CC08D0E4568F39D80B5AD366229BE801664
 ```
 
 https://mybot314.ru/tekegram_catalog/

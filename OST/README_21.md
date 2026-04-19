@@ -1,3 +1,32 @@
+###  Публикация: 1335093   (289409) от 01.11.2019
+
+Tom Holkenborg - Терминатор: Темные судьбы / Terminator: Dark Fate (2019) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terminated
+02. My Name Is Dani
+03. REV 9
+04. Iron Spike(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3B5717482CEC6AF6180EE4DAE8A8D7FE34064A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263359   (286299) от 20.11.2018
 
 Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack) (2018) Web-DL [MP3|320 Kbps] <Soundtrack>
@@ -719,35 +748,6 @@ VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:243FDFF78FEB7C8DFA831539A3DC9723E7A6AA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337901   (271656) от 13.11.2019
-
-Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Merrymaker (01:19)
-02. Better Days Past (01:57)
-03. The Merrymaker Murderer (01:17)
-04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FE62A37521EAA41AC518433D793050DF0727A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

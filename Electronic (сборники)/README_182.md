@@ -1,3 +1,177 @@
+###  Публикация: 1084647   (271463) от 18.12.2016
+
+VA - Clear Deep House (2016) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271463.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.C-Ro - Rollin' Flies 7:50
+002.Harmonique - Rockstar - Original Mix 6:18
+003.Fluid Mind - Risky Thoughts 5:16
+004.Karsten Sollors - Loving You (Schwarz 100 Remix) 5:30(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5C90615C23670603DC57651E7D3EAF4966E504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084637   (271450) от 18.12.2016
+
+VA - Club Dance Ambience Vol.96 (2016) [MP3|252320 Kbps] <Dance, Club House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271450.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.al l bo - Walls Of Tears (DJ Pashsha Remix) 4:54
+002.A-Minor & Kokiri Ft. DTale - Energy (Extended Mix) 5:33
+003.Alan Walker - Alone (Amice Remix) 3:31
+004.Artik & Asti - Тебе все можно (Tomi Owen & Dj Aleksey Popov Remix) 5:30(   Читать дальше...   )Жанр: Dance, Club House, HouseПродолжительность: 07:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF3AD4443259FCC019FE4094B98191560AA4F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189318   (271348) от 05.12.2017
+
+VA - Tropical Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha 9 - The Night Is Ours
+02. Andrey Nova - Midnight Hope Midnight Hope (Radio Cut)
+03. Edonia - Off Season Solitude (Radio Edit)
+04. Eranga & Mino Safy - Up To You (CubeTonic Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66911F66AEF630FC3E2BACB33C9A36E93D4328EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189329   (271282) от 05.12.2017
+
+VA - Cyberatonica: Ultimate Synthwave and Syntpop (2017) [MP3|192-320 Kbps] <Synthpop, Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271282.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danger mode - Meridian cruisin'
+002. Scandroid - Neo-Tokyo (Dance With The Dead Remix)
+003. Oscillian - Ad Astra
+004. NightStop - Flesh(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicПродолжительность: 08:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46D4314B3B158B16B286081A34D5739530190AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189421   (270433) от 06.12.2017
+
+VA - Trance In The Road (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mellari - Sputnik (Original Mix)
+002. Roman Messer - For You (feat. Clare Stagg)
+003. Spaceptima - The End Of Melancholy (Original Mix)
+004. Veselin Tasev - Blue Sky (Extended Club Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF2DC7256C5D9AE483BA3E91C6080A74261463D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189474   (270429) от 06.12.2017
+
+VA - Seasons To Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270429.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sami Sivananda - Samadhi Vibes (Original Mix)
+002. Sonic Scope - Kryshen (Original Mix)
+003. Sunyata Project - Words Of Vishnu (Ibiza Ethno Mix)
+004. Florito - Feel So Good (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8E6F56E7D68061FF1D4D0DD8578E79427D7610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189409   (270386) от 06.12.2017
 
 VA - Лучшие клубные новинки Vol.5 (2017) [MP3|320 Kbps] <House, Dance, Other>
@@ -568,180 +742,6 @@ VA - We Are Humans: Synth Electronics Mix (2018) [MP3|320 Kbps] <Synthetic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4926209B3C2C2C83503F3C542D50AC33CEDF31A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267520   (266573) от 06.12.2018
-
-VA - Options Remake Of Tracks November -D- (2018) [MP3|320 Kbps] <Electronic, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nic Fanciulli - Imitations (Dennis Ferrer Extended Mix)
-02. Third Son feat Stereo MCs - Assimo (Extended Mix)
-03. Kurd Maverick - He's Alright
-04. Khen - Lost of the Time(   Читать дальше...   )Жанр: Electronic, Club, HouseПродолжительность: 06:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:728E9290255133D0712FB9BCDDBA29E052F73F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339434   (266149) от 19.11.2019
-
-VA - Relax Zone Of Nature (2019) [MP3|320 Kbps] <Relax, Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266149.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Francesco Digilio - Shine On
-002. Low Flung - Exotic Dirt
-003. Afterlife - Everything Is Now
-004. Ginno Russo - Carina(   Читать дальше...   )Жанр: Relax, Chillout, Ambient, DowntempoПродолжительность: 09:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38B00C645E0EAD7E0B1B41972E1E73C651533A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339438   (266144) от 19.11.2019
-
-VA - Vocal House: Winter Party (2019) [MP3|320 Kbps] <Dance, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266144.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cubicolor - No Dancers
-002. Felon - Show Me That I Need You
-003. Gotsome - Everybody Know Now
-004. A.C. One - Angels(   Читать дальше...   )Жанр: Dance, Vocal HouseПродолжительность: 10:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E46DE7829F23B2BED03FE11C4653FBB81FB737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267533   (265808) от 07.12.2018
-
-VA - Glow In The Sity: Psychedelic Trance (2018) [MP3|320 Kbps] <Psychedelic, Goa, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265808.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Babagoon - Lost In Space
-002. Anatomic - Described Sound
-003. Blastoyz - Shadows & Dust (Original Mix)
-004. Block Device - Falcon Heavy(   Читать дальше...   )Жанр: Psychedelic, Goa, TranceПродолжительность: 12:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A665B3974F11BDE7007E17F9364154C3098D3DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267562   (265803) от 07.12.2018
-
-VA - Lounge For Boudoir (2018) [MP3|320 Kbps] <Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265803.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Albedo - Changes
-002. Frechbax - Knabaustelmann (Original Mix)
-003. Karen Gibson Roc - Love Each Other
-004. Inkyz - Shiva.mp3(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 09:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACB15DA23104EC856B853A1B5B83ED39FA06354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267602   (265796) от 07.12.2018
-
-VA - The Ultimate Club House Collection (2018) [MP3|320 Kbps] <Club, Dance House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265796.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ivanshee - Competition
-002. Ame - Beam Dream (Original Mix)
-003. Kleptomania - Love Ride (Radio Edit 7)
-004. Disclosure - Moonlight (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance HouseПродолжительность: 09:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9395BCA56BC47AB03BACC4AA07B601A2CD06B19A
 ```
 
 https://mybot314.ru/tekegram_catalog/

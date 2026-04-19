@@ -1,3 +1,61 @@
+###  Публикация: 1408043   (460230) от 10.09.2020
+
+VA - Signora Ward Records - Doom Jazz/Dark Jazz/Funeral Jazz vol. 1 (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Funeral Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bebopovsky And The Orkestry Podyezdov - Malkavian (13:29)
+02. Vainoras and the altar of the drill - Attempting to outwalk a troubled mind 2 (3:55)
+03. Lowering - Father (3:44)
+04. The Orchestra Of Mirrored Reflections - Sax For Ms. Mojito (7:07)(   Читать дальше...   )Жанр: Doom Jazz, Dark Jazz, Funeral Jazz, Experimental, NoiseПродолжительность: 01:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E1E78912B819D82B6F9B0DB04B018DE49B02E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568625   (459927) от 09.08.2022
+
+Patti Austin And James Morrison - Ella & Louis (2017) 2CD, ABC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459927.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Hello, Dolly! [4:32]
+02. (Up A) Lazy River [6:12]
+03. Too Close for Comfort [3:28](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 01:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783EE4E82C84407440BD1B0796FACC23B7282A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059891   (459437) от 05.10.2016
 
 Level 42 - Standing In The Light (1983) [FLAC|Lossless|image + .cue] <Jazz-Rock, Jazz-Funk>
@@ -692,64 +750,6 @@ Lionel Hampton - Paris Session (1956) 1989, EMI [FLAC|Lossless|image + .cue] <Ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:749C2AF0938A376C64FF5DFF55E6F5430BCDF053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942385   (456089) от 30.09.2015
-
-Richie Beirach Trio - Trust (1996) /Evidence/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.What Are The Rules? [06:17]
-02.Trust [03:45]
-03.Moor [06:42]
-04.Jamala [05:11](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7960638867C20F256E8931E908DC77FEC244D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569017   (455815) от 11.08.2022
-
-Sidney Bechet, Pee Wee Russell - Soprano And Clarinet (1953 - 1954) 1996, Da Music [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Rythm [5:55]
-02. Jazz Me Blues [4:27]
-03. Indiana [6:14]
-04. Bugle Blues [6:50](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2929CF6EFECD35E004183FA720687605F3EACEB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,25 @@
-###  Публикация: 1201195   (793804) от 23.01.2018
+###  Публикация: 1509163   (795716) от 11.11.2021
 
-Ник Харкуэй | Мир, который сгинул (2017) [FB2]
+VA - Balearic Lounge Winter 2022 (2021) [AAC|~324 Kbps] <Lo-Fi, Lounge, Chill Out>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гонзо Любич и его лучший друг неразлучны с рождения. Они вместе выросли, вместе изучали кун-фу, вместе учились, а потом отправились на войну, которая привела к концу света, самому страшному и необычному апокалипсису, который не ожидал никто. Теперь, когда мир лежит в руинах, а над пустошами клубятся странные черные облака, из которых могут появиться настоящие монстры, (   Читать дальше...   )Жанр: Зарубежная фантастика, Социальная фантастикаПеревод: Екатерина РомановаФормат: FB2
+01. Alexandra Hampton, Merge Of Equals - Beautiful (Original Mix) (4:26)
+02. No Noise - Karma Shabda (Original Mix) (5:07)
+03. InnamoratoDellaMusica - Venice (Original Mix) (4:00)
+04. Lounge Groove Avenue - Smoking Jazz (Original Mix) (2:29)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:26:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A33502463F8F000121DADC4F954BD978009E537
+magnet:?xt=urn:btih:D81FB6C5FA9F9C885ABE7532134F484C144FD8AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201159   (793803) от 23.01.2018
+###  Публикация: 1509152   (795715) от 11.11.2021
 
-Морской узел (2002) TVRip (серии 1-4 из 4)
+VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 3 (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Отечественные сериалы
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Из Мурманского порта на лов трески выходит в море видавший виды траулер. На его борту, кроме экипажа и рыбаков, находятся молодые ученые, отправившиеся в путешествие с целью пополнить экспозицию зоологического музея. После внезапной смерти капитана руководство судном берет на себя старший помощник, давно мечтавший похозяйничать в северных морских просторах…Производство: РоссияЖанр: драмаРежиссер: Кирилл КапицаАктеры: Борис Соколов, Александр Гусев, Юлия Джербинова, Евгений Дятлов, Сергей Дьячков, Ирина Колганова, Дмитрий Исаев, Юлия Левакова, Евгений Клубов, Андрей Бабенко и др.Продолжительность: ~00:43:00 серия
+01. Polarity - Litu (Original Mix) (2:16)
+02. Natural Factor - Next Us Now (Original Mix) (3:33)
+03. Chill Art - Runi (Original Mix) (5:09)
+04. Mark Sia - Kalin Twins (Original Mix) (3:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7306F626DE3EAA83091BF68ADE75C4D95E62AC9D
+magnet:?xt=urn:btih:3A41A8806D0341CBD655075EFA7C1930F920E3E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200999   (793802) от 23.01.2018
+###  Публикация: 1200525   (795714) от 21.01.2018
 
-Julio Iglesias - Se Tornassi... All The Hits (2013) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+О. В. Григорьева | Что было и чего не было (1909) [PDF]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1
-01. Manuela
-02. Un Giorno Tu Un Giorno Io
-03. Quando Si Ama Davvero(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:09:05
+Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AD8368860AB57DF047DD11C3F263D2001FF59D0
+magnet:?xt=urn:btih:E12BBECE746D96D7FF233536E5083A8C7DC04EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201192   (793801) от 23.01.2018
+###  Публикация: 1200468   (795713) от 21.01.2018
 
-Журнал | Популярная механика №2 (184) (февраль 2018) [PDF]
+VA - Empire Records - Lounge 10 (2018) [MP3|320 Kbps] <Lounge>
 
->>Журналы
->>Научно-популярные журналы
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал о том, как устроен наш мир. Для всех, кто хочет знать о научных изобретениях, сделанных в России и по всему миру, об инновационных технологиях, последних разработках в области космоса, авиации, автомобилей, оружия и компьютеров, которые в скором будущем могут усовершенствовать нашу жизнь.Жанр: Научно-популярный журналФормат: PDF
+01. Mark Eliyahu - Journey (Hakan Akkus & V-Dat Remix)
+02. Christos Fourkis, Joahn Dashi - Come in My Life (Bes and Meret Remix)
+03. W4velike - Lovin U
+04. Beat Sounds - In Zaire (Extended Mix).(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:09:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:739D309A3DC4180E3677CB80C3597C759C46E638
+magnet:?xt=urn:btih:4C5AAD0487CC22B3E4645FE78CE7758E3D0E470E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,27 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386690   (793800) от 30.05.2020
+###  Публикация: 1200490   (795712) от 21.01.2018
 
-File List Export 2.4.2 [En]
+Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Club House, Funky>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл!
-
-Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.05.2020Разработчик: Giorgos TrigonakisПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+01. Beat Of The Drum (4:54)
+ 02. Electric (5:15)
+ 03. Never (Glaccklich) (5:23)
+ 04. Loving You (6:01)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Club House, FunkyПродолжительность: 05:13:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AABEE4C71EC5F968B77321A493DF5504FE9C30B
+magnet:?xt=urn:btih:D60D8ED0F65CCB20FD9A3CB870FBD701C418A56F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,28 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386474   (793799) от 30.05.2020
+###  Публикация: 1200222   (795711) от 21.01.2018
 
-Spheric Universe Experience - Anima (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
+Necrotomy - Inhuman Mankind (1991) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sceptic (6:31)
-02. Being (2:32)
-03. The Inner Quest (5:38)
-04. Neptune's Revenge (6:59)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:46
+01 - Selfmutilate
+02 - Insestance Devastation
+03 - Vision Of The Altar
+04 - Atomic Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B5979BF06D2E3AD175FBED7213E7011A8B65215
+magnet:?xt=urn:btih:9752E0190D2CD7C30F105F8E8A10EFF0343553D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,28 +169,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386548   (793798) от 30.05.2020
+###  Публикация: 1200147   (795710) от 21.01.2018
 
-Blazon Stone - No Sign Of Glory (2015) [WavPack|Lossless|image + .cue] <Heavy Metal, Power Metal, Speed Metal>
+VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Brooklyn Bounce - Club Bizarre (Djs From Mars Rmx) (4:57)
+02.Groove Coverage - Innocent (Club Mix) (3:33)
+03.Basslover United - Ghetto Supastar (Extended Mix) (4:16)
+04.Franky 8 - Rhytm & Drums 2010 (3:09)(   Читать дальше...   )Жанр: Euro House, TranceПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6DDE774AD81A5B0C890349B3D60119D2CEE120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200539   (795709) от 21.01.2018
+
+Мария Федоровна Ростовская | Детские забавы (1909) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов для детей младшего возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F259252C256E9F2F127AE1C39F0131013323432E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200670   (795708) от 21.01.2018
+
+VA - Petit Boutique Vol.3 (20 Lounge Accessoires) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bar & Bar  -  Night in Rio (Radio Edit)  3:57
+02.  Marco Del Giudice & Daniele Soriani  -  Vuelvo Al Sur (Bandoneon Remix)  3:28
+03.  Juliana Pasini  -  Corcovado (Original Mix)  3:25
+04.  Bessie Boni & Massimo Mantovani  -  Stella By Starlight (Original Mix)  3:51(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E03A7FE31D20AB75D6D170341DF5809819A4295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200520   (795707) от 21.01.2018
+
+World's End Girlfriend - Ending Story (2000) F.R.D Record [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Experimental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Declaration Of War    			       (01:53)
-02. Fire The Cannons    			       (05:18)
-03. A Traitor Amongst Us    			       (06:18)
-04. No Return From Hell    			       (04:11)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Speed MetalПродолжительность: 00:45:45
+01. Listening You (07:00)
+ 02. Magical Romantic Freestyle (04:52)
+ 03. Heartbreak Wonderland (06:13)
+ 04. Cruel Girl's Beauty (09:43)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 01:12:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AA3FCDB1D68F3CD8274ECC46E11BEF96CF28D04
+magnet:?xt=urn:btih:D64AE7DE44433FED89443E773E682040DE4DD0C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -191,28 +282,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386777   (793797) от 30.05.2020
+###  Публикация: 1200533   (795706) от 21.01.2018
 
-Tim Buckley - Goodbye And Hello (1967) Reissue, 2000, Elektra [FLAC|Lossless|tracks + .cue] <Folk Rock, Psychedelic Rock>
+Вадим Радецкий (сост.) | Юный русский чтец-декламатор (1911) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795706.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Man Can Find The War (3:00)
-02. Carnival Song (3:13)
-03. Pleasant Street (5:18)
-04. Hallucinations (4:54)(   Читать дальше...   )Жанр: Folk Rock, Psychedelic RockПродолжительность: 00:42:32
+Сборник стихов для среднего и старшего школьного возраста.Жанр: СтихиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:402C359A0DA3FD4D93EB9F753A3012C15E229C27
+magnet:?xt=urn:btih:1295444B6B1ECDB06570DF4401A3523F891A8F8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,83 +308,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386750   (793796) от 30.05.2020
+###  Публикация: 1200221   (795705) от 21.01.2018
 
-Type Fu 4.7.3 [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип Fu  научит вас, как печатать быстрее, не глядя на клавиатуру, позволяя вам отточить свои навыки набора текста.Тип издания: macOS SoftwareРелиз состоялся: 30.05.2020Разработчик: Jaroslaw FoksaПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386624   (793795) от 30.05.2020
-
-Paul Revere & The Raiders - Midnight Ride (1966) Reissue, 2000, Sundazed Music [FLAC|Lossless|tracks + .cue] <Garage Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kicks (2:31)
-02. There's Always Tomorrow (2:47)
-03. Little Girl In The 4th Row (3:12)
-04. Ballad Of A Useless Man (2:17)(   Читать дальше...   )Жанр: Garage Rock, Pop RockПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE775D44539AA741AA8A370C0D17887D9E0C1B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386545   (793794) от 30.05.2020
-
-Abigail Williams - Walk Beyond the Dark (2019) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
+Numenor - Chronicles from the Realms Beyond (2017) [FLAC|Lossless|image + .cue] <Symphonic Black Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795705.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Will Depart (8:02)
-02. Sun And Moon (6:56)
-03. Ever So Bold (4:06)
-04. Black Waves (10:43)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:55:48
+01. Heart of Steel
+02. Carvenstone
+03. Witching Hour
+04. Beyond the Doors of the Night(   Читать дальше...   )Жанр: Symphonic Black Power MetalПродолжительность: 00:34:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9112FAB28815FC6A17067F6FAED9901A14D41726
+magnet:?xt=urn:btih:23D88B855BFDE04C81D61A40EB7A09D35EDA2110
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -304,54 +337,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386668   (793793) от 30.05.2020
+###  Публикация: 1200541   (795704) от 21.01.2018
 
-Faded - Stasis (2017) Greyscale [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient, Techno>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. District (06:32)
-02. Embark (10:51)
-03. Loading Bay (10:07)
-04. Passage (05:38)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386826   (793792) от 30.05.2020
-
-Светозар Чернов, Елена Соковенина | Свет! Больше света! Викторианская медицина с доктором Ватсоном (2014) [EPUB]
+Н.В. Тулупов, П.М. Шестаков (ред.) | Светлый день. Книжка для чтения на втором году обучения (1909) [JPG]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Краткий занимательный путеводитель по медицине викторианской эпохи. Доктор Ватсон, опасаясь, что прогресс уведет человечество так далеко, что оно забудет все о своем прошлом, пишет брошюру. В каковой брошюре рассказывает, чем болели и чем лечились викторианцы, какие существовали домашние средства. Как лечили зубы. Какие трудности испытывали санитарные врачи – и многое (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
+Сборник рассказов, сказок, стихов для детей младшего возрастаЖанр: Детская проза, Сказки, СтихиФормат: JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E35F5D03E232F94616D777E2ED5EDCEF927273E3
+magnet:?xt=urn:btih:AEB14116D896D79776A43121BEA7EB4CEB33A0DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,30 +363,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386594   (793791) от 30.05.2020
+###  Публикация: 1200471   (795703) от 21.01.2018
 
-B.B. King - Live At The Regal (1964) [FLAC|Lossless|tracks] <Jazz, Blues>
+VA - Empire Records: Chill Out 15 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Live At The Regal — концертный альбом Би Би Кинга. Вышел в 1965 году на лейбле ABC Records. Запись была сделана 21 ноября 1964 года на концерте в Чикаго в Regal Theater.
-
-В 2003 году журнал Rolling Stone поместил альбом Live At The Regal на 141 место своего списка «500 величайших альбомов всех времён». В списке 2012 года альбом находится также на 141 месте.01. Every Day I Have The Blues (2:39)
-02. Sweet Little Angel (4:12)
-03. It's My Own Fault (3:36)
-04. How Blue Can You Get (3:37)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:34:44
+01.  Ki-Theory  -  Enjoy The Silence  4:18
+02.  Ryan Weber  -  Magic Fly (Chillectro Remix)  5:06
+03.  Dreamweavers  -  Inner Spirit (Original Mix)  9:59
+04.  Aliki Westwood  -  Everybody Loves The Sunshine (Nikki Beach Mix)  4:18(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:59:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80BFCDACCAED73A9F388CEF2DF3864F2F877E0AB
+magnet:?xt=urn:btih:ABCE9F16C630B38494E0B3E9C38286F134459328
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,25 +392,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386688   (793790) от 30.05.2020
+###  Публикация: 1200425   (795702) от 21.01.2018
 
-Павел Кренев | Добрые люди (2020) [MP3]
+Известия. Главное (21.01.2018) SATRip
 
->>
->>
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книгу известного самобытного писателя вошли рассказы и повести, сюжеты которых почерпнуты главным образом из жизни поморов - людей, издревле живущих на берегах студеного Белого моря. И автор книги - из коренных поморов, он родился на этой земле. Его корни уходят к старинным новгородским переселенцам и ушкуйникам, несколько столетий назад пришедшим на эти дикие (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 10:50:08
+Информационные выпуски "Известий" - это оперативное информирование о самых важных событиях в России и мире, это прямые включения, собственные съемки, непредвзятый подход к выбору тем и сюжетов, компетентность и неангажированность ведущих, яркая и современная подача информации.В этом выпуске: 900 дней трагедии, которая не должна повториться, и великого подвига, который надо помнить. Блокада Ленинграда — в реальных историях и  подлинных фактах. Что знаем мы сейчас, как это сохранить и кому нужны исторические провокации?
+Большое будущее малых городов. Как изменить жизнь провинции, чтобы где родился, там и пригодился? Почему за качеством жизни теперь не надо (   Читать дальше...   )Телекомпания: Пятый каналЖанр: Телепередача, Информационно-аналитическая программаПродолжительность: 00:48:28
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:68286F1B751941AF8350B57032AA4AE0F535AF13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,25 +419,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386801   (793789) от 30.05.2020
+###  Публикация: 1200507   (795701) от 21.01.2018
 
-Софья Прокофьева | «Франкенштейн» и другие страшные истории [сборник] (2019) [EPUB]
+Ludvig Cimbrelius - Dreaming The Night Sky (2018) Eternell [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenade For The Night Sky (12:28)
+ 02. Serenade For The Heart (Two Voices) (10:26)
+ 03. Dreaming The Night Sky (35:16)
+ 04. Serenade For The Heart (in D-minor) (09:44)Жанр: AmbientПродолжительность: 01:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3A37DBC12E7A5DAB47D91B4EF38E7545DAC144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200548   (795700) от 21.01.2018
+
+Агафонова Лидия Андреевна | Детки-малютки, их забавы и шутки (1910) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Великая сказочница Софья Прокофьева написала вольные пересказы самых страшных историй мировой литературы, от «Франкенштейна» Мэри Шелли до «Ундины» Фридриха де ла Мотт Фуке. Для детей это прекрасный способ познакомиться с важнейшими в европейской культуре сюжетами. А взрослые с удивлением найдут переклички между любимыми с детства историями.Жанр: Проза для детей, Повести и расказы, Мистика, ужасыФормат: EPUB
+Сборник рассказов для детей младшего возрастаЖанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C56919210040C68988F31664FA00D3E1248C51E
+magnet:?xt=urn:btih:E343A76CA1017BF213F3436CA36B2F26A3F9D4B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,25 +474,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386816   (793788) от 30.05.2020
+###  Публикация: 1200630   (795699) от 21.01.2018
 
-Холли Голдберг Слоун | Опоссум по имени Апельсинка (2019) [EPUB]
+VA - Winter Time Vol.6 (22 Premium Trax Chillout-Chillhouse-Downbeat-Lounge) (2018) [MP3|320 Kbps] <Chillout, Chillhouse, Lounge>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Апельсинка, самая младшая в семье, пытается найти свое призвание и понять, на что она способна. Однажды она случайно попадает в человеческое жилище. И тут Апельсинка открывает в себе неожиданные качества: она может быть бесстрашной и очень даже сообразительной. А как иначе? Ведь здесь обитают мама, папа, девочка и ОГРОМНЫЙ пес. А мама-опоссум всегда предупреждала (   Читать дальше...   )Жанр: Сказки для детейПеревод: Ирина ЮщенкоФормат: EPUB
+01.  DJ Maretimo feat. Cafe Americaine  -  Rainy Season (Full Sunset Cut)  4:25
+02.  Frank Borell  -  Wind In The Desert (Abu Dhabi Mix)  4:50
+03.  Le Voyage  -  Poison (The Red Button Mix)  5:14
+04.  Sofa Sweeper  -  Rebeat Seventeen (Future City Mix)  4:47(   Читать дальше...   )Жанр: Chillout, Chillhouse, LoungeПродолжительность: 04:14:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E47F1ECBE93D0F586E20615E2F17B097913F681
+magnet:?xt=urn:btih:9147A3AD7BCF1E645B8E18741DB2D3D004B6EEE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,28 +503,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386619   (793787) от 30.05.2020
+###  Публикация: 1200588   (795698) от 21.01.2018
 
-The Monks - Black Monk Time (1966) Remastered, 1997, Infinite Zero [FLAC|Lossless|tracks + .cue] <Garage Rock>
+The Black Noodle Project - Divided We Fall  (2017) [FLAC|Lossless|image + .cue] <Progressive rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Monk Time (2:46)
-02. Shut Up (3:16)
-03. Boys Are Boys and Girls Are Choice (1:27)
-04. Higgle-Dy-Piggle-Dy (2:31)(   Читать дальше...   )Жанр: Garage Rock, Classic Rock, Psychedelic RockПродолжительность: 00:46:30
+01. Isolation
+02. Memorial
+03. Ashes To Ashes
+04. Under A Black Sky(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:41:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ED994443296B563E8266D43F39EF86D6DCBB870
+magnet:?xt=urn:btih:CB9EC63641DFF5B5A7A17A4ACD1E6A8CBFDBD62A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,25 +532,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386819   (793786) от 30.05.2020
+###  Публикация: 1200552   (795697) от 21.01.2018
 
-Лада Кутузова | Витька на Кудыкиной горе (2020) [EPUB]
+Василий Жуковский | Война мышей и лягушек (1910) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Витька живёт и не знает, что его мама – потомственная баба-яга, а папа – царевич из Тридевятого царства. Сам Витя лишён сказочного дара, а потому родители скрывают от него правду. Но однажды Витя проваливается в Тридевятое царство, и теперь только от него зависит, сможет ли он вернуться обратно.Жанр: Сказки для детейФормат: EPUB
+Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AB54191A6D2E80467A5FB4520640B4EDBB0325E
+magnet:?xt=urn:btih:E8F718370A5F3BAC9A7C104E392B15BE42BD823E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,25 +558,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274353   (793785) от 06.01.2019
+###  Публикация: 1200618   (795696) от 21.01.2018
 
-Рождество в Теннесси / A Christmas in Tennessee (2018) HDTVRip [MVO] [AD]
+VA - Empire Records - Sound Clinic 8 (2017) [MP3|320 Kbps] <Dance, Electro House>
 
->>Остальное
->>Фильмы с Рекламой
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Алисон Бэннет - мать чудесной девочки Оливии живёт небольшом городке в Теннесси. Она работает в пекарне, которую основал её отец более 30 лет назад. Однажды в город приезжает консультант по развитию недвижимости Мэтью Гилберт. Он всеми силами пытается выкупить городок, чтобы его бизнес-партнеры смогли превратить его в крупный горнолыжный курорт.Производство: США / Smokey Mountain FilmsЖанр: Комедия, семейныйРежиссер: Гари ЙэтсАктеры: Рэйчел Бостон, Кейт Мойер, Кэролайн Ри, Черисса Ричардс, Патриша Ричардсон, Эндрю В. Уолкер, Джим КирбиПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:27:15Реклама: Присутствуют вставки текстовой рекламы
+01. Arthur D'Amour - Chaos in My House (Original Mix)
+02. Sion - I'm Sorry (Original Mix)
+03. Lazy Bear & Future Class - Do You Like (Original Mix)
+04. Luigi Peretti - Cocaine (Original Mix)(   Читать дальше...   )Жанр: Dance, Electro HouseПродолжительность: 01:57:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0788C9249BC0DFDCA542D712D6F3740DBE63E82
+magnet:?xt=urn:btih:4C46C1CC9D2DC6286D7619C41CD49F671740ED73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,25 +587,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274436   (793784) от 06.01.2019
+###  Публикация: 1200439   (795695) от 21.01.2018
 
-Рождество с Джой / Christmas Joy (2018) HDTVRip [MVO] [AD]
+VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soulful House, Disco House, Funky House>
 
->>Остальное
->>Фильмы с Рекламой
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джой решает съездить в свой родной городок Кристал-Фолс к тёте. Звёзды сходятся, и Джой встречает свою прежнюю любовь — Бена Эндрюса, в больнице, где он работает. Сначала Джой лишь заботится о своей тёте и даже замещает её и становится председателем на местном фестивале печенья. Однако со временем она впускает Бена в свою жизнь. Бен и Джой становятся главными организаторами (   Читать дальше...   )Производство: США / The Hallmark Channel, Crown Media ProductionsЖанр: Мелодрама, семейныйРежиссер: Моника МитчеллАктеры: Даниэль Панабэйкер, Мэтт Лонг, Люсия Уолтерс, Беверли Эллиотт, Шеннон Чан-Кент, Габриель Роз, Сьюзэн Хоган, Фред Хендерсон, Тейлор Хастингс, Сара ХейуордПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:23:37Реклама: Присутствуют вставки текстовой рекламы
+01. Kungs & Cookin' On 3 Burners - This Girl (Fabich Remix) 4:20
+02. TIEKS - Sunshine (feat. Dan Harkna) (Zac Samuel Remix) 4:34
+03. Apexape - Joy & Pain 3:01
+04. Ben Delay - The Boy Is Mine (feat. Alexandra Prince) (Mark Lower Vocal Mix) 5:16(   Читать дальше...   )Жанр: Deep House, Vocal House, Soulful House, Disco House, Funky HouseПродолжительность: 05:58:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91F16A9D857E2BF7101685B62A5F7556F613C2FD
+magnet:?xt=urn:btih:BB1B29AA2BB8FAE0A71F4420F163938ECFD86C3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,25 +616,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273855   (793783) от 06.01.2019
+###  Публикация: 1012055   (795694) от 29.04.2016
 
-Дикие танцы (2019) SATRip (4 серии из 4)
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Вашингтон - Питтсбург. 1-й матч (28.04.2016) HDTVRip [H.264/720p-LQ]
 
->>Документалистика и Телепередачи
->>Посвящение искусству
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказы о бытовании танца ХХ веке. Танца как формы досуга, формы самовыражения личности, поиска ею внутренней свободы и формы социального протеста. В танцах отразилась смена исторических вех. Возникновение некоторых из них было продиктовано природными катаклизмами, другие стали следствием процессов в общественном сознании и бессознательном. В сериале принимают участие (   Читать дальше...   )Производство: Россия, Кинокомпания «Пигмалион Пикчерс», ВГТРКЖанр: Документальный, познавательный, историяРежиссер: Андрей РозовПродолжительность: 4 х ~ 00:26:00
+29 апреля 2016, пятница. 03:00 МСК
+1/2 финала - Восток. 1-й матч
+
+Стадион: Веризон-центр (Вашингтон, США) , 18 506 зрителей (100 % при вместимости 18 506)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Казанский, Бадюков) / ИнтершумПродолжительность: 02:13:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0C6CD5C7B23408F35674430B58E0114C65FAED3
+magnet:?xt=urn:btih:15DE579E8D91648139FEAED954ED9B2B30591407
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,25 +645,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217764   (793782) от 06.01.2019
+###  Публикация: 1011981   (795693) от 29.04.2016
 
-Тот, кто читает мысли / Менталист (2017) WEBRip (серии 1-16 из 16)
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Вашингтон - Питтсбург. 1-й матч (28.04.2016) WEB-DL [H.264/720p-LQ] [EN]
 
->>След.
->>
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Харизматичный 42-летний Даниил Романов консультант особого криминального отдела полиции, превосходный менталист, психолог-практик и манипулятор, некогда выдававший себя за экстрасенса и ясновидящего, способного читать чужие мысли. Все изменилось, когда он в одном из телешоу дал унизительную характеристику опасному маньяку по кличке Демон.Производство: Россия, Украина, Великобритания / Star Media по заказу Первого каналаЖанр: детектив, драмаРежиссер: Алексей МурадовАктеры: Ехезкель Лазаров, Анастасия Микульчина, Игорь Оробей, Нодар Сирадзе, Валерия Бурдужа, Александр Мохов, Юлия Ромашина, Денис Карасёв, Данила Дунаев, Антон Соколов и др.Продолжительность: ~ 00:52:00 серия
+29 апреля 2016, пятница. 03:00 МСК
+1/2 финала - Восток. 1-й матч
+
+Стадион: Веризон-центр (Вашингтон, США) , 18 506 зрителей (100 % при вместимости 18 506)(   Читать дальше...   )Телекомпания: NBCSNЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:37:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AC570400954313964ED19C9942A94A0093BE989
+magnet:?xt=urn:btih:79902D5681BF9B90C8C29184AA242ADF854F5138
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,25 +674,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274230   (793781) от 06.01.2019
+###  Публикация: 1011973   (795692) от 29.04.2016
 
-Всё или ничего (2018) WEB-DLRip
+Футбол. Лига Чемпионов 2015-2016. 1/2 финала. Обзор первых матчей. (27.04.2016) HDTVRip [H.264/720p-LQ]
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Офисный планктон — опасный зверь, если его разозлить. Трое менеджеров-неудачников объединяются в почти преступную группировку в попытке свергнуть обнаглевшего начальника, который безбожно обворовывает компанию. Друзья разрабатывают экстремальный план, как выкрасть 50 миллионов у босса и восстановить справедливость. Но как это бывает у новичков — всё идёт не по плану. (   Читать дальше...   )Производство: Россия, ССБ Кино, КАРО ПрокатЖанр: Комедия, ПриключенияРежиссер: Дмитрий СуворовАктеры: Роман Курцын, Артур Смольянинов, Данила Якушев, Кирилл Каганович, Юрий Стоянов, Андрей Стоянов, Сергей Бурунов, Владимир Епифанцев, Роман Мадянов, Екатерина СоломатинаПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:28:46
+Обзор матчей за 26 и 27 апреля 2016 года.Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Павел Занозин) / ИнтершумПродолжительность: 00:21:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:217E116FE4DD4860B05A97411C8FE6FA61CB114F
+magnet:?xt=urn:btih:24ACC4BB402565417DDA30422A3A8DCBC0E02284
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,51 +700,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274221   (793780) от 06.01.2019
+###  Публикация: 1011974   (795691) от 29.04.2016
 
-Том Рат | Ешь, двигайся, спи (2018) [MP3]
+Футбол. Лига Европы 2015-2016. 1/2 финала. Обзор первых матчей. (28.04.2016) HDTVRip [H.264/720p-LQ]
 
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы привыкли к тому, что переход к здоровому образу жизни требует каких-то кардинальных перемен, например полного отказа от никотина и алкоголя, регулярных спортивных занятий, смены места жительства. Во многом поэтому мы не уделяем должного внимания «мелочам» — ежедневным решениям по поводу того, что съесть на завтрак: овсянку или бутерброд? Позвонить коллеге или (   Читать дальше...   )Жанр: ЗдоровьеПродолжительность: 04:24:53
+Обзор матчей за 28 апреля 2016 года.Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Илья Казаков) / ИнтершумПродолжительность: 00:25:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:006C5626A2CCBC8D8721B62159AFC21A8C9CBC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274236   (793779) от 06.01.2019
-
-Рохит Бхаргава | Всегда ешьте левой рукой: А также перебивайте, прокрастинируйте, шокируйте. Неочевидные советы для успеха (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, что написано в этой книге, прямо противоположно тому, что твердили вам годами родители, учителя, коллеги и начальники. «Прокрастинируйте больше. Доводите людей до слез. Освойте йодль». Вы вообще серьезно? На самом деле да. Эта книга наполнена парадоксальными и порой обескураживающими секретами успеха, о которых никто никогда не осмеливался вам рассказать. Но (   Читать дальше...   )Жанр: СаморазвитиеПродолжительность: 03:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73BD87C2E04ADC6FF227FA4D87893A67E4B1EB1
+magnet:?xt=urn:btih:D5A570A88A41D4A27D8552E4826C1AB20EF3427D
 ```
 
 https://mybot314.ru/tekegram_catalog/

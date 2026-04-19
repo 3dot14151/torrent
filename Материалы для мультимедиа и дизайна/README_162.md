@@ -1,22 +1,48 @@
-###  Публикация: 681758   (635918) от 20.07.2013
+###  Публикация: 1033219   (639687) от 10.07.2016
 
-Шаблоны - GraphicRiver - CD Case & Disc Mock-ups [PSD]
+Экшены - GraphicRiver - Burning Charcoal - Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burning Charcoal - экшен для Вашего творчества.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35FEFA976E1B936E805A1F9B26212C9F5B77368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033364   (639490) от 10.07.2016
+
+Шаблоны - CreativeMarket - Poster Frame Mockup Set 2 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 PSD файлов CD дисковых макетов. Каждый слой должным образом маркирован, и все части хорошо организованы, что делает редактирование очень легко.Формат: PSDРазрешение файлов: 2400x1600
+В сете содержатся 10 шаблонов в PSD для вашего творчества. Принцип редактирования стандартный для смарт-объектов.Формат: PSDРазрешение файлов: 5000Х3333, 3750Х5000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E28109DFEDBB9069AB48F5F2CCE5079BA5977957
+magnet:?xt=urn:btih:F051B7BDF9D00D62C659B3C9B477001886597B63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,158 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 681450   (635915) от 20.07.2013
+###  Публикация: 1033254   (639484) от 10.07.2016
 
-Фоны - Средневековые Фоны / Medieval Backgrounds [PSD,JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картинки из средневековья)
-- 20 фонов (1920х1280)
-- 4 PSD
-- 20 jpg (3000х2000)Разрешение файлов: 3000х2000Формат: PSD,JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85946DA89D2FABC40AF1E871ECD9378206B4F960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681733   (635911) от 20.07.2013
-
-Шаблоны - Банеры, билборды, постеры / Banners, billboards, posters bundle [JPEG,PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник шаблонов: Банеры,билборды,постерыФормат: JPEG,PSDРазрешение файлов: 1200х900-6000х6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB2313C2A8981D6FCE8CAC26ACBAA590665CE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033825   (635802) от 12.07.2016
-
-Шаблоны - GraphicRiver - Laptop - Realistic Photographer Mock Up [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальное и оригинальное представление фотографом своих фото. В трёх PSD-файлах помимо замены фото на ваши есть несколько вариантов свето-цвето коррекции. Инструкция включена.Формат: PSDРазрешение файлов: 3000Х2000 px, 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BD0F4EC5913F738792395BE557594C419007FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034130   (635801) от 12.07.2016
-
-Шаблоны - GraphicRiver - Wedding Photo Album [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон свадебного фотоальбома.Формат: PSDРазрешение файлов: 4252x3618 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7772BADEDFEFB8C2A02660CDEE0D8DAD51993F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681737   (635797) от 20.07.2013
-
-Шаблоны - GraphicRiver - CD/DVD Mockups V.1 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это макет, который позволит вам сэкономить много времени, если вы пытаетесь, чтобы продемонстрировать свои CD / DVD-художественное произведение!Формат: PSDРазрешение файлов: 2000x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBD1039B21D44ED118C951CF797E46CB35E0B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681457   (635793) от 20.07.2013
-
-Растровый клипарт - Вынос мозга / Fracture Of The Head [JPEG,PSD]
+Растровый клипарт - CreativeMarket - The Newest Watercolour Bundle [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вынос мозгаРазрешение файлов: 1200х1800-6000х4600Формат: JPEG,PSD
+252 PNG-файла акварельных элементов и фонов в 300-пиксельном разрешении.
+Этот пакет включает в себя 9 папок с новейшими и лучшими цветами написанными акварельными красками:
+- Fresh Flowers
+- Five O'Clock Flowers(   Читать дальше...   )Формат: PNGРазрешение файлов: от 195Х528 до 3600Х3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DCFC02F41E5418C23B203381B60789C103F68E4
+magnet:?xt=urn:btih:92F0E0B3A12CBBDACCD64DBC4704D06FEE87BF81
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,25 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 681727   (635791) от 20.07.2013
+###  Публикация: 1033286   (639364) от 10.07.2016
 
-Шаблоны - GraphicRiver - CD/DVD Disc & Cover Mockups [PSD]
+Звуковые библиотеки - Music Maker Jam - Soundpools Pack 2 [OGG]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-6 уникальных макетов CD-DVD дисков для ваших музыкальных сборников.Формат: PSDРазрешение файлов: 2400x1600
+Большой сборник Music Maker Jam - Soundpools Pack 2 включает в себя 89 стилей (как платных, так и бесплатных) из Music Maker Jam, которые содержат более 26000 звучаний различных инструментов высокого качества. Стили подходят для установки как в Music Maker Jam, так и в профессиональные версии программы (Magix Music Maker Premium/Live и т.д.). Они помогут создать (   Читать дальше...   )Формат: OGG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF9DA782D54840602CD0F777C1CFE75E4767CC7C
+magnet:?xt=urn:btih:EB51815CAF29CC90A81351EDF1F24018022D03A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,52 +105,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033494   (635688) от 12.07.2016
+###  Публикация: 1227938   (639148) от 30.05.2018
 
-Пресеты - VideoHive - Text Preset Volume I for Animation Kit [JSXBIN, JSXINC]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Text Preset Volume I for Animation Kit - представляет собой набор из предустановленных эффектов, которые превращают ваши статичные тексты, формы или изображения в "живую" анимацию. После установки, просто перетащите нужный пресет в вашу предварительно подготовленную композицию на тайм-лайне.Формат: JSXBIN, JSXINC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C29B28DF5413B4395B244DFABD9B9EEB1BCE82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228095   (635561) от 01.06.2018
-
-Текстуры - Creative Market - Marbleized Gold Patterns & Textures - 575378 [JPG]
+Текстуры - GraphicBurger - Paper Marbling Textures Vol.2 [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мраморные золотые текстуры и узоры под металл и акварель.
-Автор: Blixa 6 Studios.Формат: JPGРазрешение файлов: 3600 x 3600
+Мраморные текстуры. 100% Бесплатно.
+Автор: Aurora Prints & Goods.Формат: JPGРазрешение файлов: 4500 x 3134 - 4500 x 3436
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB7C4A937CD9157EC99B60BE836C682F609F1BA8
+magnet:?xt=urn:btih:9A6069AAAEA4EF28429EAF69946FC368C9CC67E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,25 +132,188 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228485   (635555) от 01.06.2018
+###  Публикация: 1227940   (639147) от 30.05.2018
 
-Экшены - GraphicRiver - NEOarch Architecture Vintage Antique PS Action Advanced - 21930957 [ATN, ABR, PAT]
+Текстуры - GraphicBurger - Paper Marbling Textures Vol.3 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры. 100% Бесплатно.
+Автор: Aurora Prints & Goods.Формат: JPGРазрешение файлов: 4381 x 3945 - 6870 x 4806
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE5B073F6E0045E66BE4950326F3B0787D56E788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227937   (639143) от 30.05.2018
+
+Текстуры - GraphicBurger - Paper Marbling Textures Vol.1 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры. 100% Бесплатно.
+Автор: Aurora Prints & Goods.Формат: JPGРазрешение файлов: 4500 x 3091 - 4500 x 3224
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116AC913B5DCC7CE12116BCA3484877A1225F159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228087   (639140) от 30.05.2018
+
+Текстуры - Creative Market - Vector vivid marble patterns - 1625595 [JPG, AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркие мраморные узоры в векторе и не только.
+Автор: Merydolla Studio.Формат: JPG, AI, EPSРазрешение файлов: 8333 x 8333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47879C0B31268E66DBA6C24F986467BF19D6AE0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227942   (639136) от 30.05.2018
+
+Текстуры - GraphicBurger - Paper Marbling Textures Vol.4 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры. 100% Бесплатно.
+Автор: Aurora Prints & Goods.Формат: JPGРазрешение файлов: 3364 x 2398 - 6183 x 4702
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1165531E75869D3C588BC808594B2B8BB42A5F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293144   (639053) от 02.04.2019
+
+Векторный клипарт - Cartoon Easter Bunnies [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Мультяшные пасхальные кролики.
+3 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B6B3A2F07F4B3E4C8023D8B9326FF08715C13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293149   (639049) от 02.04.2019
+
+Растровый клипарт - Spring flowers set stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весенние цветы, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3200x4800-5601x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398FC28979436AC1702776510FF91B2194692C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228132   (639017) от 30.05.2018
+
+Экшены - GraphicRiver - Aquarelleum - Urban Sketcher Photoshop Action - 21938349 [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NEOarch Architecture Vintage Antique - творческий многофункциональный экшен фотошоп в считанные минуты превратит ваши изображения в профессиональные художественные работы в винтажном стиле. Легко настраивается и улучшается.Формат: ATN, ABR, PAT
+Aquarelleum - Urban Sketcher - творческий многофункциональный экшен фотошоп в считанные минуты превратит ваши изображения в профессиональное художественное акварельное полотно. Легко настраивается и улучшается.
+Для достижения наилучших результатов, рекомендуется использовать фотографии высокого разрешения в диапазоне 3500–4000px (рекомендуется 4000px.). разрешение (   Читать дальше...   )Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:856D06862C2A0AA164EB0953DF62802AEAB03266
+magnet:?xt=urn:btih:009A7F123F27ED9C5C8DE06D9EACF902226484EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,108 +321,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293647   (635494) от 04.04.2019
+###  Публикация: 1293146   (638931) от 02.04.2019
 
-Векторный клипарт - Hello Spring - 7 - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весенние цветы на голубом фоне - вектор. Здравствуй, весна.
-22 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0FC7315AE7F64EA7581C2E5B85D821858FA7E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293639   (635491) от 04.04.2019
-
-Векторный клипарт - Happy easter - 7 - Vector Graphics [EPS]
+Векторный клипарт - Isometric icons vector illustration #3 [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кролик и корзина с весенними цветами и яйцами - пасхальные векторные рисунки.
-7 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3995FCEC8524800C5C53DDB5092366D48F95089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293529   (635490) от 04.04.2019
-
-Векторный клипарт - Happy easter - 9 - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638931.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Счастливой пасхи.
-20 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D327A714D27918C26D03CA40A73104D04DDA74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293644   (635489) от 04.04.2019
-
-Векторный клипарт - Hello Spring - 10 - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочные фоны с цветами в векторе - Здравствуй, весна.
+Изометрические иконки.
 9 EPS + PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55257745519E9D410A7B476BBDAE6B6A9458ED14
+magnet:?xt=urn:btih:071101F0B1B0B5388F0026E74803C9D733C4ED50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,55 +349,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293666   (635488) от 04.04.2019
+###  Публикация: 1293148   (638925) от 02.04.2019
 
-Векторный клипарт - Beasts in the forest - Vector Graphics [EPS]
+Векторный клипарт - Abstract geometric background vector [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638925.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Звери в лесу.
-24 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABF1496251E1F871DB7F415D1C9A26077182EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293664   (635487) от 04.04.2019
-
-Векторный клипарт - Flag of different countries of the world #2 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Флаги разных стран мира.
+Абстрактные геометрические фоны.
 12 EPS + PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B0B433392E63B54BB3E4E128544693B9EB32D42
+magnet:?xt=urn:btih:16E88955CA8952AFD0A78A5DE34AD0A78DC6381B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,27 +377,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293522   (635378) от 04.04.2019
+###  Публикация: 519046   (638775) от 05.07.2012
 
-Векторный клипарт - Hello Spring - 16 - Vector Graphics [EPS]
+Растровый клипарт - Summer Holidays [JPEG]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Здравствуй, весна.
-6 EPS + PreviewФормат: EPS
+Клип-арт на тему летнего отдыхаРазрешение файлов: 3000х2000 - 8300х7000Формат: AI , EPS , JPEG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48D7AECAA0CF3CAC4172854659A66550DDC4335F
+magnet:?xt=urn:btih:C56239CC28525E506D94F8C7D2713A8E1EBB00A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,216 +403,292 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293711   (635375) от 04.04.2019
+###  Публикация: 519109   (638630) от 05.07.2012
 
-Векторный клипарт - Hello Spring - 5 - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Розовые фоны с весенними цветами - вектор. Здравствуй, весна.
-12 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F76813499C88F7BDA7BEA918C6C47BC9CA5503F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293636   (635373) от 04.04.2019
-
-Векторный клипарт - Cute little animals - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жираф, поросенок, носорог, змея, акула,мышь, кот, лиса, медведь - смешные и забавные векторные рисунки.
-20 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83DA638C44304069E81B97551E78B2D225C37905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293691   (635372) от 04.04.2019
-
-Векторный клипарт - Animals - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Нарисованные животные.
-14 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E5D02E893A34E9A08D16FC6FD530A07F1C262A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293526   (635370) от 04.04.2019
-
-Векторный клипарт - Travel in space - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Путешествие в космос.
-10 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B063A77E7CFA2A06B0AE9227E8992555281D8C5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293748   (635359) от 04.04.2019
-
-Растровый клипарт - Steampunk #04 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Steampunk на прозрачном фонеФормат: PNGРазрешение файлов: 67x350-998x915
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE458A16ADF6CD5400FB55C778AB16AF6F35265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293640   (635230) от 04.04.2019
-
-Векторный клипарт - Dark backgrounds with arrows - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тёмные металлические фоны со стрелками.
-12 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3240F69640AA68E6881B1E9C6278E20AA3E942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293607   (635221) от 04.04.2019
-
-Векторный клипарт - Abstract dark background - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Абстрактный тёмный фон.
-8 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18D4569D79EC18050AC94EAFA91F4208C2BC6A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293403   (635079) от 04.04.2019
-
-Шаблоны - Creative Market - Photography album mockup bundle - 909651 (Technical variation) [PSD, ATN, JPG]
+Шаблоны - Photorealistic brochure & Trade show boot [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638630.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот макет является одним из лучших фотоальбомов на рынке. Он был создан начиная с реальной фотографии, и после того, как я сделал рендеринг в нескольких слоях. Действительно прост в использовании, макеты используют смарт-объекты, чтобы заменить обложку вам понадобится всего 2 шага!.Формат: PSD, ATN, JPGРазрешение файлов: 4000х2670
+Интересное оформление для ваших фотографий и дизайна
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:844E67D564D091797F5BA99BA610324CE61D98CD
+magnet:?xt=urn:btih:DE030FB02321A2670EEB34F50D06A724BF535F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 681261   (638018) от 19.07.2013
+
+Фоны - Lumaxart Backgrounds [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638018.jpg" />
+</div>
+
+
+###  Подробнее
+
+118 красивых и стильных фонов. Многие оценят их по достоинству.Формат: JPEGРазрешение файлов: 1200х700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD10F122E7587113F75577C39D3F034479D132B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 681299   (637725) от 19.07.2013
+
+Футажи - VideoHive - Kids Transition Pack - 5079345 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637725.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 Предварительно оказанных красочных переходов, для создания динамических, энергетических и творческих переходов между вашими фотографиями или видео роликами.Формат: MOVРазрешение файлов: 1280x720
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1283EE8F45419BC037A09806305D0DC98E878FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293338   (637404) от 03.04.2019
+
+Векторный клипарт - Fotolia - Dinosaurs - Life in the prehistoric time [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Динозавры.
+17 EPS + PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E39FFF13BABAB23DFCD1E1C15FED888EEFB993E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293520   (637281) от 03.04.2019
+
+Векторный клипарт - Watercolor landscapes in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Пейзажи акварелью.
+10 EPS + PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F7137BCEF47C7E6654BC0AF41BEBEB8C90A18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293316   (637130) от 03.04.2019
+
+Шаблоны - Детский фотоальбом для мальчиков с машинками - Ух, прокачу [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский фотоальбом для мальчиков с машинками от автора Туся.Формат: PSDРазрешение файлов: 7205x3602
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D0DB06A9F2C7A11B3A01D2A184E248CB1A67A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293324   (636974) от 03.04.2019
+
+Шаблоны - Классический элегантный фотоальбом [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический элегантный фотоальбом от автора Туся.Формат: PSDРазрешение файлов: 7205x3602
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00550108FF98757BEC266AC2CA42D08E30A7D6F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293515   (636903) от 03.04.2019
+
+Шаблоны - Envato Elements - Various Exhibition Trade Show Shell Scheme Mockup [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636903.jpg" />
+</div>
+
+
+###  Подробнее
+
+4-варианта макета выставочного стенда (Various Exhibition Trade Show).Формат: PSDРазрешение файлов: 3000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A28527200D5CDB621A1F3AA53342BACFE125F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293335   (636896) от 03.04.2019
+
+Шаблоны - GraphicRiver - Scene Creator 5K Mockup - 16748972 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scene Creator 5K - это инструмент высокого разрешения и отличного качества для демонстрации ваших работ, таких как: плакаты, картины, рисунки, веб-дизайн или макеты продуктов. Вы также можете создавать изображения заголовков для вашего сайта или блога.Формат: PSDРазрешение файлов: 5120×2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E770A31488B4A7AEB401275FDB932D0679417326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 801198   (636307) от 01.07.2014
+
+Растровый клипарт - Vintage flowers [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винтажные цветы на прозрачном фоне...
+
+В мире цветов так тепло и прохладно,
+Целый букет ароматов и звуков…(   Читать дальше...   )Формат: PNGРазрешение файлов: 653х980 х 4860х3734
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FE26819A87ACCFC38A6C37B605A8C28B36312F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034055   (636029) от 12.07.2016
+
+Экшены - GraphicRiver - SketchyMood Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636029.jpg" />
+</div>
+
+
+###  Подробнее
+
+SketchyMood - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D930C6170CEBAC33258BF087C49CEE314F12D006
 ```
 
 https://mybot314.ru/tekegram_catalog/

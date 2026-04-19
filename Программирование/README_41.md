@@ -1,3 +1,83 @@
+###  Публикация: 1610735   (207904) от 08.02.2023
+
+Benjamin Evans, Jason Clark, Martijn Verburg | The Well-Grounded Java Developer, Second Edition (2022) [PDF] [Ebook & Video Edition] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207904.jpg" />
+</div>
+
+
+###  Подробнее
+
+This is the video edition of the book from manning, of course compressed (so not 2.5GB but a lot less, around 600mb or so), I have also included the pdf book as well for fun (also in compressed form). The videos' total length are around 20hrs. Source is on github, attached as an extra resource.
+
+Understanding Java from the JVM up gives you a solid foundation to grow (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75F153F62EB1B8D1FCC4A1AD4500E3906BD4E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577327   (207724) от 18.09.2022
+
+Стивен Скиена | Алгоритмы. Руководство по разработке. 3-е изд (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является наиболее полным руководством по разработке эффективных алгоритмов. Первая часть книги содержит практические рекомендации по разработке алгоритмов: приводятся основные понятия, дается анализ алгоритмов, рассматриваются типы структур данных, основные алгоритмы сортировки, операции обхода графов и алгоритмы для работы со взвешенными графами, примеры использования (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A57A4C180F760F65A3166C156BE19EBE43732F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611678   (207442) от 13.02.2023
+
+Adam Freeman | Pro ASP.NET Core 6: Develop Cloud-Ready Web Applications Using MVC, Blazor, and Razor Pages (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Professional developers will produce leaner applications for the ASP.NET Core platform using the guidance in this best-selling book, now in its 9th edition and updated for ASP.NET Core for .NET 6. It contains detailed explanations of the ASP.NET Core platform and the application frameworks it supports. This cornerstone guide puts ASP.NET Core for .NET 6 into context (   Читать дальше...   )Жанр: Программирование, ASP.NET CoreЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990DF944E43F22EA65507A6FD52AA78A3154C1E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650430   (207299) от 02.08.2023
 
 Peter Spath | Pro Android with Kotlin - 2nd Edition (2022) [PDF][EN]
@@ -603,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FE29BB7F2F0F1594F826BC0434D20527D6DD592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655704   (204135) от 27.08.2023
-
-Shantanu Baruah, Shaurya Baruah | App Development Using iOS iCloud (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сначала вы построите базовый, функциональный UX-экран. Затем вы подключите iCloud с CloudKit для сохранения данных и частных, публичных и общих баз данных. Здесь ваш дизайн пользовательского интерфейса, основанный на коде, расширится до разработки профессионально выглядящих экранов с анимацией. Вы также научитесь работать с блоками напоминаний и уведомлений, обмениваться (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E720D6F984D16FC4E835FF334E50ED7B7C16EB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604044   (204132) от 12.01.2023
-
-С.Е. Иванов | Прикладные алгоритмы на языке ООП C# (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие включает лабораторные работы, выполняемые в рамках курса «Объектно-ориентированное программирование». Представлено описание, блок-схемы реализация различных прикладных алгоритмов на языке ООП C#Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C92B6BDA00E4FB77E65B52CE2457C573E520E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605947   (203802) от 20.01.2023
-
-Mark J. Price | C# 11 and .NET 7 – Modern Cross-Platform Development Fundamentals, 7th Edition (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Extensively revised to accommodate the latest features that come with C# 11 and .NET 7, this latest edition of our guide will get you coding in C# with confidence.
-You'll learn object-oriented programming, writing, testing, and debugging functions, implementing interfaces, and inheriting classes. Next, you'll take on .NET APIs for performing tasks like managing and (   Читать дальше...   )Жанр: ПрограммированиеЯзык: EnglishФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9502F4E946EF1683348C4CA582F76E031923E088
 ```
 
 https://mybot314.ru/tekegram_catalog/

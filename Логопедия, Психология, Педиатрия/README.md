@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1863301   (1063973) от 
+###  Публикация: 1863301   (1063564) от 04.04.2026
 
 В. Воловик | Давай воспитаем ребенка (2024) [PDF, EPUB, FB2]
 
@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063564.jpg" />
 </div>
 
 
@@ -28,7 +28,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859317   (1061071) от 
+###  Публикация: 1859317   (1061071) от 15.03.2026
 
 Екатерина Бурмистрова | Атлас эмоций дошкольника. Как вырастить смышлёного ребёнка (2026) [PDF, DOCX]
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061071.jpg" />
 </div>
 
 

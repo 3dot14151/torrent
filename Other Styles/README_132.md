@@ -1,3 +1,212 @@
+###  Публикация: 582511   (312776) от 02.12.2012
+
+Патруль / End of Watch (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Public Enemy -  Harder Than You Think
+02 David Sardy -  I Am The Police
+03 David Sardy -  My Evil Is Big
+04 The Delfonics -  Hey! Love
+05 David Sardy -  Follow Me Into The House
+06 David Sardy -  Heroes
+07 David Sardy -  Hold The Baby - You Can't Live Without Her
+08 The Latin Rascals -  Lisa's Coming
+09 David Sardy -  Take Care Of Janet
+10 David Sardy -  Minivan Tail(   Читать дальше...   )Жанр: OSTПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802C7C1F6C156936904EAF63B198044C9B01A7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959937   (312414) от 26.11.2015
+
+Karushanti - Silence Meditation (2015) [FLAC|tracks]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pale Surface (6:18)
+02. Hills (6:11)
+03. Enlightened Soul (6:38)
+04. Lead Me (6:31)(   Читать дальше...   )Жанр: New Аge, RelaxПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741A3F6345631820B7313AC73022E08BB9B0D64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959804   (312406) от 26.11.2015
+
+Deep Forest - Boheme (1995) [FLAC|tracks+.cue]<New Age, Ambient, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anasthasia (1:48)
+02. Bohemian Ballet (5:14)
+03. Marta's Song (4:12)
+04. Gathering (4:38)(   Читать дальше...   )Жанр: New Age, Ambient, FolkПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2476CAC549764D2B3F158A50580B3D02C2F3529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183061   (312332) от 12.11.2017
+
+VA - We Love Latin 2017 (Only Djs Extended Versions) [MP3|320 Kbps] <Latin Dance, Reggaeton, Dancehall>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yero Company – Pa Que Bailes (Original Mix) (feat. Robe) 02:56
+02. DJ Tao – Ona-Nana (Original Mix) 02:25
+03. Danilo Orsini – Con To’ (Extended Mix) (feat. Shainy El Brillante) 05:21
+04. Biou – Suena La Pista Asi (Extended Mix) 05:00(   Читать дальше...   )Жанр: Latin Dance, Reggaeton, DancehallПродолжительность: 01:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FE15FCED75B7008E26403D6A2F75FFA981D35D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182841   (312206) от 12.11.2017
+
+VA - Disco Dancer (OST Танцор диско) (1982) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vijay & Chorus - I Am A Disco Dancer  7:51
+02.  Parvati Khan - Jimmy Jimmy Jimmy Aaja  3:04
+03.  Usha Uthup, Bappi Lahiri & Chorus - Auva Auva Koi Yahan Nache  5:24
+04.  Kishore Kumar & Chorus - Ae Oh Aa Zara Mudke  5:47(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B8044B4230C3CFF01BD812999E0AB9B4A8A9A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260321   (312026) от 07.11.2018
+
+Senyawa - Sujud (2018) [MP3|320 Kbps] <World, Other, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanggalkan Di Dunia (Undo The World)
+02. Sujud (Prostration)
+03. Terbertaktilah Tanah Ini (Blessed Is This Land)
+04. Penjuru Menyatu (Unified Counters)(   Читать дальше...   )Жанр: World, Other, FolkПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A37CA63B036679ED2F9835E1769C3334F3F504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076669   (311869) от 26.11.2016
+
+Clint Eastwood, Christian Jacob & The Tierney Sutton Band - Sully / Чудо на Гудзоне (Music from and Inspired by the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sully Suite (09:24)
+02. Sully Wakes Up (02:40)
+03. Flying Home (Sully's Theme) (02:59)
+04. Boarding (00:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29F04A01FE4E7E4B28CD921512F8110DF473014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260276   (311837) от 07.11.2018
 
 VA - E-Energy vol. 1-16 (2014-2016) [MP3|320 Kbps] <Ambient, Chillout, Instrumental, New Age>
@@ -548,209 +757,6 @@ Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D50A1ACB3F0173F4B3863CB233EFBCCCA9158E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183511   (307677) от 14.11.2017
-
-Сергей Курёхин - Трагедия в стиле рок (2000) [FLAC|Lossless|image + .cue] <AvantGarde Jazz, Folk/Rock, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог
-02. Часть 1
-03. Часть 2
-04. Часть 3(   Читать дальше...   )Жанр: AvantGarde Jazz, Folk/Rock, SoundtrackПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57007165F3CDD8FC3D9CA842A3AC87D44CA8D469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332990   (307650) от 23.10.2019
-
-Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legacy (01:29)
-02. 29 (02:44)
-03. Rising Star (02:05)
-04. From the Bottom (01:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101A71656D2EEA8D706B7B0A0796AFB5AAB80C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260608   (307615) от 09.11.2018
-
-Bernward Koch - Touched by Love (2016) Compilation [FLAC|Lossless|tracks + .cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking through Clouds (2:43)
- 02. Touched by Love (3:26)
- 03. Long Way Home (4:15)
- 04. Back to Myself (3:49)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72AA7E88FBA3EADF0175ADDEDC4C0F8C2BAFF437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333138   (307496) от 23.10.2019
-
-The O'Neill Brothers - Calming Piano for Comfort (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307496.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Meditation 05:18
-2. Remembering When 05:45
-3. Farewell	04:21
-4. Snowflakes 04:15(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49C8E1FE328362F7AF3B7DD9445F62E35ED4EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332992   (307488) от 23.10.2019
-
-Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legacy (01:29)
-02. 29 (02:44)
-03. Rising Star (02:05)
-04. From the Bottom (01:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DB4A7488C9F62C18DEFD0B92947ED27F4A7467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333011   (307337) от 23.10.2019
-
-Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legacy (01:29)
-02. 29 (02:44)
-03. Rising Star (02:05)
-04. From the Bottom (01:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25443468D9DEE7A04B123BCD9C35155D2310BF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260595   (307294) от 09.11.2018
-
-Баян Mix - Нескучная классика (2014) [MP3|320 Kbps] <Instrumental, Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Симфонименто 5 (4:06)
-02. Попурри 40 (3:49)
-03. Чардаш (3:18)
-04. Легенда (4:03)(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96AB133D2C2A464069014FB5FC645D4C6C2415B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

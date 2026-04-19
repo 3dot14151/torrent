@@ -1,3 +1,177 @@
+###  Публикация: 1024500   (717916) от 08.06.2016
+
+VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teamheadkick - Merc with a Mouth (03:47)
+02. Junkie XL - Fear the T-Rex (02:55)
+03. Junkie XL - Because I Want To (01:01)
+04. The Chordettes - Mister Sandman (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0882EFB38857A41C2527E4357123E542D32748BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024311   (717915) от 08.06.2016
+
+VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teamheadkick - Merc with a Mouth (03:47)
+02. Junkie XL - Fear the T-Rex (02:55)
+03. Junkie XL - Because I Want To (01:01)
+04. The Chordettes - Mister Sandman (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25627D329DCE2B49A0CBAAE3F515696543E79B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024307   (717914) от 08.06.2016
+
+Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Revenant Main Theme (02:41)
+02. Hawk Punished (02:14)
+03. Carrying Glass (03:07)
+04. First Dream (03:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FBD64A16D359348D07EA3088B9489677AE035FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024352   (717903) от 08.06.2016
+
+VA - Unwind Piano Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delilah Gutman - Purple (4:02)
+02. Frank Glazer - Gnossiennes No. 1 (2:51)
+03. Seby Burgio - Biphasic Sleep (5:55)
+04. Delilah Gutman - Dell'inconscio l'istinto (1:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE9492F99E16BD99632939E601A29301DDC1577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669753   (717501) от 18.06.2013
+
+Thomas Newman - Зеленая миля / The Green Mile (1999) [MP3|320 kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Alabama [00:00:59]
+02. Monstrous Big [00:01:50]
+03. The Two Dead Girls [00:03:02]
+04. The Mouse On The Mile [00:01:30](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C01B78C3A18B4920C1CCF980E1B5256E5634C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892940   (717091) от 27.04.2015
+
+V.A. - Die Hit-Giganten Best Of Ballads (2011) 3CD [FLAC|Lossless]<Pop, Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717091.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - 01:19:56 | CD2 - 01:19:21 | CD3 - 01:19:54Треклист CD1:
+01. Seal - Dont Cry
+02. Chicago - Hard to Say Im Sorry
+03. Percy Sledge - When A Man Lovers A Woman(   Читать дальше...   )Жанр: Pop, Rock |Продолжительность: 03:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9520A6FA9789EBE829EAFCBCD7A5F24EC499CF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285121   (716811) от 28.02.2019
 
 Kitaro - Tenku (1986) Remastered, 1997, DOMO [FLAC|Lossless|image + .cue] <New Age>
@@ -568,180 +742,6 @@ Alex Hart - On This Day (2014) [MP3|320 кб/с] <Country, Alt Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1A908D7FBDFCD8DDEA46C2F3EAEBFC2E84B8C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024936   (714134) от 10.06.2016
-
-Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Joy of Quiet Rain Mix
-02. Soft Focus Ocean Mix
-03. Velvet Morning Rain Mix
-04. In Fields of Peace Ocean Mix(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B50D5D512837B0C2FFE67D04A0860F69449DE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024868   (714083) от 10.06.2016
-
-Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [FLAC|Lossless|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Joy of Quiet Rain Mix [00:09:49]
-02. Soft Focus Ocean Mix [00:08:54]
-03. Velvet Morning Rain Mix [00:08:54]
-04. In Fields of Peace Ocean Mix [00:08:59](   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24B6113120D1E789A55D65E4D428423AE2D454B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024741   (714075) от 10.06.2016
-
-Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer & Lang Lang – Oogway's Legacy (02:00)
-02. Hans Zimmer - Hungry for Lunch (01:15)
-03. Hans Zimmer – The Power of Chi (04:12)
-04. Hans Zimmer – The Arrival of Kai (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967182C7E7560018639B9076FC23D30BA6FD7527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024907   (713994) от 10.06.2016
-
-Terry Oldfield & Soraya - Namaste (2016) [MP3|320 кб/с] <New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Namaste
-02. Always Perfect
-03. Celtic Blessing
-04. Into Your Hands(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E05642D49AFD8356637C38F406939B3BA4F067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024576   (713962) от 10.06.2016
-
-VA - Are Lonesome Tonight. 23 Romantic Instrumentals (UY) Unofficial Release [APE|Lossless|image + .cue] <Jaz, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Camels Pick-Nick
-02.  Linger A While
-03.  Concerto D'Aranjuez
-04.  Plaisir D'Amour(   Читать дальше...   )Жанр: Jaz, Easy ListeningПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C4862E1DA82FC36E73A9F7FE6805B8F4A032D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025047   (713796) от 10.06.2016
-
-Nature Sounds & Yoga Tribe - The Natural Orchestra (2016) [MP3|320 кб/с] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stargazing
-02. Evening Music
-03. Unforeseen Adventure
-04. Call to Play(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D959E4A1B1609B7C8FBFE50E8EB78A496D3FB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

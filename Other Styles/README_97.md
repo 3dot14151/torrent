@@ -1,3 +1,226 @@
+###  Публикация: 1310637   (538018) от 01.07.2019
+
+VA - A Native American Odyssey- Inuit to Inca (1998) [MP3|320 Kbps] <Native American, World, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kashtin - Akua Tuta (Montagnais/Canada (4:57)
+02. Tudjaat - Qiugauiit (Inuit/Canada) (2:39)
+03. Andrew Vasquez - Wind River (Apache/USA) (2:01)
+04. Bill Miller - Ghost Dance (Mohican/USA) (3:38)(   Читать дальше...   )Жанр: Native American, World, FolkПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1159B63943F062A1AB6917C9016ACE770CBF89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531579   (537754) от 07.08.2012
+
+Raymond Lefevre et Son Grand Orchestre - Japanese Limited Mini LP SHM-CD (6CD) (1965-1976/2009) [FLAC|Lossless]<Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Porque te Vas
+02 - Je Vais Taimer
+03 - Qu'est-ce Qui Fait Pleurer Les Blondes
+04 - Je T'Aime Tu Vois
+05 - Save Your Kisses For Me
+06 - Le Concerto de La Mer
+07 - Derriere L'Amour
+08 - Avan de Nous Dire Adieu
+09 - Et Mon Pere
+10 - Ca Va Pas Changer Le Monde(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A519CA2197453D2882ACE26C78161AA93128C8DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367016   (536909) от 23.07.2011
+
+VA - The World Of The Spanish Guitar Vol. 1 /2CD/ (2011) [MP3|320 kbps]<Instrumental, Flamenco, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 201101. Ottmar Liebert . . . . . . . .  The Night . . . . . . . . . .  4:21
+02. Govi . . . . . . . . . . . . .  Mosaico . . . . . . . . . . .  5:26
+03. Oscar Lopez. . . . . . . . . .  Bailando Rumba. . . . . . . .  4:13
+04. Vicente Amigo. . . . . . . . .  Pan Caliente. . . . . . . . .  5:42
+05. Tomatito . . . . . . . . . . .  Paseo los Castanos. . . . . .  4:53
+06. Jesse Cook . . . . . . . . . .  Breeze from Saintes Maries. .  5:23
+07. Armik. . . . . . . . . . . . .  Moonlight Cafe. . . . . . . .  4:46
+08. Robert Michaels. . . . . . . .  Cupid's Dance . . . . . . . .  4:57
+09. NovaMenco. . . . . . . . . . .  Lorca . . . . . . . . . . . .  3:13
+10. Pavlo. . . . . . . . . . . . .  Midnight Dance. . . . . . . .  3:24(   Читать дальше...   )Жанр: Instrumental, Flamenco, GuitarПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0DBE3B81CA95A93A18EC23923D86BC70EEA1C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239400   (536844) от 06.08.2018
+
+Mythos - Eros (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kawakari (4:29)
+2. Eros (4:48)
+3. Catana (4:16)
+4. Allure (4:34)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:21:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108088BCEA081F282B1C486AFD788446A3E47F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311625   (536387) от 02.07.2019
+
+Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epiphany [03:03]
+02. Turning Point [03:17]
+03. Reflection [03:23]
+04. Innocence [02:55](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2C31713C78A248D82E7BC1B0732A32D7A14624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311630   (536318) от 02.07.2019
+
+Atom Music Audio - EON II (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serene [03:36]
+02. Oceans Apart [04:43]
+03. Wings of Eternity [03:38]
+04. Celestial Sphere [03:47](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729FA7D60079502A13E66370D94493A74D053C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532827   (536166) от 08.08.2012
+
+Raimonds Pauls / Раймонд Паулс - Zelta 60 (2CD) (1996) [MP3|320 кб/с]<Pop,Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ояр Раймонд Паулс (латыш. Ojrs Raimonds Pauls; (р. 1936) — советский и латвийский композитор, дирижёр, пианист, политический деятель. Народный артист СССР (1985). Почётный доктор Латвийской академии наук.
+Автор музыки множества эстрадных хитов, мелодий к фильмам. Инициатор международных конкурсов молодых исполнителей популярной музыки «Юрмала» и «Новая волна».
+В 1958 Раймонд Паулс получил высшее образование в Латвийской государственной консерватории им. Я. Витола, у профессора Германа Брауна по классу фортепиано. После окончания курса в 1958 году Раймонд Паулс работал в Рижском эстрадном оркестре, выступал с концертами в Грузии, Армении, на Украине. С 1964 года до начала 1970-х годов являлся руководителем этого оркестра.1. Kurzeme (3:11)
+ 2. Perlu Zvejnieks (3:19)
+ 3. Pie Juras Dzive Mana (3:59)
+ 4. Vella Kalpu Dziesma (2:16)
+ 5. Ta Es Tevi Milesu (2:50)
+ 6. Tris Runci (3:58)
+ 7. Genoveva (3:25)
+ 8. Kerijas Dziesma (3:27)
+ 9. Vieglpratiga Sirds (3:19)
+ 10. Tala (3:27)(   Читать дальше...   )Жанр: Pop,InstrumentalПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D4A7701FD0A7959F61706CD4047CFB39A030A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 227252   (535925) от 16.08.2010
 
 Music From The World Of Osho - Laughing Drums (2000) [WMA|357-449 kbps]<New Age, Worldbeat>
@@ -551,209 +774,6 @@ Ustad Abdul Halim Jaffer Khan - Enchanting Sitar (1978) [MP3|320 kbps] <Sitar>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FAB4C873462871670A26BAD0C97A8BAB13E2423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240128   (531289) от 09.08.2018
-
-Kevin Cotter - Cotter (2018) [FLAC|Lossless|WEB-DL|tracks] <Piano, Contemporary Classical, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fallen
-02. Fortunate Fall
-03. I'll Be Yours
-04. Candlelight Solstice(   Читать дальше...   )Жанр: Piano, Contemporary Classical, New AgeПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35369438AC889FB5E1A5F277E47C3CEEA2413CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312335   (530947) от 05.07.2019
-
-Paul Leonard-Morgan - Last Breath (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Breath Main Theme (02:31)
-02. Topaz (01:10)
-03. Plans for the Future (01:43)
-04. Living Chambers (01:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C618AFFE580D137F6FD3ED83C53E55283DE9B5E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312180   (530825) от 05.07.2019
-
-Bear McCreary - Child's Play / Детские игры (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Track 1 (02:15)
-02. Theme from Child's Play (04:25)
-03. Birth of Chucky (02:41)
-04. Karen and Andy (02:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66442FE165D161662163CBFA8FFCB3FD8DBE7E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312331   (530821) от 05.07.2019
-
-Joseph Bishara - Annabelle Comes Home / Проклятие Аннабель 3 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doll Opening (00:49)
-02. cemetery pulls (01:16)
-03. it's the Doll (02:23)
-04. Doll container (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A478A203E43DC9F5DB3D0FA3F1D5D6D0863DD09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312205   (530816) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я твой хороший друг (02:05)
-02. Ты не вздумай (02:09)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FFE5C462ACE91464C32947ADB8EF5112F4AEC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312200   (530814) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Got a Friend in Me (02:04)
-02. I Can't Let You Throw Yourself Away (02:06)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D107D105DCF431293E2655AB7063222911768785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051996   (530789) от 12.09.2016
-
-Kevin Kern - When I Remember (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Should Waltz [00:06:07]
-02. Once Upon a Time [00:04:35]
-03. Say You Love Me [00:04:25]
-04. Chance Encounter [00:04:30](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E109F94C1C484C9557005D80F5057B46679B64
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 942188   (455970) от 30.09.2015
+
+Gregoire - Poesies De Notre Enfance (2015) [MP3|320 кб/с]<French Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Cigale Et La Fourmi
+02. Je Voulais Dans Mon Cartable
+03. Chahut
+04. C'Est Demain Dimanche(   Читать дальше...   )Жанр: French Pop, ChansonПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0939F6227224E251C2F657B44741B9C1B2A62F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162826   (454981) от 03.09.2017
+
+Bardeux - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Dance-pop, Synth-pop, Hi NRG>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bardeux - американский танцевальный дуэт 80-х годов, выпустивший достаточное количество хитов за свое недолгое существование. Исполнительницы: Acacia (Stacy Smith) - постоянно, Jaz (Lisa Teaney) - первый альбом, Melanie Taylor - второй.01. Magic Carpet Ride (3:24)
+02. Three Time Lover (3:31)
+03. Caution (3:38)
+04. Bleeding Heart (3:55)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Synth-pop, Hi NRGПродолжительность: 01:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEEC950523BA2E69CD9B09FF684022D7D59FECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 389104   (454014) от 19.09.2011
 
 Kim Wilde - Snapshots / Special Edition (2011) [MP3|230-283 kbps]<Pop>
@@ -689,64 +747,6 @@ Selena Gomez - Revival (2015) Japanese Edition [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC2DACEF2F7D4700FB2B2FC402B8F0B25A3200BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323386   (437868) от 03.09.2019
-
-Rocky M - The Best Of (1989) LP [MP3|320 Kbps] <Electronic, Europop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Heart (3:15)
-02. Disco Lady (3:27)
-03. An Angel Passed My Way (4:13)
-04. Fever (3:22)(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D378BE82ED2A71D9F819420794DA401EDA980F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249153   (437866) от 22.09.2018
-
-Luca Rovini & Companeros - Cuori Fuorilegge (2018) [MP3|320 Kbps] <Italy Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senza gambe ne parole (05:10)
-02. Fuorilegge (04:44)
-03. Honky tonk senorita (03:09)
-04. Al tavolo di un altro (04:31)(   Читать дальше...   )Жанр: Italy PopПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E55A273056C77C56B95AF6569E3452E1BA6853
 ```
 
 https://mybot314.ru/tekegram_catalog/

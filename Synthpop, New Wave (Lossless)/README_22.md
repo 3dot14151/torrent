@@ -1,3 +1,90 @@
+###  Публикация: 1651657   (221181) от 07.08.2023
+
+Philtron - None (1997) [FLAC|Lossless|image + .cue] <Synth-Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 No One To Blame 4:39
+02 Nowhere Girl
+04:09
+03 Higher 4:17(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB87AE7ACE22A23865667AF8831B956C8DA6B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343268   (220151) от 05.12.2019
+
+Frankmusik - Day Break (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdrive (3:28)
+ 02. Heartbeat (feat. Highway Superstar) (3:37)
+ 03. High on You (feat. Lindsay Lowend) (3:36)
+ 04. Closer (3:17)(   Читать дальше...   )Жанр: Electronic, Synthwave, ElectropopПродолжительность: 00:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07ED3118A8B266876EA2E296350A325A56C18E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966521   (218530) от 18.12.2015
+
+Fancy - Strip Down (2000) [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme a Sign (3:34)
+02. Senorita (3:52)
+03. Strip Down (4:32)
+04. Dreams Come True (3:31)(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E224B5296E58333F530DA982BCBAF7100A135E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586400   (215687) от 27.10.2022
 
 Blackbook - Confessions Of The Innocent (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Alternative>
@@ -656,93 +743,6 @@ Soft Cell - *Happiness Not Included (2022) [FLAC|Lossless|image + .cue] <Synth-p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E2D00AD5E3E8A0C98136C0CD3F5CF4BAEFC09C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589710   (189654) от 11.11.2022
-
-a-ha - True North (2022) [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm In (5:06)
-02. Hunter In The Hills (4:11)
-03. As If (4:56)
-04. Between The Halo And The Horn (4:11)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CA0BF491A1110DB81A31598EFBDE30EA94BACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279156   (189511) от 11.11.2022
-
-Depeche Mode - Archive 12 Inch Boxes (2018-2022) Sony Music, RM. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, House>
-
->>След.
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Precious (Sasha's Spooky Mix - Full Length) (10:33)
-02. Precious (Sasha's Gargantuan Vocal Mix - Full Length) (9:42)
-03. Precious (Misc. Full Vocal Mix) (5:42)
-04. Precious (Michael Mayer Balaeric Mix) (7:19)(   Читать дальше...   )Жанр: Electronic, Synthpop, HouseПродолжительность: 03:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FB15CE56303AB4C38FB9B5AD824D3E3F681534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590710   (188520) от 15.11.2022
-
-Moxy The Band - Dream Feeling (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Female Vocal>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pawns (2:58)
-02. You Feel It Too (4:01)
-03. The Cost (3:15)
-04. Live Without (3:44)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Female VocalПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064615E02B54FA37A56E50FA22DA14BBBC7C7050
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1065445   (419209) от 23.10.2016
+
+Galaxis - I Want More & Space Rangers (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want More (3:42)
+02. Space Rangers (4:33)Жанр: Electronic, Space-DiscoПродолжительность: 00:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD415F9455DBF3FA370EE36F5956593533DB84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412489   (418195) от 29.09.2020
+
+VA - New Italo Disco Top 25 Compilation Vol. 14 (2020) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emy Care - Do You Love Me (Radio Edit) [4:12]
+02. Emy Care - You And Me (Radio Edit) [4:07]
+03. Boy Blue - Don't Break My Heart (Radio Edit) [4:29]
+04. Brad Lake - Yesterday (When I Was Young) (Radio Edit) [4:36](   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, DanceПродолжительность: 01:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B83BA866999D7511B05C3A38949D6630DFD150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251463   (417848) от 01.10.2018
 
 London Boys - The Twelve Commanments Of Dance (1989) [MP3|320 Kbps] <Disco>
@@ -702,70 +758,6 @@ Eyes On Fire - The Best Of Eyes On Fire 1978 - 1980 (2012) CD [MP3|320 Kbps] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BC42C66E233B06B57245204ACFD08F6C83807DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564458   (401911) от 24.10.2012
-
-VA - '80 Dance Classics (1994) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue - You're A Woman
-02. Hot Chocolate - You Sexy Thing
-03. Ottawan - Hands Up
-04. Boney M. - Rasputin
-05. Dschinghis Khan - Huh Hah Dschinghis Khan
-06. Scotch - Delirio Mind
-07. Radiorama - Chance To Desire
-08. Supermax - It Ain't Easy
-09. Laid Back - Sunshine Reggae
-10. Baltimora - Tarzan Boy(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35561D28937E65652B8AF3E34AC8FB5061F1413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170629   (399617) от 01.10.2017
-
-Joel Diamond Experience - Joel Diamond Experience (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Machine (In And Out) (5:05)
-02. Just As Long As I'm Dancin' (Rock-It Tonight) (5:15)
-03. Tall In The Saddle (6:06)
-04. Finger Snaps (4:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA88825EA1005163AE8A426C6B56D0F79A00A348
 ```
 
 https://mybot314.ru/tekegram_catalog/

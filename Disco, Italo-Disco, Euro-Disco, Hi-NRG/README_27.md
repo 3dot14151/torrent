@@ -1,3 +1,61 @@
+###  Публикация: 1320543   (468905) от 19.08.2019
+
+Digital Emotion - 2 Albums, 4 Singles & EPs (1984-2019) Collection [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голландская евродиско-группа, изначально состоявшая из Гленна Ван Дер Хоффа и Стива Гуде. Успех первых синглов и необходимость съёмки видео и сценических выступлений привели к появлению симпатичных фронтменов: Жана Франсуа Коломбо и двух девушек: Кики Де Бир и Мирны Балрак. Впрочем, судя по немногочисленным фото, они постоянно менялись.Список альбомов:
+1984 - Digital Emotion
+1985 - Outside In The Dark
+1986 - Jungle Beat(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 02:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563847EF027D87307125B9379C0D3724523FB208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245872   (467883) от 08.09.2018
+
+Ronnie Jones - Games (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Video Games (7:43)
+02. We Make The Music (4:09)
+03. You Don't Know Like I Know (4:03)
+04. Montego Bay (3:52)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18609BCAC853C0427721CC9751A8B133914DC09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245929   (467878) от 08.09.2018
 
 Coffee - Slippin' And Dippin' (1980) Reissue CD, Big Break Records, 2016 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -699,64 +757,6 @@ Bad Boys Blue - Hot Girls, Bad Boys (1985) [OGG|480 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58E5472D9988FE933B81A93D0FA9B106254B5FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060634   (455185) от 07.10.2016
-
-Poussez! - Poussez! (Poo-say) (1979) Reissue CD (2005) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On And Do It (7:29)
-02. Boogie With Me (7:53)
-03. You're All I Have (8:58)
-04. Never Gonna Say Goodbye (7:58)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3325EE279CC3281CC5D23395B1FF0549A1F3ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247132   (454931) от 14.09.2018
-
-Liquid Gold - Liquid Gold (1981) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Panic (2:58)
-02. Substitute (4:29)
-03. The Night The Wine The Roses (4:26)
-04. Mr. Groovy (5:45)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EFDA8CEFAD38424A53D81230B12A440AF47AAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

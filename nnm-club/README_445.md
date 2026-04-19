@@ -1,22 +1,48 @@
-###  Публикация: 1847341   (1052113) от 17.01.2026
+###  Публикация: 1849412   (1053775) от 23.01.2026
 
-AnyDesk 9.6.7 + Portable [Multi/Ru]
+William Schweiker, Maria Antonaccio, Elizabeth Bucar | Encyclopedia of Religious Ethics. 3 Volume Set (2022) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Encompassing three comprehensive volumes, the Encyclopedia of Religious Ethics introduces fundamental issues in moral inquiry, explores the world’s major moral traditions, and surveys specific moral issues across a wide range of human experiences. This landmark work defines the meaning, task, and various forms of religious ethics to guide readers through critical (   Читать дальше...   )Жанр: Энциклопедии, РелигияЯзык: АнглийскийИздательство: Wiley-BlackwellФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C88CE8B0D8C0193573551FFD23BF579AFD4DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849555   (1053774) от 23.01.2026
+
+Futuremark 3DMark 2.32.8826 for Enterprise RePack by KpoJIuK [Multi/Ru]
 
 >>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Взгляните на процесс удалённого администрирования рабочего стола другими глазами! Вы знаете, каким было удаленное администрирование до этого: медленным и изнурительным. При разработке AnyDesk мы отступили на шаг назад и задались фундаментальными вопросами. Как должно работать удаленное администрирование? Чего можно добиться с помощью современного компьютерного оборудования? (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+3DMark - поможет вам протестировать ваше оборудование для игр. Играете вы на персональном компьютере, ноутбуке или планшете? В 3DMark есть все инструменты для вашей платформы что бы протестировать игровую производительность. 3DMark поможет вам протестировать ваше оборудование в основных популярных базовых и таких разрешениях как 2K и 4K и даже супер экстремальных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3C666DF55230541DECB393D7FFA6EEC9DF90614
+magnet:?xt=urn:btih:B25D257B3454D7080053232C3FD649DC8AE876B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +50,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847343   (1052112) от 11.01.2026
+###  Публикация: 1849410   (1053773) от 23.01.2026
 
-Bullet - Kickstarter (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Lucy Morrison, Staci L. Stone | A Mary Shelley Encyclopedia (2003) [PDF] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Kickstarter (2:55)
-02.  Caught in the action (2:57)
-03.  Open Fire (3:34)
-04.  Keep Rolling (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:11
+Frankenstein is one of the most popular classroom texts in high school and college, and Shelley's other works are attracting renewed attention. This reference is a comprehensive guide to her life and career. Included are hundreds of alphabetically arranged entries about her works, friends, relatives, residences, fictional characters, allusions, and more.
+
+Mary Shelley (   Читать дальше...   )Жанр: Энциклопедии, БиблиографииЯзык: АнглийскийИздательство: GreenwoodФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60A26CA7A2B2B97A994A52928058B392F9B727F1
+magnet:?xt=urn:btih:F64029704CCCA1EAE8A88CACE281C5B40F56687F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847345   (1052111) от 11.01.2026
+###  Публикация: 1849408   (1053772) от 23.01.2026
 
-Deltar - Vol. 4 (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Pam J. Crabtree, Peter I. Bogucki | Ancient Europe. 8000 B.C. to A.D. 1000. An Encyclopedia of the Barbarian World. 2 Volume set (2004) [PDF] [EN]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Down the Dirt Road Blues (4:17)
-02.  Green River Blues (3:38)
-03.  High Sheriff Blues (4:15)
-04.  Pony Blues (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:08
+This detailed encyclopedia is the first to explore the many peoples of early European civilization. Viewed as barbarian through the lens of ancient Greece and Rome, these civilizations were responsible for such accomplishments as the rise of farming in the Neolithic era and the building of Stonehenge. Coverage extends from prehistoric origins through the early Middle (   Читать дальше...   )Жанр: Энциклопедии, ИсторияЯзык: АнглийскийИздательство: Charles Scribner & SonsФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAA590666222B37DD1CF6EF5355CD7DED39DE371
+magnet:?xt=urn:btih:90597DB78F22D7275C9494673CB5FF1F3B9109B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847347   (1052110) от 11.01.2026
+###  Публикация: 1849405   (1053771) от 23.01.2026
 
-Doc Downs & The Next Round - A Shot of Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+В.Ф. Чудесенко | Сборник заданий по специальным курсам высшей математики (1983) [DJVU]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Научная и техническая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Chris Cundy - Precious Breath (3:32)
-02.  Devil with Angel Eyes (5:49)
-03.  Doc Downs & The Next Round, Bill Lenk - Maybe She Don't (3:50)
-04.  Me On U (Alternate Version) (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:54
+Пособие написано в соответствии с действующей программой по курсу высшей математики. Оно содержит типовые расчеты по теории функций комплексного переменного, операционному исчислению, уравнениям математической физики, теории вероятностей и математической статистике. Задачи представлены 31 вариантом. Типовые расчеты содержат также теоретические вопросы, упражнения (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF264489D30211F1D76D6670B3332BE0B36DA601
+magnet:?xt=urn:btih:0A7C44ED310EB4D806EA89D6AD14692AF3BB84E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847349   (1052109) от 11.01.2026
+###  Публикация: 1849398   (1053770) от 23.01.2026
 
-J.T. Lauritsen & The Buckshot Hunters - Still Be Friends (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Mac Fulfer | Amazing Face Reading. An Illustrated Encyclopedia for Reading Faces (1996) [PDF] [EN]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  How Come My Bulldog Don't Bark (4:01)
-02.  Still Be Friends (5:25)
-03.  Friction (4:36)
-04.  I Oughta Know (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:45
+Face Reading is a means to a deeper communication with every person you meet. Fulfer takes this art/science out of the realm of the mysterious and into a hands-on method of learning. The most comprehensive, easy-to-use book of Face Reading available today. Amazing Face Reading is organized in an encyclopedic format and superbly illustrated. It takes you through faces, (   Читать дальше...   )Жанр: Энциклопедии, Психология, Межличностные отношенияЯзык: АнглийскийИздательство: Herveys BooklinkФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFC75B8ADFCB8BA18DB887DA20D9FF0F7486D57A
+magnet:?xt=urn:btih:4C98535D84D48A32047DEE225F9174672F8E3C3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847351   (1052108) от 11.01.2026
+###  Публикация: 1849554   (1053769) от 23.01.2026
 
-Lucky Lloyd - Old School Blues (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Проекты - VideoHive - Valentine's Day Titles - 61553946 [AEP]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Проекты
+>>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Futher on up the Road (4:29)
-02.  Bright Lights Big City (5:08)
-03.  Tthe Heart Fixing Business (4:38)
-04.  You Upset Me Baby (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:35
+Создавайте потрясающие визуальные презентации с помощью нашего шаблона заголовков After Effects, разработанного для универсальности и простоты использования. Идеально подходит для инфографики, рекламных видеороликов или контента для социальных сетей, этот шаблон включает в себя настраиваемые анимации, которые позволяют легко выделять ключевую информацию.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72926D57239B45FDA090C58914E9C52CF5C65C09
+magnet:?xt=urn:btih:0DE3BA1AFFF7C47F34B57BB0922912FCF2FF5EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +182,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847352   (1052107) от 11.01.2026
+###  Публикация: 1849397   (1053768) от 23.01.2026
 
-Matthew Curry - One for the Ride (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+VA - Best Of The 70s. (2006) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Rum Stumblin' (4:16)
-02.  Born Behind the Wheel (4:12)
-03.  Barely Livin' (3:51)
-04.  Dancing in the Kitchen (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:17
+01. Heat Wave - Boogie Nights (3:42)
+02. Atlanta Rhythm Section - So Into You (6:53)
+03. Taste of Honey - Boogie Oogie Oogie (5:24)
+04. Stephen Bishop - On And On (3:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:930FB9E3825C94B96C52E7479B25F2BA96491F29
+magnet:?xt=urn:btih:F95CFF649459BD0A94F6CDE4A4E516FD83A8BF77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,26 +211,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847353   (1052106) от 18.01.2026
+###  Публикация: 1849517   (1053767) от 23.01.2026
 
-Akuyaku Reijou wa Ringoku no Outaishi ni Dekiai Sareru | The Villainess Is Adored by the Prince of the Neighbor Kingdom | Принц соседней страны обожает злодейку [2026, TV, 1 из 12] WEBRip 720р raw
+Лига теней / Shadow Force (2025) BDRip [H.264/1080p]
 
->>Аниме с субтитрами
->>Онгоинги
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-За день до своего падения леди Тиарароуз Лапис Клементиль вспоминает, что она находится в игре отомэ, в которую она когда-то играла в своей прошлой жизни. Раньше она обожала главного героя, принца Хартнайта Лапис-Лазули Лактомута, но, к сожалению, она реинкарнировалась не в героиню, а в его злейшую врагиню — злодейку-невесту.
-На церемонии вручения дипломов Хартнайтс, (   Читать дальше...   )Производство: Studio DeenЖанр: романтика, фэнтезиРежиссер: Hamana TakayukiПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+Когда-то Кира и Иссак были лидерами секретной организации наемников, но нарушили одно из главных правил — влюбились друг в друга. Отныне их ждет жизнь в подполье и воспитание сына в бегах. За их головы назначена награда, а на хвосте у них — самые опасные наемники в мире. Теперь им придется вооружиться всем своим опытом, чтобы остаться в живых.Производство: США / Lionsgate Productions Ltd., Made With Love Media, Media Capital TechnologiesЖанр: боевик, триллер, драмаРежиссер: Джо КарнаханАктеры: Омар Си, Керри Вашингтон, Джалил Камара, Марк Стронг, Давайн Джой Рэндольф, Метод Мэн, Маршалл Кук, Эд Куинн, Марвин Джонс III, Дженел СтивенсПеревод: Дублированный (CPI Films)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:43:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0236A803FEEEC3365D0BB802C6A9B8DE9CE32420
+magnet:?xt=urn:btih:9D15CAC76CF664BBDE3DBA6A4C508FC86B311FB0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,164 +237,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847354   (1052105) от 11.01.2026
+###  Публикация: 1849560   (1053766) от 23.01.2026
 
-Otis Walker Band - Forward (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Southern Twist (2:41)
-02.  Are We Doing This? (4:05)
-03.  Could you Do This For Me? (3:42)
-04.  Forward (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88150911A0C3C1453A73B6DA1B4A465F815B968F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847356   (1052104) от 11.01.2026
-
-Paul Boddy - Soul Gone Blu’ (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Paul Boddy, Early Times & the High Rollers - One Hundred Years (2:59)
-02.  Paul Boddy, Mikey Junior - Chonnie-On-Chon (2:49)
-03.  Paul Boddy, Mikey Junior - Every Dog Got His Day (2:38)
-04.  Paul Boddy, Jessie Wagner - Cussin’ Cryin’ & Carryin’ On (3:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E5AD493548266F61D55640DDFBEE9FBFD19A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847269   (1052103) от 11.01.2026
-
-The Great Courses, Стивен Новелла | Игры разума: Научное руководство по навыкам критического мышления (2012) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как вам стоит мыслить? Кому верить? Может ли оказаться так, что вы вводите в заблуждение самого себя? Эти вопросы людям с критическим мышлением следует задавать себе постоянно. В сегодняшнем мире нет навыка важней, чем умение эффективно и сознательно мыслить, воспринимать информацию и принимать решения на её основе. Никогда раньше у людей не было доступа к такому (   Читать дальше...   )Производство: The Great CoursesЖанр: видеокурс, обучающий курс, психология, саморазвитие, логикаПеревод: WaterЯзык озвучки: русскийПродолжительность: 12:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1252F003539B9B9E3F0FA6B971EC94DFC3806252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847286   (1052102) от 11.01.2026
-
-OTUS, Артем Бражников и др. | Электроника и электротехника. Разработайте свое первое устройство — от идеи до производства! (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освойте путь от идеи до готового устройства и разработайте своё первое изделие, полностью пройдя весь цикл — от концепции до производства. Курс подойдёт тем, кто хочет стать инженером-электронщиком, Embedded-разработчиком или IoT-инженером, а также тем, кто планирует сменить профессию, обучить сотрудников предприятия современным технологиям или глубже разобраться (   Читать дальше...   )Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 67:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1813F6866832584E573597EB3C8880DFC86C1E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847357   (1052101) от 11.01.2026
-
-Штурвал - Женщина-Кошка и другие блюзы (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Женщина-Кошка (Duty Free Blues Cover) (4:36)
-02.  В Лиссабоне жара (Duty Free Blues Cover) (4:57)
-03.  Все псы попадают в рай (Nоль Три Cover) (3:23)
-04.  В забытом баре мёртвых душ играет Блюз (Original Mix) (4:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0C5B03051BE165665897036D2FA7B29AAF0104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847359   (1052100) от 11.01.2026
-
-Пресеты - FilterGrade - 50 Couple Matte Collection [XMP, LRTEMPLATE]
+Плагины - Envato - Better Grids - Layout Creation Kit - DYEF9MW [ZXP]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот набор пресетов — первый пакет профессиональных пресетов для Lightroom, идеально подходящий для фотографов и графических дизайнеров. Все пресеты работают корректно. В пакет не входят пресеты, которые могут испортить изображение. Этот набор пресетов работает с любыми фотографиями. Все пресеты созданы с точной калибровкой и аккуратной компоновкой, чтобы оживить (   Читать дальше...   )Формат: XMP, LRTEMPLATE
+Надоело создавать макеты сеток и галереи вручную? Better Grids положит этому конец! Профессиональная панель создания макетов предоставляет вам все возможности настройки, которых нет в обычном Photoshop, например, настройку веса отдельных ячеек или идеального соотношения сторон. Поэкспериментируйте с настройками, а затем визуализируйте сетку в виде фигур или слоев (   Читать дальше...   )Формат: ZXP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:522BF21B8CF53754C0BC96C1385B9168C047098C
+magnet:?xt=urn:btih:D4170A3EFDB5FD1D2D810C627662F0BFB6F2DCFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,25 +263,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847360   (1052099) от 11.01.2026
+###  Публикация: 1849561   (1053765) от 23.01.2026
 
-Проекты - VideoHive - Smart Split Pro for After Effects - 61125564 [AEP]
+Firefox Browser ESR 140.7.0 [Ru]
 
->>Проекты
->>Разное (проекты)
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1053765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smart Split Pro для After Effects: Мгновенно преобразите свои визуальные эффекты с помощью SmartSplit Pro – инструмента для создания видеороликов «До и после»! Поднимите свои проекты на новый уровень с помощью этого полностью настраиваемого инструмента для создания разделенного экрана, управляемого мимикой, разработанного для того, чтобы сделать видеоролики «До и (   Читать дальше...   )Формат: AEP
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1C2229B5C954C6B13DC1E92A4D252D27D7D5F09
+magnet:?xt=urn:btih:505B4D92D99B45836A0D362E3E28FEA862245D53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,28 +289,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847363   (1052098) от 11.01.2026
+###  Публикация: 1849565   (1053763) от 23.01.2026
 
-Messa - The Spin (2025) [FLAC|Lossless|image + .cue] <Doom Metal, Dark Ambient, Stoner Rock>
+Истинные ценности / One True Thing (1998) BDRip [H.264/720p] [MVO]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Void Meridian 4:28
-2. At Races 5:59
-3. Fire On The Roof 4:32
-4. Immolation 4:46(   Читать дальше...   )Жанр: Doom Metal, Dark Ambient, Stoner RockПродолжительность: 00:41:43
+Сценарий написан по роману Анны Куиндлен, а сюжет романа основан на воспоминаниях Куиндлен о смерти её матери... Когда в семью Гальденов приходит беда, Джордж зовёт на помощь единственную дочь Эллен, амбициозную журналистку престижного нью-йоркского журнала. Дочь, пожертвовав карьерой, переезжает к родителям ухаживать за смертельно больной матерью. За это время Эллен (   Читать дальше...   )Производство: США, Monarch Pictures, Ufland, Universal PicturesЖанр: драмаРежиссер: Карл ФранклинАктеры: Мэрил Стрип, Рене Зеллвегер, Уильям Хёрт, Том Эверетт Скотт, Лорен Грэм, Никки Кэтт, Джеймс Экхауз, Патрик Брин, Геррит Грэм, Дэвид Байрон, Стивен Пибади, Лизбет Маккей, Мэри Кэтрин Райт, Слоун Шелтон, Мишель ШэйПеревод: профессиональный многоголосый, профессиональный двухголосый (Премьер Фильм)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:07:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42C5D21099D9A9CE393A00AB0C5EB8BCB41C0CBB
+magnet:?xt=urn:btih:BA6A8C7FF4786199F1B674F2F66C69DEFD72B491
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,25 +315,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847299   (1052097) от 11.01.2026
+###  Публикация: 1849567   (1053762) от 23.01.2026
 
-Николай Лесков | Некуда (2025) [MP3, Михаил Росляков]
+Терминатор 3: Восстание машин / Terminator 3: Rise of the Machines (2003) HybridRip [AV1/1080p-LQ] [Open Matte] [handmade AI]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый роман Лескова сослужил ему дурную службу: в глазах современников за одним из лучших русских писателей закрепилась репутация крайнего реакционера, едва ли не агента Третьего отделения. Сюжет «Некуда» сложен и довольно сентиментален; в центре его — история молодой революционерки Лизы Бахаревой и её соратника Вильгельма Райнера, внутренне порядочных людей, в (   Читать дальше...   )Жанр: КлассикаИздательство: МедиакнигаПродолжительность: 31:14:16
+Прошло десять лет с тех пор, как Джон Коннор помог предотвратить Судный День и спасти человечество от массового уничтожения. Теперь ему 25, Коннор не живет «как все» — у него нет дома, нет кредитных карт, нет сотового телефона и никакой работы.
+Его существование нигде не зарегистрировано. Он не может быть прослежен системой Skynet — высокоразвитой сетью машин, которые (   Читать дальше...   )Производство: США, Германия, Великобритания / C-2 Pictures, IMF Internationale Medien und Film GmbH & Co. 3. Produktions KG, Intermedia Films, Mostow/Lieberman ProductionsЖанр: фантастика, боевикРежиссер: Джонатан МостоуАктеры: Арнольд Шварценеггер, Ник Стал, Клер Дэйнс, Кристанна Локен, Дэвид Эндрюс, Марк Фамиглетти, Эрл Боэн, Мойра Харрис, Чоппер Бернет, Кристофер ЛоуфордПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:49:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AED3C0AACEAE8D30EC6237ABD1CA879A5AEF831F
+magnet:?xt=urn:btih:9DE34EB3FF0FA644D4B6EBAEF4DB00586F6918D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,54 +342,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847364   (1052096) от 11.01.2026
+###  Публикация: 1849569   (1053761) от 23.01.2026
 
-Blut Aus Nord - Ethereal Horizons (2025) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Avantgarde, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052096.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shadows Breathe First 7:15
-2. Seclusion 8:17
-3. The Ordeal 7:17
-4. The Fall Opens The Sky 7:47(   Читать дальше...   )Жанр: Atmospheric Black Metal, Avantgarde, ExperimentalПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05DE8BA6DB9D1312E8DF2E8CEA3D5ACB03BD32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847302   (1052095) от 15.01.2026
-
-Кен Лю | Династия Одуванчика (Книга 1). Милость королей (2024) [MP3, Илья Дементьев]
+Борис Стругацкий | Звездолёт «АСТРА - 12» (2026) [MP3, ReadMic]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Они очень разные – беспечный гуляка Куни Гару, главарь уличной банды, и бесстрашный воин Мата Цзинду, последний представитель благородного клана. Но во-первых, противоположности сходятся, во-вторых, на вопрос «Против кого дружите?» оба ответили бы однозначно. Их общий враг – тиран-император. Они стали лучшими друзьями в сражениях с огромными имперскими армиями, боевыми (   Читать дальше...   )Жанр: Фэнтези, ПриключенияИздательство: Азбука-АттикусПродолжительность: 21:14:03
+Спустя долгое время на Землю с Венеры возвращается четвёртая экспедиция - единственная, которая смогла долететь и вернуться домой с опасной планеты. Три предыдущие потеряны навсегда. Молодой капитан Алексей Громыко смотрит на серое небо тундры с надеждой и страхом, ведь именно ему предстоит сопроводить на этом самом космическом корабле группу учёных и строителей (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:31:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:672440A8C286A7DBA398EF1E9890A951F90CE640
+magnet:?xt=urn:btih:BE26B451B8555FE38A6DC849EB2077A6F4F8E4E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,25 +368,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847367   (1052094) от 11.01.2026
+###  Публикация: 1849522   (1053760) от 23.01.2026
 
-Растровый клипарт (иллюстрации) - Christmas Tree Pretty Illustrations #13 [PNG]
+Уральские пельмени. Цементо море (2026.01.23) SATRip
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>Юмор (ТВ)
+>>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Немаленький набор рождественских елочек для ваших творческих задач.Формат: PNGРазрешение файлов: 2500x2500 - 4096x4096
+Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:08:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63F4536050B22E8C829EF141C5AB7C7A071E9901
+magnet:?xt=urn:btih:05E89A716260EC9387D89B64B02B99CE285AA7DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,25 +394,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847369   (1052093) от 11.01.2026
+###  Публикация: 1849571   (1053759) от 23.01.2026
 
-Проекты - VideoHive - Shape Transition - 61365721 [AEP]
+Проекты - VideoHive - Facebook Story Recording Screens - 61519566 [AEP]
 
 >>Проекты
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Transitions Toolbox —  это превосходный инструмент для Adobe After Effects, который привносит инновации и поднимает искусство переходов в ваших проектах на новый уровень. С Transitions Toolbox вы оцените удобство и универсальность сотен креативных эффектов переходов. Благодаря нашей разнообразной и обширной коллекции вы можете создавать плавные и профессиональные (   Читать дальше...   )Формат: AEP
+Автоматизированный интерфейс для записи экрана в историях Facebook.
+
+Этот пакет включает в себя полностью настраиваемые элементы пользовательского интерфейса для горизонтальных и вертикальных экранов, интуитивно понятные панели управления, справочную документацию и пошаговое видеоруководство, которое поможет вам в настройке и внедрении.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2080DB1043DE0238022BDA8D0A2126C11715ECA0
+magnet:?xt=urn:btih:BFD30CBFD428393200AE9EF4839111C3F09B587C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +422,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847370   (1052092) от 11.01.2026
+###  Публикация: 1849568   (1053758) от 23.01.2026
 
-...And Oceans - The Regeneration Itinerary (2025) [FLAC|Lossless|image + .cue] <Black Metal, Symphonic Metal>
+Сергей Тынку | Стив Вай. Интервью Сереге Тынку (2026) [MP3, Роман Ильин]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Inertiae 4:30
-02. Förnyelse I Tre Akter 5:06
-03. Chromium Lungs, Bronze Optics 4:28
-04. The Form And The Formless 3:32(   Читать дальше...   )Жанр: Black Metal, Symphonic MetalПродолжительность: 00:46:31
+"Стив Вай. Интервью Сереге Тынку — это сборник авторских интервью, посвящённых выдающемуся гитаристу Стиву Ваю. В книге Сергей Тынку раскрывает уникальные аспекты творчества и жизни музыканта через личные беседы, позволяющие глубже понять его музыкальный почерк, технику и философию. Сборник представляет интерес как для поклонников Вая, так и для тех, кто интересуется (   Читать дальше...   )Жанр: ИнтервьюИздательство: Аудиокнига своими рукамиПродолжительность: 01:32:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8EEB99A1B9A5EE27A40AF4B38F995F0BDCF7482
+magnet:?xt=urn:btih:4703F5F713835F51839035D37C7B3D10A00BBDE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,25 +448,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847372   (1052091) от 18.01.2026
+###  Публикация: 1849570   (1053757) от 23.01.2026
 
-Uruwashi no Yoi no Tsuki | In the Clear Moonlit Dusk | Прекрасная вечерняя луна [2026, TV, 1 из 12 эп.] WEBRip 720р raw
+They Are Billions (2019) [Ru/Multi] (1.0.14) Repack Let'sРlay
 
->>Аниме с субтитрами
->>Онгоинги
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый раз, когда Йои Такигути даже вздыхает, ее одноклассницы визжат от восхищения и благоговения. Ее прозвали «принцем» школы за ее мальчишескую привлекательность и непринужденный характер. Однако она предпочитает оставаться равнодушной к вниманию, которое ей уделяют, и живет своей обычной жизнью — по крайней мере, до тех пор, пока в ее жизнь не врывается другой (   Читать дальше...   )Производство: East Fish StudioЖанр: романтика, повседневностьРежиссер: Maruyama YuusukeПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+«They Are Billions» является RTS-стратегией с элементами строительства и управления людскими поселениями. Действие игры разворачивается в далёком будущем после зомби-апокалипсиса, истребившего практически всё человечество. Осталось лишь несколько тысяч выживших, продолжающих противоборствовать инфекции. Миллиарды инфицированных бродят по всему миру, ведомые желанием (   Читать дальше...   )Тип издания: RepackРазработчик: Numantian GamesЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A313C1B8E67F224BD7241BFC085435840785627
+magnet:?xt=urn:btih:FB1E0A68DF88E43B66A55BDDEDD306BC803D8217
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,25 +474,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847368   (1052090) от 11.01.2026
+###  Публикация: 1849575   (1053756) от 23.01.2026
 
-По-братски (2025) WEBRip [H.264]
+Растровый клипарт (иллюстрации) - Christmas Tree Pretty Illustrations #18 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немаленький набор рождественских елочек для ваших творческих задач.Формат: PNGРазрешение файлов: 4096x4096 - 4500x5400
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A551FC83A073D7164FB1C7D84088A18C3C484B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849502   (1053755) от 23.01.2026
+
+Векторный клипарт - 2d-cdr.ru - Каталог векторных файлов [CDR, DXF, SVG, CMX, EPS, PDF, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оптовый каталог включает в себя 250.000 шт. векторных макетов для лазерной резки:
+Абсолютно все макеты из магазина, абсолютно со всех категорий, представленных на сайте 2d-cdr.ru!
+В этот оптовый каталог включены все оптовые каталоги, представленные в разделе оптовые каталоги.
+Это самый крупный каталог векторных файлов в мире.Формат: CDR, DXF, SVG, CMX, EPS, PDF, AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A394F62D19D7073C34D5EA111AC93F4B74D103E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849581   (1053754) от 23.01.2026
+
+Трон: Арес / Tron: Ares (2025) BDRip [H.264/1080p-LQ]
 
 >>Горячие новинки
->>Отечественные Новинки (SD, DVD)
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Антон и Света Лебедевы приняли ответственное решение: они хотят развестись. Из-за бюрократических проблем им необходимо отправиться в путешествие в далекий северный городок Нежногорье, где их когда-то поженили. К ним на выручку приходит безумная соседская семейка — Валентин и Варвара Бублики, а также их озорной сын Платон Валентинович, которые случайно отправляются (   Читать дальше...   )Производство: Россия / Продюсерский центр «Молодёжные инициативы», Кинокомпания «СКАЗКА»Жанр: комедияРежиссер: Филипп Абрютин, Оксана ЛахноАктеры: Варвара Щербакова, Денис Бузин, Ирина Темичева, Илья Коробко, Анна Ардова, Сергей Баталов, Владимир Селиванов, Михаил Полицеймако, Никита Паршин, Яков ГущинСубтитры: отсутствуютПродолжительность: 01:36:50
+Продолжение истории о кибервселенной, где живут виртуальные люди с реальными чувствами, царит диктатура и проходят гладиаторские бои. Возвращение старого соперника запускает игру по новым правилам.Производство: США, Канада, Новая Зеландия / Paradox, Sean Bailey Productions, Walt Disney PicturesЖанр: фантастика, боевикРежиссер: Йоаким РённингАктеры: Джаред Лето, Грета Ли, Эван Питерс, Джоди Тёрнер-Смит, Хасан Минхаж, Артуро Кастро, Джиллиан АндерсонПеревод: Дублированный (MovieDalen, Red Head Sound)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:58:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:729EAB8CAE9C80518E32BEABEABF527C147D4661
+magnet:?xt=urn:btih:05ED03651497EAC07C33A5CCD2E822386C90B75F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,28 +555,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847273   (1052089) от 11.01.2026
+###  Публикация: 1849580   (1053753) от 23.01.2026
 
-Blue - Reflections (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+Adobe Acrobat Pro 2025.001.21111 RePack by KpoJIuK [Multi/Ru]
 
->>Pop
->>Pop (Hi-Res)
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Vow [00:03:49]
-02. One Last Time [00:03:18]
-03. You Should Know [00:03:19]
-04. Look What You Started [00:02:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:31
+Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:209C7904FFC75BBC889BC5B232C332C05003C746
+magnet:?xt=urn:btih:5D7744B369B8343917FB3584112D147A96B66CFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,26 +581,108 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847375   (1052088) от 24.01.2026
+###  Публикация: 1849220   (1053752) от 23.01.2026
 
-Trigun Stargaze | Триган: Наблюдая за звёздами [2026, TV, 1 из 12 эп.] WEBRip 720р raw
+Аватар: Пламя и пепел / Avatar: Fire and Ash (2025) WEBRip [H.265/1080p] [звук с TS]
 
->>Аниме с субтитрами
->>Онгоинги
+>>След.
+>>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новое аниме не только продолжит «Триган: Ураган», но и завершит его. События сиквела стартуют через два с половиной года после первой части. Над аниме по-прежнему работает студия Orange.
-Действие разворачивается на пустынной планете, подозрительно напоминающей Дикий Запад, а сюжет повествует о похождениях опасного преступника (с наградой в 60 миллиардов двойных долларов (   Читать дальше...   )Производство: OrangeЖанр: приключенияРежиссер: Satou MasakoПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+Джейк Салли, Нейтири и их дети переживают смерть Нетейама. Противостояние с корпорацией RDA обостряется, и теперь семье предстоит столкнуться с враждебным племенем На`ви во главе с Варанг.Производство: США / 20th Century Studios, TSG Entertainment, Lightstorm EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс КэмеронАктеры: Кейт Уинслет, Стивен Лэнг, Зои Салдана, Сэм Уортингтон, Иди Фалко, Сигурни Уивер, Джованни Рибизи, Уна Чаплин, Дэвид Тьюлис, Джек ЧемпионПеревод: Дублированный (звук с TS)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (forced, full)Продолжительность: 03:17:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93FDE8104B687F62B7C03AFB8590BAB78B6EC2C0
+magnet:?xt=urn:btih:29B9DB7B15965B5DBB1395F75B027DB7A2250692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849558   (1053751) от 23.01.2026
+
+VA - The Best Of Italo-Disco 2025 (2026) [MP3|320 Kbps] <Italo-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bellatrix - Nebulae And Shadows (5:11)
+02. Cyberman - Happy Disco Song (4:14)
+03. David Dima - Time Machine (I Venti Remix) (7:05)
+04. Mirko Hirsch - The Crimson Bride (6:21)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C576008FAC30ED5801A7938C727F76C81BF8B12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849587   (1053750) от 23.01.2026
+
+Победить или умереть / Do or Die (1991) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они не просто две красотки, они – секретные федеральные агенты из США. Им поручено выследить и уничтожить наёмных убийц. Для этого к ним прибывает подкрепление и команда из восьми человек…Производство: США / Malibu Bay FilmsЖанр: боевик, драма, криминал, приключенияРежиссер: Энди СидарисАктеры: Пэт Морита, Эрик Эстрада, Дона Спейр, Роберта Васкес, Брюс Пенхалл, Синтия Бримхолл, Уильям Бумиллер, Майкл Дж. Шэйн, Пандора Пикс, Кэролин ЛьюПеревод: профессиональный многоголосый (Россия), авторский (Андрей Гаврилов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1608FD46FACB8C9963A97B6A6EA34A06E22AFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849590   (1053749) от 23.01.2026
+
+Проекты - VideoHive - Car Speedometer Dashboard UI Pack - 61519514 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор элементов интерфейса для автомобильной приборной панели.
+
+Создайте реалистичный анимированный интерфейс приборной панели автомобиля с полностью функциональными приборами, индикаторами и значками. В комплект входят звуковые эффекты и подробное видеоруководство, которые помогут вам быстро начать работу. Этот набор работает на основе централизованной панели управления, (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E795941F15F17D00108819D89A3E4117840C47A
 ```
 
 https://mybot314.ru/tekegram_catalog/

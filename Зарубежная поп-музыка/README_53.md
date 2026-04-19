@@ -1,3 +1,58 @@
+###  Публикация: 1168179   (412895) от 22.09.2017
+
+Love Committee - 2 Albums (1978, 1980) [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диско - вокальный квартет из США. В 60-е годы начинали работать под названием - The Ethics. Выпустили под проектом "Love Committee" только эти два альбома и в дальнейшем несколько новых синглов.01. Law And Order (8:46)
+02. Tired Of Being Your Fool (2:56)
+03. If You Change Your Mind (3:43)
+04. Cheaters Never Win (3:58)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 01:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926C04ABE1B9D822618C14AC43F9356393B274F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563170   (410800) от 20.10.2015
+
+Ace Of Base - 25 Best Songs (2012) [MP3|320 кб/с]<Pop,Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop,EurodanceПродолжительность: 01:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F96B1D8829D5F31A7B6F37F627EACF3A1114BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066702   (410177) от 27.10.2016
 
 Buck Lucky - The American Way (2015) [MP3|320 Kbps] <Traditional American Pop, Country Pop>
@@ -699,70 +754,6 @@ Miley Cyrus - Younger Now (2017) [MP3|320 Kbps] <Pop, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B938BB38195002CC24195F5CE3EBAFFAA9821B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566597   (397854) от 28.10.2012
-
-Blue System - The History Of (2009) [MP3|320 кб/с]<Euro Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sorry Little Sarah (7'' Version)
-02. Big Boys Don't Cry (Long Version)
-03. Love Me More
-04. G.T.O.
-05. My Bed Is Too Big (7'' Version)
-06. Under My Skin
-07. Silent Water
-08. Love Suite (7'' Remix)
-09. Magic Symphony
-10. Love Me On The Rocks(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 01:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FBAB97F55FA62CDD379923FBAFAABCF2FBF2F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171755   (395759) от 05.10.2017
-
-Hans Edler - Dirty Sally (1975) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mus Expo (4:05)
-02. Every Night And Day (2:58)
-03. My Baby's Walking Around (2:34)
-04. Honeymoon (3:08)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B6317823FB34E84C3767F50A1BD99D0FA6E365
 ```
 
 https://mybot314.ru/tekegram_catalog/

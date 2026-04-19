@@ -1,3 +1,32 @@
+###  Публикация: 1622636   (1030041) от 29.03.2023
+
+M-Opus - At The Mercy Of Manannan (2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Setting Off [00:02:02]
+02. Riverflow [00:06:45]
+03. Whirlpool [00:03:14]
+04. To The Other Side [00:09:03](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436A74C64F8B0E19764753213EEC3B647020A023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622910   (1029809) от 30.03.2023
 
 The Who & Isobel Griffiths Orchestra - Live At Wembley (2023) 2CD [MP3|320 Kbps] <Classic Rock>
@@ -716,35 +745,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DC9E74D816A4C70A3B3782560E9F26BD8AB9D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455036   (1025799) от 18.03.2021
-
-Creed Fisher - How Country Music Sounded Before It All Went to Shit, Vol. 1 (2021) [MP3|320 Kbps] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Make-up & Faded Blue Jeans [00:04:04]
-02 - Down to a Crawl [00:03:21]
-03 - People Like Me [00:03:39]
-04 - Kentucky Bluebird [00:03:42](   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8C9F19C04C184727CCDAB746564077617755E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

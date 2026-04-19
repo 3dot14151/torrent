@@ -1,3 +1,61 @@
+###  Публикация: 1080014   (292062) от 05.12.2016
+
+Ann Joy - Love Dance (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel Your Way Around  (5:29)
+02. Love Dance (It's Gotta Be Magic)  (8:01)
+03. You Make Me Feel Good  (3:01)
+04. Love Now, Hurt Later  (6:23)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D609D887BE8F5BCAC407CC587516A0811098751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079917   (291908) от 05.12.2016
+
+VA - The Original Maxi-Singles Collection: Disco Fox 80 Vol.6 (2016) [MP3|320 Kbps] <Euro-Disco, Synth-pop, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leslie Mandoki - Korea (Special Arirang Version) 7:40
+02. Bad Boys Blue - Lady In Black (Shakespearean Mix) 6:07
+03. The Twins - I Need You (Extended Version) 6:50
+04. Silent Circle - What a Shame (Masterbeat Mix) 6:36(   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, Hi NRGПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28954EB70282C492E43ABC1BF61DF337F9AC7123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185519   (291722) от 22.11.2017
 
 VA - Deep Disco Culture (2006, 2007) Underground Disco Rarities & Future Club Classics - 4CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -682,64 +740,6 @@ Fern Kinney - Groove Me (1979) Remastered, Big Break Records, 2013 [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41FFB0F58C274A78E8441F8506DF3797F544880A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337115   (276316) от 09.11.2019
-
-Rendezvous - Rock And Roll Disco Boogie (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock And Roll Disco Boogie (15:59)
-02. Get It While You Can (6:18)
-03. Stay (4:03)
-04. Give It If You Got It (5:25)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72F65A72D5CAC2BEE1A7AAC97D4442C38003E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082904   (275498) от 14.12.2016
-
-Modern Talking - Die Erfolgreichsten Hits (Remastered) (2016) [MP3|320 Kbps] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (Remastered) 3:21
-02. You Can Win If You Want (Remastered) 3:46
-03. Cheri Cheri Lady (Remastered) 3:47
-04. Brother Louie (Remastered) 3:42(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457AB0245954CF867B713260DF237E7E4807014A
 ```
 
 https://mybot314.ru/tekegram_catalog/

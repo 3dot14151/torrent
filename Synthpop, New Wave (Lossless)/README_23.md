@@ -1,3 +1,90 @@
+###  Публикация: 1589710   (189654) от 11.11.2022
+
+a-ha - True North (2022) [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm In (5:06)
+02. Hunter In The Hills (4:11)
+03. As If (4:56)
+04. Between The Halo And The Horn (4:11)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39CA0BF491A1110DB81A31598EFBDE30EA94BACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279156   (189511) от 11.11.2022
+
+Depeche Mode - Archive 12 Inch Boxes (2018-2022) Sony Music, RM. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, House>
+
+>>След.
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Precious (Sasha's Spooky Mix - Full Length) (10:33)
+02. Precious (Sasha's Gargantuan Vocal Mix - Full Length) (9:42)
+03. Precious (Misc. Full Vocal Mix) (5:42)
+04. Precious (Michael Mayer Balaeric Mix) (7:19)(   Читать дальше...   )Жанр: Electronic, Synthpop, HouseПродолжительность: 03:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FB15CE56303AB4C38FB9B5AD824D3E3F681534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590710   (188520) от 15.11.2022
+
+Moxy The Band - Dream Feeling (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Female Vocal>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pawns (2:58)
+02. You Feel It Too (4:01)
+03. The Cost (3:15)
+04. Live Without (3:44)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Female VocalПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064615E02B54FA37A56E50FA22DA14BBBC7C7050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590858   (187550) от 17.11.2022
 
 Groove Master Juno - The Last Prism (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Alternative>
@@ -658,93 +745,6 @@ Malik Djoudi - UN (2017) Wagram Music & Cinq 7 [FLAC|Lossless|WEB-DL|tracks] <Fr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22AF456AAFA3B0BA1C092EDBF8905D0BE2D753C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597789   (165082) от 16.12.2022
-
-Thermal Noise - Legends (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stronger than the Night [00:04:32]
-02. Legends [00:04:41]
-03. Object From Outer Space [00:03:37]
-04. Misfits [00:04:19](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49EFE03EA89FB6EB814BB10AAAC29F196ECE48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516898   (163548) от 14.12.2021
-
-Siouxsie And The Banshees - Once Upon A Time/The Singles (1981) Remaster, 1992, Geffen Records [FLAC|Lossless|tracks + .cue] <New Wave, Goth Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hong Kong Garden [2:55]
-02.Mirage [2:49]
-03.The Staircase (Mystery) [3:06]
-04.Playground Twist [3:02](   Читать дальше...   )Жанр: New Wave, Goth RockПродолжительность: 00:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3694C4FA0F112320775D160952279714EF07B1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674222   (162328) от 04.11.2023
-
-††† (Crosses) - Goodnight, God Bless, I Love U, Delete (2023) [FLAC|Lossless|tracks + .cue] <Synthpop, Experimental, Electronic Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pleasure (04:16)
-02. Invisible Hand (03:54)
-03. Found (03:25)
-04. Light as a Feather (03:09)(   Читать дальше...   )Жанр: Synthpop, Experimental, Electronic RockПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389CC70E4A9E1D10F7A92D47394756AF33874D35
 ```
 
 https://mybot314.ru/tekegram_catalog/

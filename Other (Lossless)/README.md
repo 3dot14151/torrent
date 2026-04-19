@@ -1,26 +1,26 @@
 https://t.me/izofen
-###  Публикация: 1863365   (1063946) от 
+###  Публикация: 1864705   (1065092) от 
 
-VA - The Orient Collective: Where Earth Meets Sky (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+The St. John Damaskin children’s and youth choir (Детско-юношеский хор преподобного Иоанна Дамаскина) - Pascha of the Faithful (Пасха верных) (2009) [FLAC|Lossless|tracks + .cue] <Духовные песно ...
 
 >>Other Styles
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gobi Desert Collective - Assez (5:02)
-02. Dj Renat - Busindre Reel (7:11)
-03. ARTYDAL - Viajero (Vocal Mix) (6:05)
-04. Marga Sol - Orolalo (4:08)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:57:00
+01. Behold, the Bridegroom cometh...
+02. Thy Bridal Chamber...
+03. Today there is hung upon the Tree...
+04. Bells of the Lord’s Tomb Christ is risen...(   Читать дальше...   )Жанр: Духовные песнопенияПродолжительность: 00:53:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92BD3FDA152DC097CAB0D0D093A1DE4E8FBFB239
+magnet:?xt=urn:btih:8A491B17856D835602D1AB976609B52A765E206F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,7 +28,36 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863092   (1063684) от 
+###  Публикация: 1864769   (1065081) от 
+
+VA - The Orient Collective: Ancestors Still Speak (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.J. Thor - Sussurro (4:28)
+02. Aydn Britt - Albaraan (4:26)
+03. Marga Sol - Memoria (4:45)
+04. m.age.project - Crystal Beauty (7:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B577A52FC21008C34386280F29633D2D92E23C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863092   (1063728) от 02.04.2026
 
 VA - The Orient Collective: Tribal Horizons (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
@@ -36,7 +65,7 @@ VA - The Orient Collective: Tribal Horizons (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063728.jpg" />
 </div>
 
 
@@ -57,7 +86,36 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859699   (1061238) от 
+###  Публикация: 1863365   (1063477) от 04.04.2026
+
+VA - The Orient Collective: Where Earth Meets Sky (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gobi Desert Collective - Assez (5:02)
+02. Dj Renat - Busindre Reel (7:11)
+03. ARTYDAL - Viajero (Vocal Mix) (6:05)
+04. Marga Sol - Orolalo (4:08)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BD3FDA152DC097CAB0D0D093A1DE4E8FBFB239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859699   (1061238) от 17.03.2026
 
 Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-classical, New Age, Nordic Folk>
 
@@ -694,76 +752,6 @@ Sacred Spirit (Claus Zundel) 11 альбомов (1994 - 2003) [APE|lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63D03092DB19B5F31183E943C15740803F0643EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608553   (993423) от 25.01.2013
-
-V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereo Dub - Insensatez (How Insensitive)
-02. Celso Mendes ft. Lua - Fotografia (Diva Mix)
-03. Karen Souza - Corcovado (Quiet Nights Of Quiet Stars)
-04. Lila ft. Rhythmic Control - Aquarela (Brazilian Tradition Mix)
-05. Aural ft. Ituana - Amanha Talvez
-06. Urban Love ft. Moana - Samba De Uma Nota So
-07. Lalann - Seguir No Caminho
-08. Sound Behaviour - Fixacao (Outro Lado Remix)
-09. Karen Souza - Do You Really Want To Hurt Me
-10. Os Alquimistas - Aguas De Marco (Unconscious Edit)(   Читать дальше...   )Жанр: Bossa, Chillout, LoungeПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611149   (989089) от 30.01.2013
-
-Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfidia
-02. Roma Nun Fa' La Stupida Stasera
-03. Champagne
-04. Anema E Core
-05. Quizas, Quizas, Quizas (duet with Jennifer Lopez)
-06. Era Gia Tutto Previsto
-07. Tristeza
-08. La Vie En Rose (contains exerpts performed by Edith Piaf)
-09. Corcovado (duet with Nelly Furtado)
-10. Sara Settembre (September Morn)(   Читать дальше...   )Жанр: Vocal, BalladПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

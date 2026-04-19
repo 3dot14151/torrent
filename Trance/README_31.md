@@ -1,3 +1,90 @@
+###  Публикация: 1169814   (399819) от 01.10.2017
+
+VA - 2 Years Suanda True (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  LTN & Attila Syah - Padma (Original Mix)  7:18
+02.  CubeTonic & Dilara Gadel - So Strong (Mark W Radio Edit)  3:21
+03.  Aurosonic & Nicol Cache - Tell Me Why (Mhammed El Alami Radio Edit)  3:18
+04.  F.G. Noise & Tom Exo - Skyworld (Radio Edit)  3:50(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1BCB645CB6D15859E326EB55286FA7B7E8315B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169821   (399812) от 01.10.2017
+
+VA - Festival Hits (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aly & Fila feat. Paul Thomas - UV (Original Mix)  3:30
+02.  The Thrillseekers - In These Arms (The Thrillseekers pres. Hydra Remix)  3:50
+03.  Dan Stone & Ferry Tayle - Vona (Original Mix)  3:54
+04.  Sam Laxton - Never Alone Again (Original Mix)  3:45(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75736910F618D64AA0979FD65C45B55E98F717E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169815   (399804) от 01.10.2017
+
+VA - ADE Trance Anthems (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aurosonic feat. Katty Heath - My Good Place (Original Mix)  4:09
+02.  Raz Nitzan feat.  Maria Nayler - Nothing Breaks Like A Heart (Omnia Remix)  3:15
+03.  Daniel Van Sand feat.  Nina Sung - Slipping Within (Original Mix)  3:30
+04.  4 Strings - Beneath The Stars (Radio Edit)  2:49(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276864CD3AC91FE741B4402F32CBFF4E267FFA79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169816   (399479) от 01.10.2017
 
 VA - Trance Workout Hits (2017) [MP3|320 Kbps] <Vocal Trance>
@@ -658,93 +745,6 @@ Sensorica - 6 Albums , 7 Compilations (2007 - 2015) [MP3|320 кб/с]<Trance, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88C748D269DA37FCCC116300BBF6F193E01E5671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327275   (376726) от 24.09.2019
-
-Ahmed Romel - RUYA (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Romel - Be My Eyes (03:39)
-02. Ahmed Romel - Dystopia (05:13)
-03. Ahmed Romel - Vanya (03:54)
-04. Ahmed Romel & Simon O'Shine - The Love Potion (04:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9BF3DCF46876ED8D347043F9B5921FC50AEC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175321   (376270) от 19.10.2017
-
-VA - Armin van Buuren Live At Ultra Mexico 2017 (Highlights) (2017) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren - Live At Ultra Mexico 2017 (Mix Cut) (Intro)  1:33
-02.  ID - ID (Mix Cut)  4:30
-03.  Armin van Buuren feat. Kensington - Heading Up High (Mix Cut) (First State Remix)  4:04
-04.  Super8 & Tab - Cosmo (Mix Cut)  2:02(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D35ADFDAEAE77D2340A2EC43076037271AE541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175625   (376267) от 19.10.2017
-
-VA - Top 10 Secret Radio Weapons Vol.5 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Keurich - Estela (Eddie Lung Remix)  7:13
-02.  John Fisherman - Mirage (Original Mix)  7:25
-03.  Paw Luk & Abrupt Gear - Messantia (Elite Electronic Remix)  7:36
-04.  Scorpius & Keurich - Revolution (Original Mix)  9:02(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32EC9CCA2FDBE8CFDAA02B55CD63CA1B281A86E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,228 +1,25 @@
-###  Публикация: 1790963   (21761) от 11.04.2025
+###  Публикация: 1781628   (26571) от 24.02.2025
 
-VA - Musical kaleidoscope part 37 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Voyage Enigmatic 5
-02. Aleksey Boychenko - The Broken Heart is Still Beating
-03. Enigma - Mea Culpa
-04. Aurora Night - Tomorrow is Now(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E434D41DEF2B2753FB03326FBE4C6A45357A380B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790942   (21750) от 11.04.2025
-
-VA - KaZantip [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Playgroup - Behind the Wheel (Electroca$h Mix)
-02. Romina Cohn - The Night
-03. 2raumwohnung - Freie Liebe (Panoramabar Remix)
-04. Zyntherius, Tiga - Sunglasses at Night(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7898C795A5C07F62FFFA73FB9223116A79E7D72C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790923   (21747) от 11.04.2025
-
-VA - On top of THE BLUES (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21747.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jeff Fetterman - Bottle Full of Blues [06:47]
-002. Playing for Change, Steve Miller, Ivan Neville - Fly Like an Eagle [04:19]
-003. Neville James Martin - True Intentions [04:39]
-004. Jon Lord - When a Blind Man Cries (Live) [05:17](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 15:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF981E2804AC674BE8A00FB081DF83DCBACE3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790947   (21724) от 11.04.2025
-
-VA - Compilation Part 153 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Sultan - Atmosphere
-02. Umar Keyn - Fly to Me
-03. Muvi - Where Love Lives
-04. Hamidshax - Love is Pain(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208C1ABF05D92A1E6EA6886839B99EF57003D3F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768139   (21676) от 12.04.2025
-
-Eric Clapton - Compilation (1966-2024) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Ain't Gonna Stand For It (Reptile 2001)
-02. 32-20 Blues (Me & Mr. Johnson 2004)
-03. Angel (Old Sock 2013)
-04. Anyway The Wind Blows (& JJ Cale) (The Road To Escondido 2006)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 06:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AAC3494885BC95B056CAAB5BB650A3AC1EE0D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761963   (21668) от 12.04.2025
-
-Linkin Park - Compilation (1999-2024)[MP3|320 Kbps] <Alternative, Nu metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Session (Meteora 2003)
-02. A Light That Never Comes (Recharged 2013)
-03. A6 (Lost Demos 2023)
-04. Across The Line (Minutes To Midnight 2007)(   Читать дальше...   )Жанр: Alternative, Nu metalПродолжительность: 04:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36174A32660F4DEAFF1E30208691C8B8C5492BB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762624   (21656) от 12.04.2025
-
-Rag'n'Bone Man - Compilation (2012-2024) [MP3|320 Kbps] <Neo blues, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Know (What Do You Believe In 2024)
-02. All You Ever Wanted (Life By Misadventure 2021)
-03. Alone (Life By Misadventure 2021)
-04. Arrow (Human 2017)(   Читать дальше...   )Жанр: Neo blues, SoulПродолжительность: 02:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C301AF08A0A2AAAEA930B11533DE302DCE8920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791296   (21649) от 12.04.2025
-
-VA - ЕвроХит Топ 40 Europa Plus 11.04.2025 [MP3|320 Kbps] <Pop, Dance>
+VA - Evening Kaleidoscope (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lola Young - Messy (4:44)
-02. Lady Gaga - Abracadabra (3:43)
-03. Rialto - No One Leaves This Discotheque Alive (3:14)
-04. Zerb feat Ty Dolla Sign, Wiz Khalifa - Location (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:59:07
+001. Whigfield - Givin' All My Love (03:38)
+ 002. Whigfield - Gotta Getcha (03:45)
+ 003. Dachgarten - Let Love Win (03:40)
+ 004. Mara Sattei & Thasup - Egli E Il Re (02:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:17:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFCF3993BDB4559C4C0260159F82DC818614D713
+magnet:?xt=urn:btih:35458A1AD3C3A37BB560D038573173BA0E62D5A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,115 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777086   (21636) от 12.04.2025
+###  Публикация: 1781718   (26563) от 24.02.2025
 
-Хроноп - Compilation (1990-2025) [MP3|320 Kbps] <Indie rock, New wave>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аллилуйя (С Оркестром) (Песни Бронзового Века 2007)
-02. Лежу На Луне (Любитель Жидкости 2006)
-03. Люди, В Общем-То, Не Так Плохи (Между Никогда и Всегда 2023)
-04. Лётчик (Любитель Жидкости 2006)(   Читать дальше...   )Жанр: Indie rock, New waveПродолжительность: 04:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B280BC04FC460C3677E42748A85AB6F4B16921C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765345   (21592) от 13.04.2025
-
-Вячеслав Бутусов - Compilation (1985-2025) [MP3|320 Kbps] <Art rock, New wave, Electronic, Post punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бесконечность (Модель Для Сборки 2007)
-02. Настасья (Настасья EP 2000)
-03. 1915 (Аллилуия 2019)
-04. Аделаида (Disco version) (Аделаида EP 2012)(   Читать дальше...   )Жанр: Art rock, New wave, Electronic, Post punkПродолжительность: 05:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE16AEB29EB2F7469C4A9B187805ECD8E00A0E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791354   (21561) от 13.04.2025
-
-VA - Весна на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rialto - No One Leaves This Discotheque Alive (3:14)
-02. Armin Van Buuren feat. Alok & Norma Jean Martine & Lawrent - Euphoria (2:31)
-03. KDDK - O-La-La (2:10)
-04. Benson Boone - Sorry I'm Here For Someone Else (2:36)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5DB04530E7807FCCF568A7E8772E43BE0FF425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791420   (21534) от 13.04.2025
-
-VA - The Weekend Is In Full Swing! (2025) [MP3|320 Kbps] <Pop, Dance>
+VA - Music News For Forum vol.063 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Babasha & Ministerul Manelelor - Alo, Mama (02:49)
- 002. Whigfield - No Tears To Cry (05:30)
- 003. Abraham Colona & Dela Utca Feat. Sem - Leave Our Bags Behind (02:06)
- 004. Alejandro Sanz - Corazon Partio (05:43)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:23:40
+001. Алиса Буслова - Дурею (01:58)
+ 002. DARIA - В объективе (02:34)
+ 003. Akmal' - Ты мне покажи (03:58)
+ 004. ALEX ANDREEV feat. VARDGESI - По зиме (02:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:27:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BEFF962DF9D229BD06D1EA5CA0B73A60536A607
+magnet:?xt=urn:btih:2500F158867636C58E7938236C760556D562162A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,115 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766155   (21432) от 14.04.2025
+###  Публикация: 1781819   (26489) от 25.02.2025
 
-blink-182 - Compilation (1995-2024) [MP3|320 Kbps] <Punk rock, Alternative, Skate punk, Pop punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurt (Interlude) (One More Time... Part 2 2024)
-02. Adam's Song (Enema Of The State 1999)
-03. All The Small Things (Enema Of The State 1999)
-04. Anthem (Enema Of The State 1999)(   Читать дальше...   )Жанр: Punk rock, Alternative, Skate punk, Pop punkПродолжительность: 01:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519E19B0610245290A2C6F7C92ACEAF64EB446BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791448   (21420) от 14.04.2025
-
-VA - Compilation Part 155 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akmalov - Pleasure
-02. Faniz - France
-03. A-Sultan - Turning
-04. Neuron - Little Do I Know(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B0B3BA9CF0DBBFA7CC87312C10AC9576BAA4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791447   (21416) от 14.04.2025
-
-VA - Compilation Part 154 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neuron - Touch Me
-02. Jumanov - Went
-03. A-Sultan - Drive
-04. George Kopaliani & Nsm - Magical Eyes(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834159D251AD6DAFC3BC31FD23143916F6C930A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791633   (21411) от 14.04.2025
-
-VA - Music News For Forum vol.073 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+VA - Music News For Forum vol.064 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. SCIRENA - Барбер (02:10)
- 002. 52Ghz - Актриса (02:38)
- 003. ADA & Грязь - Улитки (02:45)
- 004. AERTIAO - Странный (02:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:12:27
+001. ALISHA feat. Rozalia - Не давай мне спать (03:03)
+ 002. ADZA feat. I LINA - Этой зимой (02:58)
+ 003. AIGIZA - Одинокая луна (02:25)
+ 004. ALEKS ATAMAN feat. Finik - Колосок (02:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:52:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A1643F4B88E4C911845F4088C5EC013F37AF4C1
+magnet:?xt=urn:btih:24AD987AA6D0C87B69444E2DB10D8911045D5FAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,115 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760864   (21386) от 15.04.2025
+###  Публикация: 1781944   (26385) от 26.02.2025
 
-30 (Thirty) Seconds To Mars - Compilation (2002-2023) [MP3|320 Kbps] <Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Of One (A Beautiful Lie 2005)
-02. Kings & Queens (This Is War 2009)
-03. Stuck (It’s The End Of The World But It’s A Beautiful Day 2023)
-04. The Kill (Bury Me) (A Beautiful Lie 2005)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 03:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD911FB2FFD85224C6DA20923306257BEA84AB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791450   (21345) от 15.04.2025
-
-VA - Compilation Part 156 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riltim - Sin Rumbo
-02. Dndm - Living in Dreams
-03. Kasimoff - Echo Sax End
-04. Davvi - Still(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A205B4BC9BC6081B62C1142BB0C301F810543D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791720   (21335) от 15.04.2025
-
-Backstreet Boys - Compilation (1996-2019) [MP3|320 Kbps] <Pop, Dance, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Got It Goin' On (Backstreet Boys 1996)
-02. Larger Than Life (Millennium 1999)
-03. Incomplete (Never Gone 2005)
-04. The Call (Black & Blue 2000)(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 02:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3644ED3AC56A7DD836F4B182AC9BFB7112F4171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791729   (21328) от 15.04.2025
-
-VA - Music News For Forum vol.074 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+VA - Motivation Mix 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Наташа МальДива - Твой радар (03:17)
- 002. 22simba feat. Diss Gacha - Speranza (02:36)
- 003. 40 Lashes - My Eyes (03:06)
- 004. A Swift Farewell & Amariah - The Haunting (03:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:42:15
+01. Paul Keen - Tonight (2:29)
+02. Quavo, Lana Del Rey, Gravagerz - Tough (Gravagerz Remix) (3:39)
+03. Repiet - Better Way (2:59)
+04. Rivo - Last Night (3:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:16:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F14FFC438BDB907ADA15641F44FF049699647AA
+magnet:?xt=urn:btih:2445820A168D5F80D04FFBA1CCA61320AE989D63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,145 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791645   (21310) от 15.04.2025
+###  Публикация: 1781990   (26365) от 26.02.2025
 
-Dave Stewart - Compilation (2025) [MP3|320 Kbps] <Rock, Pop rock, Soft Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All Messed Up Feat. Martina McBride
-  02.  Jealous
-  03.  One Way Ticket to the Moon
-  04.  You Talk a Lot(   Читать дальше...   )Жанр: Rock, Pop rock, Soft RockПродолжительность: 02:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772F7501ED54764F8E3723E26A9D01949376E5AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792034   (21096) от 17.04.2025
-
-AM 1984 - Collection (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Storm (Intro Mix) (2:43)
-02. Mansion Ghost (4:05)
-03. Miami Days Reloaded 2.0 (3:42)
-04. Mr. Jones (4:15)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 02:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE92D9AAA863638A05DCCE47DAB3129367BEA917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302720   (21073) от 18.04.2025
-
-Sophie Zelmani - Best of (1995-2025) Compilation Album [MP3|320 Kbps] <Pop, Rock, Singer songwriter>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нас окружает море музыки, и не видно краёв ему, и особую ценность имеют редко попадающиеся жемчужины.
-О ещё одном таком открытии расскажу Вам:01. Before the Day's Gone
-02. Bitter Kind
-03. Breeze
-04. Churchbell(   Читать дальше...   )Жанр: Pop, Rock, Singer songwriterПродолжительность: 02:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65028FB04D15306E571E3AEC8B3774B1256CC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792263   (21050) от 18.04.2025
-
-Gary Moore - Compilation (1973-2021) [MP3|320 Kbps] <Blues rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues For Narada (Ballads & Blues 1982-1994 1994)
-02. Still Got The Blues (Still Got The Blues 1990)
-03. Preacher Man Blues (Bad For You Baby 2008)
-04. One Day (Ballads & Blues 1982-1994 1994)(   Читать дальше...   )Жанр: Blues rockПродолжительность: 10:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77845F42B2183867BC50D95E0B6FF423318577E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792265   (21020) от 18.04.2025
-
-VA - The Official UK Top 100 Singles Chart (2025) [MP3|320 Kbps] <Pop, Dance, Rock>
+VA - Music News For Forum vol.065 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Alex Warren - Ordinary (03:07)
- 002. Chappell Roan - Pink Pony Club (04:18)
- 003. Ed Sheeran - Azizam (02:42)
- 004. Doechii - Anxiety (04:09)(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 05:34:02
+001. SVETLAYA - Поцелуи (02:57)
+ 002. ADDA - Fata Rea (03:07)
+ 003. ADUSHKINA - Типаж (02:32)
+ 004. AFELIA - Исчезаю (02:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:16:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE0E168687E9783565E2D7733C96C47E60FE3C8E
+magnet:?xt=urn:btih:8D1108915E2EA527DC64332B632FFD9A8CCB2C16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -724,28 +143,608 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792379   (20892) от 19.04.2025
+###  Публикация: 1782284   (26297) от 27.02.2025
 
-Аэросса - Collection (2025) [MP3|320 Kbps] <Space Music, Ambient>
+Flaer Smin - Compilation (2025) [MP3|320 Kbps] <New Age, Enigmatic, Electronic, Ambient, Instrumental>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Галактикум (7:50)
-02. Сумасшедшая комета (4:48)
-03. Космография (4:28)
-04. Слияние миров (5:33)(   Читать дальше...   )Жанр: Space Music, AmbientПродолжительность: 06:28:17
+01.  Adagio for Love
+  02.  Catasta
+  03.  Namaste
+  04.  Spacewalk(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, Ambient, InstrumentalПродолжительность: 02:52:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2F450C8FA5770F9C2E5CF72915E830E1A426529
+magnet:?xt=urn:btih:27DD884043F44187286C1E410399C818A31DDF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782143   (26275) от 27.02.2025
+
+Axel Rudi Pell - The Ballads Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Say Goodbye [05:42]
+02. Where the Wild Waters Flow [05:35]
+03. You Want Love [04:34]
+04. Forever Angel (Acoustic) [04:33](   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 09:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A812F25E2A89C2DEBF0128E20400187BE8F464DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782164   (26271) от 27.02.2025
+
+VA - Music News For Forum vol.066 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26271.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anastasia - Bacio Di Giuda (02:29)
+ 002. Agents Of Time - Only Human (03:26)
+ 003. Aidar BMM - Живем (01:22)
+ 004. Aidar BMM - Искали (01:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667A935C15D44BA7DEF206542E873D869A203396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782180   (26261) от 27.02.2025
+
+VA - Trance In Motion Vol.385 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asteroid - 2AM (Extended Mix)
+02. ALIGASH - Half A Dream (Extended Mix)
+03. Ciro Visone - Forever For You (Extended Mix)
+04. Joren Hëelsing - Hydra (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551AC9FDFD6AE0CC5539FDF84671BC927A164F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782442   (26029) от 01.03.2025
+
+VA - Musical Kaleidoscope Part 31 Electronc (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Dream Music 5
+02. Sisco Le Voyageur - Voyage Enigmatic
+03. Flaer Smin - A Long Way Home
+04. Flaer Smin - Catharsis(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB67D940834078985616012562098028E1665DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782836   (26002) от 02.03.2025
+
+VA - Winter Cafe Bar (2025) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26002.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Digby Jones - Dinner (00:02:07)
+002. Downtown Binary - Polaris (00:05:41)
+003. Medwyn Lindstaed - Winter Is Coming (00:04:21)
+004. Nile - Classy Stuff (00:06:34)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 12:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9EB3332DCA35F673557F6A0B0BE40789E1A91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782850   (26000) от 02.03.2025
+
+VA - Space Odissey (2025) [MP3|320 Kbps] <Synthetic, Space, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zombi - Orion (00:02:50)
+02. Magnetik - Stella (00:09:46)
+03. Abakus - New Era (00:05:33)
+04. Arthur Pralaya - Hope (00:05:04)(   Читать дальше...   )Жанр: Synthetic, Space, ElectronicПродолжительность: 09:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C567FC3C23C96E8DC6A5758CBF5B388B7CCDA4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782830   (25998) от 02.03.2025
+
+VA - Дискотека 2025 Dance Club Vol.227 [NNNB] (2025) [MP3|320 Kbps] <Dance, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+[3:59] 01. ASPARAGUSproject - Hide Away
+[2:18] 02. Stefre Roland - Hypnotized
+[3:38] 03. DJ JEDY, Hakdeep - Breathe With Me(   Читать дальше...   )Жанр: Dance, House, Trance, Pop, ChillПродолжительность: 13:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C510AE13E539895CCAD98B90F052043CE134D23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782860   (25954) от 02.03.2025
+
+VA - Jet Drive (2025) [MP3|320 Kbps] <Hard, Dance, Hardstyle>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pylot - Curve (00:05:19)
+02. Dixxy & Rikston - Never Forget (00:04:18)
+03. Logic Bomb - Breaker Breaker (00:08:39)
+04. Nobody - Part Of Me (00:03:39)(   Читать дальше...   )Жанр: Hard, Dance, Hardstyle, ElectroПродолжительность: 08:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812295660692755FEA02C8A1BE3668FFD02F7785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782665   (25934) от 02.03.2025
+
+VA - Assorted Remixes Compilation Part 3 (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening, Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Polkovnik - Па-Па-Ба
+02. Dj Nid - Shared Dreams
+03. Ai Bunny Club - Frosty Days Fireside Dreams
+04. Bad Boys Blue, S.Martin - You're a Woman(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listening, Pop, Dance, OtherПродолжительность: 02:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5721F4ABA1FDAE215B16A362DA43F2A759E9B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782937   (25873) от 03.03.2025
+
+VA - Masters of Rock & Metal - The Best Rock & Metal Tracks ever... (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metallica - 72 Seasons [07:39]
+02. Megadeth - Holy Wars...The Punishment Due [06:35]
+03. Deftones - Minerva [04:18]
+04. AC/DC - Let There Be Rock [06:07](   Читать дальше...   )Жанр: Metal, Glam Metal, Hard RockПродолжительность: 03:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5696136FEF7E3B02A845B76682125BE388716863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776078   (25795) от 04.03.2025
+
+U.D.O. - Compilation (1987-2025) [MP3|320 Kbps] <Heavy metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man & Machine. live (Navy Metal Night 2015)
+02. Pain (Decadent 2015)
+03. Blid Eyes (Thunderball 2004)
+04. Future Land (Faceless World 1990)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 12:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B529DD6B0CEFC91FBDA05DECE58A1851AEC04F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783179   (25784) от 04.03.2025
+
+VA - Digital Dreams (2025) [MP3|320 Kbps] <Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25784.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Midnight Fury - Regenerate (03:01)
+ 002. Dimi Kaye - Shredwave Avenger (04:06)
+ 003. Kai Panschow - Whatsover (03:14)
+ 004. Sha-Kobe - Feel It (04:21)(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 14:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B47101E32C021D71D31780C127DF8764A945E25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783097   (25741) от 04.03.2025
+
+VA - New Music Releases Week 03 (2025) [MP3|320 Kbps] <Pop, Rock, R&B, Hip-Hop, Rap, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25741.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. GELO, CoCo, Poison Beatz - + Attenzioni (feat. CoCo) - 03:06
+002. Glockenbach, Switch Disco, Jem Cooke - 2 Hearts - 03:22
+003. Heuss L'enfoiré, Genézio - 2, 3 shots - 02:33
+004. FourFive - 5/5 - 01:57(   Читать дальше...   )Жанр: Pop, Rock, R&B, Hip-Hop, Rap, DanceПродолжительность: 28:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD3008338CB72A6DE3A668A4E05D3770C616F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783325   (25648) от 05.03.2025
+
+VA - Musical kaleidoscope part 32 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Sax, Easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Voyageuse Des Etoiles
+02. Сергей Грищук - Крылья Надежды
+03. Dj Aurm - Look at Me
+04. Dj Polkovnik - Three Dimensions 2(   Читать дальше...   )Жанр: Electronic, Instrumental, Sax, Easy listeningПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405B7E37B2FF75F3E7035B37E58C8453C8D99F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783393   (25634) от 05.03.2025
+
+VA - Vocal Trance NNM 4 (2025) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enveak x Molothav - Awakening (Extended Mix) (4:13)
+02. Lucca van Damme feat. Olivia - Oblivion (2:42)
+03. Lost Frequencies, Pickle - Kick The Nation (Extended Version) (4:03)
+04. Bouras, VEENMOL - Transmission (Extended Mix) (5:32)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9970245CE4611E681E7767BE76A9895D2E52A5BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783344   (25607) от 05.03.2025
+
+VA - Compilation part 146 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muvi - Siena
+02. Jumanov - Need You
+03. A-Sultan - Be My Lover
+04. Hamidshax - Solo(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D9571A8ED4895A469B783F59AA31117ED275BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783690   (25454) от 07.03.2025
+
+Metallica - Compilation (1983-2024) [MP3|320 Kbps] <Metal, Hard rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ecstasy Of Gold (& San Francisco Symphony) (S&M2 2020)
+02. The Call Of Ktulu (Ride The Lightning 1984)
+03. Until It Sleeps (Load 1996)
+04. Loverman (& Nick Cave & The Bad Seeds) (Garage Inc. 1998)(   Читать дальше...   )Жанр: Metal, Hard rockПродолжительность: 10:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5DF9A7D9BAECD6D9F290C6A1DC993C177D3FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783713   (25408) от 07.03.2025
+
+VA - National Pop Dance Music Vol.99 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25408.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Newjeans - How Sweet (03:39)
+ 002. Lee Brice, Hailey Whitters - Drinkin' Buddies (03:17)
+ 003. Qm Zico - Got Yourself A Gun (02:48)
+ 004. Xodiac - Heyday (03:28)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13C2345F0BE11157F1713BAF44BF8A6E7CEAC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685894   (25369) от 08.03.2025
+
+VA - The Beatles' Covers (De-Noised) (2025) Remaster SMRP [MP3|320 Kbps] <Classic Rock, Reggae, Punk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25369.jpg" />
+</div>
+
+
+###  Подробнее
+
+10cc - Across The Universe (Live) (1996) (03:40)
+Ace Frehley - I'm Down (2020) (02:58)
+Aerosmith - Come Together (1991) (03:44)
+Aerosmith - Helter Skelter (1991) (03:15)(   Читать дальше...   )Жанр: Classic Rock, Reggae, PunkПродолжительность: 16:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B4D52C7EABD8ECE9BD931B2837EF42ADE02B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784229   (25116) от 10.03.2025
+
+VA - Assorted remixes compilation part 4 (2025) [MP3|320 Kbps] <Progressive Rock, Dance, Electronic, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeff Wayne - The Eve of the War
+02. Porcelain Black - Stealing Candy From a Baby
+03. Royksopp - Coup De Grace
+04. Ai Bunny Club - Opulent Echoes(   Читать дальше...   )Жанр: Progressive Rock, Dance, Electronic, OtherПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D529545C5278B122E4C64DD7673C59D28A517F
 ```
 
 https://mybot314.ru/tekegram_catalog/

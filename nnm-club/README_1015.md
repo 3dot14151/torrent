@@ -1,106 +1,22 @@
-###  Публикация: 1442153   (1036954) от 24.01.2021
+###  Публикация: 1614238   (1038865) от 21.02.2023
 
-Tribulation - Where the Gloom Becomes Sound (2021) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Remembrance [00:06:50]
-02. Hour of the Wolf [00:04:31]
-03. Leviathans [00:04:54]
-04. Dirge of a Dying Soul [00:05:08](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE1389D03228770F738E2E07C1429C02FE6C18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442182   (1036953) от 24.01.2021
-
-Ronin - Ronin (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - One in the Same [00:07:14]
-02 - Greetings [00:05:21]
-03 - Spider and Fly [00:05:11]
-04 - Down [00:05:14](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73989275E7C3FAD51F865ADD7F55A814670E01B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616075   (1036952) от 28.02.2023
-
-Следующее масштабное вымирание / The Next Great Extinction Event (2018) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036952.jpg" />
-</div>
-
-
-###  Подробнее
-
-В истории нашей планеты уже было пять крупных периодов вымирания — неужели мы вот-вот столкнемся с шестым? Привела ли индустриализация и выбросы загрязняющих веществ в атмосферу к переломному моменту истории, или это неизбежное планетарное явление, присущее ДНК нашей Земли? Эксперты попытаются выяснить, насколько хрупка наша планета, на что будут похожи следующие (   Читать дальше...   )Производство: Австралия, Astro Media Pty LtdЖанр: документальный, научно-познавательныйРежиссер: Эндрю ТомсонПеревод: двуголосый профессиональный (Агентство Русский репортаж)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47B99448AA0DD3143DB7B197ED203342EC5F6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442211   (1036951) от 24.01.2021
-
-LuLu 2.2.0 [En]
+Wondershare PDFelement 9.4.2.2105 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-LuLu - это бесплатный брандмауэр с открытым исходным кодом для macOS. Цель проста - заблокировать любые неизвестные исходящие соединения, пока они не будут одобрены пользователем. Хотя он был разработан для общего обнаружения вредоносных программ путем пометки несанкционированных сетевых соединений, LuLu также может использоваться для блокирования компонентов ОС (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2021Разработчик: objective-see llcПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9C81A4E537E052E2B110F351825940C0272A3AC
+magnet:?xt=urn:btih:6B97A6AAB9CE0F4B673F83575755627A9E0E5E96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,582 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442013   (1036950) от 24.01.2021
+###  Публикация: 1614171   (1038864) от 21.02.2023
 
-E-Trophee Andros. Сезон 2020-2021. Этап 4. Ланс Эн Веркор. Гонка 1-2 (22-23.01.2021) WEB-DL [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036950.jpg" />
-</div>
-
-
-###  Подробнее
-
-E-Trophee Andros — французский национальный чемпионат по автогонкам на ледяных трассах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 04:09:13 + 03:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3198DBE182BE53B33FC955A9A6943B2A581E473C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441761   (1036949) от 24.01.2021
-
-Balvanera - Courses of Action (2021) [MP3|320 Kbps] <EBM, Wave, Synth>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036949.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Medium (3:29)
-2. Gleams (3:41)
-3. Scene (4:00)
-4. New ways (4:30)(   Читать дальше...   )Жанр: EBM, Wave, SynthПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B68F363132EEE1BB762C0B203753E8B7CE868D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442216   (1036948) от 24.01.2021
-
-Wayne Alpern - Standard Deviation (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.ThrillerЖанр: Jazz, Crossover JazzПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24D85784F9E2A2601E31EE60BF0914A25666562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442132   (1036947) от 24.01.2021
-
-VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3897896774F3C465A1C28784DAA9F57C4D22AD08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442071   (1036946) от 24.01.2021
-
-VA - Beatport Techno: Electro Sound Pack #223 (2021) [MP3|320 Kbps] <Techno, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техно с "глубоким" звуком - элементами реверберации, эмбиента и минимала в 223-м сборнике от Beatport. В Вашем распоряжении 120 треков современного техно минимала высокого качества круглосуточно!001. Ensor - Natural Disorder
-002. Pwcca - Die Fliege
-003. Pablo Rios - The Big Bang Teory
-004. Squeeze Dj - Fearless(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 12:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30F62BE2B98CE75DA44F6B3A7219D1F70F0A734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442290   (1036945) от 24.01.2021
-
-Дмитрий Кошевар | Объясни мне почему. Покажи мне как. Хочу всё знать (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Важность науки в жизни человека переоценить невозможно. Уже с самого раннего возраста мы пытаемся постигнуть тайны окружающего нас мира, ведь даже в самых обыденных вещах таится много удивительного и необычного. И именно благодаря науке человек разгадал огромное количество загадок, многому научился и многое создал. Хотите узнать об этом подробнее и поразить своими (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C503339F6E457574F7B40E4601123A8AF9A2862C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442236   (1036944) от 24.01.2021
-
-Анастасия Барашкова | Эффект Феникса: как переродиться и стать счастливой за 7 дней (2020) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анастасия Барашкова – телеведущая, «светская львица» и актриса, известная многим по сериалам «Счастливы вместе», «Обручальное кольцо», «Институт благородных девиц», «Не ври мне» и др.
-А еще Настя – популярный блогер, профессиональный психолог и автор курса перерождения «Как стать счастливой за семь дней», который она ведет вместе с певицей и актрисой Анной Семенович. (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F597985E80AC6B464FE64E0CDEDDB397CE6F037C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442119   (1036943) от 24.01.2021
-
-Lyda Zamora - Monserate (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moliendo Cafe (4:05)
-02. Medley (When The Sun Goes Down - La Bamba) (16:29)
-03. Besame Mucho (4:41)
-04. Eso Beso (3:13)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1863498795F3864C274ACDA6FBA4C08ECD8A0677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442325   (1036942) от 24.01.2021
-
-Dream Wife - So When You Gonna... (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sports! (03:25)
-02. Hasta la Vista (03:42)
-03. Homesick (03:03)
-04. Validation (02:55)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69EB6E560D886DE3855148F7EC15E10792D97092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442183   (1036941) от 24.01.2021
-
-Warfect - Spectre Of Devastation (2020) [APE|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spectre Of Devastation
-02. Pestilence
-03. Rat King
-04. Left To Rot(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF492E8D66C928834BD665DDB1F586CABAC1E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442213   (1036940) от 24.01.2021
-
-Рекс Стаут | Ниро Вульф. Умолкнувший оратор (2020) [MP3, Павел Конышев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ниро Вулф, страстный коллекционер орхидей, большой гурман, любитель пива и великий сыщик, практически никогда не выходит из дому. Все преступления он распутывает на основе тех фактов, которые собирает Арчи Гудвин, его обаятельный, ироничный помощник с отличной памятью.
-
-Прямо перед выступлением на конференции Национальной Ассоциации промышленников убивают главу конкурирующей (   Читать дальше...   )Жанр: ДетективПеревод: Ольга АлександроваПродолжительность: 09:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2107272EB439A3A54DDEFF6F36108A1006485E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442320   (1036939) от 24.01.2021
-
-Goo Goo Dolls - It's Christmas All Over (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas All Over Again (04:20)
-02. Shake Hands With Santa Claus (02:42)
-03. This Is Christmas (03:43)
-04. Christmas Don’t Be Late (01:59)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517740B514A4D007C64146B329672F30B302E142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442187   (1036938) от 24.01.2021
-
-Fraternity - Seasons Of Change: The Complete Recordings 1970-1974 (2021) 3 CD Set [FLAC|Lossless|WEB-DL|tracks + .cue] <Psychedelic, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Chance [00:03:17]
-02. Tiger [00:02:30]
-03. Going Down [00:04:59]
-04. Requiem [00:04:51](   Читать дальше...   )Жанр: Psychedelic, Hard Rock, Blues RockПродолжительность: 03:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEAFC46124B38110673F26C5577AF30F6290B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442310   (1036937) от 24.01.2021
-
-Тайная кухня Энтони Бурдена / Anthony Bourdain: Parts Unknown (2017) IPTVRip (сезон 10, серии 1-7 из 8)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый человек иногда задумывается, как сложилась бы его жизнь, живи он в другой стране. Известный американский шеф-повар Энтони Бурден ищет ответ на этот вопрос, путешествуя по всему миру. Погрузиться в чужую языковую среду, попробовать блюда местной кухни, погулять по затерянным улочкам городов и пообщаться с их обитателями - всё это стало его настоящей страстью.Производство: США, Zero Point Zero Production Inc.Жанр: Документальный, путешествия, кулинарияРежиссер: Том Витале, Майкл Стид, Салли ФриманПеревод: Двуголосый закадровый, профессиональный (1ТВЧ)Субтитры: отсутствуютПродолжительность: серии x ~00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68F46BB0FEC423754CDFB02625D0CC12607E119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441925   (1036936) от 24.01.2021
-
-Same Eyes - Parties to End (2021) [MP3|320 Kbps] <Synthpop, Darkwave, New Wave>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036936.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. New Wage (4:24)
-2. Forever (3:43)
-3. Cry For Us (4:25)
-4. Open Stares (3:46)(   Читать дальше...   )Жанр: Synthpop, Darkwave, New WaveПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FD236CC04939ACB3F68842F28E78CE2E0C63BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442220   (1036935) от 24.01.2021
-
-Рекс Стаут | Ниро Вульф. Слишком много женщин (2021) [MP3, Павел Конышев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ниро Вулф, страстный коллекционер орхидей, большой гурман, любитель пива и великий сыщик, практически никогда не выходит из дому. Все преступления он распутывает на основе тех фактов, которые собирает Арчи Гудвин, его обаятельный, ироничный помощник с отличной памятью.
-
-Крупная компания нанимает Вулфа для расследования обстоятельств гибели сотрудника, сбитого автомобилем. (   Читать дальше...   )Жанр: ДетективПеревод: Анатолий КовжунПродолжительность: 09:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5CDD6FA48BEC5167E49DC6F45165E00B8816B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442177   (1036934) от 24.01.2021
-
-VA - Happy Pop Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - Here Comes the Sun (02:58)
-02. Karizma Duo - (Your Love Keeps Lifting Me) Higher and Higher (03:17)
-03. Logan York - Light My Fire (02:39)
-04. The Shaken Bakers - Don’t Stop Movin’ (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C047732C9E8462DC5B0C2C8F6185F0577FFE7D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442227   (1036933) от 24.01.2021
-
-Moreza - Fragrance (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Nuevo Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragrance (5:29)
-02. Moreza;Lorenzo de Medici - King Of Guitarras (4:45)
-03. Love Story (4:30)
-04. Miss Guitar (Deep Lounge Mix) (5:43)(   Читать дальше...   )Жанр: Chillout, Nuevo FlamencoПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD79A7FCD03822F7131D791FF8259E7FD615F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442203   (1036932) от 24.01.2021
-
-Эдвин Хилл | Тайна Хестер Терсби (Книга 1). Слабое утешение (2021) [MP3, Лилия Власова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эстер Терсби, библиотекарь из Гарварда, прекрасно знает, что даже в цифровую эпоху людям все еще нужна помощь в поиске вещей. Поэтому, используя свои недюжинные исследовательские навыки, она подрабатывает розыском пропавших людей. Обычно ее нанимают, чтобы найти давнего возлюбленного или чтобы помочь воссоединиться приемному ребенку и его настоящим родным. Но ее (   Читать дальше...   )Жанр: Зарубежный современный детектив, триллерПродолжительность: 10:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9761EBD1BD29C8F0248DFBEA028B1ACFC2ECAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442078   (1036931) от 24.01.2021
-
-Ātesh (Atesh) - مهرت از دل کی برون کنم (2021) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - آسمان ستاره های سیاه [00:09:12]
-02 - اشک های یخ زده عشق [00:09:30]
-03 - او هرگز نخواهد مرد (   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D73E3C97F4B6E7B6AB2CF3A62090167D50A8D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442117   (1036930) от 24.01.2021
-
-Кристиана Фигерес | Какое будущее мы выбираем. Климатический кризис: промедление недопустимо (2020) [FB2]
+Роберт Грейсмит | Зодиак. Непойманный убийца (2018) [FB2]
 
 >>Разное (категория книг)
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Глобальное изменение климата – самая серьезная и неотложная проблема из всех, с какими сталкивалось человечество за свою историю. От того, как мы будем ее решать в следующие тридцать лет, зависит, в каком мире мы будем жить и какой мир передадим своим детям и внукам. «Какое будущее мы выбираем» – страстный призыв к действию бывшего секретаря Рамочной конвенции ООН (   Читать дальше...   )Жанр: Публицистика, ЭссеистикаФормат: FB2
+Документальный рассказ о страшном серийном убийце, скрывавшемся под именем Зодиак и терроризировавшем Америку с 1966 по 1981 год. Книга написана на основе журналистского расследования, предпринятого Робертом Грейсмитом.Жанр: Документальная литература, Зарубежная публицистика, КриминологияПеревод: Юрий БалаянФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36D2679A9E87B5D58DEBDCB8C73C17AB5D0AA574
+magnet:?xt=urn:btih:226757F1BB45BFA8B304B6A41E490E556ECF43E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +50,668 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442168   (1036929) от 24.01.2021
+###  Публикация: 1614270   (1038863) от 21.02.2023
 
-ROÜGE - Ultimatum (2021) [MP3|320 Kbps] <EBM, Industrial, Techno>
+Chris Norman (ex-Smokie) - Close Up (2007) [MP3|320 Kbps] <Pop Rock>
 
->>Electronic
->>Industrial, EBM, Dark Electro
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Welcome to Agartha (2:18)
-2. Potential Danger (5:26)
-3. Nuclear (4:14)
-4. Invasion (4:04)(   Читать дальше...   )Жанр: EBM, Industrial, TechnoПродолжительность: 00:34:18
+01. Lay Me Down
+02. Love Not War
+03. Trying To Find My Home
+04. Hello Baby(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF0C004FF2C8579B0CC778682A1D44AA01E8C735
+magnet:?xt=urn:btih:9380C3F28AB83C8141534F1C1703D2B03D981F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614240   (1038862) от 21.02.2023
+
+VA - The Sound of 2023 Mix 1: Hong Kong (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  F4T4L3RR0R -  The Pulse of Darkness (Intro)  (2:06)
+02.  One Release -  Helm's Deep  (5:41)
+03.  Monodusk -  Eden 2099  (5:21)
+04.  James De Torres -  Out of Darkness  (5:12)(   Читать дальше...   )Жанр: Progressive House, Techno, TranceПродолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9756BB2A556E6CED5701D1C964FB2E190A9F1A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614154   (1038861) от 21.02.2023
+
+WinTools.net 23.3.1 Classic / Professional / Premium RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038861.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13F863E093ADCFFC1032E704ADFFCEAB96FCC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614205   (1038860) от 21.02.2023
+
+Лив Константин | Незнакомка в зеркале (2022) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эддисон собирается замуж. Несколько лет назад ее нашли истекающей кровью у шоссе в Нью-Джерси. Больше она ничего о себе не знает. Не помнит даже, на что была способна в прошлом, пока ее история не началась заново.
+Тем временем в пригороде Бостона заботливый отец семилетней дочери Джулиан ищет пропавшую жену и мать.
+Эддисон могла бы вернуться в семью… или создать (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПеревод: Елизавета ЧебучеваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0DF74DACB4FCE25633DE9E699F3592DB4B19DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614195   (1038859) от 21.02.2023
+
+Л.С. Полак, А.С. Михайлов | Самоорганизация в неравновесных физико-химических системах (1983) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена анализу эффектов самоорганизации - возникновения, развития и гибели макроскопических структур в неравновесных открытых физико-химических системах. Рассмотрены аналогии между явлениями самоорганизации и фазовыми переходами в равновесных системах. Кратко обсуждены проблема зарождения турбулентности и динамические модели хаоса. Изложена теория автоволновых (   Читать дальше...   )Жанр: ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A798FD5ED8EEE62D625E94937CE17BD31B339DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614130   (1038858) от 21.02.2023
+
+А.С. Лушников | Спутниковые навигационные системы в гражданской авиации (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит основные сведения о назначении, решаемых задачах, принципах функционирования, основах эксплуатации и перспективах применения в гражданской авиации спутниковых навигационных систем.
+Разработано в соответствии с Федеральным государственным образовательным стандартом и рабочей программой учебной дисциплины «Спутниковые системы навигации».Жанр: Спутниковые навигационные системыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC87EFC00FB97048B78D1DC40F31D098768347C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614125   (1038857) от 21.02.2023
+
+Эдмунд Борн, Лорна Гарано | Тревожность (2021) [MP3, Анастасия Ковалева]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Краткое руководство доктора философии Эдмунда Борна и Лорны Гарано обобщает обширный опыт в области исследования и лечения хронического беспокойства, фобий и тревожных расстройств.
+Как навсегда избавиться от неуверенности и беспокойства?
+Перед вами быстрые, простые и эффективные способы снять тревогу. Управляйте своими чувствами в любое время, (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 02:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8423505DB849FF0B5A234C89E0C9C95192221C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613722   (1038856) от 21.02.2023
+
+VA - Uplifting Only Top 15: February 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SounEmot - Y El Solamente Quería Amar a Alguien (Intro Mix) [9:11]
+02. Lost Witness & Laura Ly - Weight Of The World (Extended Mix) [7:14]
+03. Dreamlife - Mountain Waterfall (Extended Mix) [7:48]
+04. Matt Chowski - One Wish (Farhad Mahdavi Remix) [7:44](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1E121590E87C78B29C62953990018CE8023A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440419   (1038855) от 17.01.2021
+
+Nat King Cole - Just One Of Those Things (1957) 2011, Analogue Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Your Lover Has Gone (stereo) [2:32]
+02. A Cottage for Sale (stereo) [2:59]
+03. Who's Sorry Now? (stereo) [2:59]
+04. Once in a While (stereo) [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADDB8B211C330F2B4286DB3854D4FCF8BB357890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440534   (1038854) от 17.01.2021
+
+Taleteller - The Path (2020) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038854.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Path
+01 | A Hero Will Rise | 04:16
+02 | Where The Tales Born | 04:48
+03 | Run From The Wolves | 04:42(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 02:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD0447046958BCF08495E857BE4E40D4DB08B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440493   (1038853) от 17.01.2021
+
+VA - Coldharbour Reflections (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & HALIENE - Tidal Wave (Extended Mix)
+02. Daxson - While We Wait (Extended Mix)
+03. Arkham Knights - Closing In (Extended Mix)
+04. DJ T.H. & Jan Johnston - Stealing Time (Markus Schulz In Search Of Sunrise Extended Rework)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457D6C2BF8D7DEF35F0D9DAA6875C8D481B25D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440581   (1038852) от 17.01.2021
+
+Tuner for YouTube music 4.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте Tuner for YouTube music как музыкальный проигрыватель «YouTube» для вашего Mac. Tuner for YouTube music также позволяет транслировать музыку на «YouTube» с удобным и простым интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2021Разработчик: Muhammad Al BassiounyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA84F29428CB31F080D4F0BBA1CC3B7DA5928EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440365   (1038851) от 17.01.2021
+
+Dread Sovereign - Alchemical Warfare (2021) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Curse On Men
+02. She Wolves Of The Savage Season
+03. The Great Beast We Serve
+04. Nature Is The Devil's Church(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F593C2C8B4B0D50C817FABA8EA332CC6B4161BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440383   (1038850) от 17.01.2021
+
+VisualDiffer 1.8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038850.jpg" />
+</div>
+
+
+###  Подробнее
+
+VisualDiffer сравнивает бок-о-бок папки и файлы с помощью цвета, чтобы визуально показать различия. Из интерфейса можно выполнять операции с папками и файлами, такие как копирование или удаление.
+Это можно сравнить с быстрым выбором базы каталогов папки из контекстного меню. Использование фильтра файлов особенностью является возможность скрыть от визуализации конкретных (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 15.01.2021Разработчик: Davide FicanoПоддерживаемая ОС: macOS X 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7C76F03C54638E4B6C3A5EF249130549E82FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440338   (1038849) от 17.01.2021
+
+Starified - Fat Hits (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Scapegoat [00:04:23]
+02 - Don Loco [00:05:00]
+03 - An Ode To Tenacious D [00:04:27]
+04 - Anti Rebel [00:04:28](   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E2FB3C5E84A63711EC242578B85D5BA6D2A47D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440582   (1038848) от 17.01.2021
+
+VA - Balearic Headspace Volume 1-5 (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BestInSpace - Emmanuelle Kant (4:16)
+02. Hong Kong Syndikat - Too Much (7:12)
+03. Massimo Vanoni - For Your Love (8:24)
+04. Tripman & Sandrobianchi - Woman (6:24)(   Читать дальше...   )Жанр: House, Nu-Disco, DiscoПродолжительность: 09:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B3F558C1339F12A6B77E740380A39F9FC62408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440595   (1038847) от 17.01.2021
+
+Cristoph - BBC Radio 1 Essential Mix (2021-01-15) [MP3|~245 Kbps (V0)] <Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything But The Girl - Missing (Cristoph 2021 Private Intro Edit) w/Several Definitions - The Beginning
+02. BOg - Juno 99
+03. Booka Shade ft. Kaktus Einarsson - I Go, I Go (Undercatt Remix)
+04. Fideles - Midnight Rembler(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1620978BE9BDDB4DA5E1149784B28AA02BD396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440510   (1038846) от 17.01.2021
+
+Witherfall - The Other Side of Fear (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038846.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Other Side of Fear [4:45]
+ 2. As I Lie Awake [5:40]
+ 3. The Last Scar [5:07]
+ 4. Another Face [5:36]Жанр: Progressive MetalПродолжительность: 00:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F194F6D149A534BD3028980FCD112403A62D3C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440371   (1038845) от 17.01.2021
+
+Лыжные гонки. Кубок мира 2020-2021. Этап 4. Тур де Ски 1. Валь-Мюстайр (Швейцария). Спринт 1,4 км. Финалы (2021) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по лыжным гонкам 2020-2021. Этап 4.
+01 января 2021, пятница. 13:45 МСК
+Тур де Ски 1. Валь-Мюстайр (Швейцария).
+Спринт 1,4 км. Свободный стиль. ФиналыТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: Русские (вшитые отключаемые)Продолжительность: 01:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68266618A082F36BBA46009106B056E1FE373D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440553   (1038844) от 17.01.2021
+
+Caffeinated 1.20 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш экран темнеет, когда вы этого не хотите? Тогда Caffeinated является идеальным средством для вас. Приложение было разработано на основе полезного средства Tool Caffeine. ПО возвращает классические функции на вашем Mac. Caffeinated не только очень удобно, но и просто в употреблении. Просто нажмите один раз на значок в строке меню, чтобы предотвратить переход экрана (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2021Разработчик: Yugen UGПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1158B1A72726267AD16715FEDF81325C8D415BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440354   (1038843) от 17.01.2021
+
+Winterage - The Inheritance of Beauty (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture [00:04:08]
+02. The Inheritance of Beauty [00:05:55]
+03. The Wisdom of Us [00:05:21]
+04. Of Heroes and Wonders [00:03:57](   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37CF098C914AC8698E55AD7EAEB2FB2364604AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440491   (1038842) от 17.01.2021
+
+Агата Кристи | Мисс Марпл. Немезида (2021) [MP3, Галина Чигинская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мисс Марпл получила известие с того света – письмо от старого друга, мистера Рэфьела, известного читателям по роману «Карибская тайна». В своем завещании богач просит мисс Марпл раскрыть жестокое преступление. Хотя оно и было совершено много лет назад, знаменитая леди сыщик смело берется за дело…Жанр: ДетективПеревод: Юрий СоколовПродолжительность: 09:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D98734675082206752BD3C8B37E90BAD52EAC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440554   (1038841) от 17.01.2021
+
+E-Trophee Andros. Сезон 2020-2021. Этап 3. Серра Шевалье. Гонка 1-2 (16-17.01.2021) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038841.jpg" />
+</div>
+
+
+###  Подробнее
+
+E-Trophee Andros — французский национальный чемпионат по автогонкам на ледяных трассах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:51:27 + 02:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5335520575728619BD8698556DF60D7738F4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440488   (1038840) от 17.01.2021
+
+Агата Кристи | Мисс Марпл. Убийство в доме викария (2020) [MP3, Галина Чигинская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038840.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом романе впервые появляется одна из любимых героинь Агаты Кристи – мисс Джейн Марпл. Эта дотошная и обаятельная пожилая леди, проживающая в деревне Сент-Мэри-Мид, способна распутывать самые головоломные ситуации, лишь ненадолго отвлекаясь от вязания и пропалывания сорняков в любимом саду. Первым расследованием мисс Марпл станет убийство полковника Протеро. Слишком (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA4438D233186C865C0AF4FF5A94538B5A7BBEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

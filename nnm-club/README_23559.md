@@ -1,228 +1,25 @@
-###  Публикация: 1697360   (118930) от 06.02.2024
+###  Публикация: 1549494   (121761) от 21.01.2024
 
-Severed Soul - In the Depths of Mourning (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Distant Shores (00:07:16)
-02 - In the Depths of Mourning (00:08:15)
-03 - Bury the Past (00:06:56)
-04 - Twilight's Embrace (00:07:12)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4F07ABF2AED05F3720B7F9C4819527F1594A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697397   (118929) от 06.02.2024
-
-Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Warriors
-02.  Dead Star
-03.  New Adventure
-04.  Sky Orbit(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C33DAAC8E9AE622427987DD24EEF4CFE79AA02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697423   (118928) от 06.02.2024
-
-Vintage Lounge Orchestra - Ultimate Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lo-Fi, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (feat. Laura Serra)
-02. I've Been Waiting for a Girl Like You (feat. Alessandro Pitoni)
-03. I Can See Clearly Now (feat. Daniele Vit)
-04. Georgy Porgy (feat. Wendy Lewis)(   Читать дальше...   )Жанр: Nu Jazz, Lo-Fi, Easy ListeningПродолжительность: 01:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30309CB7061886FBCCFEEC0E9EB3DD6025EAA52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697503   (118927) от 06.02.2024
-
-Skyscraper - Elevation (2014) [FLAC|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sail Away
-02. Monday Morning
-03. Fay Wray
-04. Across The Barricades(   Читать дальше...   )Жанр: AORПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A10FE289AA35741F7DEEA088BA90D47ADC84021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697108   (118926) от 06.02.2024
-
-Prediction of the Witch - Sworn into the Void (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crawling [00:03:07]
-02. Color of Death [00:03:40]
-03. Swamp Water [00:03:03]
-04. Monolith [00:03:30](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B3635D5916635EDA529AD2C0A5F8974620C445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697321   (118925) от 06.02.2024
-
-Bourbon Street Revival - Bourbon Street Revival (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolution (4:44)
-02. No More (5:06)
-03. Nine Minutes of Bliss (3:23)
-04. Ain't No Use (5:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD8C26BEEEF6E73D570993CE7A2A9CD93B3FEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697322   (118924) от 06.02.2024
-
-Bubba Henry - It Is What It Is (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let the Blues Be the Blues (4:14)
-02. I'm a Bluesman (3:18)
-03. Me and Memphis (3:41)
-04. Losing the Blues (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51711CB938DBF8D8A7762E9E5EDA7D0023AEA64F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697481   (118923) от 06.02.2024
-
-Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+Saxon - Дискография (33 releases) (1979-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Mareridt
-A2 Maneblot
-A3 The Serpent
-A4 Crown(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:36:18
+Saxon — английская рок-группа, одна из ярких представителей новой волны британского хэви-метал. Существует с 1977 года. Группа считается классикой метала и оказавшей большое влияние на другие группы в этом жанре, такие как Metallica, Mötley Crüe, Pantera, Sodom.1979 - Saxon
+1980 - Wheels of Steel
+1980 - Strong Arm of the Law
+1981 - Denim and LeatherЖанр: Heavy Metal, Hard RockПродолжительность: 36:29:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
+magnet:?xt=urn:btih:C1C38FAAC544AD9051D3A177815806307F29EDF9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697429   (118922) от 06.02.2024
+###  Публикация: 1689615   (121760) от 21.01.2024
 
-Shaytan - Chapter One (2023) [MP3|320 Kbps] <Doom Metal>
+Хроники Риддика / The Chronicles of Riddick (2004) WEB-DLRip [H.264/1080p-LQ] [Open Matte] [handmade AI]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shaytan (03:59)
-02. Salting the Earth (05:10)
-03. Speaking in Tongues (04:56)
-04. Tabula Rasa (04:52)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:34:23
+Последние пять лет Риддик провел в бегах среди забытых миров на задворках галактики, прячась от наемников, назначивших цену за его голову. Теперь беглец оказался на планете Гелион, где живет прогрессивное многонациональное общество, завоеванное лордом Маршалом, фанатиком, решившим поработить человечество армадой своих воинов, некромонгеров.
+Совершив побег из подземной (   Читать дальше...   )Производство: США / Universal Pictures, Radar Pictures, One Race ProductionsЖанр: фантастика, боевик, приключенияРежиссер: Дэвид ТуиАктеры: Вин Дизель, Колм Фиор, Тэнди Ньютон, Джуди Денч, Карл Урбан, Алекса Давалос, Лайнас Роуч, Йорик ван Вагенинген, Ник Чинланд, Кит ДэвидПеревод: Дублированный (Мосфильм-Мастер, Netflix)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:59:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62317D68A3368E5A12C90B409F3D3FACEEAA793A
+magnet:?xt=urn:btih:EF6B182F7B0A221C588F172B672B5832F76B66B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,27 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697478   (118921) от 06.02.2024
+###  Публикация: 1689354   (121759) от 21.01.2024
 
-Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
+Фриц Cпрингмайер | Сатанинская династия Ротшильдов II (2014) [FB2]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Brutus - норвежская хард-рок-группа из Осло, Норвегия, образованная в 2007 году. У Brutus тяжелый грув, основанный на блюз-ориентированном рифф-роке 1970-х годов, в духе Black Sabbath, Grand Funk Railroad, Blue Cheer, Pentagram и других.2010 - Brutus
-2013 - Behind The Mountains
-2016 - Wandering BlindЖанр: Hard Rock, Stoner RockПродолжительность: 02:15:38
+О становлении Династии Ротшильдов, их воздействии на исторические события, в том числе непосредственно связанных с Израилем и Палестиной и т.д.Жанр: История, публицистикаПеревод: DeepLФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:222B5D0E09D75613B3C530324777BEF7B6A97287
+magnet:?xt=urn:btih:892A07F9F9094DC9ECAD24AE8E1F2A31FB3A5C91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,25 +80,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697391   (118919) от 06.02.2024
+###  Публикация: 1693621   (121758) от 21.01.2024
 
-Евгения Решетова | Учитель по неволе (Книга 2) Заноза для боевого мага (2021) [MP3, Валерия]
+Валерия Черепенчук | Флаги мира: история, символика, неизвестные факты. Большая иллюстрированная энциклопедия [2-е изд.] (2024) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучение флагов открывает перед нами удивительный мир. За каждым государственным символом стоит долгая история: иногда – трагичная, иногда – романтическая, но никогда не скучная. Книга предлагает познакомиться с историей современных государственных флагов. Как они появились? Что означают изображения, которые они несут на себе? Как отражались на них государственные (   Читать дальше...   )Жанр: Популярно об истории, ЭнциклопедииИздательство: ЭксмоФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AACAC440D6EB462438A5C94F0397DF65FB606B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693570   (121757) от 21.01.2024
+
+Юрий Винокуров | Вечная Война (Книга 1) (2023) [MP3, Александр Башков]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Меня не принимают всерьез. И пусть! Я выучусь на боевого мага и докажу, что дочь пекаря тоже способна на подвиги. Только сначала разберусь с нахалом, которого мне поставили в напарники. Стану занозой в энном месте. Да такой, что он убежит, сверкая пятками. И я не влюблюсь в него. У меня, вообще-то, есть жених!Жанр: Любовное фэнтези, Магические академии, ПопаданцыИздательство: АСТПродолжительность: 08:32:28
+У меня в отряде красотка Овца и Клоун-убийца. Ещё, три Кадета-недоучки с Офицерских Курсов. Нет, мы не цирковая группа, мы Группа Противодействия.
+Кто-то каждый день меняет наряды, нам же приходится менять свои тела, так как умираем мы часто. Мы не помним, как мы выглядели раньше, поэтому нам все равно, как мы выглядим сейчас.
+Однако, рано или поздно мы вспомним, (   Читать дальше...   )Жанр: Космическая фантастика, РеалРПГ,Издательство: Author TodayПродолжительность: 08:25:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56258D5A43105AF6DE0BB53C901917B8C5CADDB9
+magnet:?xt=urn:btih:7D263B14C01E736057D60BEFC4366B83D4720E95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,28 +134,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697335   (118918) от 06.02.2024
+###  Публикация: 1693571   (121756) от 21.01.2024
 
-The CrossRoadBand - Reload (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+Pro Pilkki 2 / Зимняя рыбалка v1.9.3 Mod by Bubalex88 [Ru/Multi]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reload (4:52)
-02. Fallin in Love (2:53)
-03. U Never Love Me (3:48)
-04. Don't Leave Me (3:17)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:07:56
+Это мобильная версия хорошо известного симулятора зимней рыбалки Pro Pilkki 2. Приготовьтесь исследовать снежные пейзажи более 30 замерзших озер, прудов и рек. Испытайте себя в одиночных турнирах, и когда вам покажется, что вы достаточно хороши, докажите это миру, соревнуясь с реальными игроками в режиме онлайн.Тип издания: FullРелиз состоялся: 16.08.2023Разработчик: Procyon ProductsПоддерживаемая ОС: Android 4.0+Жанр: СимуляторЯзык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:890437C371B375AB93C6A348F6DB2E0A33BB84B6
+magnet:?xt=urn:btih:A1641056DF8EF16449B0514B7ECE26EA8B9FB26C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,28 +160,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697332   (118917) от 06.02.2024
+###  Публикация: 1693721   (121755) от 21.01.2024
 
-Sean Riley & The Water - Stone Cold Hands (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Ангелы и Демоны / Angels & Demons (2009) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [Theatrical Cut]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dance Me One More Time (2:51)
-02. Go Easy On Me (2:59)
-03. Stone Cold Hands (4:03)
-04. Truck Route Blues (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:36
+Весь мир замер в ожидании свершения древнейшей церемонии — выбора главы католической церкви Папы Римского, но в судьбоносное решение вмешивается некая могущественная сила — заклятый враг католической церкви — таинственный орден Иллюминатов! Кандидаты на священный пост подвергаются свирепой ритуальной расправе один за другим. Перед лицом смертельной угрозы Ватикан (   Читать дальше...   )Производство: США, Италия / Columbia Pictures, Imagine EntertainmentЖанр: боевик, триллер, детективРежиссер: Рон ХовардАктеры: Том Хэнкс, Юэн МакГрегор, Айелет Зурер, Стеллан Скарсгард, Пьерфранческо Фавино, Николай Ли Каас, Армин Мюллер-Шталь, Туре Линдхардт, Дэвид Паскуэзи, Козимо ФускоПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские (Forced)Продолжительность: 02:18:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70EEC347444EFD0EE44443D5DA5F5D437149C575
+magnet:?xt=urn:btih:2D4FFA12D3A9859BEDCA21ECDB65C7B04F0C7C31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,27 +186,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697449   (118916) от 06.02.2024
+###  Публикация: 1693702   (121754) от 21.01.2024
 
-Эрнест Д'Эрвильи | Приключения доисторического мальчика (2012) [MP3, Надежда Винокурова]
+AVS Media Player 5.6.3.157 [Multi/Ru]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Детская аудиокнига.
-«Приключения доисторического мальчика» – повесть известного французского писателя и этнографа Эрнеста Д'Эрвильи. Автор увлекательно рассказывает о приключениях мальчика по имени Крек, жившего много тысяч лет назад, о полной опасностей и невзгод жизни первобытных людей.
-Острый захватывающий сюжет, красочные описания дикой природы, выразительное (   Читать дальше...   )Жанр: Зарубежная литература для детей, приключения, повестьИздательство: Студия «АРДИС»Продолжительность: 02:37:09
+AVS Media Player - полнофункциональный программный медиаплеер, имеющий все функции и элементы управления обычного аппаратного плеера. Универсальный инструмент для просмотра видео, прослушивания аудио файлов и просмотра фотографий. Простой дружественный интерфейс дает возможность начать воспроизведение разных типов медиафайлов без дополнительных программ и специальных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36176F484FB29B47D7C76BCDEE6BC93629CB215E
+magnet:?xt=urn:btih:8B3C2BE5581642F5D0056220215BBC6931314238
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -399,28 +212,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697370   (118915) от 06.02.2024
+###  Публикация: 1693663   (121753) от 21.01.2024
 
-The Last Dinner Party - Prelude to Ecstasy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock>
+Ангелы и Демоны / Angels & Demons (2009) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [Theatrical Cut]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Prelude To Ecstasy (00:01:36)
-02 - Burn Alive (00:03:21)
-03 - Caesar on a TV Screen (00:03:49)
-04 - The Feminine Urge (00:03:26)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:15
+Весь мир замер в ожидании свершения древнейшей церемонии — выбора главы католической церкви Папы Римского, но в судьбоносное решение вмешивается некая могущественная сила — заклятый враг католической церкви — таинственный орден Иллюминатов! Кандидаты на священный пост подвергаются свирепой ритуальной расправе один за другим. Перед лицом смертельной угрозы Ватикан (   Читать дальше...   )Производство: США, Италия / Columbia Pictures, Imagine EntertainmentЖанр: боевик, триллер, детективРежиссер: Рон ХовардАктеры: Том Хэнкс, Юэн МакГрегор, Айелет Зурер, Стеллан Скарсгард, Пьерфранческо Фавино, Николай Ли Каас, Армин Мюллер-Шталь, Туре Линдхардт, Дэвид Паскуэзи, Козимо ФускоПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские (Full + hardsub на иностранную речь и надписи.), АнглийскиеПродолжительность: 02:18:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8F5BC03ACB37A5BD5EA0BBF7B3B70EE2FC28E46
+magnet:?xt=urn:btih:39997D8F3412158ABC00D001D4C042C25BEF4573
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,28 +238,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697315   (118914) от 06.02.2024
+###  Публикация: 1693664   (121752) от 21.01.2024
 
-Threestyle - No Matter What (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Г.Б. Белоцерковский | Задачи и расчеты по курсу Основы радиотехники и антенны (1966) [DJVU]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Научная и техническая литература
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Matter What (4:15)
-02. Love of My Life (4:03)
-03. Special to Me (4:04)
-04. No Looking Back (4:22)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:53
+В книге приведены задачи, контрольные вопросы и расчеты по основам теории колебательных цепей с сосредоточенными параметрами, длинных линий, электромагнитных волн, по распространению радиоволн и по антенно-фидерным устройствам. Расположение материала и последовательность задач соответствуют учебным пособиям автора «Антенны», Оборонгиз, 1962 и «Колебательные контуры (   Читать дальше...   )Жанр: ЭлектроникаИздательство: МашиностроениеФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B58C50995A28FF9656A22EE6850C39F6CF4BE65
+magnet:?xt=urn:btih:1A015116317F30A00F127FC7CB449E692749B021
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,28 +264,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697323   (118913) от 06.02.2024
+###  Публикация: 1693540   (121751) от 21.01.2024
 
-Emanuel Casablanca - Strung Out On Thrills (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+GPU-Z 2.57.0 + ASUS_ROG Portable [En]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dogshit (feat. Joanna Connor) (3:27)
-02. Strung out on Thrills (4:26)
-03. Visceral (5:16)
-04. Conniver (2:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:34
+GPU-Z - бесплатная программа от TechPowerUp для отображения технической информации о видеоадаптере (видеоконтроллере/видеокарте/видеомодуле), работающая под ОС Microsoft Windows. Программа отображает технические характеристики графического процессора и его видеопамяти, то есть определяет производителя и название видеоадаптера, тип видеопроцессора и его характеристики, (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7AB4CDCC1F25234CBE1F9789D09767E01D073A3
+magnet:?xt=urn:btih:AF0E4437B1562100EAA9E48B54C313A501224605
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +290,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697275   (118912) от 06.02.2024
+###  Публикация: 1693339   (121750) от 21.01.2024
 
-Sacrify Souls - The New Begin (2023) [MP3|320 Kbps] <Heavy Metal>
+Mr. Big - Collection (2024) [MP3|320 Kbps] <Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Stranger In Town
-02. We Born To Die
-03. Long Way To The Darkness
-04. Crossroad(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:28
+Очень сильная команда, одна из любимых, ещё с далёких 90х. Помню году в 96, приятель раздобыл видеошколу басиста и барабанщика Mr. Big на кассете. С каким восторгом и восхищением, мы юнцами всё это впитывали. У группы своё неподражаемое звучание. Обаятельный и приятный вокал Eric Martin, виртуозная игра гитариста Paul Gilbert и мясистые барабаны. Все альбомы крутые (   Читать дальше...   )001. Addicted To That Rush
+002. Wind Me Up
+003. Merciless
+004. Had Enough(   Читать дальше...   )Жанр: RockПродолжительность: 08:10:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B9D3BC4606D439A24A34C28843FCD2D0F6B053E
+magnet:?xt=urn:btih:EAC976E8E995729C5231BBB64A5337B6D04C4245
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +319,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697330   (118911) от 06.02.2024
+###  Публикация: 1693569   (121749) от 21.01.2024
 
-Mark Dillon - T.A. Vern's (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+VA - Naturally Blues Rock forward 3000 (2024) [MP3|320 Kbps] <Blues, Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. T.A. Vern's (4:30)
-02. It's a Sin (4:02)
-03. Psychedelic Super Freak (4:53)
-04. El Rey (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:40
+001. Gurf Morlix - Hodgepodge [04:11]
+002. Joe Bonamassa - Black Roses [05:02]
+003. Larkin Poe - Kick the Blues [03:26]
+004. Ringo Starr, Dave Koz, Jose Antonio Rodriguez - Free Your Soul [05:28](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 09:06:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:015132B7A420684D7B9A44D5C5B3D04C182B6D44
+magnet:?xt=urn:btih:2C869A961C4DAFBB447B859CC00F6BCC05E6F82B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,28 +348,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697309   (118910) от 06.02.2024
+###  Публикация: 1693574   (121748) от 21.01.2024
 
-Lloyd Foulks - They Call Him Joe (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Docs To Go Office Suite v4.004 (b1618) Mod by Balatan [Ru/Multi]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beautiful It Is (3:11)
-02. Black Tide (3:20)
-03. Blazin' (2:17)
-04. Blue Ice (3:00)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:47:53
+Documents To Go – это полноценный офисный пакет, включающий в себя текстовый редактор, табличный процессор, и приложение для создания презентаций. Все три вида документов сохраняются в форматы MS Office, причём заявлена поддержка практически всех версий форматов этого популярного офисного пакета. В качестве дополнительных возможностей предлагается также просмотр (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.05.2023Разработчик: DataVizПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B31D31F70D8D7A4E4FB7BA28EF408D7FCEF42C7D
+magnet:?xt=urn:btih:97DB2F2ECA8E503BEAF33939D85FC857BB2007C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,25 +374,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697444   (118909) от 06.02.2024
+###  Публикация: 1693676   (121747) от 21.01.2024
 
-Эрнест Сетон-Томпсон | Рассказы о животных (2006) [MP3, Андрей Зарецкий]
+Старшина Буханцев (2023) WEBRip [H.264/1080p]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Истории о братьях наших меньших никогда не оставляли равнодушными старших братьев. Жизнь животного полна опасностей и сама по себе, а когда судьбой волка или кролика начинает распоряжаться человек, то развязка непременно будет драматичной. Только смерть может остановить почтового голубя, летящего с письмом, сама природа спасает обитателя лесов от пули охотника, а (   Читать дальше...   )Жанр: Зарубежная литература для детей, рассказИздательство: Элитайл, СиДиКомПродолжительность: 08:21:56
+«Старшина Буханцев» — фильм об истории старшины милиции Петре Степановиче Буханцеве, который погиб при исполнении служебного долга.Производство: РоссияЖанр: Короткометражный, история, драма, криминалРежиссер: Анатолий АртамоновАктеры: Алексей Бондаренко, Сергей Ищенко, Сергей Фесюнов, Руслан Абубакиров, Николай ЛебедевСубтитры: отсутствуютПродолжительность: 00:25:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5FBC8ECA820DDD95FF174957509C3B0BB2D0BD7
+magnet:?xt=urn:btih:FDCCCDFA40ED383D93472700F41CEF00FE65F22C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,28 +400,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697320   (118908) от 06.02.2024
+###  Публикация: 1693557   (121746) от 21.01.2024
 
-3rd Stone - Let Me Play My Song (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Василий Лазарев | S-T-I-K-S. И пришёл Лесник! (Книга 2) (2023) [MP3, Проводник]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lonewolf (4:48)
-02. End of the Road (4:40)
-03. Rebel Rider (4:47)
-04. Let Me Play My Song (5:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:26
+Оперативник контрразведки СМЕРШ попал в Улей. Улей пожалел об этом, ибо звали его Лесник. И пришёл Лесник и получили все… Страшная история о том как медленно, а порой и быстро умирало всё живое в Улье.
+
+ Василий Лазарев | S-T-I-K-S. И пришёл Лесник! (Книга 1) (2023)Жанр: Боевая фантастикаИздательство: ИДДКПродолжительность: 10:08:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1980772FD00045CB510CB32D209E05B5071BF4DC
+magnet:?xt=urn:btih:766ED54163B569718D4F32AC1AE6D075EE98416E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,28 +428,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697428   (118907) от 06.02.2024
+###  Публикация: 1693520   (121745) от 21.01.2024
 
-Shaytan - Chapter One (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+Книжная серия | Пособия Московского государственного заочного педагогического института [58 книг] (1948 - 1985) [PDF, DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Shaytan (00:03:59)
-02 - Salting the Earth (00:05:10)
-03 - Speaking in Tongues (00:04:56)
-04 - Tabula Rasa (00:04:52)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:33:54
+Пособия Московского государственного заочного педагогического института по математике.Жанр: МатематикаИздательство: ПросвещениеФормат: PDF, DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EE8AD7B416749EBF2AE6E16719DB7C06A7F7EAD
+magnet:?xt=urn:btih:279BC242A100DD5CA0A98758C0AE6F7CDBAE68AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,27 +454,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697457   (118906) от 06.02.2024
+###  Публикация: 1693666   (121744) от 21.01.2024
 
-Энн Хогарт | Мафин и его весёлые друзья (2009) [MP3, Всеволод Соболев, Нина Шацкая и др.]
+О.М. Куваев | Территория (1979) [PDF]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Художественная литература
+>>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Мелодия – детям.
-Ослик Мафии – один из любимых героев английских ребят. Родился он в кукольном театре Энн Хогарт и ее мужа Яна Бассела. Оттуда он перешагнул на экраны лондонского телевидения. С приключениями Мафина и его друзей – пингвина Перигрина, страуса Освальда, кенгуру Кэтти и других героев знакомит читателей эта книга.
-Вашему вниманию предлагается (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:33:36
+Роман Олега Михайловича Куваева "Территория" рассказывает о полярных геологах, посвятивших себя поискам золота на крайнем северо-востоке нашей страны. О людях, сделавших работу своей религией и нашедших в этом смысл жизни. В этой книге вы не найдете напускной романтики или выдуманных приключений - в ней есть только правда жизни. Автор много лет проработал (   Читать дальше...   )Жанр: Приключенческая литератураИздательство: Художественная литератураФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7097EAF9E53B16EE2190F33D1F4F0F2CE3868996
+magnet:?xt=urn:btih:00F5DA2E1ADFCFB2063F12D454582B9C921617B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,28 +480,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697367   (118905) от 06.02.2024
+###  Публикация: 1693595   (121743) от 21.01.2024
 
-Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+Жизнь других / Das Leben der Anderen (2006) BDRip [H.264]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Skøgen Skulle Dø
-A2 Hævnen
-A3 Onde Børn
-A4 Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:37:05
+Восточный Берлин 80-х. Успешный драматург Георг Драйман и его спутница, известная актриса Криста-Мария Зиланд не всегда разделяют взгляды партии. Министр культуры, «запавший на актрису», хочет скомпрометировать писателя и поручает вести за ними слежку агенту штази Вислеру... Человек, всю жизнь отдавший некой идее, не имеющий жены, родных и друзей вдруг становится (   Читать дальше...   )Производство: Германия, Франция / Bayerischer Rundfunk, ARTE, Wiedemann & Berg FilmproduktionЖанр: драма, детективРежиссер: Флориан Хенкель фон ДоннерсмаркВ ролях: Мартина Гедек, Ульрих Мюэ, Себастьян Кох, Ульрих Тукур, Томас Тиме, Ханс-Уве Бауэр, Фолькмар Клейнерт, Матиас Бреннер, Чарли Хюбнер, Херберт Кнауп, Бастиан Трост, Мари Грубер, Фолькер Михаловски, Вернер Даен, Мартин БрамбахПеревод: дублированный, профессиональный многоголосый, авторскийЯзык озвучки: русский, немецкийСубтитры: русские, английскиеПродолжительность: 02:17:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
+magnet:?xt=urn:btih:C538E6BD49729ED952B04C129F75289776BF53B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -714,28 +506,189 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697507   (118904) от 06.02.2024
+###  Публикация: 1693668   (121742) от 21.01.2024
 
-Siren - Financial Suicide (1989) Reissue, 2018, Blacksmith Productions [FLAC|Lossless|image + .cue] <Progressive Heavy, Power Metal>
+Дмитрий Найденов | Разлом (Книга 10). В поисках филактерии (2024) [MP3, Юрий Мироненко]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kreator Of Dreams
-02. Unsung Hero
-03. Lines Of Steel
-04. This Machine (Runs-On-Hate)(   Читать дальше...   )Жанр: Progressive Heavy, Power MetalПродолжительность: 00:40:30
+Армия некроманта разбита, но сам он смог выжить использую ритуал. Ветвь Миров оторвали от Древа Жизни и демоны пытаются поработить все отростки этих миров и создать своё Тёмное царство.
+Сможет ли герой уничтожить некроманта и остановить орды демонов из нижних миров или ему придётся бежать из этого мира?Жанр: Боевое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 07:28:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7277D47374CB59E0EDF0CEEAECCFF983F98D9660
+magnet:?xt=urn:btih:516D7309627DBF114045727FB42EF041217BFDD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693652   (121741) от 21.01.2024
+
+Не говори никому / Ne le dis a personne (2006) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Триллер основан на одноимённом романе Харлана Кобена 2001 года... Восемь лет назад Марго Бек погибла от рук серийного убийцы. Её муж Александр до сих пор не может прийти в себя. Его спасает только работа и дружба с Элен Перкинс... Через три года после исчезновения Марго рядом с местом гибели находят ещё два трупа. Полиция возобновляет расследование... Александр получает (   Читать дальше...   )Производство: Франция / Canal+ (fr), Caneo Films, Ciné Cinémas..Жанр: драма, мелодрама, криминал, детектив, триллерРежиссер: Гийом КанеАктеры: Франсуа Клюзе, Мари-Хосе Кроз, Андре Дюссолье, Кристин Скотт Томас, Франсуа Берлен, Натали Бай, Жан Рошфор, Филипп Лефебр, Оливье Маршаль, Гильом КанэПеревод: дублированный, авторскийЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 02:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA70B2FF768F649FDAC66CC2670883EC72BC2396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693549   (121740) от 21.01.2024
+
+Вонка / Wonka (2023) WEB-DL [H.265/2160p] [HDR10, Dolby Vision, Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтая открыть магазин в городе, известном своим шоколадом, молодой и бедный Вилли Вонка обнаруживает, что индустрией управляет картель жадных шоколатье.Производство: США, Великобритания, Канада / Heyday Films, Québec Production Services Tax Credit, Village Roadshow Pictures, Warner Bros.Жанр: мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Пол КингАктеры: Тимоти Шаламе, Gustave Die, Мюррэй МакАртур, Пол Дж. Рэймонд, Берти Каплан, Изи Сатти, Кобна Холдбрук-Смит, Матильда Такер, Том Дэвис, Оливия КолманПеревод: Дублированный (укр.)Язык озвучки: украинский, английскийСубтитры: украинские (forced), английские (full, SDH)Продолжительность: 01:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852328BCE035D19763EE63837188A634861F9989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693584   (121739) от 21.01.2024
+
+VA - Record Super Chart 20.01.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. АИГЕЛ - Пыяла (3:30)
+02. Zerb feat. Sofiya Nzau - Mwaki (Tiesto's VIP Mix) (2:40)
+03. Dezko - Ascend (3:20)
+04. James Hype feat. Kim Petras - Drums (Turno Remix) (2:59)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BAFDDCD854429085A6A8181797D6469270629E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693667   (121738) от 21.01.2024
+
+Код Да Винчи / The Da Vinci Code (2006) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [Theatrical Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарвардского профессора Роберта Лэнгдона подозревают в чудовищном преступлении, которого он не совершал. Лэнгдон знакомится с криптографом парижской полиции Софи Невё и вместе с ней пытается раскрыть тайну, которая может подорвать могущество католической церкви.
+Роберт и Софи должны это сделать до того, как их схватят блюстители закона или остановят противники, готовые (   Читать дальше...   )Производство: США, Мальта, Франция, Великобритания / Columbia PicturesЖанр: триллер, детективРежиссер: Рон ХовардАктеры: Том Хэнкс, Одри Тоту, Иэн Маккеллен, Жан Рено, Пол Беттани, Альфред Молина, Юрген Прохнов, Жан-Ив Бертело, Этьен Шико, Жан-Пьер МарьельПеревод: Дублированный (Blu-Ray), Профессиональный двухголосый (П. Гланц и И. Королева)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full + hardsub на иностранную речь и надписи.), АнглийскиеКачество: WEB-DLПродолжительность: 02:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6AA3862D44C350A7FDC0955A8CE6BD18C5B2CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693637   (121737) от 21.01.2024
+
+Huo Feng Liao Yuan | The Ravages of Time | Огненный феникс опаляет равнины | Разрушительное действие времени [2023, TV, 16 из 16] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний Китай. В конце правления династии Хань страна была расколота и погрязла в бесконечных военных конфликтах. На улицах орудовали преступники, а простые жители боялись выйти из дома. Генерал Дун Чжо воспользовался ситуацией, ворвался в столицу государства и захватил власть. Кроме того, он взял в плен членов знатных семей, чтобы они боялись сделать что-либо без (   Читать дальше...   )Производство: Китай / Bilibili, LX Animation Studio, iDreamSkyЖанр: анимация, исторический, фантастика, действиеРежиссер: Mou ChanЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 16 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F54BCC7A42D089E25668D00D8506ED15948CCEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693597   (121736) от 21.01.2024
+
+Александр Меньшиков - Гой, ты Русь моя родная (1997) [FLAC|Lossless|tracks + .cue] <Retro, Pop, Folk>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гой, ты Русь моя родная
+02. Как родная меня мать провожала
+03. Ах, горька мне чужбинушка
+04. При лужку, да при луне(   Читать дальше...   )Жанр: Retro, Pop, FolkПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E13265DDC1D80BA358FEF54AC2A2D19BED2E0A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

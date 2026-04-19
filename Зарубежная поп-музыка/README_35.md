@@ -1,3 +1,73 @@
+###  Публикация: 520565   (631435) от 09.07.2012
+
+Medina - Forever (2012) [MP3|320 кб/с]<Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever (03:31)
+02. Butterflies (03:41)
+03. Scars (03:39)
+04. Happening 04:03)
+05. Boring (04:02)
+06. Hotels (03:29)
+07. Good To You (04:02)
+08. Close To Nothing 03:52)
+09. Keep Me Hangin' (03:20)
+10. Black Lights(03:45)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43FA30E071F123A49EA8528C00891A150E79F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520689   (631134) от 09.07.2012
+
+Gusttavo Lima - E Voce (2011)(Live) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631134.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cor De Ouro
+2. Balada
+3. Demais Da Conta
+4. Eu Vou Tentando Te Agarrar
+5. Arrasta
+6. Fora Do Comum
+7. Refém
+8. Tornado
+9. Calafrio
+10. Inventor Dos Amores(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D01583042BB518012D4A56E19381FD552052B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294366   (629993) от 07.04.2019
 
 Reba McEntire - Stronger Than The Truth (2019) [MP3|320 Kbps] <Country>
@@ -697,64 +767,6 @@ CD 1| Продолжительность: 01:15:18
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8A312BE9BC879C207812AAC78F801A9A456239C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911396   (618310) от 22.06.2015
-
-Marina Kaye - Fearless (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homeless (3:41)
-02. Mirror Mirror (3:49)
-03. Dancing With The Devil (3:38)
-04. Sounds Like Heaven (ft. Lindsey Stirling) (4:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3989946097E9437C4851C97FBECCFE8884FD7FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911400   (618150) от 22.06.2015
-
-Ben Liebrand - Iconic Groove (2015) 2CD [MP3|320 кб/с]<70's Retropop, Synth Pop, Disco, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618150.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Weekend (feat. James ''D-Train'' Williams) (06:54)
-02. We Are the Night (feat. James ''D-Train'' Williams) (06:17)
-03. Get On Up (feat. Caroline Dest) (06:55)(   Читать дальше...   )Жанр: 70's Retropop, Synth Pop, Disco, FunkПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CDBA705C66809FED4CF3DE8D57FD792A8600CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

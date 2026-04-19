@@ -1,3 +1,67 @@
+###  Публикация: 538792   (507465) от 25.08.2012
+
+Roxette - It's Possible (Unofficial Release) & The Sweet Hello, The Sad Goodbye (Bassflow Remake) (2012) [MP3|~245 кб/с (V0)]<Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две последних пластинки легендарной группы - оффициально вышедший сингл The Sweet Hello, The Sad Goodbye (Bassflow Remake); и работа фанов группы - It's Possible (Unofficial Release), который включает в себя новейшую песню It's possible (version one), а также старые хиты в ремиксах и концертные версии песен.01. It's possible (version one) :: 02:37
+02. It must have been love (Live St Petersburg 2010) :: 06:02
+03. Wish I could fly :: 04:42
+04. How do you do! (Live Stavanger 2010) :: 02:35
+05. Dangerous (Live Stavanger 2010) :: 04:11
+06. Reveal (Attic Remix) :: 03:30
+07. Speak to me (Bassflow Remix) :: 03:39
+08. Dressed for success (Live St Petersburg 2010) :: 04:35
+09. Sleeping in my car (Live Stavanger 2010) :: 03:42
+10. Milk and Toast and Honey :: 04:05(   Читать дальше...   )Жанр: Pop, Pop-RockФормат: CD, Compilation, SingleПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64E4ED22D504C8F0B8956A1F0F37CA163A2DF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316671   (505006) от 27.07.2019
+
+Michael Jackson - Memorial (2019) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thriller (Instrumental)
+02. Wanna Be Startin' Somethin' (12'' Mix)
+03. Billie Jean (Underground Mix)
+04. Ghost(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1C589702ABFC516D07880C387A9499D46E3A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 233270   (504296) от 05.09.2010
 
 Hurts - Happiness (2010) [MP3|320 kbps]<Pop>
@@ -696,64 +760,6 @@ Superhumanoids - Do You Feel OK? (2015) [MP3|320 кб/с]<Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C07E99B94833A0C9D134DBDA4CCF2312666510F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158601   (491990) от 16.08.2017
-
-VA - Smash Hits The 90's (2017) (3CD) [MP3|320 Kbps] <Pop, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491990.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01.  Robbie Williams - Millennium (Radio Edit)  3:45
-02.  Christina Aguilera - Genie In A Bottle  3:39
-03.  Natalie Imbruglia - Torn  3:47(   Читать дальше...   )Жанр: Pop, RnB, DanceПродолжительность: 03:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:408A5581E26F9E9E1947A76955C084763F01E6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565805   (490339) от 25.07.2022
-
-Bucks Fizz - 5 Albums (1981-1986) 4LP+1CD Collection [MP3|320 Kbps] <Disco, Europop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bucks Fizz - британская поп-группа, победившая на конкурсе Евровидение в 1981 году, одна из наиболее популярных групп Великобритании 1980-х годов. Название коллектив получил по наименованию популярного лондонского коктейля, включающего в себя в качестве ингредиентов шампанское и апельсиновый сок.Список альбомов:
-1981 - Bucks Fizz
-1982 - Are You Ready?
-1983 - Hand Cut(   Читать дальше...   )Жанр: Disco, Europop, Pop Rock, Synth-popПродолжительность: 03:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5259C73C046B319569595C6E963DC9729552F64F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1310966   (544537) от 27.06.2019
+
+VA - Mellow Gold: 70s Classics (2019) [MP3|320 Kbps] <Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bread – If
+02. Seals and Crofts – Hummingbird
+03. America – Muskrat Love
+04. Gerry Rafferty – Look at the Moon(   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 01:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0428220E97F5D539B094CAD7A8524FE3AE881C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238942   (543772) от 02.08.2018
+
+VA - Top Of The Pops: Love (3CD) (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543772.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Elton John - Your Song 4:00
+02. UB40 - Can't Help Falling In Love 3:26
+03. Aswad - Don't Turn Around 3:37(   Читать дальше...   )Жанр: PopПродолжительность: 03:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E2956F9FF25FA02AF3B21C72E6252B26AF4EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049563   (543665) от 05.09.2016
 
 Елена Войнаровская (Fleur) - Присутствие (2016) [MP3|320 Kbps] <Art Pop, Chamber Pop, Dream Pop>
@@ -682,64 +740,6 @@ VA - Radio Hits 2022 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DF20AD2FA27B2314C7FD87071F965931851B0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926596   (531610) от 11.08.2015
-
-Karen Marie Orsted (MØ) - No Mythologies to Follow (2014) [MP3|320 кб/с]<Indie Pop, Electronic, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Rides (03:28)
-02. Maiden (03:47)
-03. Never Wanna Know (04:13)
-04. Red in the Grey (03:47)(   Читать дальше...   )Жанр: Indie Pop, Electronic, Synth-popПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32EB2A1977DED805CE70229039105FBD4A3DD28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240199   (531281) от 09.08.2018
-
-VA - Kiss Kiss Play Summer 2018 [MP3|320 Kbps] <Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531281.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. I Do not Say No - Boomdabash & Loredana Berte
-02. From Zero A Cento - Baby K
-03. A Great Party - Luca Carboni(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 02:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EA88CA214585E7D956C280ACD4F1425499B9CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

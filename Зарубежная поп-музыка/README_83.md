@@ -1,3 +1,61 @@
+###  Публикация: 1694848   (120653) от 27.01.2024
+
+VA - Bravo Hits 30 (2000) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Funk / Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bon Jovi - It's My Life
+02.  Sonique - It Feels So Good
+03.  Anastacia - I'm Outta Love
+04.  Jennifer Lopez - Let's Get Loud(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Funk / SoulПродолжительность: 02:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9FCC9807AA727B3778FFF63375BA4CCB04C1806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696751   (119373) от 04.02.2024
+
+VA - 100 Hits Number 1s (2018) 5 CD [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Britney Spears - ...Baby One More Time
+02.  Justin Timberlake Feat. Timbaland - SexyBack
+03.  Shakira Feat. Wyclef Jean - Hips Don't Lie
+04.  Ricky Martin - Livin' La Vida Loca(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4A9E51B16829FF303719F4D17AAD27AAE157BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697105   (119097) от 05.02.2024
 
 Lara Fabian - Lara Fabian (1991) [OGG Vorbis|480 Kbps] <Pop, Chanson, Ballad>
@@ -687,64 +745,6 @@ VA - Nothing But... Pure Dance, Vol. 21 (2024) [MP3|320 Kbps] <Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59E2B47E91459782CEE7B79776EC213FB60661EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726965   (108641) от 31.05.2024
-
-VA - 100% Hits: DJ Hits '98 Vol. 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, 	Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.Y.C.C. - Fight For Your Right
-02. Smax - We Want Some Pussy
-03. Run DMC vs. Jason Nevis - It's Like That
-04. Groove Gangsters - Funky Beats(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834A949E492440E99CD840D82B0AFD63501E38F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726982   (108640) от 31.05.2024
-
-VA - 100% Hits: DJ Hits '98 Vol. 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vengaboys - We Like To Party!
-02. Groove Gangsters - Make You Yeah
-03. Black & White Brothers - Put Your Hands Up In The Air (DJ Tonka Mix)
-04. Rafet el Roman - America(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A488B04A98A0F22A4E2CCFB4C6F53FE777C545D
 ```
 
 https://mybot314.ru/tekegram_catalog/

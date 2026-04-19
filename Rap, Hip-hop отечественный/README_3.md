@@ -1,3 +1,32 @@
+###  Публикация: 1378255   (848266) от 24.04.2020
+
+Mnogoznaal - Круг Ветров (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. План "Перехват" (feat. ЯАVЬ) [01:33]
+02. Антигерой [02:12]
+03. Дуга [02:28]
+04. Ветра [03:11](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B1D1549105E960072E035F878CBCCAC34C3E19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378042   (848178) от 24.04.2020
 
 Лигалайз - ALI (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ Mnogoznaal - Гостиница Космос (2018) [MP3|320 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106251D9EE91AEF0F583C0773A3DE7ECF1422DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509704   (793860) от 13.11.2021
-
-Oxxxymiron - miXXXtape III: Смутное Время (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793860.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мох
-2. Погружение
-3. Flashback
-4. Reality(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687E7CEA448887E0A00CE16BAC7C9DD2BE825F82
 ```
 
 https://mybot314.ru/tekegram_catalog/

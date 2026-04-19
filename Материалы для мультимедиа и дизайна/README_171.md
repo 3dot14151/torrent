@@ -1,22 +1,22 @@
-###  Публикация: 1037594   (613424) от 24.07.2016
+###  Публикация: 1037160   (614982) от 23.07.2016
 
-Шаблоны - GraphicRiver - Photo Effect - Photo Template [PSD]
+Шаблоны - CreativeMarket - Business Card - Mockups [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Effect - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2000x3000 / 300dpi
+Оригинальное представление визиток. Вся прелесть этих PSD-файлов состоит в их многослойности, где каждый слой является смарт-объектом и отключая-включая видимость слоёв, можно регулировать высоту стопок с карточками и легко создать gif-анимацию ваших визиток. Для начинающих фотошопменов в раздаче имеется видеоролик по применению смарт-объектов.Формат: PSDРазрешение файлов: 5000x3300 px|300 dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:478FF45EF9920768DD5DDE667D86D452D09F073F
+magnet:?xt=urn:btih:A06FE489A88D0877F9333AB48A2A3C9AEB1BB725
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037575   (613359) от 24.07.2016
+###  Публикация: 1037145   (614981) от 23.07.2016
 
-Экшены - GraphicRiver - Dark Fantasy 2 Photoshop Action [ATN, ABR]
+Boom Library - HOT ROD – REV UPS [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hot Rod - Rev Ups - от Автора - "V-образные 8-цилиндровые двигатели являются классом своих "собственных". Эти булькающие, глубоко рычащие мощные агрегаты захватывают дух, когда все еще находятся в режиме ожидания. Но когда педаль газа нажата, они исполняют чистую, глубокую и немного грубоватую "симфонию" - истинное наслаждение для любителей (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB50F58D8286C13A48123DAF90D3CD20C9C54BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037098   (614886) от 23.07.2016
+
+Boom Library - TOONS [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boom Library представляет новую библиотеку звуковых эффектов - Toons. Хороший мультфильм никогда не будет полным без правильного звука. От автора: - "Многие из вас попросили нас дать вам высокое качество звука, для того, чтобы сделать своих персонажей и их окружение полностью живыми. Наш ответ - БУМ мультов! Долгожданные, качественные звуковые эффекты, наконец-то, (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F7A3E50F64970CC5A39335146B846F2B0F7BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295915   (614710) от 15.04.2019
+
+Пресеты - 640 Studio - 540+ Cinematic LUTS Pack [CUBE]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dark Fantasy 2 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+Сборник LUT файлов, предназначенных для быстрой и качественной цветокоррекции фото и видео.
+Релиз: 26 марта 2019
+Разработчик: 640 Studio (@JustinJonesDP on Instagram)Формат: CUBE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BF605E1D778C26638EF40C450EF0638418BD466
+magnet:?xt=urn:btih:F57101E051F8AE64F2C9C2AF516B5FF7D1DE3B89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +104,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037613   (613353) от 24.07.2016
+###  Публикация: 1146272   (614323) от 29.06.2017
 
-Шаблоны - CreativeMarket - Paper Bags - Mockups [PSD]
+GraphicRiver - Animated Photoshop Action Bundle 01 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте потрясающие изображения с мощными действиями фотошоп.
+Невероятные результаты в статическом или анимированном формате.
+В этот пакет входят:
+Gif Animated Snow Photoshop Action(   Читать дальше...   )Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C8FFEB5D990F9D3C523DB91E66441301010230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230685   (613861) от 13.06.2018
+
+Звуковые библиотеки - Zenhiser - Sublime Drum & Bass [WAV, MID]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Drum & Bass превращает вашу студию в необыкновенную электростанцию чувственного DnB. Комбинирование стилей Neurofunk и Liquid DnB позволяет невероятным образом охватить чувства звуковых инструментов, фокусируя ваши произведения на совершенно новом изменрении Drum & Bass музыки. Вдохните новую жизнь в ваши треки с нетронутыми 24-битными Wav и файлами (   Читать дальше...   )Формат: WAV, MID
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE35771766BE11AA6F3DE70BB99189C821E0F712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037460   (613856) от 24.07.2016
+
+Шаблоны - CreativeMarket - iPads - Mockups V03 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с бумажными пакетами, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 6000x4000px\300dpi
+3 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 5000x3000px\300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F23131F7237B398585D701995ABBC646C0D9A591
+magnet:?xt=urn:btih:5E1E19514714FAFDE7E619171E5DDB3F6408B9D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +185,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037510   (613345) от 24.07.2016
+###  Публикация: 1230611   (613847) от 13.06.2018
 
-Фоны - CreativeMarket - 20 Mosaic Backgrounds [JPG]
+Текстуры - Pixelbuddha - Fluid Textures Set [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613847.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 мозаичных фонов в JPG для вашего творчества.Формат: JPGРазрешение файлов: 3000x2000px\300dpi
+Жидкостные текстуры 100% бесплатно с официальной документацией.
+Автор: NicholasasmitaФормат: JPGРазрешение файлов: 3876 x 7549 - 4900 x 12659
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61A6A01DFDDBE0AF46D276430F72A2F40F17B2CB
+magnet:?xt=urn:btih:EAAA41AC0D29697E52ABACB2BC6262C1F0638463
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +212,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037558   (613340) от 24.07.2016
+###  Публикация: 1037444   (613784) от 24.07.2016
 
-Шаблоны - CreativeMarket - Stationary And Branding - Mockups [PSD]
+Шаблоны - CreativeMarket - iPads - Mockups [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 PSD-файлов с девайсами, открытками, визитками, папками имеющие слои смарт-объекты для лёгкого и быстрого редактирования. Все объекты можно перемещать индивидуально. Область применения неограничена.Формат: PSDРазрешение файлов: 4500x3000px\300dpi
+4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B19FEA1259D44EF748A1A63553EA57C93846E9C1
+magnet:?xt=urn:btih:EC79DC9F7A1DF344BBF8C1E637C5696906683921
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,26 +238,233 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146630   (612646) от 30.06.2017
+###  Публикация: 1037455   (613781) от 24.07.2016
 
-Экшены - GraphicRiver - Comics Photo Art Action [ATN,PAT]
+Шаблоны - CreativeMarket - iPads - Mockups V02 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613781.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4066BB778054B210930224607465B9DF31279AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037507   (613772) от 24.07.2016
+
+Шаблоны - CreativeMarket - iPads - Mockups V05 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613772.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ACE9FF00333A3AB48AA550BB2975C4B948559D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037469   (613681) от 24.07.2016
+
+Шаблоны - CreativeMarket - iPads - Mockups V04 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613681.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BB1A231F9AE9C61A53CBE7FEA47F5744B9D773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037567   (613678) от 24.07.2016
+
+Шаблоны - CreativeMarket - Laptops - Mockups [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613678.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 PSD-файлов с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000х2000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C24CD33AE8162D6D01EEDC64981D9829152E95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037580   (613676) от 24.07.2016
+
+Шаблоны - CreativeMarket - Laptops - Mockups V03 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613676.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 PSD-файлов с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000х2000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43308154376AF4DC2B52065E9C343A9B04F864FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037573   (613670) от 24.07.2016
+
+Шаблоны - CreativeMarket - Laptops - Mockups V02 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613670.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 PSD-файла с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000х2000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8156ABEAEDE5D0CA393D991A4F06ED3583CBDF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037593   (613668) от 24.07.2016
+
+Шаблоны - CreativeMarket - Laptops - Mockups V04 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613668.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 PSD-файла с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 4500x3000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB2F2EBDED48C8FBD3B582ECE04C1E0AF8D567B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037599   (613665) от 24.07.2016
+
+Шаблоны - CreativeMarket - Laptops - Mockups V05 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613665.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 PSD-файла с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8662B72198725B7986E768708809BD51F0F468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037554   (613572) от 24.07.2016
+
+Экшены - GraphicRiver - One Way Photoshop Action [ATN, PAT]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Получите реалистичный эффект комикса от ваших фотографий несколькими нажатиями.
-Вы также можете создать эффект «Премиум» и «Цифровое искусство», используя это действие.Формат: ATN,PAT
+One Way - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4476299B061DB0417FC00E957F44D57AA2D41F6A
+magnet:?xt=urn:btih:5EF9C8407DA2B3C92254AA01E4E5394EFBBA5D90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,51 +472,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 685322   (612607) от 01.08.2013
+###  Публикация: 1037434   (613571) от 24.07.2016
 
-Векторный клипарт - Дизайн футболок / T-Shirt Skull Design [JPEG,EPS,AI,CDR]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайн футболок, остальное применение зависит от вашей фантазииФормат: JPEG,EPS,AI,CDR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0383A4CCAE7050CE896EBE5CEAFD1C089C707357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524294   (612598) от 18.07.2012
-
-Шаблоны - Poster mock-up [PSD]
+Шаблоны - CreativeMarket - iFlat Devices - Mockups [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шаблоны для вашего творчества , открыток , розыгрышей и дизайнаРазрешение файлов: 2000х1300 - 2500х1760
+26 PSD-файлов с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования. Мониторы, ноутбуки, планшеты, ай-фоны и просто окна браузера - всё это редактируется послойно, независимо, с заменой и отключением ненужных слоёв. В responsive(полностью редактируемых) файлах можно перемещать, удалять любой объект(слой) независимо от других.
+На офсайте в описании (   Читать дальше...   )Формат: PSDРазрешение файлов: 5000x3000px\300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81002D6E495BD7694118FE3B49A849400B0A45B1
+magnet:?xt=urn:btih:CCBA3D9D97A788F285ECEA7A0AAF819E7E423B7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,78 +499,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145674   (612465) от 30.06.2017
+###  Публикация: 1037559   (613567) от 24.07.2016
 
-Футажи - RocketStock - Corruption [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corruption - зернистые наложения, искажённые показы логотипов, повреждённые переходы и многое другое. Этот пакет имеет всё, что нужно для достижения подлинного внешнего вида «нарушенного сигнала». Вместе со 120 уникальными 4K элементами, вы можете использовать звуковые эффекты «глюк», которые включены в комплект. Corruption идеально подходит для всех уровней мастерства. (   Читать дальше...   )Формат: MP4Разрешение файлов: 4K (3840X2160)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D60FC4122A12C72862636D4B04FD6FC9F75C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230712   (612165) от 14.06.2018
-
-Текстуры - Dreamstale - Freebie: Suminagashi Paper Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные мраморные текстуры.
-Автор: DreamstaleФормат: JPGРазрешение файлов: 4096 x 2731
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62ED19B95AB84216BDC8E247CD3C1687FABB679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912191   (611973) от 25.06.2015
-
-Пресеты - 500+ Premium Lightroom Preset [LRTEMPLATE]
+Экшены - GraphicRiver - Fireflies Photoshop Action [ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Более 500 качественных пресетов для Lightroom, разделённые на 27 различных категорий.Формат: LRTEMPLATE
+Fireflies - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DF05C49438141B45CC5C28B49B556E21937C43D
+magnet:?xt=urn:btih:419EA0137E2B80E8FB5010840F73BBAE24C7BA5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,25 +525,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037836   (611892) от 25.07.2016
+###  Публикация: 1037607   (613562) от 24.07.2016
 
-Экшены - CreativeMarket - Faded Duotone Photoshop Actions [ATN]
+Шаблоны - CreativeMarket - Laptops - Mockups V06 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613562.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 PSD-файла с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FB66DAB96BCDB450D4C3EB5BE68447DDAB9469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037565   (613555) от 24.07.2016
+
+Экшены - GraphicRiver - Galaxy Photoshop Action CS3+ [ATN, ABR]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613555.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Faded Duotone - экшен для Вашего творчества.Формат: ATN
+Galaxy - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1A98E16E9372134D99D54B67DE271CFAFE8B673
+magnet:?xt=urn:btih:415C40E1A25CBB98B09039FDA547540E5487E274
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,51 +577,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 353850   (611890) от 22.06.2011
+###  Публикация: 1037399   (613438) от 24.07.2016
 
-Растровый клипарт - Клипарт православный церковный [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт православный церковныйРазрешение файлов: 3825x5697Формат: PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1FDBFDD04886F03B65AB8118321960DD8F737C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037833   (611775) от 25.07.2016
-
-Экшены - GraphicRiver - Broken Glass - Photoshop Actions [ATN, PAT]
+Экшены - CreativeMarket - Pixel Explosion Photoshop Action [ATN, ABR]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Broken Glass - экшен для Вашего творчества.Формат: ATN, PAT
+Pixel Explosion - экшен для Вашего творчества.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A454B44E623B70DD406E712444E2413567405A23
+magnet:?xt=urn:btih:547309C1D3A760916A345CFC76821F176088B036
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,155 +603,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037828   (611766) от 25.07.2016
+###  Публикация: 1037414   (613433) от 24.07.2016
 
-Экшены - GraphicRiver - Blood Art Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blood Art - экшен для Вашего творчества.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473368E9DCF9643A2971AD1274D00564B4C81C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 685532   (611346) от 02.08.2013
-
-Растровый клипарт - Руки и небеса / Hands at the Sky [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небо, рукиФормат: JPEGРазрешение файлов: 3800х3800-5900х4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB19DA7144D3CB3A83641147EEEA1926B628E34B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 685503   (611122) от 02.08.2013
-
-Растровый клипарт - Креативная концепция / Creative Concept [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Креативный взгляд на мирФормат: JPEGРазрешение файлов: 6000х3900-7400х7400
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81926D2A020EB8C32CAD56B874BB3D2288B6ABFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 685488   (611016) от 02.08.2013
-
-Векторный клипарт - 3D люди и роботы / 3D robot & people [PNG,EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: PNG,EPSРазрешение файлов: 2900х3100-7000х6800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED0CBAE34B8B5F7886C9FDE643D310D0BB5188D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146651   (610902) от 01.07.2017
-
-Экшены - GraphicRiver - Thread Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610902.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом Photoshop Action вы можете создать эффект волосяного покрова и придания  для ваших изображений эффекта пушистости волос.Формат: ATN, ABR,  PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5074507DF319968D6355DFDD1C272AE3B49B7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146897   (610795) от 01.07.2017
-
-Шаблоны - GraphicRiver - Old Newspaper Mock-Up [PSD]
+Шаблоны - GraphicRiver - Fire Effect Photo Template [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Старый газетный шаблон.Формат: PSDРазрешение файлов: 3000 x 2000
+Fire Effect - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2480x3508 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57455386F1E4C1B512EF621DEB651B7C01143C49
+magnet:?xt=urn:btih:181B6A9D9B341E7A90F90C5CC23E9ED2DE851791
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +629,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038068   (610038) от 26.07.2016
+###  Публикация: 1037411   (613432) от 24.07.2016
 
-Шаблоны - CreativeMarket - Mobile App Flyer [PSD]
+Шаблоны - GraphicRiver - Horror Photo Effect Template v02 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613432.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2 флаера с полным редактированием и обрезом для печати.Формат: PSDРазрешение файлов: 2539х3567\300dpi
+Horror Photo Effect - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2500×3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F44E0478B43F72FF6284121F523D77D434AEC955
+magnet:?xt=urn:btih:6B67B156C279CD45C4B5AF9C957BA6860CDD7416
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,130 +655,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038075   (610029) от 26.07.2016
+###  Публикация: 1037422   (613427) от 24.07.2016
 
-Шаблоны - CreativeMarket - Mobile App Flyer 02 [PSD]
+Шаблоны - GraphicRiver - Glitch Effect Photo Template [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2 флаера с полным редактированием и обрезом для печати.Формат: PSDРазрешение файлов: 2539х3567\300dpi
+Glitch Effect - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2000x3000 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8562BBC0E22B8DD05186286D668E68CA96390FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038031   (610024) от 26.07.2016
-
-Шаблоны - CreativeMarket - Macbook, iPhone, iPad - Mockups V02 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610024.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 PSD-файлов, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F97EA8F205E019ACB44D7B865832E258B5A4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038042   (610023) от 26.07.2016
-
-Шаблоны - CreativeMarket - Smartphones - Mockups [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610023.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 PSD-файла, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 4000x2600px\300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9C3FA61F7E6F85E0F18A63531F5D25A54DBB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038048   (610022) от 26.07.2016
-
-Шаблоны - CreativeMarket - Smartphones - Mockups V02 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610022.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 PSD-файла, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3600x2400px\300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAAA22B245CD2ABB9576EA6D040C614CB940D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597715   (609931) от 18.04.2019
-
-Фоны и наложения - Зеленые листья [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая подборка из 5 высококачественных фонов "Зеленые листья".
-Автор: mir8Формат: JPEGРазрешение файлов: от 5728x4000 до 6000x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABC7A30CEB83CF0368B092C0F565F3E6B0538B7
+magnet:?xt=urn:btih:9B714975E3F4F6D541F27B54DD910985A5D86767
 ```
 
 https://mybot314.ru/tekegram_catalog/

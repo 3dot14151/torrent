@@ -1,3 +1,72 @@
+###  Публикация: 509995   (672202) от 13.06.2012
+
+Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain Leuh (05:08)
+02. Jeroen Van Aken (09:11)
+03. Three (05:26)
+04. Adolescent (05:30)
+05. Abutting, Dismantling (06:26)
+06. Young and Old (06:33)
+07. Du Meine Leise / ALTMIX (03:52)
+08. XXX / GS + Tiempo (04:40)
+09. Lean / GS + B Donne (07:09)2002-2009Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510253   (670651) от 14.06.2012
+
+Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jacques Arcadelt - La pastorella mia [03:03]
+02. Filippo Azzaiolo - Ti partir cor mio caro [01:44]
+03. Francesco da Milano - Fantasia 16 [01:10]
+04. Marchetto Cara - Mal un muta per effecto [02:24]
+05. Anonimo - Perla mya cara [02:32]
+06. Francesco da Milano - Fantasia 31 [01:17]
+07. Joan Ambrosio Dalza - Piva [02:04]
+08. Antonio Caprioli - Quella Bella E Biancha Mano [02:44]
+09. Vincenzo Capirola - Balletto [01:59]
+10. Adrian Willaert - Vecchie letrose non valete niente [00:59](   Читать дальше...   )1993-1994Жанр: ClassicalПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 510748   (668470) от 15.06.2012
 
 Set Fire to Flames - 2 albums (2001-2003) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient, Experimental>
@@ -376,6 +445,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519899   (635350) от 07.07.2012
+
+Julian Bream - Music of Spain (2005) [APE|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_635350.jpg" />
+</div>
+
+
+###  Подробнее
+
+JOAQUIN RODRIGO
+
+   Concierto de Aranjuez
+01. Allegro con spirito	   5:46
+02. Adagio	 10:35
+03. Allegro gentile	   4:55
+
+   Tres piezas espanolas
+04. Fandango	[04:06]
+05. Passacaglia	[07:20](   Читать дальше...   )Жанр: Classical GuitarФормат: 6 x CDПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520920   (630865) от 09.07.2012
 
 Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Country, Folk Rock>
@@ -725,105 +829,6 @@ Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
 8. N'Teri (4:34)
 9. Nta Dima (3:03)
 10. Massake (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536187   (515361) от 17.08.2012
-
-Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515361.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность: 01:17:32
-
-01. Conquest Of Paradise
-02. Titles From Chariots Of Fire
-03. Blade Runner (End Titles)
-04. Pulstar
-05. Eternal Alexander
-06. Anthem - 2002 Fifa World Cup Official Anthem
-07. Line Open(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:35:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315205   (515015) от 18.07.2019
-
-Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Experimental, Indie, Post-Rock, Electronic, Noise>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DRUMS 1 (05:28)
-02. DRUMS 2 (05:08)
-03. DRUMS 3 (07:27)
-04. DRUMS 4 (12:52)Жанр: Experimental, Indie, Post-Rock, Electronic, NoiseПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2CAA724D576019D2DA60099E93942458619565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536792   (512278) от 20.08.2012
-
-Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, Darkwave, Alternative, Female vocalists>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fight Like A Girl (5:24)
-02.Time For Tea (4:02)
-03.4 O'Clock Reprise (1:21)
-04.What Will I Remember? (2:54)
-05.Take The Pill (5:17)
-06.Girls! Girls! Girls! (6:14)
-07.I Don't Understand (2:12)
-08.We Want Them Young (2:47)
-09.If I Burn (5:31)
-10.Scavenger (6:59)(   Читать дальше...   )Жанр: Dark Cabaret, Gothic, Darkwave, Alternative, Female vocalistsПродолжительность: 01:04:37
 
 ## Скачать торент
 ```bash

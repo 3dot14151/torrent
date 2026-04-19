@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1863101   (1063676) от 
+###  Публикация: 1863101   (1063721) от 02.04.2026
 
 Cactus - Temple Of Blues II (2026) [MP3|320 Kbps] <Hard Rock>
 
@@ -7,7 +7,7 @@ Cactus - Temple Of Blues II (2026) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063721.jpg" />
 </div>
 
 

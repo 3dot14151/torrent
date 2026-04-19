@@ -1,3 +1,32 @@
+###  Публикация: 1652015   (218761) от 10.08.2023
+
+Die Schnitter - Saat und Ernte (2000) [FLAC|Lossless|image + .cue] <Folk Punk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wut
+02. Traumgeburt
+03. Der Narr
+04. Ich fliege uber das Meer(   Читать дальше...   )Жанр: Folk PunkПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D731F4B8453E4F9218187BF995E313AAD25B9071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084697   (216168) от 20.12.2016
 
 VA - Christmas Cafe (2016) [FLAC|Lossless|tracks] <Pop, Soul, Folk>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AB0363EDC9B93165569D2BD0502B84FD0D03345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 84233   (166597) от 30.10.2023
-
-Хиты украинской эстрады 60-х годов / Хіти української естради 60-х років (2005) [APE|~600 Kbps] <Folk, Народные песни>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166597.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Черемшина
-2. Два кольори
-3. Києве мій
-4. Чорнобривці(   Читать дальше...   )Жанр: Folk, Народные песниПродолжительность: 01:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E602359952E9EAFD294C3B88E78472E2483944
 ```
 
 https://mybot314.ru/tekegram_catalog/

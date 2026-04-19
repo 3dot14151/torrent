@@ -1,3 +1,57 @@
+###  Публикация: 960448   (307568) от 28.11.2015
+
+Проекты - Pond5 - Photoalbum Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993CFFDBCA46D85836EA82F5A4E185EB700CF558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960609   (307394) от 28.11.2015
+
+Проекты - Pond5 - Ink Slideshow - 57336172 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0A3E51DED7DDCD66929DAB46076E86FB13F65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960289   (307242) от 28.11.2015
 
 Проекты - VideoHive - Polaroid Stop Motion [AEP]
@@ -627,58 +681,6 @@ VideoHive - Epic Slideshow - 19923185 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9DD948B3707073871900D984E50B2B4A6B63E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078616   (299686) от 01.12.2016
-
-Проекты - VideoHive - Minimal Slides [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minimal Slides - слайд-шоу  с легким эффектом параллакса.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A191F0EE7E25C2383CB68849AB9E36BC1BEE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078631   (299454) от 01.12.2016
-
-Проекты - VideoHive - Digital Slideshow - 17451550 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Slideshow - цифровое трехмерное параллакс-слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD86E4BD138BA9BFACF2763DC7AB4E2B5A86184
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1713861   (111835) от 07.04.2024
+
+VA - Piano Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glenn Natale - The Unseen (1:59)
+02. Erjos - Interlude (1:53)
+03. Dario Crisman - Waves on Sand (3:04)
+04. Joaqino Bianco - Fly with Me (2:39)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6375EB5494F96DF4EB763D035BB9D1AC27049DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713904   (111801) от 07.04.2024
 
 VA - Lush Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -741,41 +770,6 @@ Concerto in Fa maggiore «L'Autunno» (Осень), RV 293
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28D4E271BC30CF5A1E14D0371BF3549DD86D0E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483506   (88662) от 15.04.2012
-
-Yehudi Menuhin - Vivaldi - Violin Concertos (2003) 2CD [FLAC|Lossless]<Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (04:33) Concerto for 2 Violins, RV 529 B-dur I Allegro
-  02. (03:11) Concerto for 2 Violins, RV 529 B-dur II Largo
-  03. (03:24) Concerto for 2 Violins, RV 529 B-dur III Allegro2
-  04. (03:07) Concerto for 2 Violins, Op.3 No.5, RV 519 A-dur I Allegro
-  05. (01:56) Concerto for 2 Violins, Op.3 No.5, RV 519 A-dur II Largo
-  06. (03:01) Concerto for 2 Violins, Op.3 No.5, RV 519 A-dur III Allegro2
-  07. (03:59) Concerto for Violin and Cello, RV 547 B-dur I Allegro
-  08. (01:56) Concerto for Violin and Cello, RV 547 B-dur II Andante
-  09. (03:03) Concerto for Violin and Cello, RV 547 B-dur III Allegro molto
-  10. (03:38) Concerto for Violin and Cello, RV 546 A-dur I Allegro(   Читать дальше...   )2003Жанр: ClassicalПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEB7868DD35945FC899B3EFBE1381D947FC790B
 ```
 
 https://mybot314.ru/tekegram_catalog/

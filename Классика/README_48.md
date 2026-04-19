@@ -1,3 +1,32 @@
+###  Публикация: 1824998   (136858) от 16.10.2025
+
+Mozart: Requiem, K. 626 - Say: Mozart & Mevlana, Op. 110 by Fazil Say, Fatma Said, Marianne Crebassa, Pene Pati, Michael… (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozart - Requiem in D Minor, K. 626
+01. I. Introitus. Requiem æternam (4:10)
+02. II. Kyrie (2:17)
+03. III. Dies iræ (1:44)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C72A7CC84A7F87E6A052136D669D3C6A7B7EEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824385   (136805) от 16.10.2025
 
 PALLADIUM Electric Band - Taboo (2012) [MP3|256 Kbps] <Instrumental, Classical Crossover, Pop>
@@ -763,35 +792,6 @@ Gregorio Allegri - Miserere (The Sixteen, Christophers; et al) (2008) Compilatio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:687F6519CF42112E8F34CF008C4D9C2A76E548B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690972   (123693) от 09.01.2024
-
-Symphonic Landscapes - Works By Mozart, Brahms, Schubert & Mendelssohn (2023) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfgang Amadeus Mozart
-1. Symphony no.38 in D major K.504 'Prague' - I. Adagio
-2. Piano Concerto no.25 in C major K.503 - III. Allegretto
-(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB27734A62AABE5A4FC3C1D91E715D675FDFD72
 ```
 
 https://mybot314.ru/tekegram_catalog/

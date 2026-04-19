@@ -1,3 +1,73 @@
+###  Публикация: 569353   (392911) от 02.11.2012
+
+Manu Katche - Manu Katche (2012) [FLAC|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_392911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running After Years (06:23)
+02. Bliss (04:22)
+03. Loving You (04:38)
+04. Walking By Your Side (05:31)
+05. Imprint (05:19)
+06. Short Ride (04:05)
+07. Beats & Bounce (08:28)
+08. Slowing The Tides (05:36)
+09. Loose (05:28)
+10. Dusk On Carnon (02:20)Жанр: Jazz, FusionПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569226   (392765) от 02.11.2012
+
+Tape Five - Swing Patrol (2012) [FLAC|Lossless]<Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_392765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabulous Swing Kid
+02. Geraldines Routine
+03. Three Butterflies
+04. I Spy You
+05. Black Cotton Blues
+06. Bunga Book
+07. Ice From Russia
+08. Slow Serenade
+09. Peace Patrol
+10. City Of Lights(   Читать дальше...   )Жанр: SwingПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172827   (392100) от 09.10.2017
 
 Eddie Heywood - 1944 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -692,64 +762,6 @@ Jessica Williams - In The Key Of Monk (1997) 1999, Jazz Focus [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D304C21C7CBD6B531C75BD0E9C3B9D147D2A8EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326272   (387433) от 19.09.2019
-
-Herbie Mann - Windows Opened & The Inspiration I Feel (1968) 2001, Collectables [FLAC|Lossless|tracks + .cue] <World Fusion, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is a Mountain [6:07]
-02. If I Were a Carpenter [5:41]
-03. Paper Man [6:49]
-04. Footprints [8:27](   Читать дальше...   )Жанр: World Fusion, Jazz-PopПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BAE7728E26CC78B270B7CC3C22E18EA6D51E5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326279   (387431) от 19.09.2019
-
-Randy Waldman - Superheroes (2018) BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Adventures of Superman (TV Theme) [6:53]
-02. Mighty Mouse Theme [5:17]
-03. Spiderman Theme [5:08]
-04. Superman (Movie) [4:52](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Big BandПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0708330AD64719401D0F8A9A5E6794671CF889
 ```
 
 https://mybot314.ru/tekegram_catalog/

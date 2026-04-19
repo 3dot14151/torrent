@@ -1,3 +1,32 @@
+###  Публикация: 1131154   (709007) от 05.05.2017
+
+Ben Webster - Ballads (1954, 1955) 2011, Phoenix Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chelsea Bridge [03:58]
+02. Love Is Here To Stay  [03:25]
+03. It Happens To Be Me [03:23]
+04. All Too Soon [04:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB2FE176679BB0AE2E840BD920354474142B9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533066   (708997) от 22.02.2022
 
 Maxine Sullivan With The Scott Hamilton Quintet - Uptown (1985) Concord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
@@ -716,35 +745,6 @@ Joe Van Enkhuizen & Horace Parlan - Ellington Ballads (1988) Remaster, 2015, Sol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:978836FFC88E6DA7F127B45D9C1417FE2BE2825B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026171   (706243) от 14.06.2016
-
-Masabumi Kikuchi Trio - Feel You (1993) Remaster, 2015, King Record[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pain Killer - I [08:48]
- 02.Zig Zag [03:52]
- 03.Free Stroll [12:05]
- 04.Little Treat [02:52](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CB6C376FA41415C7D36297E1A2569C87C041AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

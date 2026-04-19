@@ -1,3 +1,55 @@
+###  Публикация: 1078616   (299686) от 01.12.2016
+
+Проекты - VideoHive - Minimal Slides [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minimal Slides - слайд-шоу  с легким эффектом параллакса.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A191F0EE7E25C2383CB68849AB9E36BC1BEE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078631   (299454) от 01.12.2016
+
+Проекты - VideoHive - Digital Slideshow - 17451550 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Slideshow - цифровое трехмерное параллакс-слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD86E4BD138BA9BFACF2763DC7AB4E2B5A86184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961658   (298712) от 02.12.2015
 
 Проекты - Pond5 - Boxes And Type [AEP]
@@ -632,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ABADB227416255A6AF1E23EC2B67E06F5654633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962556   (292636) от 05.12.2015
-
-Проекты - Motion Array - Modern Circles Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото-видео слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194CF0B8E6B566E9AC156C25D00DE519A4D31D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079941   (291601) от 05.12.2016
-
-Проекты - VideoHive - Dynamic Parallax Slideshow - 18603711 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Parallax Slideshow - проект с эффектом параллакса и цифровыми HUD-элементами. Элементы HUD и уникальные названия анимации сделают вашу презентацию или фото-слайд-шоу более захватывающими и драматичными. Сделайте промо-ролик с этим шаблоном, добавьте немного цифровых глюков и динамики в свой портфолио, пусть он в полной мере произведет впечатление на аудиторию. (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7E995EB49F4E90914819F5FA764FBF4E542960
 ```
 
 https://mybot314.ru/tekegram_catalog/

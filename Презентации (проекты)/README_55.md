@@ -1,3 +1,110 @@
+###  Публикация: 970037   (140853) от 30.12.2015
+
+Проекты - Focus Camera [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект, который можно использовать для презентаций. Или просто, как видео-визитка фотографа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8306DEDBA7FFF830A10C85BF3A9C5F0D7E8D987A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475405   (85426) от 30.03.2012
+
+Проекты - VideoHive - Holographic touch [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания Голографической презентации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2214A3EA18FC3B1B6E73F4AE2B47660BB2F3A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475417   (85415) от 30.03.2012
+
+Проекты - VideoHive - Holographic Touch II [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания Голографической презентации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF604351126709068157B6EABC330D2C74BA265D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808741   (64902) от 26.07.2025
+
+Проекты - VideoHive - Vertical Newspaper Stories - 58543172 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заголовки новостей и статьи в газетных разделах.
+
+Музыка очищена и предоставлена.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D0C3C4B9DB023F6DC7DC1C969EB5DF0331048C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821645   (63923) от 03.10.2025
 
 Проекты - VideoHive - Website Presentation | Laptop Mockup - 59619889 [AEP]

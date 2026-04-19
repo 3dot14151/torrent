@@ -1,3 +1,55 @@
+###  Публикация: 1146825   (612542) от 30.06.2017
+
+Проекты - VideoHive - Typography Opener - 20018864 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу или вступительного ролика для вашего видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FDF19F5297B03C6C974BD5685CB70F00E8BD2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037686   (611669) от 25.07.2016
+
+Проекты - VideoHive - Photo Slideshow - 16833173 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Slideshow - оригинальный вариант слайд-шоу из ваших фотографий.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA362F9CE83F806C991A55435ECB779954A5CDFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037685   (611535) от 25.07.2016
 
 Проекты - VideoHive - Glass Slideshow Titles [AEP]
@@ -630,59 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6C2407196AA01F9646350DF84EB45213A1D8CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149369   (600955) от 10.07.2017
-
-Проекты - Motion Array - Photo Exhibition - 36779 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотовыставка - это роскошный и стилизованный шаблон After Effects.
-Расположенный в очаровательно оформленной арт-галерее с элегантными подвесными, экстравагантными золотыми рамами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E27D05CDC5C844263AE722DEC2883FDB129EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914244   (599697) от 01.07.2015
-
-Проекты - VideoHive - Fast Dynamic Summer Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F9EF34889F25EEEA6A65E9EE839CE18D5FB0D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

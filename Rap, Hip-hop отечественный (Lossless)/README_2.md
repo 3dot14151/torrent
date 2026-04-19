@@ -1,3 +1,61 @@
+###  Публикация: 1597881   (164932) от 16.12.2022
+
+Руставели - МАГМА (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Магма [00:02:32]
+02. Моя страда [00:02:31]
+03. Из тьмы [00:02:16]
+04. Стрела [00:03:13](   Читать дальше...   )Жанр: Alternative Hip-HopПродолжительность: 00:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C709BA8C3AD0CC2CB4BE4159C2F365F8750BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599381   (159789) от 23.12.2022
+
+Dracondaz (Anacondaz) - Песни Фрайвура (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Hip-Hop, Folk Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прохладный эль [00:03:47]
+02. Жизнь или кошелёк [00:04:18]
+03. Ною на Луну [00:03:50]
+04. Недуг короля [00:03:32](   Читать дальше...   )Жанр: Alternative Hip-Hop, Folk RockПродолжительность: 00:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8617A2A4A1D215BD19BEF188964A7E412F62324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194855   (153184) от 26.12.2017
 
 Полиграф ШарикOFF - Какао белого цвета (2017) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Pop>
@@ -687,64 +745,6 @@ SanMinor - Дивный Новый Мир (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:139DF26EB681DAD02D8E8DD3F863E37F39E4546A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717623   (58972) от 21.04.2024
-
-White Hot Ice - Rastaman (2007) [WavPack|Lossless|image + .cue] <HipHop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Растаман
- 02. Ангел
- 03. За Окном
- 04. Вован Кожемякин(   Читать дальше...   )Жанр: HipHopПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C171FA70AEFBC8078771AA12B2DC10F291E8A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726306   (54992) от 29.05.2024
-
-NTL - Шаг В Сторону (2007) [WavPack|Lossless|image + .cue] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
- 02. Там, Где Клён Шумит
- 03. Дождь
- 04. Где Я Ангелом Не Стал(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36646B9A5A2C6A8E0D4E568B8A4826B0A9EBF30
 ```
 
 https://mybot314.ru/tekegram_catalog/

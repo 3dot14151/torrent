@@ -1,3 +1,31 @@
+###  Публикация: 658237   (807681) от 19.05.2013
+
+Mageia 3 DVD [x86-64] (DVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня вышел релиз следующего поколения Mageia - Mageia 3, второго по популярности дистрибутива на сегодня по версии DistroWatch.
+
+Проект Mageia (МАГ) стартовал в сентябре 2010 как форк Mandriva Linux. Он поддерживается not-for-profit организациями. Поддерживаются архитектуры i586 и x86-64. Доступны образы с Mageia, использующей в качестве графической среды KDE, GNOME и LXDE. Изменения и улучшения этой версии: новый экран входа; автоматический режим в установщике; возможность загрузки в оперативную память из Live-режима; по умолчанию используется GRUB 2; полный переход на systemd; новая тема для Gfxboot; How-To для новых пользователей дистрибутива; поддержка технологии NVidia Optimus; подписи для репозиториев; привод всех системных директорий к UNIX-стандартам; переработан интерфейс Mageia Control Center; обновления теперь могут использовать зависимые пакеты из сторонних репозиториев; перемещена директория /usr; улучшена поддержка Python 3; drakx-finish-install теперь запрашивает разрешение у пользователя на (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009622   (807462) от 22.04.2016
 
 KaOS Linux 2016.04 (Arch + Plasma KDE 5) [x86-64] 1xDVD
@@ -166,7 +194,7 @@ JonDo 0.9.76 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_805323.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ CentOS 8.2 (2004) [amd64] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_782211.jpg" />
 </div>
 
 
@@ -659,34 +687,6 @@ NAS4Free основана на ОС FreeBSD, поддерживает обмен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6FDF2CB8206998E3DBBAA77B5A612F1E5601F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659995   (774653) от 23.05.2013
-
-Siduction 13.1.0 (включая легкие DE) [i386 + amd64] (4xDVD + 6xCD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен siduction 13.1.0 стабильный выпуск нового desktop-ориентированного дистрибутива и Live CD/DVD, основанного на unstable-ветке Debian GNU/Linux. Проект siduction является форком дистрибутива aptosid, из которого он выделился в конце 2011 года, и предлагает пять  отдельных Live-носителей с различными рабочими столами, в том числе с легкими рабочими столами:  LXDE, XFCE, Razor-qt, а также с KDE и GNOME.
-
-Razor-qt легковесное десктоп-окружение, построенное на технологиях Qt. Ключевые направления развития Razor-qt - простота, скорость, настраиваемость и интуитивно понятный интерфейс. Небольшое потребление ресурсов позволяет использовать Razor-qt на маломощных и устаревших системах. Код написан на языке C++ (без QML и Qt Quick) и распространяется под лицензиями GPLv2 и LGPLv3+. Ядро Linux kernel  3.9.3, X-Server --  1.12.4-6. Это -- первый выпуск siduction, в который входит GNOME 3.
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

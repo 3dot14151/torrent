@@ -1,3 +1,61 @@
+###  Публикация: 1848429   (1052666) от 17.01.2026
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 16 (2026) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AMNOR - Prophect Loading (Extended Mix) [5:10]
+02. Loud2High - Empty Sky (Extended Mix) [5:16]
+03. Airo - Chronicles (Extended Mix) [5:34]
+04. AGENTBOY - Poison In The Blood (Original Mix) [4:07](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC6C33BDB63AF7E2DE85FA3D1631CF5EA22695B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848426   (1052665) от 17.01.2026
+
+VA - Trancendence, Vol. 07 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vivacity (NO) & Nico Cranxx - Liberation (Extended Mix) [6:57]
+02. Status Zero & TSI - Turbocharged Stratified Injection (Original Mix) [5:48]
+03. Ramundo - Finding You (Original Mix) [3:15]
+04. Scott Cameron & Suzanna Dee - Learning To Breathe Again (Extended Mix) [6:24](   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63B535144262EC06EF912F228506F52BE0B7BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848069   (1052609) от 15.01.2026
 
 VA - Trance Fusion, Vol. 16 (2026) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - The Best Releases 2025 of Endlessky Audio (2025) [MP3|320 Kbps] <Trance, Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8061EB0C02995B6A523BA6FE0F2DF3865B1AC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840681   (1047511) от 06.12.2025
-
-VA - A Journey Through Time and Trance (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rixson & Eternal Waves - Contagion (extended version) [7:50]
-02. Sauli - Imagine (Alternate High Extended Remix) [7:00]
-03. JimZima & Jason Gray - Halcyon (extended version) [7:42]
-04. Jochen Gareth - Coastal Breeze (extended version) [6:37](   Читать дальше...   )Жанр: TranceПродолжительность: 05:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC15F099720305B6E828338914B450BA8C1E8AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839933   (1046967) от 02.12.2025
-
-VA - Redux Selection, Vol. 12 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Euphoria - Sugar (Extended Mix) [6:59]
-02. Cadeya - Eternal Realm (Extended Mix) [7:07]
-03. Air Project & Ruslan Aschaulov & Natalka Denisenko - I Want To Be Gentle With You (Extended Mix) [6:04]
-04. Alex Nomak & N-sKing - Cassiopeia (TORUKK Extended Remix) [6:28](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA63CD3C13335753C3065B59D378E934CCBC0CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

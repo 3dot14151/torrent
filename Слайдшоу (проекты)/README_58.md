@@ -1,3 +1,55 @@
+###  Публикация: 924202   (558812) от 03.08.2015
+
+Проекты - VideoHive - Vintage Premium Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858A621E1A26AE66C0B4D442047783F564C82D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924227   (558760) от 03.08.2015
+
+Проекты - afteryou - Sunny Summer [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский проект отФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513A9516C1A08169D02573FD7B28B9DCD8B56091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 691401   (557803) от 21.08.2013
 
 VideoHive - Grunge Dubstep Slideshow - 2729265 [AEP]
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:450D45F1C9926DD368E27A6942464FE8F8889719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046533   (551641) от 27.08.2016
-
-Проекты - VideoHive - Modern Fashion Opener // Fast Glitch Slideshow - 17273819 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C77A64B388206691DD78DD7748D97D3C9CC0510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046977   (549896) от 29.08.2016
-
-Проекты - VideoHive - Awesome People Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания динамичного слайд-шоу, веб-презентации, домашнего видео или любых других кинематографических видео роликов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B87F0B6C0E08C4A839DC2A74FA7E58CAA9A6792
 ```
 
 https://mybot314.ru/tekegram_catalog/

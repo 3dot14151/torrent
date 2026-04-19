@@ -1,3 +1,149 @@
+###  Публикация: 1779346   (27822) от 12.02.2025
+
+Village People - Gold (2019) 3 x CD [FLAC|Lossless|image + .cue] <Disco, Pop, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Village People – американская диско-группа, образованная в 1977 году французским композитором Жаком Морали. Группа прославилась своими легко запоминающимися композициями, весёлыми текстами песен, а также неординарными костюмами: полицейского, индейца, ковбоя, строителя, байкера и морского пехотинца.
+Жак Морали плодотворно сотрудничал с другой диско группой The Ritchie (   Читать дальше...   )CD1:
+01. YMCA (3:44)
+02. In The Navy (3:43)
+03. Go West (3:34)(   Читать дальше...   )Жанр: Disco, Pop, FunkПродолжительность: 03:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AB506043A001DD1B51895C6D31435A53B6106A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782788   (25929) от 02.03.2025
+
+Dschinghis Khan - Mexico , Maxi And Singles Collection (2025) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mexico
+02. Moskau (12" Version)
+03. Rome (English Version)
+04. Rocking Son Of Dschinghis Khan (12" Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798DEC3DE5BC6C426324230FBEFCAF659790CAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784642   (24888) от 12.03.2025
+
+Maxi Talo - Emotions (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run To The Sun (6:05)
+02. Say You Love Me (5:02)
+03. Sea And You (5:43)
+04. Among Millions Of Stars (6:04)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D4E4C73FEE688D1A076BBB96722AC76F2868BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786500   (23965) от 21.03.2025
+
+VA - 80's Dance Rarities (1989) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi-NRG, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempo Rubato - Don't Stop The Classics (4:20)
+02. Overdrive - Beat It Up (7:56)
+03. Diana Pamelay - Groove Me (3:47)
+04. Twiggy Bop - Manolito (3:52)(   Читать дальше...   )Жанр: Disco, Hi-NRG, PopПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E00E71E84B609F5FB5B33F1BB321D43E5078505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786656   (23946) от 21.03.2025
+
+VA - The Modern Mix, Vol. 1 - 80's Dance Rarities (mixed by Steve Masters) (2000) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When In Rome - The Promise (4:48)
+02. L.A.C. - The Fuzz (3:50)
+03. Secession - The Magician (4:08)
+04. The Hurricanes - Only One Night (4:50)(   Читать дальше...   )Жанр: Italo-Disco, Euro-HouseПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E882AD8BA6B8B139AD11ADC90062B4027FFAE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789534   (22504) от 04.04.2025
 
 VA - 80s Best Disco (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, R&B, Soul>

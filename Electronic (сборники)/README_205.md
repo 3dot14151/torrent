@@ -1,3 +1,177 @@
+###  Публикация: 970005   (143793) от 29.12.2015
+
+VA - Lounge Sensations (Lounge Masters) (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Uma Alegria Contagiante
+02. Cane Garden Quartet - Flying With No Wings
+03. Enrico Donner - Lasting Memories
+04. Solanos - Incrivel(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA971F40704D92199CFFBA064DF50FDF2A2E426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520299   (143725) от 27.12.2021
+
+VA - Beatport Chill Electronic: Sound Pack #389 (2021) [MP3|320 Kbps] <Soft Electronic, Chill House, Chillout, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это легкая, наполненная светом, мягкая и нежная музыка, она похожа на то, как поёт наша душа, когда мы просыпаемся летним утром в объятиях солнечных лучей, когда по весне мы радуемся капели, звенящей за окном, когда исполняется наша мечта, когда смеётся родной человек — это удивительное чувство радости и любви ко всему. Это красивая музыка, которая помогает жить, (   Читать дальше...   )001. The Emanations - Spread A Little Love
+002. A.R.T. Wilson - Sun Sign Aries
+003. Peter Broderick - Family, Giving
+004. Serra 9 - True Sun(   Читать дальше...   )Жанр: Soft Electronic, Chill House, Chillout, RelaxПродолжительность: 14:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391E9F456F142815A719FE9662E4AAE9E5DFCBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970131   (143721) от 29.12.2015
+
+VA - Graceful House (2015) [MP3|320 кб/с] <House, Electro, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143721.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chic - Le Freak
+002. Prok & Fitch - Tears (Original Mix)
+003. Livin' Joy - Dreamer (Radio Edit)
+004. Superlover - Restless(Original Mix)(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 14:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBD3796CF8EC122BDDCB66A1EE57946EB727998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678716   (143719) от 22.11.2023
+
+VA - Vibrant Euphoria (2023) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaun Williams - Amore Vita
+02. Above & Beyond - Vlekno
+03. Popoff - This Is My Soul
+04. Id-S - Life Into Midnight(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 03:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74587D89EC75BA511CE623E4C5797CF032519E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520312   (143710) от 27.12.2021
+
+VA - Beatport Techno Electronic: Sound Pack #384 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143710.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мере приближения нового года Beatport приглашает нас оглянуться назад на то, что было еще одним феноменальным годом для электронной танцевальной музыки с самыми продаваемыми и популярными треками, исполнителями и лейблами.001. Divinez - Don't Play With Fire
+002. El Brujo & Makaja Gonzales - Base
+003. Kai Van Dongen - Flash
+004. The Advent - Tall Whites(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 09:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C82B5849686EBA1AB9FA280732A09978E372761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520309   (143683) от 27.12.2021
+
+VA - Beatport Synth Electronic: Sound Pack #387 (2021) [MP3|320 Kbps] <Synthwave, Synth Electronic, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заглавная тема музыки 387-го релиза от Beatport является фантастика и космические путешествия, и многие спейссинт треки вполне подошли бы в качестве саундтрека для кинематографических космических сиквелов. Кибернетический разум, неизведанные просторы космоса, утопический мир будущего - всё это на треках представляемого Вам лонгплея.001. A.F.B. - Faint
+002. Pentagon Blake - Candy Light
+003. Yoshinori Hayashi - Go With Us
+004. The Avalanches - Live At Dominoes(   Читать дальше...   )Жанр: Synthwave, Synth Electronic, SynthspaceПродолжительность: 09:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867481AA9C9AF9AA253FF307A3C343A54D10D1E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520360   (143637) от 27.12.2021
 
 VA - New Age Ambient Music (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation, New Age, Relax>
@@ -578,180 +752,6 @@ VA - Умная Электроника (Музыка Поднимающая На
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AFB2DE87F042D3C7CAFBE9C0CAE562B7A3E276C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349078   (140071) от 30.12.2019
-
-VA - House Fusion: Absolute EDM Sound (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alka - Drop The Boom (Original Mix)
-002. Abel Feat Shelley Chapman - Just Another Day
-003. Consilio - The Colours Of Love
-004. Matulu - Fumo(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 13:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A5DC8098E87A4EF9AB125875541A4C98DC833A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435987   (139668) от 30.12.2020
-
-VA - DNA Techno Mix (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139668.jpg" />
-</div>
-
-
-###  Подробнее
-
-За лаконичностью мелодий и однообразием музыкального ряда усматривается потаённый посыл к теме техно апокалипсиса. Вне всякого сомнения, поклонники техно и минимала с футуристическим оттенком, которые любят не только «чтобы рубило», будут не разочарованы данной подборкой.001. Dj Octopus - Quieora
-002. Scarper - Rhodopsin
-003. Mark Knight - Tonight
-004. Flaws - Gaiter(   Читать дальше...   )Жанр: Techno, Tech House, Electro, EDMПродолжительность: 12:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662567C61CA5D23993C285DD8CDA25FB6CFBA7F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435988   (139538) от 30.12.2020
-
-VA - Beatport Psy Trance: Electro Sound Pack #215 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда ты в стремлении воспарить над землей и охватить своими взором каждую точку горизонта. Таково настроение альбома в целом. Если в начале альбома имеет место быть динамика и порывистость треков, то к экватору релиза музыка парит как птица на воздушных потоках футуристики. Почти каждый трек содержит интригующие клавишные звуки и изящные синты, выдающие в их авторах (   Читать дальше...   )001. Mental Broadcast - The New Normal
-002. Sun69 - Stay Gold (Original Mix)
-003. Antidota - Koto Clrcus
-004. Helber Gun - Don Emilio (Original Mix)(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 11:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65990FC6D4B6E8B158D6D4009C75742C2E86BD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520927   (139454) от 30.12.2021
-
-VA - Beatport Trance: Sound Pack #386 (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможно, кто-то в этом треклисте увидел своего любимого продюсера или диджея. Но музыка транса разнообразна и не заканчивается только этими музыкантами. За то мы и любим эту музыку - музыку прогрессии и обворожительных мелодий. А кто-то наоборот любит мощный басс и агрессивный ритм. Любой может найти в этом направлении электронной музыки что-то свое. Trance разнообразен, (   Читать дальше...   )001. Gayax - Bliss
-002. Mental Luke - I Will Fly
-003. Gianmarco Fabbretti - Together
-004. Micro Out - Tidal Wave(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 09:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5FA6CDCDB1C714251C5B738E48CCBFD5F8EBE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088406   (139418) от 31.12.2016
-
-VA - Finding Around Happiness (Energy Tech Trance) 012 (2016) [MP3|320 Kbps] <Trance, Stadium Trance, Melodic, Energy, Tech-Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren - I Live for That Energy (ASOT 800 Anthem) (Extended Mix) 6:40
-02. DRYM & Abstract Vision - Shark (Original Mix) 5:07
-03. Feel & Natalie Gioia - Madwoman (Attila Syah Remix) 5:32
-04. Dennis Sheperd & Liuck Ft. Lady V - Glass House (Original Mix) 5:34(   Читать дальше...   )Жанр: Trance, Stadium Trance, Melodic, Energy, Tech-TranceПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BC3FC25B0F7C9CD946BC2E5376DE703192146F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088388   (139385) от 31.12.2016
-
-VA - Trance Elegance On This Year 005 (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UDM - Tornado (Original Mix) 6:37
-02. Lucid Blue - Eyes Wide Open (Saad Ayub Remix) 6:40
-03. Adam Lester - That Moment (Original Mix) 8:59
-04. Kukuzenko - Immortal (Original Mix) 6:44(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D898577BC38E1255383D5FF49D80E02F3A1CDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

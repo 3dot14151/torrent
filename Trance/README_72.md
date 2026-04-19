@@ -1,3 +1,90 @@
+###  Публикация: 1817721   (3107) от 12.09.2025
+
+VA - Uplifting Trance Collection (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Rabbits - Prometheus (Original Mix) [6:41]
+02. Shelby Burnout & Edith Crosby - Théâtre Noire (Et Ton Triste Masque) [7:25]
+03. Magic O.D.A - Bridge To Happiness (Extended Mix) [7:38]
+04. Mazeev - Love Is Life (Original Mix) [5:32](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D3FB73BD063FDA439AC99ABBBC509F4AE49919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817860   (2936) от 13.09.2025
+
+VA - Trance Fusion, Vol. 13 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darren Tate & Marcella Woods - Lifted (C-Systems Extended) 06:08
+02. Calvin O'Commor - Goodbye To The Future (Extended Mix) 07:00
+03. ALRAXIS - God's Gift (Original Mix) 05:48
+04. Adip Kiyoi & ZUZAH - Together (Original Mix) 03:31(   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD57F9B7B9B7C403590F65A06E6E8702BCB2B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817807   (2933) от 13.09.2025
+
+VA - Transorica Trance Dreams (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Forces - Party Started (Extended Version) [3:51]
+02. Oscar Anzo - Breathe (Original Mix) [6:48]
+03. Nation Epic - Sky At Night (Extended Mix) [6:22]
+04. LSound Fantasy - Revolution (Original Mix) [5:14](   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD83A0D474CB891C41996AABB6C1AA87DDBEC23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817798   (2906) от 13.09.2025
 
 VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 13 (2025) [MP3|320 Kbps] <Trance, Progressive>

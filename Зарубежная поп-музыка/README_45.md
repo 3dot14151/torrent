@@ -1,3 +1,61 @@
+###  Публикация: 926596   (531610) от 11.08.2015
+
+Karen Marie Orsted (MØ) - No Mythologies to Follow (2014) [MP3|320 кб/с]<Indie Pop, Electronic, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Rides (03:28)
+02. Maiden (03:47)
+03. Never Wanna Know (04:13)
+04. Red in the Grey (03:47)(   Читать дальше...   )Жанр: Indie Pop, Electronic, Synth-popПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32EB2A1977DED805CE70229039105FBD4A3DD28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240199   (531281) от 09.08.2018
+
+VA - Kiss Kiss Play Summer 2018 [MP3|320 Kbps] <Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531281.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. I Do not Say No - Boomdabash & Loredana Berte
+02. From Zero A Cento - Baby K
+03. A Great Party - Luca Carboni(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 02:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EA88CA214585E7D956C280ACD4F1425499B9CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312762   (530815) от 05.07.2019
 
 VA - The #1 Album: 60S Pop (2019) 3CD [MP3|320 Kbps] <Pop>
@@ -691,64 +749,6 @@ VA - Stevie Wonder Covers (2019) [MP3|320 Kbps] <Pop, Rock, Funk, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBABC268E5689FB3C2899FDD96A5A79880706339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241555   (519292) от 18.08.2018
-
-VA - Wearmada Ibiza Pool Party (Extended Versions) (2018) [MP3|320 Kbps] <House, ElectroHouse,Trance, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loud Luxury feat. Brando - Body (Orjan Nilsen Extended Remix) 4:44
-02. Armin Van Buuren - Blah Blah Blah (Bassjackers Extended Remix) 4:18
-03. Afrojack vs. Jewelz & Sparks - One More Day (Nicky Romero Extended Remix) 5:22
-04. Lost Frequencies feat. James Blunt - Melody (ANGEMI Extended Remix) 4:21(   Читать дальше...   )Жанр: House, ElectroHouse,Trance, DanceПродолжительность: 02:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B49158F0A3D8A9BB48C4308CFEA31CB4AC08D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241760   (518355) от 19.08.2018
-
-VA - Top Of The Pops - Groove, Hip Hop & Rnb (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Ii Soul, Caron Wheeler - Back To Life (However Do You Want Me) (Remastered)
-02. Arrested Development, Speech, Rasa Don, Headliner, Aerle Taree Jones - People Everyday
-03. Diana King - Shy Guy
-04. Shabba Ranks, Chevelle Franklyn - Mr. Loverman (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 03:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB70125E5C66ACEF9EF188D365D7C51AC3AB6952
 ```
 
 https://mybot314.ru/tekegram_catalog/

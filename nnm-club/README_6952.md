@@ -1,25 +1,25 @@
-###  Публикация: 1390622   (782683) от 16.06.2020
+###  Публикация: 1204633   (784687) от 06.02.2018
 
-VA - Black Hole Trance Music 06-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
+VA - Open House Records Presents Vocal Sessions (2018) [MP3|320 Kbps] <House, Vocal House, Future House>
 
->>
->>
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_782683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cosmic Gate - Universal Love (Extended Mix) 07:50
-02. Craig Connelly & Tara Louise - Time Machine (Extended Mix) 08:04
-03. JES - We Belong To The Night (Giuseppe Ottaviani Extended Remix) 06:08
-04. Lange - Spyral (Extended Mix) 07:19(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:46:30
+01.  Aaron North  -  Boy Wunda (Original Mix)  5:47
+02.  Anto  -  Cloud 9 (Original Mix)  5:20
+03.  Base Tempo  -  Don't Let Go (Original Mix)  5:12
+04.  Connor Drew  -  You & Me (Original Mix)  5:36(   Читать дальше...   )Жанр: House, Vocal House, Future HouseПродолжительность: 01:38:16
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CADCE4215343DD31916E9F78C7695C2B5B0FE583
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390660   (782682) от 16.06.2020
+###  Публикация: 1204657   (784686) от 06.02.2018
 
-VA - Music for You vol.6 (2020) [MP3|320 Kbps] <Rock, Metal, Progressive Metal>
+The Essence - Its All About Music (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 
->>
->>
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_782682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anathema - Beginning And The End (04:54)
- 02. Andy James -The Wind That Shakes the Heart (04:24)
- 03. Caligula's Horse - Firelight (04:39)
- 04. Caligula's Horse -Turntail (05:03)(   Читать дальше...   )Жанр: Rock, Metal, Progressive MetalПродолжительность: 02:30:11
+01. Love Can Save the Day 5:29
+ 02. Wonderland 5:19
+ 03. Aurora Borealis 4:17
+ 04. This World 4:29(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:18
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:3D9DBB478DA60305D2469FAFD9FE9B5E557BA453
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390512   (782681) от 16.06.2020
+###  Публикация: 1204597   (784685) от 06.02.2018
 
-А. Н. Щербань (общ. ред.) | Научная организация труда и управления (1965) [DJVU, PDF]
+VA - Work That Body Vol.2 (2018) [MP3|320 Kbps] <House>
 
->>
->>
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_782681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В настоящем сборнике помещены в сокращенном виде избранные работы по научной организации труда известных советских авторов П. М. Керженцева, А. К. Гастева, П. А. Попова, О. А. Ерманского и буржуазных специалистов, считающихся на Западе основоположниками научной организации труда и управления, Ф. У. Тейлора, Г. Эмерсона, Г. Черча и А. Файоля. Все эти работы не переиздавались (   Читать дальше...   )Жанр: История, политология, экономика, психология, социология, педагогикаФормат: DJVU, PDF
+01.  Andrey Exx feat. Diva Vocal & BSKF  -  Need To Feel Loved (Umid Remix)  7:54
+02.  BSKF  -  Up & Down (Original Mix)  5:01
+03.  DJ Wady & Yhago  -  Salvation (Simun Remix)  5:36
+04.  Masch + Yuko  -  My House (Original Mix)  6:49(   Читать дальше...   )Жанр: HouseПродолжительность: 02:26:10
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E2217138359548BB5C42EFE6DAABD64BCE514F99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390593   (782680) от 16.06.2020
+###  Публикация: 1204519   (784684) от 06.02.2018
 
-VA - Music News vol.20 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+Индия Найт | Моя жизнь на тарелке (2005) [MP3]
 
->>
->>
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_782680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Antew - Облака (02:54)
- 02. Anto - Where Did You Go (03:56)
- 03. ARCHI & Bary - Пару Строк (02:51)
- 04. Ary - Oh My God (03:45)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:31:08
+У Клары Хатт, героини современного городского романа "Моя жизнь на тарелке", есть все, что способна пожелать женщина: красота и независимость, хорошая работа и в меру ужасные дети, привлекательный и загадочный муж, и свора слегка безумных, но обаятельных родственников и подруг. И, тем не менее, ей явно чего-то недостает. В своей яркой дебютной книге Индия (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 03:56:54
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:AD906E0E88F0E80A33B42D7BB82E5D4D7B1B1CBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390562   (782679) от 16.06.2020
+###  Публикация: 1204182   (784683) от 06.02.2018
 
-Растровый клипарт - Elements Collage 75 [PNG, PSD, JPG]
+Л.В. Коновалова | Мораль и познание [Критика гносеологических основ современной буржуазной этики] (1975) [DJVU, PDF]
 
->>
->>
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_782679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 154x253-1646x1576
+Данная монография - одно из первых исследований в советской этической литературе, в котором подвергается анализу гносеологическая проблематика морали в целом. Большой и в значительной степени свежий материал, характеризующий состояние современной буржуазной этической мысли, подвергнут автором серьезному критическому осмыслению. Автор не ограничивается критикой буржуазных (   Читать дальше...   )Жанр: История, политология, этикаФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A0EEC2156F8CDEB99EA22CF87AAA3405160778EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390563   (782678) от 16.06.2020
+###  Публикация: 1204346   (784682) от 06.02.2018
 
-Растровый клипарт - Elements Collage 77 [PNG, PSD, JPG]
+Ф. Ф. Раскольников | Кронштадт и Питер в 1917 году (1925) [DJVU, PDF]
 
->>
->>
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_782678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 142x275-2862x2550
+Воспоминания Ф. Ф. Раскольникова (1882-1939), члена партии с 1910 года, героя Октября и гражданской войны, посвящены революционным событиям от Февраля до победы Великой Октябрьской социалистической революции в Петрограде, Москве и Кронштадте.Жанр: История, политология, экономикаФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0B2961ADA65B7232FF036C8AA4C3E2545F6FB1A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,83 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390633   (782677) от 16.06.2020
+###  Публикация: 1204588   (784681) от 06.02.2018
 
-Дарья Калинина | Виртуальная сыщица (2020) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настя – настоящий гений дедукции, она с легкостью щелкает самые сложные загадки виртуального клуба детективов и получает главный приз – возможность провести расследование реального дела. Вот только вместо инструкций и информации девушка находит свежий труп и привлекает к себе внимание опасного преступника. Хитроумный и изобретательный настолько, что полиция не может (   Читать дальше...   )Жанр: Иронические детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71037E00CA57613DE1BE94A5EEAB12AD596762F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390517   (782676) от 16.06.2020
-
-Серия Кубков NASCAR 2020. 12-й Этап. Хоумстед-Майами 400. Гонка / NASCAR Cup Series 2020. Round 12. Dixie Vodka 400. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-14 июня 2020 года. Хоумстед (штат Флорида, США).
-12-й Этап. Хоумстед-Майами 400 (Dixie Vodka 400)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD253C3CE169994824389E8028EFD1BDBDB83392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390522   (782675) от 16.06.2020
-
-VA - Beatport Techno: Electro Sound Pack #102 (2020) [MP3|320 Kbps] <Techno, EDM>
+VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.3 (2018) [MP3|320 Kbps] <Psy Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dan Rubell - Utopian Visions
-002. Dome & Der Holtz - Rhythm
-003. Gianni Serra - Dance With Me
-004. Sandro M. - Crazy Girl(   Читать дальше...   )Жанр: Techno, EDMПродолжительность: 11:52:54
+01. Orecch - Parallel Realities
+02. Shyisma - Technology
+03. Beyond Within - Deep Fields (chrizzlix remix)
+04. Filtron Essence - Universal Psychedelic(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 03:38:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:516144BC3A62F976BDB3110A8461636B3570FEDE
+magnet:?xt=urn:btih:8DE6EC83DE290F3013189C8067E9A8F05DACF48B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -247,25 +192,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390572   (782674) от 16.06.2020
+###  Публикация: 1203928   (784680) от 06.02.2018
 
-Растровый клипарт - Elements Collage 79 [PNG, PSD, JPG]
+А.И. Власов | В конфликте с реальностью [кризис внешнеполитической пропаганды США] (1972) [DJVU]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 181x622-3744x1062
+Автор, используя неизвестные советскому читателю материалы, рассматривает современные приемы пропаганды США на фоне наиболее распространенных империалистических теорий и доктрин антикоммунизма и антисоветизма. В работе рассматривается также механизм и аппарат внешней идеологической экспансии государственно-монополистического капитала США: Информационное агентство (   Читать дальше...   )Жанр: История, политология, экономика, психология, журналистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FCC1243F6B8000BDEF4B8E010C971A18E94900B
+magnet:?xt=urn:btih:1243FE3C1203940FAA5F5C5AC842C906264E0C01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,28 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390696   (782673) от 16.06.2020
+###  Публикация: 1204413   (784679) от 06.02.2018
 
-Johnny Cash - Johnny Cash At San Quentin (1969) [FLAC|Lossless|tracks + .cue] <Rock,  Country Rock, Folk>
+П. Боярский | Почему троцкизм вернулся к меньшевизму? (1928) [PDF]
 
->>Other Styles
->>Folk (Lossless)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Big River (1:56)
-02. I Still Miss Someone (1:52)
-03. Wreck Of The Old 97 (2:05)
-04. I Walk The Line (3:29)(   Читать дальше...   )Жанр: Rock,  Country Rock, FolkПродолжительность: 00:59:14
+Внутрипартийная жизнь последних двух лет отличается событиями, имеющими огромное значение для нашей партии. Группа виднейших членов партии, ее бывших вождей (Троцкий, Зиновьев, Каменев и др.), два года вели беспрерывную травлю партии, старались расшатать единство партии, не подчинялись никакой партийной дисциплине и не выполняли даже советской работы, на которую (   Читать дальше...   )Жанр: История, политология, экономика, документалистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9815A224C485AC5C83D7A49C5EC20D032BFE561
+magnet:?xt=urn:btih:AE004830E92420C6F1F28F28C6160718BE65BE2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,25 +244,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390577   (782672) от 16.06.2020
+###  Публикация: 1204409   (784678) от 06.02.2018
 
-Растровый клипарт - Fotolia - Chocolate Background [JPG]
+К. А. Попов (ред.) | Дискуссия 1923 года (1927) [DJVU]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шоколад с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3206x4809-6016x4016
+Для оценки общего хода внутрипартийного развития после 1917 г., для оценки, в частности, современных разногласий опыт дискуссии 1923 года имеет существенное значение. В выступлениях оппозиции 1923 года читатель найдёт в зародышевой, а подчас и в развёрнутой форме основные элементы тех положений, которые в 1926/27 гг. сплелись в отчётливый неоменьшевистский узор. (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A1513EC60B0D4C6AB1ACA7DD78107D46187D76B
+magnet:?xt=urn:btih:2E71803E6B5AE0B68621122322BB99CEBBFC029C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,26 +270,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390552   (782671) от 16.06.2020
+###  Публикация: 1204489   (784677) от 06.02.2018
 
-Софья Тимофеева | Бизнес на каблуках. Советы деловой женщины (2020) [EPUB]
+VA - Debauchery Lounge: Luxury Lounge Music For Bars And Clubs (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 
->>
->>
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_782671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Современные женщины могут, кажется, все. Они создают уют для семьи, творят, занимаются любимым хобби и предпринимательством. Отличительной чертой такого бизнеса является индивидуальность и уникальность. Как нет двух одинаковых рецептов борща, так и нет двух одинаковых женских компаний – всюду царит творческий подход.
-Обратной стороной медали является то, что многие (   Читать дальше...   )Жанр: Бизнес-планирование, Эффективность бизнесаФормат: EPUB
+01. NORone - No Matter
+02. Suchitra Lata - All The Way
+03. Big Prod Sounds - Bien Comme Ca
+04. Suchitra Lata - At The Bend(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:41:48
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0585E50CDB04A01C721BFE537B19D1542605A404
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -355,25 +299,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390651   (782670) от 16.06.2020
+###  Публикация: 1204542   (784676) от 06.02.2018
 
-Auslogics File Recovery 9.5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+VA - Chillout Resonance: Melodies Of Vagabond Chillout Music For Relaxation and Peace (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Auslogics File Recovery - легкая и эффективная в использовании программа, которая предназначена для восстановления случайно удаленных файлов, а также файлов утерянных из-за вирусов или системных сбоев.Язык интерфейса: Русский, Английский, другие
+01. Herman Albany - Foot Steps
+02. IV The Polymath - Organic
+03. Konstantin Klashtorni - One Hundred Ways
+04. NicD - Take A Ride(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50A89B737EAE27DE1246FB008CE556EC69248C1D
+magnet:?xt=urn:btih:E3F119A9D5E1CAFB8886C9D93104EAD7253E60B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -381,28 +328,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390621   (782669) от 16.06.2020
+###  Публикация: 1204639   (784675) от 06.02.2018
 
-VA - не Громкие новинки недели 71 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+VA - Love Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer feat. Roxanne Emery  -  Lullaby (Original Mix)  3:56
+02.  Aelyn  -  Water & Fire (Ruslan Radriges Extended Remix)  5:34
+03.  Frainbreeze feat. Vika  -  Better Day (Extended Mix)  5:47
+04.  LTN  -  Coconut Island (Extended Mix)  6:28(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1968271A92E1E76290E937C9D1D0338EBC8B9795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204362   (784674) от 06.02.2018
+
+Н. Корнатовский (ред.) | Кронштадтский мятеж: сборник статей, материалов и документов (1931) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784674.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике представлены воспоминания участников мартовских боев, они дают кусок живой жизни, отражают бытовые условия того времени, переживания бойцов во всей их обыденной непосредственности. Многое может быть понято из этих человеческих документов. Обстановка боев как-то оживает, легче «осязаешь» все свойства мятежников и героическую борьбу с ними. Восстанавливается (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4F2AF23475E9C8B7F196F58A647B551AAF4934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204530   (784673) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0013 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Nemiga - Метро (5:24)
-2. ТвояVina - Безумие (4:28)
-3. Хаким - Молчи (4:25)
-4. Сергей Пискун - Маски Сброшены (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:24
+01. Bonfeel Electro Band - Your Eyes ( 2014 )
+02. Jaco - Hey Operator ( Rum Version 2014 )
+03. Brand Image - Night Of Ecstasy ( 1984 )
+04. Images - Corps A Corps ( 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:52:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AC6D061AF9517F604EEF00FE96DCD079B7965CA
+magnet:?xt=urn:btih:26BBC04906458EAB9F5DE5B8C467CE05821D95AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -410,188 +412,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390672   (782668) от 16.06.2020
+###  Публикация: 1204537   (784672) от 06.02.2018
 
-StudioLine Photo Basic 4.2.55 [Multi]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782668.jpg" />
-</div>
-
-
-###  Подробнее
-
-StudioLine Photo Basic - редактор и менеджер цифровых фотографий и других графических изображений. Упорядочивает фотоархив и редактирует параметры фотографий. Имеет интегрированную функцию конвертера формата изображений, а также элементы графического редактора. Поддерживаются стандарт IPTC, читает и редактирует метаданные EXIF, поддержка RAW.Язык интерфейса: Английский, Немецкий и др. (русского нет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1322A78EBBBEDCB5C370B0BC1A550688EABF2908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390661   (782667) от 16.06.2020
-
-Trojan Killer 2.1.29 RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trojan Killer – представляет собой антивирусный сканер и инструмент, с помощью которого вы можете сканировать систему и очищать компьютер от угроз.Программа помогает защититься от киберугроз и сохранить данные в безопасности, независимо от типа компьютера и области его использования.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E45426FA6C2BE1BCA374E2B2A7DF7105F1015F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390635   (782666) от 16.06.2020
-
-Татьяна Чистова | Когда терпение лопнуло (2020) [FB2]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_782666.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Риты все прекрасно, и будет еще лучше. Любимый мужчина, стабильная работа в банке, интересные подруги. Впереди – светлые перспективы. Появилась возможность взять в ипотеку квартиру, на работе ее ждет повышение, да и с Игорем они вот-вот поженятся. И вдруг – все летит в тартарары! Оказалось, что любимый долгие годы лгал ей, и Рита в одночасье осталась без жилья. (   Читать дальше...   )Жанр: Остросюжетные любовные романы, Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390634   (782665) от 16.06.2020
-
-Агата Кристи | Пять поросят (2020) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782665.jpg" />
-</div>
-
-
-###  Подробнее
-
-К знаменитому сыщику Эркюлю Пуаро обращается молодая женщина по имени Карла, мать которой шестнадцать лет назад была осуждена за убийство собственного мужа. Ныне Карла собирается выйти замуж и опасается, что дела давно минувших лет могут разрушить ее личную жизнь. При этом она утверждает, что мать никогда не стала бы лгать ей. А та еще шестнадцать лет назад сказала, (   Читать дальше...   )Жанр: Классические детективы, Литература 20 векаПеревод: Сергей СамуйловФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256314D1C2A91DB7C1CAAE92F26013A8D7AF26BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390460   (782664) от 16.06.2020
-
-Возрождение Металлолома / Iron Resurrection (2016) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) [AD]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа о реконструкции автомобилей.
-Джо Мартин и его команда усердно работают, давая транспортным средствам еще один шанс в жизни.Телекомпания: США, Discovery Communications, Velocity ChannelЖанр: Документальный, автомобилиПеревод: Одноголосый профессиональныйПродолжительность: 00:44:00 каждая серияРеклама: Присутствует логотип с рекламой
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7BDB802A1D6085241C135499C128A4B200F2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390703   (782663) от 16.06.2020
-
-VA - CP OneHundred (2020) Counter Pulse [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZRK - Miskar (05:23)
- 02. Brothers Black - Puppet Master (05:56)
- 03. Advanced Human - CP100 (07:01)
- 04. Sandro Galli - Pulsating Phase (08:01)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC3D9E604932B2241970FF43FFF6CC3D66FF558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390523   (782662) от 16.06.2020
-
-VA - Suspended Dreams: Weekend Picks Deep House (2020) [MP3|320 Kbps] <Deep House>
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0015 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. I-Ly - Trip The Light Fantastic
-002. Gianni Serra - Dance With Me
-003. Gorgonoize - Tranquility (Original Mix)
-004. Green Pistaches - Cut It Out(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:59:21
+01. Twins - Tonight ( Long Version 1993 )
+02. Boris Zhivago - Sovjet D'Amour ( 2016 )
+03. George Aaron - Heaven ( L-Ectro Vox Mix 2008 )
+04. Etienne Tulet - Boy ( 1991 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:54:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:905D2C7DF5F830C6C82A120196423F436A3D8A02
+magnet:?xt=urn:btih:9F868466746452191D03E5BFB2284FF870EB6376
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,25 +441,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390639   (782661) от 16.06.2020
+###  Публикация: 1204529   (784671) от 06.02.2018
 
-Агата Кристи | Смерть лорда Эджвера (2020) [FB2]
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0012 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
 
->>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Американская актриса Джейн Уилкинсон уже давно не скрывала, что хотела бы расстаться со своим мужем, лордом Эджвером. Ведь у нее на примете был мужчина и познатнее, и побогаче… Поэтому, когда Эджвера нашли мертвым у него в кабинете, ни у кого не возникло сомнений в виновности Джейн. Тем более что некоторые обстоятельства указывали на ее прямое участие в смерти мужа. (   Читать дальше...   )Жанр: Классические детективы, Литература 20 векаПеревод: Марина ПавлычеваФормат: FB2
+01. Gentle Touch - The Fire Of Love ( 1986 )
+02. Nation In Blue - Dancing On My Own ( 2017 )
+03. Petr Kotvald - Big City Calling ( 1987 )
+04. Proxyon - The Shuttle ( 1993 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:59:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D0A57490F315E5B152088DCA0A713FACA6AB47B
+magnet:?xt=urn:btih:8DBDBFED3CC4B184F08477321F28FB2E579202AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,25 +470,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390699   (782660) от 16.06.2020
+###  Публикация: 1204546   (784670) от 06.02.2018
 
-Process Lasso 9.8.1.16 RePack (& Portable) by TryRooM [Ru/En]
+Газета | Наша кухня №2 (264) (февраль 2018) [PDF]
 
->>Архив торрентов
->>Архив Программ
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+«Наша кухня» - журнал о кулинарии. С его помощью можно запросто составить меню на каждый день и для праздничного стола, ведь в нём всё просто и доступно, так как основу каждого номера составляют проверенные читательские рецепты блюд с фотографиями. И тогда приготовление блюд превращается в удовольствие!Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3117E091F35610BBBC7D460B632B9524B6D4AEA8
+magnet:?xt=urn:btih:7DC5DBD2CC1F12E1CBFD8766646FDFA0FEAD67CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,25 +496,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390568   (782659) от 16.06.2020
+###  Публикация: 1204463   (784669) от 06.02.2018
 
-Швейцария / Switzerland (2019) WEBRip [H.264/2160p]
+Kai Engel - The Run (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Neoclassical>
 
->>Документалистика и Телепередачи
->>Релакс / Relax
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Видео с интервальной съёмкой в южной Швейцарии.Производство: ШвейцарияЖанр: Документальный, видовойРежиссер: Сэм ФеррараПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:57
+01. Seeker (4:37)
+ 02. Run (4:02)
+ 03. Harbor (4:00)
+ 04. Imminence (2:40)(   Читать дальше...   )Жанр: Ambient, IDM, NeoclassicalПродолжительность: 00:32:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:333E4F2CEB058AD334020DD87D8E4607B393CA25
+magnet:?xt=urn:btih:3E2C219137FB5D66E58E5F69E7AF7A5577460CD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,25 +525,196 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390549   (782658) от 16.06.2020
+###  Публикация: 1204540   (784668) от 06.02.2018
 
-Дмитрий Goblin Пучков, Кирилл Назаренко | Ледовый поход Балтийского флота. Кораблекрушение в море революции (2020) [EPUB]
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0016 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
 
->>Разное (категория книг)
->>Публицистика
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О деле капитана 1 ранга Алексея Михайловича Щастного до сих пор известно не так много. Оно пролежало в засекреченных архивах КГБ более 70 лет и обросло многочисленными мифами и слухами. Он был вознесен на вершины политической жизни России, прикоснулся к штурвалу государственного корабля и был от него отброшен. Он совершил несомненный подвиг, выведя Балтийский флот (   Читать дальше...   )Жанр: Отечественная история, ПублицистикаФормат: EPUB
+01. Baccara feat. Maria Mendiola & Cristina Sevilla - I Belong To Your Heart ( Ext. Version 2017 )
+02. Chip Chip - So Close To Heaven ( 1987 )
+03. Max Coveri - Guy Guy ( Full Power Version 2003 )
+04. Peter Wilson (3) - Love Into Action ( 2017 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:51:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31AB344ABD7115521683A61CEB84108164B95A7C
+magnet:?xt=urn:btih:177B4876F9E407816D2DDAA062270A8B7F02E82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204473   (784667) от 06.02.2018
+
+Kai Engel - caeli (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Neoclassical>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. aspirato (3:11)
+ 02. soli (3:19)
+ 03. coelum (2:35)
+ 04. visum (3:08)(   Читать дальше...   )Жанр: Ambient, IDM, NeoclassicalПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DDC5EC9D7B1FB80355A69655A8B0802066677E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204495   (784666) от 06.02.2018
+
+Журнал | Золотые рецепты наших читателей №3 (февраль 2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F94577E6CA9709019E74D41F1FEBAAD83AEDE51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204652   (784665) от 06.02.2018
+
+Behemoth - Amen (2017) Promo CD [MP3|320 Kbps] <Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludzie Wschodu (Siekiera-Cover)
+02. Chant For Ezkaton 2000 E.V. (2008 version)
+03. Qadosh
+04. Furor Divinus (Live)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6577BF58B6D787611819DD660EB1C2CB01D1AA30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204536   (784664) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0014 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ankie Bagger - Where Were You Last Night ( Remix 1989 )
+02. Diux - Comet ( 1986 )
+03. Synth Dimension - Way To New Start ( 2013 )
+04. Danielle Deneuve - Love Is Free ( 1984 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CDCE11E0B0E3B8B447C37B38E4E789D087DD19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204464   (784663) от 06.02.2018
+
+VA - Kontor Festival Sounds 2018 The Beginning (2018) 3CD [MP3|320 Kbps] <House, Trance Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784663.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Martin Garrix & Matisse & Sadko  -  Forever  3:38
+02.  Eastblock Bitches & Niels Van Gogh  -  Get Money  3:33
+03.  DubVision & Afrojack  -  New Memories  3:35(   Читать дальше...   )Жанр: House, Trance DanceПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405D09BA32D2B2479B108F8DE7012548CE9CDE0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204493   (784662) от 06.02.2018
+
+Журнал | Садовод и огородник №3 (февраль 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784662.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Только в «Садоводе и огороднике»: самые актуальные и полезные советы от ученых, а также проверенные толковые подсказки от садоводов-любителей. Журнал знакомит своих (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A246CCCEE550D432D6E0B465A1EEE683FDDA8BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

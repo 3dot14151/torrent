@@ -1,3 +1,206 @@
+###  Публикация: 1188865   (273520) от 03.12.2017
+
+Deuter, Parijat and Kamal - Spa Lounge (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273520.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Apres La Pluie (6:36)
+2.  Ruparahi (5:51)
+3.  Olive Grove (8:31)
+4.  Subandallah (9:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BD19A3F64D5E7D259F49E4B1B5C73FB9B3F589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083592   (273473) от 16.12.2016
+
+Михаил Костылев - 28 Панфиловцев (Оригинальная музыка к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пролог (00:54)
+02. То ли легенда то ли миф (08:29)
+03. Стоять намертво (15:02)
+04. Фашистская гидра (06:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8506B3631D55FE06318A1658CF89AEAC1D6B2AEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083415   (273472) от 16.12.2016
+
+Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны. Истории (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He's Here For Us (03:20)
+02. A Long Ride Ahead (03:56)
+03. Wobani Imperial Labor Camp (00:54)
+04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1087B4F94CF0A71134112FA3A4AA7FB521830C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431150   (273462) от 11.11.2019
+
+Kevin Kern - Enchanted Piano (2011) [APE|Lossless]<New Age ,Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kevin Kern - Enchanted Piano (2011)
+Год: 2011
+Жанр: New Age , Piano
+Продолжительность: 00:43:00(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44CC487DEC53CFF8EF2C0622E28DFF963D56E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 656570   (273449) от 11.11.2019
+
+Cris Velasco, Sascha Dikiciyan, Jesper Kyd, Raison Varner - Borderlands 2 Original Soundtrack (2012)[FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascent (4:17)
+02. Ash (1:48)
+03.  Caverns (2:21)
+04. Glacial (2:17)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D356C1E094685314CD9E5CAACCC41A0276009C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188811   (273345) от 03.12.2017
+
+VA - Forever Instrumental:  Accordion  (2005) [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biscaya
+02. A Night In Paris
+03. Flight On The Bumble Bee
+04. La Traviata(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 01:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF72320C1D3046A0C6F81A143DEB49CDACA5648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188510   (273340) от 03.12.2017
+
+Jerry Holland - Romantic Accordion (2001) [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be My Lover
+02. Malaika
+03. Romance
+04. St. Tropez(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6AB9C8AF7B4E8530864BFE28F7BCE930A0C835D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188849   (273236) от 03.12.2017
 
 ERA - The 7th Sword (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Ethereal>
@@ -537,209 +740,6 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:370CC4F6450DB22CD8AC4AD1F494475D8CDE2634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338042   (270549) от 14.11.2019
-
-Brian Tyler, VA - Charlie's Angels / Ангелы Чарли (Original Score + Original Soundtrack) (2019) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kash Doll - How It's Done (03:03)
-02. Ariana Grande - Bad To You (02:52)
-03. Ariana Grande feat. Miley Cyrus & Lana Del Rey - Don’t Call Me Angel (03:10)
-04. M-22 - Eyes Off You (03:23)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F304FD70E80068C93F2222FA629B0C6E31CD8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189127   (270349) от 06.12.2017
-
-Mike Lazarev - Unhinged (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unhinged (2:05)
- 02. Fragile (4:52)
- 03. Unplugged (2:00)
- 04. Shimmer (2:36)(   Читать дальше...   )Жанр: New Age, Piano Solo, Modern ClassicalПродолжительность: 00:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0523F7D3FFFA10D8147CA3B1D0C2158722A3DD41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188947   (270345) от 06.12.2017
-
-Johannes Linstead - Azul (2017) [FLAC|Lossless|tracks + .cue] <Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azul
-02. Cha Cha Chu
-03. Be My Girl
-04. Lazy Sunday(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B79584F19C0547920189B4F02DFBE0DAB7BD60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338175   (270223) от 14.11.2019
-
-Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Complete Score) (2019) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harald Kloser, Thomas Wander, Thomas Schobel - Prologue for Logos (00:48)
-02. Harald Kloser & Thomas Wander - Ridiculous Traditions (01:25)
-03. Harald Kloser, Thomas Wander, Thomas Schobel - Nobody Wants A War (02:30)
-04. Harald Kloser, Thomas Wander, Thomas Schobel - Arizona Attack (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835FE0E6F469072FA8ACA70F6290415F66AF8B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338384   (269852) от 15.11.2019
-
-VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Перезагрузка (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jay - Reboot (06:45)
-02. Q Lazzarus - Goodbye Horses (03:08)
-03. Jay - Out Of Order (07:54)
-04. Squirtgun - Social (03:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F7B220FAA51B573FD4D6CECB7AB59035C087A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338385   (269824) от 15.11.2019
-
-VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Перезагрузка (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jay - Reboot (06:45)
-02. Q Lazzarus - Goodbye Horses (03:08)
-03. Jay - Out Of Order (07:54)
-04. Squirtgun - Social (03:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD6D3F089E189B0B31957C12132C3B6BE1E4910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338061   (269822) от 15.11.2019
-
-Salon Orchester Da Capo - Grand Café (1998) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciao Ernesto Medley (4:18)
-02. Walspotpourri from "La Princesa De La Czarda" (5:54)
-03. Where Thine That Special Face (3:36)
-04. Meditation (5:01)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848AC25766D58A33EC8400328343EAE296E06AE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

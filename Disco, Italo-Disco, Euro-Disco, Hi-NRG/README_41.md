@@ -1,3 +1,61 @@
+###  Публикация: 1588268   (191809) от 03.11.2022
+
+Blue System - Body To Body (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body To Body (Radio Version)
+02. Only With You (Radio Version)
+03. For The Children
+04. It's For You(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5E3EB3180E1E2E63708624D9D789F985801400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588411   (191644) от 04.11.2022
+
+Blue System - X - Ten (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Mabuse
+02. If There Is A God In Heaven
+03. How Will I Know
+04. Goodnight Marielin(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0504CB6AABC0C3E6DDC292053F8FEC38CA974190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588383   (191643) от 04.11.2022
 
 Blue System - Forever Blue (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -686,64 +744,6 @@ C.C. Catch - Diamonds - Her Greatest Hits (1988) [OGG Vorbis|480 Kbps] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBF3C9796B3043EDF51E0FE78FA2A9561E35A77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591818   (185423) от 20.11.2022
-
-C.C. Catch - Star Collection - Back Seat Of Your Cadillac (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak Hotel
-02. 'Cause You Are Young
-03. I Can Lose My Heart Tonight
-04. Good Guys Only Win In Movies(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:774B650223DDA8B93F23CC245D561A0042801FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427284   (184462) от 27.11.2020
-
-Tala A.M. - Arabica (1978) Reissue LP, African Roadtrip, 2015 [MP3|320 Kbps] <Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabica  (4:38)
-02. Black Gold  (5:19)
-03. Sugar Lump  (6:04)
-04. I Know What You Want  (5:20)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 00:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91045AB66E9E6F862968817FB6F34B8EBB846436
 ```
 
 https://mybot314.ru/tekegram_catalog/

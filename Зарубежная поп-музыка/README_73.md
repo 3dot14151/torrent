@@ -1,3 +1,61 @@
+###  Публикация: 1585855   (219608) от 24.10.2022
+
+VA - Ballermann Fruehlingsalarm (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kreisligahelden - Heute wird der Helm lackiert
+02. Marry - Wir feiern den DJ
+03. Bierkapitдn - Schere Stein paar Bier (Schnick Schnack Schluck)
+04. Nancy Franck - Korken knallen(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:04:34 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99129056BFFA2C83714E01960F874C743C3C173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585870   (219565) от 24.10.2022
+
+VA - Ballermann: Die Mallorca Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tobee - Mallorca Kinder
+02. Ina Colada - Anna-Marie
+03. Nancy Franck - Korken knallen
+04. Kreisligahelden - Heute wird der Helm lackiert(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:06:06 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256A79790F8A26F3B0175037EFB57DA5E8FB538F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585856   (219559) от 24.10.2022
 
 VA - Ballermann Schlager Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
@@ -685,64 +743,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEA5810568E919632F37CA52B1D16D9F81C1340B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270180   (215220) от 17.12.2018
-
-Alan Walker - Different World (2018) Japanese Edition [MP3|320 Kbps] <Electronic, Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215220.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alan Walker - Intro
-2. Alan Walker & Sorana - Lost Control
-3. Alan Walker & Julie Bergan - I Don't Wanna Go
-4. Alan Walker, K-391 & Emelie Hollow - Lily(   Читать дальше...   )Жанр: Electronic, Dance, PopПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983EB964A1D0161292658E65CFBE7CAC4CC1AA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426256   (214794) от 24.11.2020
-
-VA - Love Pop Songs (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved (03:02)
- 02. Jovanotti - Baciami Ancora (04:41)
- 03. Ellie Goulding - How Long Will I Love You (02:29)
- 04. Lady Gaga - Million Reasons (03:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202D621927FC6F330B5650D7A72F147C2949A9FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

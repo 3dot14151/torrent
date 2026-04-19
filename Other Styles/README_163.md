@@ -1,3 +1,250 @@
+###  Публикация: 590274   (135397) от 23.12.2012
+
+Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135397.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:50)
+
+(1:30) 01. China Heart
+(4:39) 02. Snowy Mountain
+(6:27) 03. Chongsam
+(4:37) 04. Genghis
+(1:07) 05. Birdman
+(4:45) 06. Sparrows
+(6:01) 07. Mountain Mist
+(5:00) 08. Chungwu Concerto(   Читать дальше...   )Жанр: New Age, World, InstrumentalПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593148   (135296) от 23.12.2012
+
+VA - Shower Songs (2012) [FLAC|Lossless]<Classical Songs>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy Tahu Rhodes - Toreador Song [05:11]
+02. Bruce Martin - Impossible Dream [02:12]
+03. Connelli & Johnston - Climb Every Mountain [03:10]
+04. Winchester Cath Choir - Jerusalem [02:48]
+05. Idea of North - Amazing Grace [03:12]
+06. Bryn Terfel - Loch Lomond [03:59]
+07. Suzanne Erens - Don't Cry For Me Argentina [05:58]
+08. Mario del Monaco - Nessun Dorma [03:11]
+09. Louis Armstrong - Wonderful World [02:25]
+10. Ella Fitzgerald - I Gonna Wash That Man Right Out Of My Hair [03:04](   Читать дальше...   )Жанр: Classical SongsПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 398538   (135189) от 23.12.2012
+
+Helen Jane Long - 3 albums (2007-2012) [MP3|320 kbps]<Instrumental, Solo Piano, Neoclassical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intervention - 4:00
+02. Free - 2:44
+03. Willow - 3:25
+04. The Aviators - 4:46(   Читать дальше...   )Жанр: Instrumental, Solo Piano, NeoclassicalПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB50C20AB554DC32B23F80B621673481C1D8F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679659   (135183) от 26.11.2023
+
+Tantric Massage, Erotic Massage Music Ensemble - First Sexual Experience - New Age Music for Making Love (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Game (4:07)
+02. Wild Energy (4:08)
+03. Tantric Background Masters (3:48)
+04. First Experience (3:33)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5B014620C3D02477D356E96F72988179C758DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675424   (135121) от 26.11.2023
+
+James Last - дискография (1966-2011) [AAC, 320kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135121.jpg" />
+</div>
+
+
+###  Подробнее
+
+1968 Guitar A' GoGo (LP)
+1971 The James Last Album (LP)
+1975 Non Stop Dancing 20 (LP)
+1976 James Last (Джеймс Ласт) - Non Stop Dancing (Танцуем Без Перерыва) (LP)(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 160:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BBAE1480D11A41C04CF9DCDCB42E6736B68081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 202181   (134516) от 24.12.2012
+
+Гурт "Експрес" - 76 трекiв у форматi mp3 /6 альбомов/ (2008) [MP3|320 kbps]<Shanson, Folk, Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_134516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На веселой свадьбе (3:37)
+02. Мой муж муженек (3:00)
+03. Незабудки (3:30)
+04. Цыганские частушки (3:22)
+05. Улица широкая (3:21)
+06. Прощай (3:35)
+07. Люда (2:55)
+08. Морячка Соня (3:17)
+09. Фрейлекс (3:13)
+10. В шумном городе Одессе (3:19)(   Читать дальше...   )Жанр: Shanson, Folk, PopПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534140   (134346) от 24.12.2012
+
+Отбросы / Misfits [Season 1-4] (2009-2012) [MP3|128-320 Kb/s]<Unofficial Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Unofficial SoundtrackПродолжительность: 18:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D52A62A0980E165F1CA75D955D5A2095221FBAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680362   (134223) от 29.11.2023
+
+VA - The Orient Collective - Ruh Al-Sahra (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tommy Vibes - Celestial Chants (Original Mix) (6:36)
+02. Badshust, Vadim Manko - Green Light (Original Mix) (5:26)
+03. Juantxo Munoz, Robric - Delirio (Original Mix) (6:50)
+04. Arthaum - Sabhka (Original Mix) (7:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC0EE13583F8B95524739AC73C5AF405FB7C6A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594217   (133923) от 25.12.2012
 
 Terry Oldfield (Ft. Mike Oldfield) - Journey Into Space (2012) [FLAC|Lossless]<New Age, Relax>
@@ -549,238 +796,6 @@ TV Girl - Who Really Cares (2016) Digital Album[MP3|320 Kbps] <Hypnotic Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:754129F44F869F4BF97ADF95542CACB69DFFD15D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685855   (126967) от 20.12.2023
-
-Sex Music Zone - Bad Romance: Sexy Girl, Sensual Sounds for Erotic Massage (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Vibes (3:16)
-02. Heartbeat (3:33)
-03. Take Me Home (3:16)
-04. Obsessed (3:53)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62F3E34EA0DE1FF1C1B426F23E92D0A22163E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823889   (126113) от 12.10.2025
-
-VA - The Orient Collective: Desert Tones (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ildar Bik - Talika (5:49)
-02. Gabriel Slick - Searching (5:08)
-03. Inessa - Atacama (7:09)
-04. Tibetania - Orchard (5:43)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 02:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA81BF075B1E4AD45AEFA5D3BB0A5102A8BBEF35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687327   (125612) от 26.12.2023
-
-Leo Rojas - Best Of (2023) [FLAC|Lossless|WEB-DL|tracks] <Panflute, Native american, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Spirits
-02. Dusk
-03. Silver Moon
-04. Dreamcatcher(   Читать дальше...   )Жанр: Panflute, Native american, EthnicПродолжительность: 01:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB67818317638833F36525E4C928202AE167ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687950   (125322) от 28.12.2023
-
-Sambodhi Prem - Sunlight Rain River (1995) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timeless Light
-02. Sunlight Rain River
-03. Circle Within
-04. The Dance of Rain Declares the Sun(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88278A7544925CC7D710C16A620C3B515F89748B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688743   (125097) от 30.12.2023
-
-VA - Бременские музыканты (Официальный саундтрек к фильму) (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125097.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Георгий Табуркин/Юлия Пересильд - Серенада Трубадура. Детство
-2. Георгий Табуркин - Песня маме
-3. Влад Герман - Серенада Трубадура (15 лет)
-4. Сергей Бурунов/Валентина Ляпина - Дуэт Короля и Принцессы(   Читать дальше...   )Жанр: OSTПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23805BD425267F824AE6E9D5BB08BF1DE45C0BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689566   (124542) от 03.01.2024
-
-VA - House M.D. - Original Television Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massive Attack - Teardrop (Theme Song) 5:32
-02. Gomez - See The World 4:04
-03. Michael Penn - Walter Reed 3:41
-04. Elvis Costello - Beautiful 3:50(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37482F4440E88EE379BA08769242DDC748137A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689569   (124383) от 04.01.2024
-
-Kirill Pokrovsky - Music from the Divinity Universe (2004) Limited Edition Soundtrack [FLAC|Lossless|image + .cue] <Soundtrack, Neo-Classical, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Divinity - The Title Track 4:18
-02. After The Great War 2:09
-03. Divine Divinity - The Title Track 4:55
-04. Urge For Power 4:27(   Читать дальше...   )Жанр: Soundtrack, Neo-Classical, AmbientПродолжительность: 01:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712606B541A076AEC67A93ADC212D923AA0E4B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690064   (124182) от 05.01.2024
-
-Игорь Слуцкий - Царю Царей (2021) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время не ждет
-02. Ностальгия
-03. Вдохновение
-04. Пучина(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F526C3D6DAFBE9CFB5FC799B7154F483D70F50B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

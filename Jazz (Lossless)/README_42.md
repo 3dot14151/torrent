@@ -1,3 +1,32 @@
+###  Публикация: 1101274   (896219) от 06.02.2017
+
+Anna Maria Jopek & Gonzalo Rubalcaba - Minione (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twe Usta Kłamią
+02. Kogo Nasza Miłość Obchodzi
+03. Co Nam Zostało Z Tych Lat
+04. Nie Wierzę Ci(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37608595F64FEEF5E144146269155CF6774405EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993573   (896018) от 05.03.2016
 
 Open Sky Unit - Open Sky Unit (2002) [APE|Lossless|image + .cue] <Jazz>
@@ -716,35 +745,6 @@ VA - Blue Moods: New Voices New Directions (1996) Blue Note[FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:194EF900297E0ADA07D461C56702FA2857CA5F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102064   (893132) от 08.02.2017
-
-Stanley Turrentine - Do You Have Any Sugar? (1999) [APE|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Kepp On Keepin' On [05:02]
- 02.Do You Have Any Sugar [05:22]
- 03.Stuff You Gotta Watch [06:17]
- 04.For Too Litle Love [05:43](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79425A571D0299A2E223DD45BA6DFCAC68E8667
 ```
 
 https://mybot314.ru/tekegram_catalog/

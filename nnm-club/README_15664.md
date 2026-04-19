@@ -1,31 +1,52 @@
-###  Публикация: 559834   (406847) от 14.10.2012
+###  Публикация: 1168240   (410494) от 23.09.2017
 
-VA - D-скач 90-х Russian Dance Mix (2012) [MP3|256 кб/с]<Pop, Dance>
+С.Н. Гурбатов, О.В. Руденко (ред.) | Акустика в задачах (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Систематизированный сборник задач, охватывающий основные разделы классической и современной акустики. В рамках каждого раздела материал расположен в порядке возрастания степени сложности. Многие задачи снабжены комментариями, а наиболее сложные – развернутыми решениями, что позволяет использовать данное пособие для самостоятельной работы.
+Отражает опыт преподавания (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C6FAB1DE396D7AFB0F8425245236607B60B0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573692   (410493) от 01.09.2022
+
+VA - Future Nu Disco Classics Vol. 09 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Soulful House>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. MC Zali - Кайф (DFM Version)
- 002. Иванушки International - Тополиный пух (Андрей Харченко Remix)
- 003. Юра Шатунов - Розовый вечер (URAL DJS Dance Mix)
- 004. Саша Зверева (ex. Demo) - Солнышко (Free Djs Rework)
- 005. Дискотека Авария & Жанна Фриске - Малинки
- 006. Анжелика Варум - Зимняя вишня (URAL DJS Ritm Vers)
- 007. Руки Вверх - Студент (Free Dj's Rework)
- 008. Чай Вдвоем - А ты все ждешь
- 009. Shura - Don-don-don (DJ Fisun Remix)
- 010. Вирус - Счастье (Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:43:23
+01. Antonio Santana - Japan Smooth
+02. Truth Committee - Salsa Revolution
+03. Discotron, Sandy's Groove - Don't You Worry About Me
+04. Moonlight Breakfast - Look Up (Happy Gutenberg Remix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Soulful HouseПродолжительность: 02:28:30 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DFFCB696CD2E5D29768C433DDFA397F82F8F71F
+magnet:?xt=urn:btih:EE04B386B8E8071FC6DA3CCCD414842B6E6F02B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,140 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 559880   (406845) от 14.10.2012
+###  Публикация: 1573727   (410492) от 01.09.2022
 
-Halo 4 [XBOX360] [Region Free/Rus] [LT 3.0/XGD3/15574] (2012)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Halo 4 знаменует собой начало новой главы легендарного блокбастера, значительно повлиявшего на развитие игровой индустрии и сформировавшего взгляды целого поколения геймеров.
-
-Разработанная компанией 343 Industries специально для Xbox 360,Halo 4 объявляет о возращении главного героя саги, Мастера Чифа, в новом эпическом приключении.
-
-Через пять лет после событий Halo 3 Мастер Чиф и его соратник Искусственный Интеллект Кортана вступают в новый загадочный мир Halo 4, обнаруживая сильнейшее древнее зло, угрожающее уничтожением всему человечеству. Судьба мира висит на волоске, и Мастер Чиф вместе с Кортаной начинают отчаянную миссию спасения человечества от угрозы неминуемого исчезновения.
-
-В дополнение к насыщенной сюжетной истории, Halo 4 будет отличаться ошеломляющим режимом многопользовательской игры Halo Infinity Multiplayer, открывающем новые границы научно-фантастического сериала. Данный ресурс впитал в себя богатую историю совместного игрового режима Halo, но при этом использует инновационные технологии, (   Читать дальше...   )Тип издания: лицензияЖанр: ActionЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEBB58D6252BE2E3439B8F186DF34AD82B35938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560333   (406844) от 14.10.2012
-
-Adobe Flash Professional CS6 12.0.0.481 + Update 12.0.2.529 [MULTi / Русский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe® Flash® Professional CS6— это мощная среда для создания анимации и мультимедийного контента. Создавайте выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах.
-
-(   Читать дальше...   )Название программы: Adobe Flash Professional CS6Язык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 32115   (406841) от 14.10.2012
-
-Интерактивный туториал Photoshop Top Secret 1,2,3,4 DVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенно свеженький продукт от Mark Monciardini, Photoshop® Top Secret™ - прекрасный туториал, который учит Вас шаг за шагом , как создавать самые современные графические эффекты, используя Adobe® Photoshop®. Продукт будет понятен любому студенту =) В комплетк входит цветная галерея с начальным и конечным результатом различных работ каждого проекта на протяжении (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560268   (406840) от 14.10.2012
-
-Мадагаскар 1,2,3 / Madagascar 1,2,3 (2005,2008,2012) [720p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия замечательных, полюбившихся всем мультфильмов. Захватывающие приключения главных героев и секретные вездесущие агенты - пингвины из Мадагаскара не оставят зрителей равнодушными. Приятного просмотра.Производство: СШАЖанр: МультфильмРежиссер: Эрик Дарнелл, Том МакГрат, Конрад ВернонАктеры: Бен Стиллер, Крис Рок, Дэвид Швиммер, Джада Пинкетт Смит, Саша Барон Коэн, Седрик «Развлекатель», Энди Рихтер, Фрэнсис МакДорманд, Брайан Крэнстон, Мартин ШортПеревод: ДублированныйЯзык субтитров: Русский (х2), Украинский (х2), АнглийскийПродолжительность: 01:33:24 + 01:25:58 + 01:29:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21A1EBBEFACA1C5679AC314013D1BE3E8064221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414108   (406836) от 06.10.2020
-
-Kogai - Hagakure (2007) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
+Trial (swe) - Feed the Fire (2022) [MP3|320 Kbps] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Intro (The Art of Zen) 02:20
-2. The Sword of Vengeance 05:58
-3. Battousai 05:18
-4. Cherry Blossoms (In Inferno) 03:22(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:41:43
+01. Tria Prima (1:14)
+02. Sulphery (4:40)
+03. Thrice Great Path (4:49)
+04. In the Highest (5:15)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D10AF134B1269D2D8A38031ECB84BB15047B3244
+magnet:?xt=urn:btih:2D846F061541B785BDD430D4D2E1C9A8AAFCC9C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -174,144 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413881   (406835) от 06.10.2020
+###  Публикация: 1573671   (410491) от 01.09.2022
 
-Iron Angel - Emerald Eyes (2020) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Slaughter [00:04:22]
-02. Descend [00:04:05]
-03. Sands of Time [00:03:23]
-04. Demons [00:04:07](   Читать дальше...   )Жанр: Speed, Heavy, Thrash MetalПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829D05A4F1DEFBB4FE42201A8C67879660253FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414039   (406834) от 06.10.2020
-
-The Feather - ROOM (2020) [FLAC|Lossless|tracks + .cue] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer (3:29)
-02. Sister (3:53)
-03. Higher (3:30)
-04. Stay up (3:30)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E3192490F227A44DCD2F9D7BBB1F3D4A0F0BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413892   (406833) от 06.10.2020
-
-Tygers Of Pan Tang - Ambush (2012) Remastered Edition, 2020, Mighty Music [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keeping Me Alive [00:05:28]
-02. These Eyes [00:04:10]
-03. One of a Kind [00:04:15]
-04. Rock 'N' Roll Dream [00:04:08](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2EC5220FE986FE90FFA821B790A1FAB1B397F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413886   (406832) от 06.10.2020
-
-Denis A - DAR Sessions #53 (2020) [MP3|320 Kbps|WEB-DL|image + .cue] <Techno, Progressive House, Synth-Wave>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coloray - Gazing Eyes (5:57)
-02. Fairmont - Agony & Exstasy (4:27)
-03. BOg & GHEIST - Venere (Fideles Remix) (6:51)
-04. Re.you & Kado sh - Friendly Fire (Lehar Remix) (4:16)(   Читать дальше...   )Жанр: Techno, Progressive House, Synth-Wave, TribalПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E0581A14CE44DBF2C862E076A70D8FAE056D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413901   (406831) от 06.10.2020
-
-VA - The Key To Your Joy (2020) [MP3|320 Kbps] <R&B, Soul>
+VA - Re:Commended - Nu Disco Edition Vol. 17 (2022) CD, Compilation [MP3|320 Kbps] <Funky, Soulful, Nu Disco, Indie Dance>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Romderful - I Know
-002. Manny Cristo - Truth
-003. Murkage Dave - Every Country
-004. A.T.L.D.V. - Luv This Life Of Mine(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:02:37
+01. The Groove Orchestra - Pulp Fusion (Original Mix)
+02. Mike Chenery - London Bound (Original Mix)
+03. Furious George - Come on and Groove (Original Mix)
+04. Studio 21 - Destiny (Original Mix)(   Читать дальше...   )Жанр: Funky, Soulful, Nu Disco, Indie DanceПродолжительность: 01:46:49 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:070FE780B7688657E1338994CAD32399FFB7FFA0
+magnet:?xt=urn:btih:C04A3D3D88A3BFCA21BFEEA513C26ECE9BAC26EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,112 +112,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414034   (406830) от 06.10.2020
+###  Публикация: 1573732   (410490) от 01.09.2022
 
-Samarabalouf - NoNo Future (2020) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy.Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No future (3:42)
- 02. Esperanto (5:11)
- 03. La tarantella (4:26)
- 04. Ma vie (4:04)(   Читать дальше...   )Жанр: Swing, Gypsy.JazzПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158C00E4C245F839598C38F96E9AD23667B986D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414132   (406829) от 06.10.2020
-
-Yusuf / Cat Stevens - Tea for the Tillerman² (2020) [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Do The Children Play? (4:09)
-02. Hard Headed Woman 3:32
-03. Wild World 3:47
-04. Sad Lisa 3:58(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8192669AE7DE3C87E12DFD8F8F558DBB2466CE74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414000   (406828) от 06.10.2020
-
-Louis Armstrong - Big Bands, Vol.1 (1930 - 1931) 1988, JSP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Sweet [3:20]
-02. I Can't Believe That You're in Love with Me [3:08]
-03. Indian Cradle Song [3:01]
-04. Exactly Like You [3:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3F5343066BFA55F53A4FEE56FAA3DD0AC580AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413531   (406826) от 06.10.2020
-
-Теща анархиста / Anarkistens svigermor (1906) DVDRip
+Эрнст Любич. Мейер из Берлина / Meyer aus Berlin (1919) WEBRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Непритязательная комедия из серии "анекдоты про тещу", снятая пионером датского кинематографа Вигго Ларсеном.Производство: Дания, Nordisk FilmЖанр: Комедия, короткометражный, немое киноРежиссер: Вигго ЛарсенАктеры: Вигго Ларсен, Маргарете ЕсперсенЯзык озвучки: НемойСубтитры: ОтсутствуютПродолжительность: 00:04:10
+Берлинец Салли Мейер, бабник и хитрец, уговаривает своего доктора убедить жену в том, что он болен и ему необходим отпуск на природе, где он на самом деле собирается развлекаться с другими женщинами. Мейер отправляется в Баварские Альпы, где встречает Китти, молодую привлекательную женщину, взявшую такой же отпуск от своего мужа...Производство: Германия, Projektions-AG Union (PAGU)Жанр: Комедия, немое киноРежиссер: Эрнст ЛюбичАктеры: Эрнст Любич, Этель Орфф, Хайнц Ландсманн, Труде Тролл, Осси Освальда, Эрих ШёнфельдерПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские встроенные отключаемыеПродолжительность: 00:58:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8202FF0683137EA9D88100678258E71C1D54A44
+magnet:?xt=urn:btih:334B1EFDF1AF326A681BD2C27B5242D20B3BBCDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,25 +138,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413986   (406825) от 06.10.2020
+###  Публикация: 1573606   (410488) от 01.09.2022
 
-MediaHuman YouTube Downloader 3.9.9.46 (0510) RePack (& Portable) by Dodakaedr [Ru/En]
+Color UI 2.2.5 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MediaHuman YouTube Downloader - удобное приложение с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер с YouTube, и сохранить его на ПК в любом доступном формате. Достаточно добавить ссылку на ролик, выбрать качество скачиваемого видео, указать необходимый формат и начать загрузку. Кроме того программа может отслеживать буфер обмена, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Color UI — это приложение для изучения ярких цветов и преобразования их в различные форматы. Специально для нужд дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2016–2022 IXEAUПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A84BB6A2E287B36802E720CEC5596F128677472E
+magnet:?xt=urn:btih:CFBB3EC925ABDB45BF74148D050C8D85EE0D5D56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,25 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413967   (406824) от 06.10.2020
+###  Публикация: 1573595   (410486) от 01.09.2022
 
-K-Lite Codec Pack Update 15.7.6 [En]
+PhotosRevive 2.0.7 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+PhotosRevive автоматически раскрашивает ваши старые черно-белые фотографии. Приложение использует революционный искусственный интеллект, который добавит цвета ультра-реалистичным способом. Приложение очень простое в использовании. Сканируй или импортируй свою фотографию и все. Приложение раскрасит его без каких-либо усилий с вашей стороны.Тип издания: macOS SoftwareРелиз состоялся: 09.08.2022Разработчик: © 2021 NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBFC841EB2B29824AEEE2012217D0677DB7B84EC
+magnet:?xt=urn:btih:1AFBE66C479C0AC0ACE891EC86D4B1862AF45DFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,25 +190,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413822   (406823) от 06.10.2020
+###  Публикация: 1573715   (410485) от 01.09.2022
 
-Ирина Иловайская (под ред.) | Иисус Христос и Божий план нашего спасения. Краткий Христианский Катехизис (не указан) [PDF, DJVU]
+Novelists FR - Déjà Vu (2022) [MP3|320 Kbps] <Post-Hardcore, Alt. Metal, Electronic>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждому, кто держит в руках эту книжечку, мы предлагаем свою дружбу, с молитвой к Пречистой Богородице; пусть слова, напечатанные на этих страницах, ярко передадут им чудесную красоту Божией любви.Жанр: Основы христианской верыФормат: PDF, DJVU
+01. Smoke Signals (3:34)
+02. Mae (1:45)
+03. Heretic (feat. LANDMVRKS) (3:22)
+04. Colas (2:21)(   Читать дальше...   )Жанр: Post-Hardcore, Alt. Metal, ElectronicПродолжительность: 00:34:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A7BEB3B802AE904FCF4967B41A1663C8352D26D
+magnet:?xt=urn:btih:FAC67270936D4CBD5247507FDD9E46897EDEAA14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,26 +219,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413866   (406821) от 06.10.2020
+###  Публикация: 1573663   (410484) от 01.09.2022
 
-CherryPlayer 3.1.6 + Portable [Multi/Ru]
+Tony Carey - Room With A View (1988) [OGG Vorbis|485 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Room With A View (Long Version)  4:59
+02. Reprise	(11:14)Жанр: RockПродолжительность: 00:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71F03B9D58513DC9F4FE66C78B7698C6D9622AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573456   (410483) от 01.09.2022
+
+Soft Machine - Bundles (1975) Remastered And Expanded Edition, 2022, 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Canterbury Scene>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bundles (Live, Nottingham University, 1975 2022 Remaster) [00:03:27]
+02. Land Of The Bag Snake (Live, Nottingham University, 1975 2022 Remaster) [00:04:00]
+03. Out Of Season (Live, Nottingham University, 1975 2022 Remaster) [00:06:14]
+04. The Man Who Waved At Trains (Live, Nottingham University, 1975 2022 Remaster) [00:06:02](   Читать дальше...   )Жанр: Progressive Rock, Canterbury SceneПродолжительность: 2CD, 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B04B30268AA6EAE001EEC703023F3846768E332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573581   (410482) от 01.09.2022
+
+Cisdem Duplicate Finder 6.0.0 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CherryPlayer - уникальный проигрыватель аудио -, видеофайлов всех популярных форматов с возможностью прослушивания и просмотра контента прямо из Интернета. Особенно удобен этот проигрыватель для таких ресурсов как ВКонтакте , Last.fm, YouTube, BBC, BillBoard, т.к. тесно интегрирован с ними и их огромными архивами.
-Кроме того, это приложение поможет загрузить понравившийся (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Cisdem Duplicate Finder - поиск дубликатов и их удаление, что позволяет восстанавливать свободное место на жестком диске. Cisdem DuplicateFinder легкое и ориентированное на пользователя приложение, которое обеспечивает необходимые инструменты и функции для поиска и удаления дубликатов файлов с жесткого диска.
+После того как папки для поиска будут выбраны, Вы сможете (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.08.2022Разработчик: © 2022 Cisdem Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00F7149A6A92EEBA4DD720BDFE6B931E17722BC3
+magnet:?xt=urn:btih:15997E445A5FC42D66D2892987D7C2C353AC0FBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,25 +302,220 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413893   (406820) от 06.10.2020
+###  Публикация: 1573747   (410481) от 01.09.2022
 
-Национальное первенство Великобритании по супербайку 2020. Донингтон Парк, Гонка 1-3 / British Superbike Championship. Donington Park GP, Race 1-3 (2020) WEB-DL [H.264/720p-LQ]
+MWeb Pro 4.3.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410481.jpg" />
+</div>
+
+
+###  Подробнее
+
+MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
+MWeb поддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop, вставку изображения и др. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2021 CoderForArt IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C369769A02F608643DD65A4996B17E1204ADBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573568   (410480) от 01.09.2022
+
+Сергей Лазарев | Диагностика кармы (Книга 10). Продолжение диалога 2005-2007 (2022) [MP3, Сергей Лазарев]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410480.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своих книгах я рассказываю о попытках познать в себе Божественное. Я пытаюсь затрагивать и те области, где являюсь дилетантом, но, осознавая это, я все-таки буду продолжать эти попытки. Надеюсь, что дальнейшее развитие приведет меня к правильному пониманию. И потому все написанное мною лучше воспринимать не как конкретные советы, а как рассказ о моем личном опыте. (   Читать дальше...   )Жанр: Психология, эзотерикаПродолжительность: 18:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F225B3332B501B5329FBC2EFCD8A6765C39EAE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573589   (410479) от 01.09.2022
+
+Concerto Moon - Tears Of Messiah (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light In The Shadow 04:28
+02. Noah’s Ark 04:35
+03. Tears Of Messiah 04:48
+04. Lift My Life 03:47(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890CF6F059E8AC535F584EDAAE98401C9B079A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573724   (410478) от 01.09.2022
+
+Aeternam - Heir of the Rising Sun (2022) [MP3|320 Kbps] <Symphonic Melodic Death Metal, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osman's Dream
+02. Beneath The Nightfall
+03. Irene
+04. Nova Roma(   Читать дальше...   )Жанр: Symphonic Melodic Death Metal, FolkПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4253BAEBA14ABC1F3FDC5683165A1DE64CE99010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573524   (410477) от 01.09.2022
+
+Machine Head - ØF KINGDØM AND CRØWN & Bonus Tracks (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Groove, Thrash Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exterøceptiøn (4:46)
+02. Arrøws In Wørds Frøm The Sky (Acoustic) (5:54)Жанр: Groove, Thrash Metal, Nu-MetalПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B7C3125FC26D9098C17F51DDD2181A17AA4155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573610   (410476) от 01.09.2022
+
+Jettison 1.8.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jettison - размонтирование внешних дисков перед сном Mac. macOS X имеет свою философию и некоторые вещи в системе происходят несколько иначе, чем в других ОС. К этому можно просто привыкнуть, но можно и упростить себе жизнь используя простые утилиты или приложения.
+«Думаю, всем знакомы надоедливые системные баннеры с уведомлением о том, что один из ваших дисков был (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887AEA8B743E4710ED3773DE8D8EA5617E67B626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573604   (410475) от 01.09.2022
+
+Teen Suicide - honeybee table at the butterfly feast (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Rock, Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. you were my star [00:01:01]
+02. death wish [00:02:44]
+03. get high, breathe underwater (#3) [00:03:51]
+04. unwanted houseguest [00:03:33](   Читать дальше...   )Жанр: Pop, Rock, Alternative & IndieПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A5B36E06763CC7093FC9106AA00FB26327ECF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 831928   (410472) от 19.10.2014
+
+Гражданская оборона. Выпуск 8 (2014.10.14) SATRip [RUS/UKR]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bennetts British Superbike Championship — ведущий чемпионат по шоссейным кольцевым мотогонкам в Великобритании, он также широко известен в мире, как ведущая серия гонок среди отечественных, английских супербайков.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:26:41 + 57:56 + 48:18
+Несколько месяцев назад жизнь украинцев кардинально изменилась – мы ежедневно следим за тем, что происходит на Востоке Украины, в наш словесный оборот устойчиво вошли определенные военные и политические термины. Однако достаточно ли знают украинцы о том, что читают, говорят и думают? Военные и политические тайны, которые, так или иначе, касаются Украины, неизвестные до сих пор исторические факты и события настоящего раскроет зрителям информационно-публицистическая программа «Гражданская оборона».
+Скрытая война, (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:50:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E899FD8CE0895EC8B705FF7E0563467A498BC705
+magnet:?xt=urn:btih:600EB3FE0AB430915CC1B8BCE069EF30CA56FE21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,28 +523,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414122   (406819) от 06.10.2020
+###  Публикация: 832631   (410454) от 19.10.2014
 
-Simon Le Grec - 25 Years Anniversary (Unique Music) (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient Dub, Lounge, House, Downtempo>
+Журнал | Тайны ХХ века [Украина] №41 (октябрь 2014) [PDF]
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Is It Love (Radio Mix) (4:17)
- 02. About Us (Radio Mix) (4:32)
- 03. Blue Planet (Radio Mix) (3:35)
- 04. Feelings (Piano Mix) (5:30)(   Читать дальше...   )Жанр: Electronic, Ambient Dub, Lounge, House, DowntempoПродолжительность: 02:46:51
+Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4865F253A1809AFF9AF07683ACCB2A5985B17EF8
+magnet:?xt=urn:btih:C0328ED4CEEE49A4EE3E97C023AF5CA8B37B21F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,54 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413917   (406818) от 06.10.2020
+###  Публикация: 559291   (410453) от 12.10.2012
 
-Серия Кубков NASCAR 2020. Плей-офф. 31-й Этап. Талладега. Гонка / NASCAR Cup Series 2020. Playoffs. Round 31. YellaWood 500. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
-04 октября 2020 года. Линкольн (штат Алабама, США).
-31-й Этап. Талладега (YellaWood 500)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B73AAF5AF3137C133E8EF582796A21ACEEB243A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414098   (406817) от 06.10.2020
-
-Telegram Desktop 2.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+Women Wallpaper (12.10.12) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и другие
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 8800х5848
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD75144746B4E024A2503E11BEF6395F8E06B400
+magnet:?xt=urn:btih:9BA4F7102090C8AC49C3E07B9924D2076F559BB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,54 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413920   (406816) от 06.10.2020
+###  Публикация: 559262   (410452) от 12.10.2012
 
-Английская Премьер-лига 2020/2021. 4й тур. Астон Вилла - Ливерпуль (04.10.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английская Премьер-лига 2020/2021. 4й тур. Астон Вилла - Ливерпуль (04.10.2020)
-Стадион: Вилла Парк (Бирмингем, Англия), вместимость: 42788
-Главный судья: Мартин Аткинсон (Лидс, Вест-Йоркшир, Англия); Ассистент: Константин Хатцидакис (Англия); Ассистент: Ричард Уэст (Ист-Райдинг-оф-Йоркшир, Англия); Резервный: Дэвид Кут (Западный Йоркшир, Англия)Телекомпания: Setanta SportЖанр: Спорт, ФутболЯзык озвучки: Русский  (Иван Громиков)Субтитры: отсутствуютПродолжительность: 01:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA562D363FC438CE299732393A05A763FBD01ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414110   (406815) от 06.10.2020
-
-HiBit Uninstaller 2.5.40 RePack (& Portable) by elchupacabra [Multi/Ru]
+Hot Girls Wallpapers (11.10.12) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HiBit Uninstaller - идеальное решение для удаления программ Windows, которое позволяет вам деинсталлировать программы быстро и полностью, используя простой и дружественный к пользователю интерфейс. Так же, в программе имеется множество средств для очистки и управления вашей системой.
-Удобной функцией в HiBit Uninstaller является удаления программ посредством менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Обои для рабочего столаРазрешение файлов: 1280х1024 - 3280х2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:115C7DA4319296F5AB6B4A5E5DDD67082B69BEFF
+magnet:?xt=urn:btih:6DAE985D85E07600D5578F3330169F6BE0A3A894
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,28 +601,103 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413928   (406814) от 06.10.2020
+###  Публикация: 559278   (410451) от 12.10.2012
 
-Футбол. Кубок Английской футбольной лиги 2020-2021. 1/16 финала. Лестер Сити — Арсенал (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Nature Wallpapers (12.10.12) [Wallpapers]
 
->>Спорт и активный отдых
->>Футбол
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кубок Английской футбольной лиги 2020-2021
-23 сентября 2020, среда. 21:45 МСК
-1/16 финала
-Лестер Сити (Лестер) — Арсенал (Лондон)(   Читать дальше...   )Телекомпания: Матч! ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:39:55
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B39798C9516DBE7C30C21FA6C5884FE621B0CAB9
+magnet:?xt=urn:btih:09E57343B48E9E6F12E6565AD3651EAC348F432E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559304   (410450) от 12.10.2012
+
+Журнал | Мебель info №№4, 9 [апрель, сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание о cовременных стилях и направлениях дизайна интерьеров, о новинках и модных тенденциях динамично растущей строительной и интерьерной индустрии, о рынке мебели, отделочных материалов и элементах декора, а также реализованные проекты дизайнеров и архитекторов, которые делают нашу жизнь уютной, комфортной и функциональной.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF6A90785707F7AD4E2586CEE93A872D485D477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559255   (410449) от 12.10.2012
+
+HQ Wallpapers Perfect Women (11.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF20021A31B0F3236212F1928C90909F7560317B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559290   (410447) от 12.10.2012
+
+Hot Girls Wallpapers (12.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 5440х4080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55E531EF46B9681DFE08F38648A1DECAE7FE95B
 ```
 
 https://mybot314.ru/tekegram_catalog/

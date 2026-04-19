@@ -1,3 +1,29 @@
+###  Публикация: 177619   (926199) от 24.02.2010
+
+Испанская Гитара - Лучшие Хиты 2CD - VA - Spanish Guitar Best Hits Vol.2 (2001) [MP3|320 kbps] <World, Flamenco, Salsa>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: World, Flamenco, SalsaПродолжительность: 02:31:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095834   (922463) от 22.01.2017
 
 VA - Goodness & Grace: New Age Music (2017) [MP3|320 Kbps] <New Age, Relax, Meditation>
@@ -713,35 +739,6 @@ VA - Deep Meditation 50 Tracks - Healing Sounds of Nature (2016) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A60F6EED5AEA299E7AFBB2CE58F623EFD697CB59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106297   (873368) от 19.02.2017
-
-VA - Empire Records - New Age 2 (2017) [MP3|320 Kbps] <New Age, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Eliyahu - Journey (Mehmet Gulec Remix)
-02. Valefim Planet - Lotus Blossom (Original Mix)
-03. Nina Kraljic - Lighthouse (Eurovision Song Contest 2016 Croatia)
-04. Down Under - Guess(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A7EF46C63CE22E2E84733F78685F179D2DDD527
 ```
 
 https://mybot314.ru/tekegram_catalog/

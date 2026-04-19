@@ -1,3 +1,61 @@
+###  Публикация: 1646505   (232138) от 14.07.2023
+
+Cher - It's a Man's World (1995) Deluxe Edition, Remaster, 2023, Warner Records [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Walking in Memphis (2023 Remaster) [00:03:55]
+02 - Not Enough Love in the World (2023 Remaster) [00:04:21]
+03 - One by One (2023 Remaster) [00:05:02]
+04 - I Wouldn't Treat a Dog (The Way You Treated Me) (2023 Remaster) [00:03:34](   Читать дальше...   )Жанр: PopПродолжительность: 02:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5969663C3083AF60BD52317E90201A4B83B38B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637087   (231028) от 02.06.2023
+
+VA - 80's Super Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Cut a Long Story Short - Gary Kemp
+02 - Love Changes (Everything) - Dennis Morgan
+03 - Forever Young - Bernhard Lloyd
+04 - Some Guys Have All the Luck (2008 Version)Жанр: Pop, Rock, RnBПродолжительность: 03:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770CB8DB5982CA2EEEEF5A43683833B34ED587EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268230   (230009) от 09.12.2018
 
 VA - Der deutsche Schlager Winter (2018) [MP3|320 Kbps] <Pop, Schlager>
@@ -713,64 +771,6 @@ Sarah Connor - Bounce (2004) [OGG Vorbis|480 Kbps] <Europop, Hip Hop, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73077E07E83D5BF571CA2FC4973B09DFBAE38D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584788   (224535) от 19.10.2022
-
-Belinda Carlisle - A Place On Earth · The Greatest Hits (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Is A Place On Earth
-02. I Get Weak
-03. Circle In The Sand
-04. Leave A Light On(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714980479131A990B04E7126E96E6AB8E4C8CD07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584849   (224514) от 19.10.2022
-
-Selena Gomez - Revival (2015) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival
-02. Kill'em With Kindness
-03. Hands To Myself
-04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D82959A2E28A82A626E587936842D95A75514F
 ```
 
 https://mybot314.ru/tekegram_catalog/

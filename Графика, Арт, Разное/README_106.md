@@ -1,3 +1,29 @@
+###  Публикация: 567189   (395910) от 30.10.2012
+
+[Рисованая графика] Artworks by Henning Ludvingsen
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровой Art от художника Henning Ludvingsen.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144D192768C43614AFC8A0F0454564DAD003EC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567862   (395898) от 30.10.2012
 
 [Wallpapers] Обои на тему "ПРИРОДА" [1024 х 768 -2048 х 1536] 2012
@@ -710,32 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60221F043CF8AE1204CBB18951134F50167C3109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570257   (390845) от 04.11.2012
-
-Вампиры, ангелы, демоны (04.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D91BB0BFA74D0DF73AA9E4CD85F8E3C38FB8F22
 ```
 
 https://mybot314.ru/tekegram_catalog/

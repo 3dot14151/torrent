@@ -1,170 +1,25 @@
-###  Публикация: 1080718   (288601) от 07.12.2016
+###  Публикация: 1334677   (293373) от 30.10.2019
 
-VA - The Sound Of - Meridian (2016) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meridian – Emphase (original mix) (08:12)
-02. Meridian – Postive Zero (original mix) (07:49)
-03. Solis – Believe Me (Meridian remix) (08:05)
-04. Meridian – Shifter (original mix) (09:22)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEB75B7BD2185353E144EE985D0A666E8DD2C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080492   (288600) от 07.12.2016
-
-VA - Muschel House Lounge Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lee & Sun - Underwater (03:44)
-02. Los Surfistas Gigantes - Todo Todos (04:18)
-03. Chriss De Vynal - Take Me Back to the Music (07:16)
-04. John Soultek - Let the Music Talk (07:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5828CA5E1BE9CE2CB30A6D8D85E1AC5E0B8CB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080601   (288599) от 07.12.2016
-
-VA - Mountain Sound The Lounge Of Davos (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Echo of Koenigssee - Entirely Retrospective 6:05
-02. Soda Lounge - The Love We Share (Radio Edit) 3:37
-03. Dr. Diver - Landing 5:59
-04. Lounge Hours - Hawaii Wind (Radio Edit) 4:31(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 03:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F5CA7F8FB809F6634631A937558727C86991DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080820   (288598) от 07.12.2016
-
-VA - Bring Your Soul Back Vol. 1 - Chill Out Selection (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Out of the Wilderness (03:16)
-02. Dangaa - Flight of the Eagle (06:22)
-03. Skydiver - China in Africa (03:19)
-04. Father - Beaches (07:49)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18D1B173998EF94789AE052DCABAA1786C84952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080471   (288597) от 07.12.2016
-
-VA - 25x Ibiza Chillout Attack, Vol. 15 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulful-Cafe - Drift Me to the Red Planet (03:13)
-02. Bahia de Roses - Future No Future (02:45)
-03. Soulful-Cafe feat. Monday Midnite - I Got the Drive (02:42)
-04. Bahia de Roses - Enjoy Now (03:41)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADE15776C88C284AB0F645B3E55E42D38872A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080586   (288596) от 07.12.2016
-
-Wynton Marsalis Septet - Blue Interlude (1992) Columbia[FLAC|Lossless|tracks + .cue] <Post-Bop>
+Silent Way - Standby - (B&P Production) (1996) [FLAC|Lossless|tracks + .cue] <Fusion, Cool Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Brother Veal [03:24]
- 02.Monologue For Sugar Cane And Sweetie Pie [05:56]
- 03.Blue Interlude (The Bittersweet Saga Of Sugar Cane And Sweetie Pie) [37:15]
- 04.And The Band Played On [05:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:29
+01. P.S. (08:23)
+02. Standby (11:23)
+03. September (08:49)
+04. Pearls (07:46)(   Читать дальше...   )Жанр: Fusion, Cool JazzПродолжительность: 00:46:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:340CA1E1F1C64D124E17D33CEF67252C30F335DA
+magnet:?xt=urn:btih:46BDFC676965EF96DB65C0579EC6AC1FAB321F4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,86 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080488   (288595) от 07.12.2016
+###  Публикация: 1334620   (293372) от 30.10.2019
 
-VA - Winterzauber Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aida Moniz - Les etoiles au dessus de la tour Eiffel (03:47)
-02. John Soultek - Let the Music Talk (07:06)
-03. Han Tronic - Tea del Mar (06:03)
-04. Ku You - Sandhand (05:04)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683BBA2EC49B052229BB473526AB88D87B7F4CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080816   (288594) от 07.12.2016
-
-VA - Fashion Calling Chillout (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Count the Clouds (05:39)
-02. Enrico Donner - Quote of the Day (05:46)
-03. Zero Feedback - Deep in the Rain Forest (06:35)
-04. Cane Garden Quartet - 2 Steps to the Sun (05:43)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563F2BE5331E47D3B01616B04A3B7F3408D712B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080480   (288593) от 07.12.2016
-
-VA - Uplifting Trance Essentials Vol.13 (2016) [MP3|320 Kbps] <Trance>
+A Better Finder Rename 11 v11.03 [Multi]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Astral Wanderer - Beauty Of Nature (Original Mix) 6:14
-02. Carl Daylim - Heaven (Original Mix) 7:49
-03. Delta IV - See You Again (Original Mix) 6:37
-04. Raphael Mayers - Inside Your Mind (Original Mix) 7:04(   Читать дальше...   )Жанр: TranceПродолжительность: 03:02:31
+A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
+Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2019Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EA7B9E363C370972A47A192748E6AB4A2411C0E
+magnet:?xt=urn:btih:CD5D64767596273B1F1BE7EF491AAB182DB335A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080649   (288592) от 07.12.2016
+###  Публикация: 1334453   (293371) от 30.10.2019
 
-VA - Mountain Sound The Lounge Of Aspen (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+Наталья Дмитриева | Вид на Москву (2019) [MP3]
 
->>Electronic
->>Easy listening
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mandala Fields - Koh Tao 5:17
-02. Monowork - Bargain 2:25
-03. Maremare - That Beach Is Mine 6:09
-04. Dr. Diver - Selfishness 5:20(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:07:12
+Многоплановое произведение о Москве и москвичах. Прошлые века в романе органически вплетены в события из жизни героев, наших современников, что помогает им ощутить всю глубину своих московских корней, то есть малой своей родины. Роман пронизан высоким патриотическим чувством, бережной, трогательной любовью к родной Москве, к историческому прошлому великого города, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 18:50:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4391D5C0B99263C78E544C0C1314C6A2C41DB63
+magnet:?xt=urn:btih:5A4974A4C22B4BEE8F170F373E97C7793F0512AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080830   (288591) от 07.12.2016
+###  Публикация: 1334811   (293370) от 30.10.2019
 
-VA - Chillax and Stand with Me (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Michael Sweet - Ten (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 
->>Electronic
->>Easy listening
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chillelektro - Cala Pi [00:06:06]
-02. Syntheticsax - Waves of Change [00:05:45]
-03. Rey Salinero - Flor de Almendro [00:05:52]
-04. Alex Nothlich - Flexible Time [00:05:15](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:54:19
+01. Better Part of Me (3:34)
+02. Lay It Down (3:30)
+03. Forget, Forgive (4:49)
+04. Now or Never (4:30)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:49:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7826DCC900532D26AB873A5FD1B81A94D79730D0
+magnet:?xt=urn:btih:71081B76CAC7BD997E50FB4CF39C86FC06791F72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +109,299 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080630   (288590) от 07.12.2016
+###  Публикация: 1334740   (293369) от 30.10.2019
 
-Футбол. Лига Чемпионов УЕФА 2016-2017. Группа D. 6-й тур. ПСВ Эйндховен (Нидерланды) – Ростов (Россия) (06.12.2016) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
+Марина Потоцкая | Происшествие в Плюшкине (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293369.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книжке много весёлых чудес и почти нет грусти. Марина Потоцкая, которая придумала все эти истории, точно знает, что для таких чудес не нужна волшебная палочка. Они запросто могут случиться и с тобой, и прямо сегодня. Ты когда-нибудь залезал в кастрюлю, чтобы маму повеселить? Ну, в большую такую кастрюлищу? А слона у бабушки на огороде видел? Не игрушечного, (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 01:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C25804DAE8FDDD28CE430FAC42AAA6C2B7DAD50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334700   (293368) от 30.10.2019
+
+Газета | Сезон у дачи №19(296) (Октябрь 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850CCE2FFB3F1FF253C8566971E5295EB3394672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334704   (293367) от 30.10.2019
+
+Газета | Сезон у дачи №20(297) (Октябрь 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064EE99E5F9CD52DCBAC37E905650FCE6016C562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334638   (293366) от 30.10.2019
+
+Ингеборг Древиц | Беттина фон Арним. Романтизм. Революция. Утопия (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беллетризованная биография Беттины фон Арним (1785— 1859) — несомненная удача популярной западногерманской писательницы Ингеборг Древиц. Жизненная и творческая судьба представительницы раннего романтизма, одной из разносторонне одаренных женщин XIX века, колоритно раскрыта на широком фоне литературной и общественной жизни эпохи. Друг и почитательница Гёте, сестра (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 14:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039FA144A719B2AD755A36EE3DAF79477CC753C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334802   (293365) от 30.10.2019
+
+ACI - Tiefenrausch (1982) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reise (5:06)
+02. Tiefenrausch (4:47)
+03. Deutsche Welle (5:04)
+04. Sonnenstrahl (4:54)(   Читать дальше...   )Жанр: Electronic, Krautrock, Prog RockПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8BD4320843ED27CA2308E412376A3728EB752F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334603   (293364) от 30.10.2019
+
+PeakHour 4.1.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293364.jpg" />
+</div>
+
+
+###  Подробнее
+
+PeakHour красивый, визуализатор сетевого трафика, который живет в строке меню macOS. Он обеспечивает мгновенное отображение текущего трафика, подсчитает количество переданных и принятых данных или состояние WiFi, в режиме реального времени.
+
+PeakHour идеально подходит для мониторинга ваших сетевых устройств: Интернет, WiFi, NAS, серверы и многое другое. PeakHour (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Digitician Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:025B55416E8A2CAA42A8E4154E05605F8C1E5C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334692   (293363) от 30.10.2019
+
+Fission 2.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соединить или разделить файлы или просто разделить большой файл на несколько частей для последующего редактирования - все это сделает с легкостью Fission, к тому же, без потери качества, в противоположность другим редакторам. Так, что вы можете получить идеальное качество звука даже при редактировании MP3 и AAC файлов. Вырезать одну часть из файл, а на ее место вставить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2019Разработчик: Rogue AmoebaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD09696F95F64FF31B3EAD02361AFEAE435DB162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334598   (293362) от 30.10.2019
+
+Chelsea Wolfe - Birth of Violence (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mother Road (04:20)
+02. American Darkness (04:48)
+03. Birth Of Violence (04:20)
+04. Deranged For Rock & Roll (03:31)(   Читать дальше...   )Жанр: Alternative Rock, AcousticПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8A3AD43676D92E7E8FDFB18ACC3F9DA9E67FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334725   (293361) от 30.10.2019
+
+Q-Dir 7.92 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB9C75750A5D21BCFDA9CEC963D21A553B8277F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334573   (293360) от 30.10.2019
+
+INXS - X (1990) 2011, Petrol Electric, RM. RE. [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suicide Blonde (3:53)
+ 02. Disappear (4:11)
+ 03. The Stairs (4:57)
+ 04. Faith In Each Other (4:09)(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20768BE7955FDDA2020604C32E7B088D1CCCAA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334645   (293359) от 30.10.2019
+
+Хоккей. НХЛ 2019-2020. Вашингтон Кэпиталз - Торонто Мейпл Лифс (29.10.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [ENG]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-06 декабря 2016, вторник. 22:45 МСК
-Лига Чемпионов УЕФА 2016-2017. Групповой этап
-Группа D. 6-й тур
-(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: 1. Русский, 2. ИнтершумПродолжительность: 01:41:48
+30 октября 2019 года, среда 02:00 МСК
+Стадион: Скотиабанк-Арена (Торонто, Канада), вместимость: 20270
+Главный судья: Тим Пил (США); Главный судья: Крис Шленкер (Канада)Телекомпания: NBCS-WSHЖанр: СпортПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:03:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1A5CA2A24084205AA3C337A1781B24F97D8AEB6
+magnet:?xt=urn:btih:DE0A719674551FDF5A5A366B5224738A151738E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,83 +409,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 270388   (288572) от 14.12.2010
+###  Публикация: 1334610   (293358) от 30.10.2019
 
-Jaguar C-X75, автомобиль с двумя газотурбинными двигателями, ускоряется как реактивный самолет.
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Jaguar, работая совместно с компанией Bladon Jets, разработали концептуальный гибридный автомобиль, Jaguar C-X75, который ускоряется до скорости в 100 км/ч всего за 3.4 секунды. Источником энергии, приводящей в движение этот автомобиль, являются два малогабаритных газотурбинных двигателя. Эти двигатели, подобные двигателям турбореактивных самолетов, крутят электрогенераторы, снабжающие энергией четыре электродвигателя.(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080821   (288568) от 07.12.2016
-
-VA - Bring Your Soul Back Vol. 2 - Chill Out Selection (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage Of Deep - Marzo (05:05)
-02. Marcus Koch - Blurred (04:18)
-03. Dani Bosco - When the Run Stops (08:40)
-04. Solar Kid - The Flyer (03:17)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5C273359F69600355A14E4B096EB2201B5FC30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080417   (288566) от 07.12.2016
-
-Гандбол. Чемпионат Европы 2016. Женщины. Группа D. 1-й тур. Россия - Хорватия (05.12.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Wirecast Pro 13.0.0 [Multi]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-05 декабря 2016 года, понедельник. 20:30 МСК
-Чемпионат Европы 2016. Женщины. Предварительный этап. Группа D. 1-й тур.
-Стадион:  Хельсинборг Арена (Хельсинборг, Швеция), 2571 зрителей
-Судьи: Андреу Марин (Испания), Игнасио Гарсия Серрадилья (Испания)Телекомпания: Матч ТВ HD / Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:23:40
+Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. Благодаря Wirecast вы можете выводить на вещание несколько потоков с камер, в реальном времени вставляя в программный поток видеоклипы, изображения, звуки и такие необходимые элементы, как переходы, титры, хрома-кеинг, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A72B7F10DB07F477536A50E25E0D0BBE810FB7E3
+magnet:?xt=urn:btih:45C24BDC2B671828F43A82E51C1928FB6AB62DDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,28 +435,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080807   (288564) от 07.12.2016
+###  Публикация: 962512   (293357) от 05.12.2015
 
-VA - Pacific Lounge Collection (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+Ульрих Бек | Общество риска. На пути к другому модерну (2000) [DJVU]
 
->>Electronic
->>Easy listening
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don Gorda - Festa do Sol (05:06)
-02. Enrico Donner - Old Town Blues (05:01)
-03. Solanos - IncrAvel (05:42)
-04. Bananaquit - Hold Me Up (06:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:27:12
+Книга одного из ведущих исследователей модерна профессора социологии Мюнхенского университета Ульриха Бека (р. 1944) посвящена критическому рассмотрению нынешнего состояния индустриальной цивилизации и тех безрадостных перспектив, которые ожидают человечество на пороге очередного цивилизационного слома. «Общество риска» - книга-предостережение, соединяющая в себе (   Читать дальше...   )Жанр: Социология, Социально-философская и общесоциологическая теорияПеревод: В. Д. Седельник, Н. Н. ФедороваФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B9214EDD28B26B2656F015D3D5B389C922BF71A
+magnet:?xt=urn:btih:740A42D869A712FD1EA15DF471935AF896B4C8C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +461,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080573   (288562) от 07.12.2016
+###  Публикация: 961674   (293356) от 05.12.2015
 
-VA - Love House Music: Deep November Mix (2016) [MP3|320 Kbps] <Deep House, Electro>
+А. З. Егорин | История Ливии. XX век (1999) [DJVU]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Eddy DJ - Taste Me Too (Original Mix) 4:05
-002. Phats - Turn Around (Hey What's Wrong With You) (Maison & Dragen Remix) 2:56
-003. Frank Pole - Anything 3:42
-004. Sylvia Detmers - It's My Life (Highpass Radio) 3:13(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:43:50
+Это первое в научной и учебной литературе фундаментальное исследование истории Ливии XX века, проведенное на основе многих не публиковавшихся ранее архивных и документальных материалов России, Ливии, ряда европейских и арабских стран.
+Автор, академик РАЕН и профессор истории, работал шесть лет (1974-1980 гг.) в Ливии советником посольства СССР в СНЛАД, с 1981 г. (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71C92C330BFC9D70162030929FBC4156699411E8
+magnet:?xt=urn:btih:1809D1AE9BF8EC4F17A2A1873553A1D53578D17F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,25 +488,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080235   (288560) от 07.12.2016
+###  Публикация: 962526   (293355) от 05.12.2015
 
-Космический аппарат Cassini готовится "станцевать танго" среди колец Сатурна
+Орел и решка. Шопинг. Сезон №3. Ла-Пас (2015.12.04) SATRip
 
->>Поговорим
->>DailyTechInfo
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_288560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Менее чем через десять месяцев космический исследовательский аппарат Cassini нырнет "щучкой" в атмосферу Сатурна, что станет окончанием его 20-летней миссии, проведенной в окружении внеземной красоты колец Сатурна и его многочисленных спутников. Но прежде чем это произойдет, ученые планируют получить еще несколько "бонусов" от этой миссии.Читать (   Читать дальше...   )
+Ведущие пройдутся по самым популярным заграничным шопинг-маршрутам. Дорогие бутики и блошиные рынки, новые имена в индустрии моды и раритетные винтажные вещицы — ведущие проинспектируют все. Эта программа — настоящий кладезь полезной информации для шопоголиков. Ведущие посетят: Гонконг, Майами, Канкун, Мехико, Сингапур, Ханой, Куала-Лумпур и многие другие города. (   Читать дальше...   )Телекомпания: ИНТЕР & ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйПродолжительность: ~ 00:44:05
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:07E71199AF6BEE3F2C824EBB4179C4B0DA152946
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,28 +514,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080709   (288559) от 07.12.2016
+###  Публикация: 961773   (293354) от 05.12.2015
 
-VA - Real Trance Music 2017 (2016) [MP3|320 Kbps] <Trance>
+Татьяна Редько-Добровольская | Япония: Боги и герои (1997) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293354.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом выпуске серии “Боги и герои” представлены японские мифы, рассказывающие о сотворении мира, происхождении Неба и Земли, о богах и легендарных воителях прошлого.
+Читая их, попадаешь в чудесный, удивительный мир, созданный воображением древнейших обитателей Японских островов. Сюжеты мифов почерпнуты из памятника японской литературы VIII века «Записи о деяниях (   Читать дальше...   )Жанр: МифологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C213E2EFBC3216BCDF988E464FCF219CDCF23B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962804   (293353) от 05.12.2015
+
+VA - Who's Afraid Of 138?! Vol. 2 (Mixed By Coming Soon!!! & Ben Nicky) (2015) (tracks/image+.cue) [FLAC|Lossless|WEB-DL]<Trance, Psy-Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tezija - Club Nation Anthem (Intro Mix) 07:41
-02. Mike Meade - Red Arrow 08:05
-03. Vechigen - Do Not (Trance Mix) 07:38
-04. Wemms Project - Hot Summer Night (dj friendly mix) 07:15(   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:31
+01. Coming Soon!!! feat. Michele Adamson - Keeping The Faith (Radio Edit) [3:37]
+02. Coming Soon!!! - Ghetto Rebels (Radio Edit) [3:40]
+03. Coming Soon!!! - The Place (Radio Edit) [3:48]
+04. Coming Soon!!! - BadAss Disco (Radio Edit) [3:32](   Читать дальше...   )Жанр: Trance, Psy-TranceПродолжительность: 04:32:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F0C98A404D127AF57727ED5101B2A0A0D0CC7EB
+magnet:?xt=urn:btih:37BB2A997CC963E153EF4C6AD10D596E72913364
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,28 +570,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080583   (288558) от 07.12.2016
+###  Публикация: 962747   (293352) от 05.12.2015
 
-Rene Marie - Sound Of Red (2016) Motema [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Огни городской окраины / Laitakaupungin valot (2006) DVDRip
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Sound of Red [06:01]
- 02.If You Were Mine [06:34]
- 03.Go Home [05:46]
- 04.Lost [10:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:35
+Герой фильма по имени Койстинен, как и маленький бродяга Чаплина, пытается найти небольшую щель в жестком мире, в которую он может протиснуться, чтобы обрести свое место, но его коллеги по работе и бездушные чиновники растаптывают его надежды одну за другой. Банда преступников, узнав, что он работает охранником в торговом центре, используют его одиночество и жажду (   Читать дальше...   )Производство: Финляндия, Германия, ФранцияЖанр: Драма, криминалРежиссер: Аки КаурисмякиАктеры: Янне Хюютияйнен, Мария Хайсканен, Матти Оннисмаа, Сулеви Пелтола, Антти Рейни ...Перевод: Профессиональный многоголосыйПродолжительность: 01:14:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52400CCDFE5C6325CA8E35317AE8CCAE16BAD501
+magnet:?xt=urn:btih:0614AF966D65433A680D0B101E473F829C24EBAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,144 +596,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080482   (288556) от 07.12.2016
+###  Публикация: 962622   (293351) от 05.12.2015
 
-VA - Classy Dining Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Cielo Terso (05:11)
-02. Enrico Donner - Forget Me Not (06:01)
-03. Cane Garden Quartet - Toca Me (06:09)
-04. Baghira - 400 Trees (05:28)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9F89BD3E1678252126CDEA68C9977B2F6D2818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080730   (288555) от 07.12.2016
-
-VA - Ultimate Trance Essentials Sanctum (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288555.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bobina - Invisible Touch (Aly & Fila Remix)
-002. Trance Conspiracy - Conspiracy Theory (Original Mix)
-003. Dan Delaforce - On Your Soul (Original Mix)
-004. Solarstone - Shield (Pt. I) (ReOrder & Standerwick present SkyPatrol Remix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 14:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72BA7F55CDF044F062230FBE0E31F9844E5870B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080439   (288553) от 07.12.2016
-
-Bluesville Station - Step On The Gas (2012) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Right At Home   (05:04) 
-02|  Key to My Heart   (04:45) 
-03|  Live It Up   (04:56) 
-04|  Big Bottom Baby   (03:56) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460D16B1701D0CB29FB648C0A38C979C1F66DBE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080622   (288551) от 07.12.2016
-
-VA - Dance Smash Hits Of Yare: Planet EDM (2016) [MP3|320 Kbps] <House, Electro House, Tech Trance, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hardwell - 8Fifty 3:04
-002. Jasper Forks - Another Sleepless Night 3:18
-003. DBSTF - Temple 3:11
-004. Scooter - Bigroom Blitz 3:07(   Читать дальше...   )Жанр: House, Electro House, Tech Trance, Club, DanceПродолжительность: 10:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE7BD23EB663C872478221C86031EA9021E355D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080843   (288550) от 07.12.2016
-
-VA - Hydrodubium (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Dub Techno>
+Шерлох (Шерлок) (2015) WEB-DLRip [H.264/720p-LQ] (Серия 8)
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. TicK - Voice Of Nature (09:12)
- 02. 110ml - Allure (06:39)
- 03. 110ml - Lights In Window (05:34)
- 04. Enformig - Out Of Life Cycle (06:59)(   Читать дальше...   )Жанр: Electronic, Ambient, Dub TechnoПродолжительность: 01:34:41
+В рамках обновленного формата "Киев Вечерний" телезрители увидят новый скетчком от студии Квартал 95 под названием "Шерлох". Это будет пародия на бибисишный формат «Шерлока» с его элементами ноу-хау. Зрителей ожидают 12 эпизодов сериала. Как и следовало ожидать, скучать телезрители не будут, веселое настроение им гарантировано, ведь в сериале (   Читать дальше...   )Телекомпания: 1+1Жанр: Пародия, юморРежиссер: Борис ШефирПродолжительность: 00:27:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D63F2DA2B8D5BC561D7784D7D6B3FE59117B9E59
+magnet:?xt=urn:btih:0BC38BD6BB09EA6797F945D4B038D7B4E6656482
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,28 +622,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080819   (288549) от 07.12.2016
+###  Публикация: 961781   (293350) от 05.12.2015
 
-VA - Aesthesia (2010) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone Ambient, Dub Techno>
+Гегель | Философия религии [2 тома] (1975-1977) [DJVU, PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stellardrone - Milliways (09:45)
- 02. Andrea Suglia - The Beach (07:15)
- 03. Deer - Woodpecker (07:12)
- 04. ConsolerCtrl - Depth Extension (03:27)(   Читать дальше...   )Жанр: Ambient, Drone Ambient, Dub TechnoПродолжительность: 01:20:27
+В первый том настоящего издания вошли ранние работы Гегеля ("Жизнь Иисуса", "Дух христианства и его судьба", "Фрагмент системы 1800 г.") и первая часть его "Лекций по философии религии". В ранних работах разбираются проблемы разума и веры. Ранние работы знакомят с некоторыми важными аспектами формирования гегелевской диалектики. (   Читать дальше...   )Жанр: История, философия, религиоведениеФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F490F09236E1FA3616C52A974BF8DA4F52C34C70
+magnet:?xt=urn:btih:CB106788ED78D6F64D7A7CE54518E5CAB3F93416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961663   (293349) от 05.12.2015
+
+Н. Г. Киреев | История Турции. XX век (2007) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293349.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии кратко изложена история возникновения и развития турецкого государства до начала XX в., подробно проанализированы основные этапы развития Турции в XX в. - от младотурецкого движения до прихода к власти правительства «умеренного» ислама в начале XXI в. Книга рассчитана на широкий круг читателей. Может быть использована для преподавания в вузах курсов (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC6B494AC760FAEB372434EE1E7E611E152CD80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962716   (293348) от 05.12.2015
+
+Fileloupe 1.3.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fileloupe - cамый быстрый способ, чтобы просмотреть фотографии, смотреть видео, смотреть PDF-файлы и просматривать документы на вашем Mac.
+В отличие от существующих решений, Fileloupe не требует длительного процесса импорта, не использует мастер библиотек и не делает копии файлов. С Fileloupe вам больше не придется открывать несколько окон или несколько приложений, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 декабря 2015Разработчик: Corduroy Code Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ED769CBA8CBBF6BEACC47E040985DFFA0CB84B
 ```
 
 https://mybot314.ru/tekegram_catalog/

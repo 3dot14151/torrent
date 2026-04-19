@@ -1,3 +1,61 @@
+###  Публикация: 1296530   (611849) от 17.04.2019
+
+VA - Happy Easter Dance 3 (2019) [MP3|320 Kbps] <Dance, Clubce>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Street - Stars (DJ THT Remix Edit)
+02. Shaolin Master ft. Ruby Blu - Party Hard (Fairfield Radio Edit)
+03. Tale & Dutch ft.Bart Reeves - The Message (Reload) (G! Bootleg Edit)
+04. DJ Sanny J;Fabrizio E Marco - Everyday (D@nydj Edit RMX)(   Читать дальше...   )Жанр: Dance, ClubceПродолжительность: 02:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1CFBE47266A65A43D02D9EEEF851CE894CB539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296524   (611847) от 17.04.2019
+
+VA - Ballermann Die Hits 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611847.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Isi Glck - Das Leben ist ne Party (Harris Ford 3:58
+002. DJ Robin - Cordula Grn 3:04
+003. DJ Malle - Helikopter 117 (Mach' den Hub Hub Hub) 4:06
+004. Partynator - Mama Laudaaa 3:39(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D9B3B5072A5995DB8A24940B045B127A2A2638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296511   (611752) от 17.04.2019
 
 VA - The Hits Album: The Car Album (2019) [MP3|320 Kbps] <Pop, Rock, Other>
@@ -689,64 +747,6 @@ VA - Eurobeat & High Energy Cartoons Flavor: Top 120 Mega Pack Hits (2019) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3B76453423A31B8F08B80A5417BE671337DE13D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547225   (603436) от 27.04.2022
-
-VA - DMC Dance Mixes 299 (2022) [MP3|320 Kbps] <House, Tech House, Bassline, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aluna & Diplo & Durante - Forget About Me (Club Mix)
-02. Blinkie Ft. Izzy Bizu - Wind Blows (Extended)
-03. Burns - Talamanca (AmyElle Extended Remix)
-04. Chapter & Verse - You Know It's Time (Extended)(   Читать дальше...   )Жанр: House, Tech House, Bassline, VocalПродолжительность: 01:19:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED57D06FF835547A5E189AF948D39CF5F186A675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547221   (603434) от 27.04.2022
-
-VA - DMC Dance Mixes 298 (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alesso & Katy Perry - When I'm Gone (VIP Extended)
-02. Clean Bandit Ft. A7S - Everything But You (VIP Mix Extended)
-03. Deekline & Project 5 - Without You (Extended)
-04. Disco Fries - Family Affair (Hawk & Beyge Extended Remix)(   Читать дальше...   )Жанр: House, Breaks, Dance-pop, VocalПродолжительность: 01:18:14 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E1E58586C7095570386D0CAD64C5C97004A595
 ```
 
 https://mybot314.ru/tekegram_catalog/

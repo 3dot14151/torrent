@@ -1,3 +1,203 @@
+###  Публикация: 1180351   (342363) от 03.11.2017
+
+Clint Bajakian - Outlaws (Game Soundtrack) (1997) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outlaws
+02. Sanctuary
+03. The Shack
+04. Anna's Theme(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4959AD5E5CE49B9C05650B1CD0C8A1AACD2211FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580499   (342036) от 25.11.2012
+
+Сумерки. Сага. Рассвет: Часть 2 - The Twilight Saga: Breaking Dawn - Part 2 (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95CED7840C080661537127A26D01C9249CA09051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180277   (341973) от 03.11.2017
+
+ERA - The 7th Sword (2017) [MP3|320 Kbps] <New-Age, Ethereal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricane 03:16
+02. 7 Seconds 04:03
+03. Kilimandjaro (Brian Levi Remix) 03:59
+04. Ameno (The City Remix) 03:35(   Читать дальше...   )Жанр: New-Age, EtherealПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE98FF839B744A95A057E4B70B8BB5E940F81A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330298   (341283) от 10.10.2019
+
+VA - Modern Sound Orchestras - Morning Has Broken (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Has Broken (3:36)
+02. Always On My Mind (3:51)
+03. Bright Eyes (3:40)
+04. Moon At Noon (3:52)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976D8FAF52FDDC1A4258C5A34461384E7AD5208B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578222   (341076) от 25.09.2022
+
+Phil Thornton - Rhythm of the Rainforest (2009) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Vine Part 1
+02. Heart Of Green
+03. Dietera Dreams
+04. Yage(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43739D1CAE29E751F3BDEC50C361334BA8BEE4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074144   (340563) от 18.11.2016
+
+Robert Thies & Damjan Krajacic - Blue Landscapes II: Discoveries (2016) [MP3|320 Kbps] <NewAge, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Floating [00:04:44]
+02 -  Across the Open Fields [00:04:22]
+03 -  The Story of Your Heart [00:08:09]
+04 -  Into the Horizon [00:05:15](   Читать дальше...   )Жанр: NewAge, RelaxПродолжительность: 01:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AAEE57D925F18D317EAC4B1E349AEFD4262FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074023   (340434) от 18.11.2016
+
+James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Man and His Beasts (08:32)
+02. Soup and Leaflets (02:20)
+03. Billywig (01:32)
+04. The Demiguise and the Lollipop (00:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8EC1596BA61BB6FCCC88D526A7BAE19F2A082C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 726280   (340295) от 24.11.2013
 
 Andre Rieu - Celebrates ABBA (2013) Scene [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
@@ -542,209 +742,6 @@ The London Starlight Orchestra - Only Love: 20 Favourite Instrumentals (1988) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFFC450EB24CCE92775D6E5DAEB5B11E30CF8A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073942   (338188) от 19.11.2016
-
-Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земля 2 (Original Television Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roof of the World (00:53)
-02. Peaks of North America (01:59)
-03. The Ibex (01:41)
-04. The Himalayas (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E664C47BB975738665BFBB002B597E4FC071F966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073944   (338081) от 19.11.2016
-
-Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земля 2 (Original Television Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roof of the World (00:53)
-02. Peaks of North America (01:59)
-03. The Ibex (01:41)
-04. The Himalayas (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30C8CE9154777400D85FA1D723887BE0ACCB34D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179966   (337771) от 05.11.2017
-
-Room Of Voices - Casbah (2017) [MP3|320 Kbps] <Electronic, World>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirror Mirror (5:08)
-02. I Got You Inmymind (4:37)
-03. Lost off Shore (6:47)
-04. Calling Out (7:57)(   Читать дальше...   )Жанр: Electronic, WorldПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3328E50F6AE3DBF430E7C88E7965E9C6E1358C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180627   (337762) от 05.11.2017
-
-Kai Rosenkranz - Risen (Game Soundtrack) (2009) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Risen Title Theme
-02. The Beach
-03. The Beach - Fight
-04. The Island(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E00FDAF1C5A63E17E34EE3B46033F05BCF6C6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180906   (337500) от 05.11.2017
-
-VA - Latino Top 30 Latin Hits (2017) [MP3|320 Kbps] <Latin, Salsa>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Chicos Playeros – Bamboleo 3:29
-02. Tony Estefano – Livin’ La Vida Loca 4:01
-03. Alessia Limonta – Conga! 4:11
-04. Chateau Pop – Lambada 3:23(   Читать дальше...   )Жанр: Latin, SalsaПродолжительность: 01:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5661E638BC290CE714BA618007FB44BBD4E87EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180676   (337011) от 05.11.2017
-
-Hans Zimmer - Hans Zimmer - Live In Prague (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337011.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Medley: Driving / Discombobulate / Zoosters Breakout
-2. Medley: Crimson Tide / 160 BPM
-3. Gladiator Medley: The Wheat / The Battle / Elysium / Now We Are Free
-4. Chevaliers De Sangreal(   Читать дальше...   )Жанр: ScoreПродолжительность: 02:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C003C0A53D25F117153A134FF5207EA2FB8A6FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074758   (335938) от 20.11.2016
-
-Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mars (Theme) (01:43)
-02. Mars (04:01)
-03. Daedalus (03:01)
-04. Earth (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD9C77FADBEA37B38BF1545A1FFEADE8BD425B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

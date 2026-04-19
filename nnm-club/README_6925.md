@@ -1,24 +1,25 @@
-###  Публикация: 1205664   (783483) от 10.02.2018
+###  Публикация: 1204029   (785393) от 04.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Церемония открытия (09.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Laura Branigan (Лора Брэниган) - Over My Heart (1993) Atlantic, 7567-82489-2, Europe [MP3|320 Kbps] <Pop Rock, Soul>
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-09 февраля 2018 года, пятница. 14:00 МСК
-XXIII Зимние Олимпийские игры 2018 пройдут с 9 по 25 февраля 2018 года в городе Пхёнчхане, Республика Корея. На Олимпийских играх в Пхенчхане будут представлены 84 страны. Впервые в них примут участие две новые страны: Эритрея и Косово.
-МОК включил шесть новых дисциплин в программу Олимпиады-2018, добавлены дисциплина биг-эйр (   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: Церемония, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:30:09
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. How Can I Help You To Say Goodbye 4:29
+02. The Sweet Hello, The Sad Goodbye 5:07
+03. Over My Heart 4:25
+04. It's Been Hard Enough Getting Over You 3:42(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:55:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4020E099D7E8857CCF6A7EF4AF7C294B7C175528
+magnet:?xt=urn:btih:3368D24B8120D5BEFA2C5E5F1CC6684FC27FD63D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,27 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205621   (783482) от 10.02.2018
+###  Публикация: 1203967   (785392) от 04.02.2018
 
-Майкл Симс | Артур и Шерлок. Конан Дойл и создание Холмса (2017) [FB2]
+VA - Winter Sessions 2018 (Mixed by Milk & Sugar) (2018) [MP3|320 Kbps] <House, Afro House, Deep House>
 
->>Разное (категория книг)
->>Публицистика
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга – прекрасный подарок всем почитателям знаменитого Шерлока Холмса. Написанная в стиле, напоминающем манеру его создателя, Артура Конан Дойла, она рассказывает поистине детективную историю о том, как молодой шотландский доктор стал писателем с мировым именем, а его герой – величайшим сыщиком всех времен и народов.
-
-Погрузив читателя в атмосферу викторианской (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная публицистикаФормат: FB2
+01.  Mr Raoul K & Sona Diabate  -  Senekela (Raoul K & Laolu Version)  7:24
+02.  Keyano  -  Dan Dale (Original Mix)  7:09
+03.  Crazy White Boy feat. BehrEllips  -  The Forgotten People (Original Mix)  5:30
+04.  Dayne S  -  Sensor (Original Mix)  6:42(   Читать дальше...   )Жанр: House, Afro House, Deep HouseПродолжительность: 05:37:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F41241067851B23C5F217EB1BB292670EB30C1DC
+magnet:?xt=urn:btih:6B4BE8CCCBD42A01D2E9FBC5F5F4FF72E941F902
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,28 +56,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205203   (783481) от 10.02.2018
+###  Публикация: 1203284   (785391) от 04.02.2018
 
-Propellerheads - Decksandrumsandrockandroll (1998) [FLAC|Lossless|tracks + .cue] <Breaks, Breakbeat, Big Beat>
+Dino Solera - Classicaly: Dino Solera (1977 /2015) Remastered, Unofficial [FLAC|Lossless|image + .cue] <Instrumental, Disco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Classically Elise (Elise '77) (5:23)
+02. Suite Concerto (5:12)
+03. Easy Feelin' (4:42)
+04. Theme From A Dream (6:05)(   Читать дальше...   )Жанр: Instrumental, DiscoПродолжительность: 00:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1997A8E92B24344A531A8214A758644CE93AE972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204105   (785390) от 04.02.2018
+
+Last Life - Nootka EP (2017) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Take California (07:21)
-02. Velvet Pants (05:47)
-03. Better? (02:03)
-04. 360° (Oh Yeah?) (feat. De La Soul) (04:28)(   Читать дальше...   )Жанр: Breaks, Breakbeat, Big BeatПродолжительность: 01:07:53
+01. Nootka (06:26)
+02. Plumb Line (05:27)
+03. De-Excitation (06:26)
+04. Ergo (05:14)(   Читать дальше...   )Жанр: Drum n BassПродолжительность: 00:29:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D664BC6A49A50FC0D6A898BAD42647ADDA683B67
+magnet:?xt=urn:btih:1F5A5CD1E4736C468E93B69EF750ED328F7931EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205464   (783480) от 10.02.2018
+###  Публикация: 1204132   (785389) от 04.02.2018
 
-Athentech Perfectly Clear + Essentials + WorkBench 3.5.6.1150 [En]
+Mimetic Desire - Sacred Aim (2006) Ant-Zen [FLAC 2.0|48/24|tracks|DVD-Rip] <Tribal, IDM, Ambient>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfectly Clear - последняя версия программы, которая идет также как плагин для Photoshop & Lightroom (можно использовать также в других редакторах). Суть данной разработки проста, у вас имеется снимок, вам он не нравится, кожа тусклая, прыщики, короче говоря есть дефекты, теперь можно не утруждать себя редактированием, пару кликов и вот перед нами откорректированная (   Читать дальше...   )Язык интерфейса: Английский
+01. Shivering (08:50)
+ 02. Blood Fixative (05:03)
+ 03. I Crave My Past (04:30)
+ 04. Korper Lust (05:14)(   Читать дальше...   )Жанр: Tribal, IDM, AmbientПродолжительность: 00:56:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02420FBEAB357A58795B2802A3532E38D28716AE
+magnet:?xt=urn:btih:4EB59F084D6191931EBB3D511F0E6F3E6CFEEC1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,25 +143,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205549   (783479) от 10.02.2018
+###  Публикация: 1204013   (785388) от 04.02.2018
 
-Теория заговора (2016) WEB-DL [H.264] (2 сезон: 37 выпусков из 37) [MP4|1280x720]
+Иван Билибин (илл.) | Былина о Добрыне Никитиче (1911) [PDF]
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Авторы документального цикла «Теория заговора» дают ответы на простые вопросы, которые обычно не приходят в голову. Почему литр воды стоит дороже литра бензина? Почему в аптеках продают лекарства, которые ни от чего не лечат? Почему один крем в десятки раз дороже другого, если их состав идентичен? Нас обманывают и пытаются нажиться на наших проблемах и нуждах. Нас (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаРежиссер: Алексей Булейко, Кирилл ВащенкоСубтитры: ОтсутствуютПродолжительность: ~ 00:45:00 серия
+Сказка для младшего и среднего школьного возраста.
+
+Надвинулась великая беда. Чудовищный многоголовый Змей стал совершать на Русь налёты, похищая как неповинных мирных людей, так и славных воинов, которые не могли воспротивиться ему. Добрыня Никитич решил сразиться со Змеем. Он не послушался матери, которая остерегала его от того, чтобы ехать далеко в чисто поле, (   Читать дальше...   )Жанр: Детская проза, СказкиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:905D4E3339E4E678E79FBB3E3AD72A5E48A0AA03
+magnet:?xt=urn:btih:87FE272F8E59AC9A74A096CFA67F2A30D5DA43D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,26 +171,137 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205493   (783478) от 10.02.2018
+###  Публикация: 1204152   (785387) от 04.02.2018
 
-3D модели - Daz 3D - Elijah 7 Pro Bundle - 36169 [DUF]
+Я.И. Перельман | Путешествия на планеты [Издание второе] (1919) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этой маленькой экскурсией в область космической физики автор надеется также до некоторой степени рассеять существующее в публике предубеждение против небесной механики и физики, как знаний слишком отвлеченных, неспособных будто бы дать пищу живому уму. Наука, которая открывает возможность успешно соперничать в полете воображения с фантазией остроумнейших романистов, (   Читать дальше...   )Жанр: Познавательная литература, учебное пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B202EBDC92AD375CC29BAE977C474FEA31C180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203899   (785386) от 04.02.2018
+
+VA - Deep House | Odyssey, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Kunkel & Robot Beauty – Cyriak (06:23)
+02. Julian Neumann – Clouds (06:32)
+03. Alec Troniq & Falk Louis – On the Run | Cascandy Remix (08:15)
+04. Sascha Sonido – Paranoid | Thomas Gandey feat. Vanita Remix (08:00)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C3C736855A125587CAB4F62D45E51EA5DB55D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203986   (785385) от 04.02.2018
+
+А.П. Корелин (сост.) | Россия на рубеже веков. Исторические портреты (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о деятелях различных общественных сил, действовавших на политической арене России: три премьер-министра - Витте, Столыпин, Львов; лидеры буржуазных партий - Милюков и Гучков; миллионер Рябушинский; представители революционной демократии - Плеханов, Мартов, Чернов, Спиридонова - основные персонажи книги. Их жизненные пути мало известны широкому читателю. (   Читать дальше...   )Жанр: БиографииПродолжительность: 22:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D801A37908ACC6E5C04DFE958E032D8DB7B54D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204117   (785384) от 04.02.2018
+
+Aelyn - Voice Of Suanda Vol. 5 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aelyn & Feel - If You Feel Love (Original Mix)
+02.Aelyn - Game Over (Ruslan Radriges Remix)
+03.Aelyn & Universal Sense - Be Where You Are (Vocal Mix)
+04.Aelyn - Water & Fire (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234A16E83E38ABC99EE3CD08C14C7FC54E194598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204017   (785383) от 04.02.2018
+
+Векторный клипарт - Vector Flowers Collection #32 [AI]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Elijah 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Векторный клипарт для дизайна.
+Цветы
+25 Ai +Jpg PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76DEA7A2A0853172899EAC34A3E6D16EE977C5F9
+magnet:?xt=urn:btih:BB9938443E68E7CDABBB7B07F95ABC61056AF213
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,25 +309,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205605   (783477) от 10.02.2018
+###  Публикация: 1204019   (785382) от 04.02.2018
 
-Aiseesoft 4K Converter 9.2.18 RePack (& Portable) by ZVSRus [Ru/En]
+Векторный клипарт - Vector Flowers Collection #33 [AI]
 
->>Архив торрентов
->>Архив Программ
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aiseesoft 4K Converter – универсальный видео конвертер формата 4K. Специально создан для преобразования 4K видео высокого разрешения с передовыми кодировками, в том числе HEVC / H.265, VP8, vp9, H.264, MPEG и XviD. Лучший выбор для обработки видео в формате 4K с разрешением 1080p или 1080p 4К, который также служит для работы со стандартными форматами видео и HD.Язык интерфейса: Русский (от Kopejkin.) | Английский
+Векторный клипарт для дизайна.
+Цветы
+25 Ai +Jpg PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42F28EB9FD1C642DCB90827CF384711D9A5259E7
+magnet:?xt=urn:btih:A1C393EEA7DCE737DC455E7E628E0103D26A9F7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,57 +337,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205532   (783476) от 10.02.2018
+###  Публикация: 1203955   (785381) от 04.02.2018
 
-VA - LUXEmusic proжект: The Russian Project (2017) [MP3|320 Kbps] <Club House, Deep House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783476.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Leona Dios - Сны (DJ Kirillich Remix)
-002. T-Killah - Барабан (DJ Цветкоff & Hokkan Remix)
-003. Бьянка - Вылечусь (Hardphol Remix)
-004. Тимур Timbigfamily ft Анна Калашникова & DJ Vini - Так не бывает(   Читать дальше...   )Жанр: Club House, Deep House, Electro HouseПродолжительность: 14:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFAE1C27E15EB54F167B82A7FF1CC5D6D3A744B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205676   (783475) от 10.02.2018
-
-VA - Fitnes Hits (2018) [MP3|320 Kbps] <Pop, House, Dance>
+VA - Vanilla Kiss: Clubland Eurodance 90s (2018) [MP3|320 Kbps] <Club, Dance, Pop>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Miss Bass  -  Palm Shot  3:33
-02.  The Chainsmokers feat. Halsey  -  Closer (Wuki Remix)  4:04
-03.  Will.i.am feat. Justin Bieber  -  That Power (Matt Nevin Extended Mix)  5:25
-04.  Alok & Vinne  -  Free (Original Mix)  5:59(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 04:59:14
+001. X-Session - Lucky Number
+002. Dean Martin - Please Don't Talk About Me When I'm Gone
+003. Missing Heart - Charlene (Extended)
+004. Music Instructor - Super Fly(   Читать дальше...   )Жанр: Club, Dance, PopПродолжительность: 07:49:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1027F4DD94A2CDB53FCEF5126C26A079832DD4C9
+magnet:?xt=urn:btih:661731EA4FCE92F91C9D85522D007E455B16863A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,26 +366,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205511   (783474) от 10.02.2018
+###  Публикация: 1277480   (785380) от 20.01.2019
 
-3D модели - Daz 3D - FWSA Liam HD + Vampire and Hunter Kit Bundle - 33439 [DUF]
+Обои - Desktop Wallpapers Full HD. Part (366) [JPG]
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Liam + Vampire and Hunter для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C00FF4DAB265E35BFFB016623716C6375CA8CC6
+magnet:?xt=urn:btih:06088A979E09FC0078342D5BF87B550FC12FE8B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,27 +392,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205482   (783473) от 10.02.2018
+###  Публикация: 1277465   (785379) от 20.01.2019
 
-4K Video Downloader 4.4.4.2275 [Multi/Ru]
+Обои - Desktop Wallpapers Азиатки [JPG]
 
->>Архив торрентов
->>Архив 4Apple
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении. Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте ссылку из браузера и нажмите "Вставить ссылку" в приложении!
-
-Скачивайте целые YouTube-плейлисты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 090.02.2018Разработчик: OpenMedia LLC.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Сборник обоев на тему АзиаткиФормат: JPGРазрешение файлов: 1920x1200
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A44F3248047F3CADE43EF667DADC6EC8DD832DA6
+magnet:?xt=urn:btih:E0ECD2A91C8F0A5780E792BCF89EECB168953B34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -301,28 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205425   (783472) от 10.02.2018
+###  Публикация: 1277471   (785378) от 20.01.2019
 
-Lipps, Inc. - Mouth To Mouth (1979) Remastered, 2012 [FLAC|Lossless|image + .cue] <Disco>
+Обои - Desktop Wallpapers Full HD. Part (360) [JPG]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785378.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Funkytown (07:50)
-02. All Night Dancing (08:21)
-03. Rock It (05:42)
-04. Power (08:19)Жанр: DiscoПродолжительность: 00:43:44
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78F532ABAA995CE4A3FDB70D63A7C3314A160C7A
+magnet:?xt=urn:btih:C3C30ADB92F4C642E9BA2D0F617AFB17B72F039C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -330,26 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205497   (783471) от 10.02.2018
+###  Публикация: 1277486   (785377) от 20.01.2019
 
-3D модели - Daz 3D - Damien Pro Bundle - 37285 [DUF]
+Обои - Desktop Wallpapers Full HD. Part (370) [JPG]
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785377.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Damien для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:420406EBC2F832E6FBBE1870C70CAB12C9507883
+magnet:?xt=urn:btih:7BFB956BE1A1A98D04D373541A8F39186533B25B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,104 +470,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205505   (783470) от 10.02.2018
+###  Публикация: 1277255   (785376) от 20.01.2019
 
-3D модели - Daz 3D - Lucian 7 Pro Bundle - 34203 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Lucian 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B363A34D339A97D0793502F33785E12F3A2CA96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205266   (783469) от 10.02.2018
-
-Джош Малерман | Птичий короб (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оно ждет тебя за порогом. Оно… нечто ужасное, нечто такое, что ни в коем случае нельзя разглядывать. Потому что один лишь взгляд на это существо? устройство? человека? грозит безумием и гибелью. Человечество перестало существовать. Горстка выживших прячется в заброшенных домах с заколоченными окнами, не решаясь выйти наружу. Мэлани, мать-одиночка с двумя детьми, (   Читать дальше...   )Жанр: Фантастика, УжасыПродолжительность: 08:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB243BF958DAE9613C84F30FBC5D8F3B2617DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205662   (783468) от 10.02.2018
-
-Cinemagraph Pro 2.5.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinemagraph Pro от студии Fixel – приложение, при помощи которого мастер из любого короткого видео, снятого на камеру смартфона, сделает очередной хит для YouTube. Также программа работает с сериями фотографий, позволяя создавать "видеоколлажи" из набора фотографий. Программа Cinemagraph Pro, поможет Вам разнообразить свои фотографии с помощью эффекта «движения». (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Flixel Photos Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Испанский, Итальянский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A74347727821ED7018A2DF4943FD5822619060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205573   (783467) от 10.02.2018
-
-Recover Keys Enterprise 10.0.4.201 RePack (& Portable) by TryRooM [Multi/Ru]
+Loaris Trojan Remover 3.0.75.210 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Recover Keys - это приложение для Windows, созданное для защиты Ваших активационных ключей на случай, если система или жёсткий диск выйдут из строя, определения количества лицензионных программ, установленных на сети компьютеров, и для восстановления утерянных лицензионных (CD) ключей. Нет необходимости устанавливать эту программу на каждом компьютере. Установленная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Loaris Trojan Remover - средство удаления вредоносного ПО, среди которых есть троянские программы, интернет-черви, рекламные и шпионские программы. Утилита предназначена для удаления угроз с Вашего компьютера, когда постоянная антивирусная защита не в состоянии обнаружить или полностью удалить их. Очень часто антивирусные решения хороши в обнаружении вредоносных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDF85BE32584084E6AD0D694032E52EC47A8CA66
+magnet:?xt=urn:btih:BAEB8D91810A5F44B169B085DF8A955EBC02C1C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +496,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205507   (783466) от 10.02.2018
+###  Публикация: 1277389   (785375) от 20.01.2019
 
-Sopor Aeternus - The Spiral Sacrifice (2018) [MP3|320 Kbps] <Darkwave, Neo-Classic>
+VA - Громкие новинки месяца Vol.21 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Макс Барских - Странная
+02. Ariana Grande - 7 rings
+03. HammAli & Navai - Как тебя забыть
+04. Inna - Sin Ti(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABB1FFAED2B3F73759E57AD7DA16C53907742D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277342   (785374) от 20.01.2019
+
+save2pc Ultimate 5.5.7.1584 RePack (& Portable) by TryRooM [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Everything Is An Illusion
-2. Where The End Begins
-3. There Are Scars In The Evening Sky
-4. The Broken & Shattered Moon(   Читать дальше...   )Жанр: Darkwave, Neo-ClassicПродолжительность: 01:18:54
+save2pc Ultimate - это простая в использовании программа, которая позволяет сохранять видео с известного файлового хранилища YouTube. При помощи YouTube Downloader можно загрузить любой видеофайл с веб-сервиса YouTube по приведенной на его страничке ссылке. Все, что требуется от юзера - это скопировать и вставить ссылку в окно save2pc Ultimate, выбрать нужный формат (   Читать дальше...   )Язык интерфейса: Русский | Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B08991C07CA719CE74B6F62C9EDE3FDADBC84EA
+magnet:?xt=urn:btih:C3A958B4A567A3D30B52D1E66798473454B4E487
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,26 +551,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205516   (783465) от 10.02.2018
+###  Публикация: 1277485   (785373) от 20.01.2019
 
-3D модели - Renderosity - Phx James for Michael 8 - 124866 [DUF]
+Обои - Desktop Wallpapers Full HD. Part (369) [JPG]
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-James для Michael 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1F9C5625CDF5F7D6259A92F085F873FB081C301
+magnet:?xt=urn:btih:285D8B05C8CD9B23F49C914D4329B7AF5F106129
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +577,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205369   (783464) от 10.02.2018
+###  Публикация: 1277484   (785372) от 20.01.2019
 
-Yann Tiersen - EUSA (2016) [FLAC|Lossless|tracks + .cue] <Neoclassical, Contemporary, Piano>
+Обои - Desktop Wallpapers Full HD. Part (368) [JPG]
 
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01/18. Hent I (2:56)
- 02/18. Pern (4:27)
- 03/18. Hent II (1:15)
- 04/18. Porz Goret (4:56)(   Читать дальше...   )Жанр: Neoclassical, Contemporary, PianoПродолжительность: 00:57:15
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:247D54A9DFE800BA24E6B64C0F4BFE41395AACDD
+magnet:?xt=urn:btih:5338357E203FFF7EED44E52B41DF68A3B48A3B5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,25 +603,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205540   (783463) от 10.02.2018
+###  Публикация: 1277329   (785371) от 20.01.2019
 
-Мария Кузнецова, Игорь Рыбачук | Фармакогнозия (1984) [DJVU]
+CyberLink PhotoDirector Ultra 10.0.2302 [Multi]
 
->>Научная и техническая литература
->>Здоровье и медицина
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В учебнике изложены сущность фармакогнозии как науки, ее особенности и роль в медицинской и фармацевтической практике. Детально описаны современные методы заготовки лекарственного растительного сырья. Изложены основные требования общегосударственной программы по охране и рациональному использованию ресурсов лекарственных растений в нашей стране. Описано более 100 (   Читать дальше...   )Жанр: УчебникФормат: DJVU
+Универсальное решение для редактирования фотографий, которое предлагает широкий спектр простых в использовании инструментов для создания потрясающих семейных фотографий, фото путешествий и пейзажных снимков, а также идеальных портретов. Программа поддерживает форматы RAW, разнообразные профили объективов, а теперь и создание снимков с 360º фото и видео.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: Ciberlink Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6450307508A3646F572A6D2B4A6FB0BBC45770F
+magnet:?xt=urn:btih:3CCFAD6D576B8F4DBBD69C28A57CBB9F318B480D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,26 +629,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205500   (783462) от 10.02.2018
+###  Публикация: 1277407   (785370) от 20.01.2019
 
-Э.А. Киреева | Электрооборудование электрических станций, сетей и систем (2017) [PDF]
+NG: Тайна гималайских мумий / Mystery of the Himalayan Mummies (2016) DVB
 
->>Научная и техническая литература
->>Учебники
+>>Зарубежные TV-бренды
+>>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Освещены вопросы выбора, эксплуатации, технического обслуживания и диагностики электрооборудования электрических станций, сетей и систем.
-Рассмотрены электрические измерения на подстанциях и применяемые схемы. Даны рекомендации по повышению надежности, экономичности, качества электроэнергии для совершенствования эксплуатации и технического обслуживания электрооборудования. (   Читать дальше...   )Жанр: Электротехника, энергетикаФормат: PDF
+Тайна гималайских мумий привлекает к себе международную группу ученых, исследователей и археологов, которые отправляются в экспедицию, чтобы исследовать целый ряд пещерных захоронений, открытых в одном из самых удаленных мест в Гималаях.Производство: США, National GeographicЖанр: Документальный, исследованиеРежиссер: Дэнни ТиппингПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10BF6CB6D9E1D435A6B84E3FCFAFB76D61012B5D
+magnet:?xt=urn:btih:CF7FF4CAEBEE985D434475F8F08E145A72A763D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,26 +655,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205445   (783461) от 10.02.2018
+###  Публикация: 1277267   (785369) от 20.01.2019
 
-3D модели - Daz 3D - Dante 7 Pro Bundle - 37227 [DUF]
+Calibre 3.38.1 + Portable [Multi/Ru]
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Dante 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C288834A4FAA951750B928C9711381060BA8FEF9
+magnet:?xt=urn:btih:AE11F28C38C20C53E9B280AF8678A6379C092441
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,83 +681,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205561   (783460) от 10.02.2018
+###  Публикация: 1277310   (785368) от 20.01.2019
 
-Robert Rich - The Biode (2018) [FLAC|24/96|Lossless|WEB-DL|tracks] <Ambient>
+ZE FISH punk-rchstr (orchestra) - Welcome to Russia, если не страшно (2018) [MP3|320 Kbps] <Ska, Punk, Rock>
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Recalcitrant Malfeasance (03:14)
-02. Particles (04:35)
-03. Protista Mephista (08:21)
-04. Elevate the Hive Mind (07:29)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:57:38
+Для ознакомления третий альбом альтернативной Шнуру и Ленинграду группы. Вокально и музыкально интереснее, ИМХО!01. Дисклеймер
+02. Питер-Питер!
+03. Ни*уя хорошего
+04. Судья-пи*орас(   Читать дальше...   )Жанр: Ska, Punk, RockПродолжительность: 00:53:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F98404CB26E19C33127FA356C3D5311F57A1D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205229   (783459) от 10.02.2018
-
-Журнал | UPgrade №2 (806) (февраль 2018) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783459.jpg" />
-</div>
-
-
-###  Подробнее
-
-UPgrade – журнал о компьютерах и компьютерных технологиях, который стал первопроходцем на рынке массовых изданий о высоких технологиях. Cегодня издание – признанный лидер в своем медиасегменте. UPgrade – первое издание для широкого круга читателей, которых интересует не только сам по себе апгрейд компьютера, но и все, что так или иначе связано с миром IT.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3446D3943C05BA708EE84023C15973375D0BEB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205289   (783458) от 10.02.2018
-
-Сударушка-style - Формула любви (2017) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Потеряла голову
-02. Осина и клён
-03. Формула любви
-04. Разлука(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA579631C9769A09F3F0D942F8EED6ED1038BC4
+magnet:?xt=urn:btih:B1D90420241D7742B0229AF33E8B761CA369C2D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

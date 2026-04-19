@@ -1,3 +1,245 @@
+###  Публикация: 682030   (630780) от 23.07.2013
+
+ATB - Let You Go (Reworked) (2005) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630780.jpg" />
+</div>
+
+
+###  Подробнее
+
+ATB - Let You Go (Reworked)(Official Video HD)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0DFF54644FF9AF2A2457E21C857EE08DA3EB5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682048   (630642) от 23.07.2013
+
+Dannii Minogue - Who Do You Love Now (feat Riva) (2001) [720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630642.jpg" />
+</div>
+
+
+###  Подробнее
+
+DANNII MINOGUE 'Who Do You Love Now' (with Riva) 2001 HDЖанр: DanceПродолжительность: 00:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5008690D9EB784477DCF629C5908C7847BC7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682077   (630634) от 23.07.2013
+
+Kylie Minogue - The One (2008) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kylie Minogue - The One (HD)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C701CF79839C9BD429C7C9EFB0DEAABB136812CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682073   (630447) от 23.07.2013
+
+Kylie Minogue - In My Arms (2008) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kylie Minogue - In My ArmsЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2C56C8ACEC0E21D826F8DAF3F71A8F801A1C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682069   (630429) от 23.07.2013
+
+Kylie Minogue - Can't Get You Out Of My Head (2001) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kylie Minogue - Can't Get You Out Of My Head HDЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6408D8744EF07EFB9626948C7CD835AA09D30B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682869   (629995) от 23.07.2013
+
+Сборник клипов - VA - Various Music part. 44 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629995.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2 Chainz, Wiz Khalifa - We Own It (Fast & Furious) 1080p (2:37)
+2. AK Babe - We Don't CareЖанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF2926975F5E8188E470F7D477943713E5F9D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034797   (629931) от 15.07.2016
+
+Сборник клипов - Philizz "Tropical Summer" (2016) HDTV [1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Tropical Summer 2016" - фирменный видеомикс от голландского ви-джея Philizz. Устройтесь поудобнее, расслабьтесь и наслаждайтесь!
+Видеомикс - это видеосборник,составленный из небольших фрагментов клипов. Довольно новое явление в современной музыкальной культуре, насчитывает всего несколько лет, и все больше и больше приобретает популярность. (   Читать дальше...   )Twenty One Pilots - Stressed Out (Tomsize Remix)
+Alan Walker - Sing Me To Sleep
+Sigala ft. Imani & DJ Fresh - Say You Do
+Eagles - Hotel California (Diezeo Remix)(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2193692E50F1AAC08C3ECF11D55B478A3E76FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293943   (629620) от 07.04.2019
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью переделал выпущенный ранее сборник (растянул картинку с SD до HD) Вся сила энергия и мощь понастоящему крутой музыки! Это 2я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 2 - Intro
+01. Guns N' Roses - You Could Be Mine
+02. Kingdom Come - Should I
+03. Limp Bizkit - Take a Look Around(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7533F9DA9DAFEE7D3FD30FBD35B3EBC8607FC26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682031   (628610) от 24.07.2013
+
+Chicane - Saltwater (2000) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chicane - SaltwaterЖанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCD4C47E2475809C9E90D0CB180B68A16CA2684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682059   (628542) от 24.07.2013
 
 David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
@@ -438,261 +680,6 @@ Girls' Generation (аббревиатура So Nyeo Shi Dae - SNSD)- корей�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94D1FD9FD137642EA1B2990849A1716C6CE45179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 410381   (616151) от 16.07.2012
-
-Girls' Generation (SNSD) - Music video collection. Part 1 (2007-2012)
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обалденный концерт!Жанр: KPopПеревод: ОригинальныйСубтитры: Корейские, Английские
-
-Dvd, который прилагается к первому фотоальбому группыФормат: DVD videoПродолжительность: 3:29:48 (1:28:48+1:18:47+0:42:13)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254713F0F4D1FCD55F161B5294D57B858A2EB4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146627   (614320) от 29.06.2017
-
-Сборник клипов - Philizz "Back To The 90s" (episode 2) (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Вторая часть этой серии также посвящена музыке в стиле Rock Ballads, Reggae и R&B. Композиции этих стилей составляют данный сборник. Садитесь поудобней, расслабьтесь и наслаждайтесь спокойной и приятной музыкой 90-х!
-- Разбивка по трекам отсутствует.Savage Garden – Truly Madly Deeply
-Katrina & the Waves - Love Shine A Light
-Bob Marley ft. Lauryn Hill – Turn Your Lights Down Low
-Michael Jackson – Will You Be There(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37333C5D962095B14E865D2670C6BEBCB2475106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 685718   (609434) от 03.08.2013
-
-Сборник клипов - Philizz Videomix "Sunshine-Mexilum" (2013) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами очередной третий сборник видеоклипов "Sunshine"
-от голландского ви-джея Philizz. В качестве дополнительного
-бонуса - минимикс "Mexilum" (Philizz ft. MM²).01. Austin Mahone – What About Love
-02. Major Lazer ft. Busy Signal – Watch Out For This
-03. Stromae – Papaoutai
-04. Nelly – Hey Porsche(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: ~01:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1BF441C2E9EE96C557D37C477F94B193B65B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525321   (607502) от 21.07.2012
-
-Rafa Romero - Que No Acabe (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 00:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1AFC183DE74A2C2F3B88C53FBAE6A3714FAC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547041   (603798) от 26.04.2022
-
-Музыка для души (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимые песни и хиты, которые можно включить для фона и погрузиться в гармонию.
-Приятного просмотра.00:00 - Artik & Asti - Любовь после тебя
-03:52 - Мари Краймбрери ft. Звонкий - Как дела, малыш?
-06:09 - Ханна ft. Миша Марвин - Убью тебя
-08:34 - IOWA - В танце(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:140F60377362B70EC49B5BD23BF3151672C23FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149003   (602399) от 09.07.2017
-
-Сборник клипов - Philizz "Back To The 90s" (episode 3) (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Третья часть серии видеомиксов, основа которых - популярные клипы легендарных 90-х. Немного ускоряем темп. К уже привычным по первым двум сериям клипам в стилях  Rock Ballads, Reggae и R&B добавляется не менее любимый всеми стиль Eurodance!  И вновь Philizz предлагает (   Читать дальше...   )Ace of Base – All That She Wants
-Robyn – Show Me Love
-Texas – Say What You Want
-Steps - Say You'll be mine(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A8B5C970CDE2A47DB4E454D2387D559A347A022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 686687   (601321) от 06.08.2013
-
-DJ Jessica - Azov Fest (Uncensored) (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC330ECFFE9E4BCE14DB5BC364F8B4786C27FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548339   (600129) от 02.05.2022
-
-Леонид Агутин и Владимир Пресняков – ДНК (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песня «ДНК» была написана больше года назад. Предложил Володе дуэт и очень благодарен другу, что он откликнулся. Выход в свет «ДНК» намечался на начало марта. Известные события внесли коррективы в наши планы. Изначально песня написана о любви. О том как взрослые люди осознанно переживают настоящую привязанность, настоящую человеческую близость, которая выше страсти. (   Читать дальше...   )Производство: Velvet MusicЖанр: PopРежиссер: Виталий НиколаевПродолжительность: 00:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15FBD31BFADF13EF35B169F50C2CC29E9CDA3C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913609   (599965) от 01.07.2015
-
-VA - Летний марафон № 175 / Видеоклипы (Turbo Дискотека) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (29.06.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.1. 5Angels - Long Lost Weekend (Official Video) (00:03:19)
-2. Andeeno Damassy ft. Jimmy Dub - Ese Amor (Official Video) (00:03:42)
-3. Auryn - I'll Reach You (Official Video) (00:04:25)
-4. Claydee & Ermal Mamaqi - Senorita (Official Video) (00:04:14)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Reggaeton, RockПродолжительность: 01:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689A9EB0A5DD59B94A9F3DA55C234B529E1BAE2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

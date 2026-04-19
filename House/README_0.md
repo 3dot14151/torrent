@@ -1,3 +1,90 @@
+###  Публикация: 1853512   (1056839) от 13.02.2026
+
+VA - Chill House Classics (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin, Nezhdan & Note U - Casablanca 05:55
+02. Anton Ishutin & Note U - Summer Jam 06:52
+03. Anton Ishutin & Nikita Malinin - D.N.A 05:36
+04. Sharapov - Keep On Rising 05:25(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC84176C369703AC0EEC29C9ED1D3B27C76048B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853449   (1056838) от 13.02.2026
+
+VA - Black Hole House Music 02-26 (2026) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PARAFRAME & PUROFY - Feel The Silence (Extended Mix) [5:17]
+02. Andy Duguid - 11 Things (Extended Mix) [5:18]
+03. Robbie Rivera & Pax Paloma - Can We Go Back (Extended Mix) [3:55]
+04. Kiholm, Kris O'Neil, FACTORe & SCHROEDS feat. Luke Coulson - Going Under (Kiholm & Kris O'Neil Extended Mix) [5:41](   Читать дальше...   )Жанр: House, Progressive House, Melodic House & TechnoПродолжительность: 02:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BACDDDD0BE6925E22EB21E1A0221AA78C366A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853246   (1056507) от 12.02.2026
+
+VA - Winter Hits Dance Selection 2026 Vol. 2 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FaraoN & Giulia Mihai - Need Your Love 04:33
+02. Padukov - Take My Hand 03:44
+03. FaraoN - Heaven 04:34
+04. FaraoN - Can't Stop Us 03:37(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6150240593E6588A06CA082EADAD6155EFE97A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853242   (1056506) от 12.02.2026
 
 VA - Winter Hits Dance Selection 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
@@ -655,93 +742,6 @@ VA - Best of Brisbeats, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40F9C3AC46C2BEF86CB8E4A8AC78D636E43B069B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840038   (1047056) от 02.12.2025
-
-VA - Deep House Night Drive, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SlaXy - Midnight Skyline [02:26]
-02. Flyby - Neon Pulse [03:19]
-03. Synthix - Drive Into the Night [03:39]
-04. VoxLum - Electric Horizons [02:39](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A70C0D353911A74215EF8F4E8BCBA29E7E2F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839866   (1046874) от 01.12.2025
-
-VA - Deep Reflections: Winter Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lester Isaac & M-Sol DEEP - Keep Knocking (Original Mix) [6:02]
-02. TEO (SL) & M-Sol DEEP - Spirit Bloom (Original Mix) [7:35]
-03. Random Thoughts & M-Sol DEEP - Malt (Original Mix) [5:03]
-04. Will Flint & M-Sol DEEP - Twilight (Original Mix) [5:49](   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7B855F8A8DF7B73055CD10A713FE90841DE156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602904   (1045943) от 07.01.2023
-
-VA - Best Of Winter (2022) [MP3|320 Kbps] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. dub.format - Keep
-02. Ohmz - Golden Temple
-03. Missfeat - Friends Lovely Friends
-04. Tebra - Endless(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDC08A859BDF3D64D54D6A6A698BA05303820A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

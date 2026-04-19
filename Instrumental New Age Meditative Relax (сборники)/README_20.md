@@ -1,3 +1,32 @@
+###  Публикация: 1739609   (48195) от 01.08.2024
+
+VA - compilation  part 106 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instrumental, Saxophone>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ladynsax - Payaar
+02. Daniel Sax - Kissing a Fool
+03. Jk Sax - How I Love You (Engelbert Humperdinck)
+04. Jk Sax - The Last Waltz (Engelbert Humperdinck)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 02:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD524BF2E29B396EE172B3A13FEA50E1748FE6B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739819   (48191) от 01.08.2024
 
 VA - compilation  part 108 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instrumental, Saxophone>
@@ -716,35 +745,6 @@ VA - Buddha Bar - Premium Playlist {#, a} (2007-2025) [MP3|320 Kbps] <Lounge, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0310E0FB7272F4B7F820CF88C7F75EA1BD06883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819725   (1130) от 24.09.2025
-
-VA - Buddha Bar - Premium Playlist {b} (2007-2025) [MP3|320 Kbps] <Lounge, Chill-Out, World Music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.A.Z - Zameen Aasman {Buddha-Bar A Trip To India, 2016}.mp3
-02. Bahramji & Mashti - All About You {A Night At Buddha-Bar Hotel, 2011}.mp3
-03. Bahramji & Mashti - Being With Your {Siddharta Budapest, 2010}.mp3
-04. Bahramji & Mashti - Jodaie Separation {Buddha-Bar - 25, 2023}.mp3(   Читать дальше...   )Жанр: Lounge, Chill-Out, World MusicПродолжительность: 07:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D958F0C5E127441D5DD7348A8F56192745627227
 ```
 
 https://mybot314.ru/tekegram_catalog/

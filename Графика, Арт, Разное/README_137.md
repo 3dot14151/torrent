@@ -1,3 +1,29 @@
+###  Публикация: 1633214   (198416) от 14.05.2023
+
+Иконки - 3D Object Set [PNG, BLEND]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор иллюстраций и 3D моделей с мультяшными гаджетами.Формат: PNG, BLENDРазрешение файлов: 2000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BA08624E3B089859CF32EEC350EFA4407FC655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633622   (198316) от 16.05.2023
 
 Иконки - Рrofеssiоn 3D Аvаtаrs [BLEND, PNG, OBJ, PSD]
@@ -663,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D5029E1A59B69B657706E55F044D6DEB18EFD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593983   (179091) от 29.11.2022
-
-Иконки - Christmas hands and objects by icons8 [PNG, C4D, FBX, OBJ, MAX]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используется для любых веб-сайтов, приложений, поздравительных открыток, баннеров, открыток, брошюр и любых других проектов.Формат: PNG, C4D, FBX, OBJ, MAXРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82870C3BEA87EE15CBAB8D572BDC2CD9652B0997
 ```
 
 https://mybot314.ru/tekegram_catalog/

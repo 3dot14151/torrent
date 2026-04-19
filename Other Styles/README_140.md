@@ -1,3 +1,206 @@
+###  Публикация: 849635   (277615) от 15.12.2014
+
+James Last - The Classic Touch (1988) 5CD [FLAC|Lossless]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277615.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Easy-Listening Favourites
+1. Air On The G String
+2. Adagio From 'New World Symphony'
+3. Marche Slave(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1AC035F746A1BCD86CFED1EC7ADDCE2C75F2D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 673034   (277574) от 25.11.2018
+
+Gipsy Kings - 16 альбомов (1982-2006) [MP3|320 кб/с]<Rumba - Flamenco>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+1982 - Allegria (переиздан 1990)
+1983 - Luna De Fuego (переиздан 1990)
+1988 - Gipsy Kings(   Читать дальше...   )Жанр: Rumba - FlamencoПродолжительность: 01:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8E111045CA3ABB411E79F581A52CBDC5AF82A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336782   (277528) от 08.11.2019
+
+Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freaks (02:08)
+02. I'm Eleanor Reed (02:40)
+03. Time Bubble (01:34)
+04. She Looks Like an Angel (01:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0DEAE5A4E6F8E1BC723DB5F1C54BA93788BAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336783   (277526) от 08.11.2019
+
+Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freaks (02:08)
+02. I'm Eleanor Reed (02:40)
+03. Time Bubble (01:34)
+04. She Looks Like an Angel (01:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45824C50A00A5DC1E9A30187576167C658BF026C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 170341   (277404) от 25.11.2018
+
+Зодиак - 7 альбомов (1980-2008) [MP3|320 kbps]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зодиак - 05:24
+02. Рок на льду - 02:50
+03. Пасифик - 04:02
+04. Мираж - 04:12(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B654C0122E9F57DEF12EE4515762B7F07B0FECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081748   (277375) от 13.12.2016
+
+Francois Jolin - Alice VR  (original soundtrack) (2016) [MP3|320 Kbps] <OST, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From the Void
+02. Engine Malfunction
+03. The Red Queen
+04. Sea of Tears(   Читать дальше...   )Жанр: OST, ScoreПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1500DB8E94E6E9EB5999677480BF8F8280C059A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187622   (277295) от 30.11.2017
+
+Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Story (04:08)
+ 02. Season Romance (04:53)
+ 03. Life Journey (03:48)
+ 04. Cherish (04:19)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D69E3EC0775DE2F2252236925B93367CCFA155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336803   (277184) от 08.11.2019
 
 Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
@@ -539,209 +742,6 @@ James Horner & Simon Franglen - The Magnificent Seven / Великолепная
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FB4A57C439AC79A5EE881AE1504CC6B0AB679B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188865   (273520) от 03.12.2017
-
-Deuter, Parijat and Kamal - Spa Lounge (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273520.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Apres La Pluie (6:36)
-2.  Ruparahi (5:51)
-3.  Olive Grove (8:31)
-4.  Subandallah (9:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BD19A3F64D5E7D259F49E4B1B5C73FB9B3F589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083592   (273473) от 16.12.2016
-
-Михаил Костылев - 28 Панфиловцев (Оригинальная музыка к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог (00:54)
-02. То ли легенда то ли миф (08:29)
-03. Стоять намертво (15:02)
-04. Фашистская гидра (06:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8506B3631D55FE06318A1658CF89AEAC1D6B2AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083415   (273472) от 16.12.2016
-
-Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны. Истории (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Here For Us (03:20)
-02. A Long Ride Ahead (03:56)
-03. Wobani Imperial Labor Camp (00:54)
-04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1087B4F94CF0A71134112FA3A4AA7FB521830C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431150   (273462) от 11.11.2019
-
-Kevin Kern - Enchanted Piano (2011) [APE|Lossless]<New Age ,Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kevin Kern - Enchanted Piano (2011)
-Год: 2011
-Жанр: New Age , Piano
-Продолжительность: 00:43:00(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44CC487DEC53CFF8EF2C0622E28DFF963D56E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656570   (273449) от 11.11.2019
-
-Cris Velasco, Sascha Dikiciyan, Jesper Kyd, Raison Varner - Borderlands 2 Original Soundtrack (2012)[FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascent (4:17)
-02. Ash (1:48)
-03.  Caverns (2:21)
-04. Glacial (2:17)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D356C1E094685314CD9E5CAACCC41A0276009C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188811   (273345) от 03.12.2017
-
-VA - Forever Instrumental:  Accordion  (2005) [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biscaya
-02. A Night In Paris
-03. Flight On The Bumble Bee
-04. La Traviata(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 01:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF72320C1D3046A0C6F81A143DEB49CDACA5648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188510   (273340) от 03.12.2017
-
-Jerry Holland - Romantic Accordion (2001) [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be My Lover
-02. Malaika
-03. Romance
-04. St. Tropez(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6AB9C8AF7B4E8530864BFE28F7BCE930A0C835D
 ```
 
 https://mybot314.ru/tekegram_catalog/

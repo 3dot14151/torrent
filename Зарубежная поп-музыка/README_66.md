@@ -1,3 +1,61 @@
+###  Публикация: 1190730   (266038) от 11.12.2017
+
+Francesca Longrigg - True Noise (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanging in Mid Air
+02. Could It Be Me
+03. Baby, I
+04. Love, Why Are You so Late?(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D770354C9B21FD5995B19A7CE178C63EB758A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267572   (265804) от 07.12.2018
+
+VA - Best Driving EDM 2019 (2018) [MP3|320 Kbps] <Big Room, Dance, Progressive House, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaxRiven - Moonlight Shadow (Original Mix) 3:38
+02. Turbotronic - Disco Night (Radio Edit) 2:39
+03. Raph & 2room - Apache (Radio Edit) 3:09
+04. Geo Da Silva - Tonight Is The Night (Radio Edit) 3:26(   Читать дальше...   )Жанр: Big Room, Dance, Progressive House, ElectroПродолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB27485A14E46D273184C349B8DFFC52CCBC184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339652   (265351) от 20.11.2019
 
 Tom Rod - Understand (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
@@ -699,64 +757,6 @@ VA - The Greatest Singer-Songwriter Classics (2015) 3 CD [OGG Vorbis|480 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB619429BB8C045BC11252E04C9F68D4424F0694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838191   (257987) от 21.11.2025
-
-VA - Formel Eins - Double Fun (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Europop, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depeche Mode - Enjoy The Silence
-02. David A. Stewart feat. Candy Dulfer - Lily Was Here
-03. Marc Almond - A Lover Spurned
-04. They Might Be Giants - Birdhouse In Your Soul(   Читать дальше...   )Жанр: Electronic, Pop, Europop, Synth-pop, DiscoПродолжительность: 02:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92787E37CF21FAA4D225FAC9E317EAA3880A996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838060   (257745) от 20.11.2025
-
-VA - Always And Forever (1987) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris De Burgh - The Lady In Red     04:18
- 02. Atlantic Starr - Always     03:59
- 03. Janet Jackson - Let's Wait A While     04:37
- 04. Peter Cetera - Glory Of Love     04:21(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft Rock, BalladПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0216A683427E86E62F5BC6F5D3ACF6BB475CE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

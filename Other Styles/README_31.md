@@ -1,3 +1,177 @@
+###  Публикация: 1108207   (864544) от 24.02.2017
+
+VA - Bedouin Nights (2015) [MP3|320 Kbps] <Arabic, Arabic Pop, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancienne S. - Koubba
+02. Aqualife - Colours of Life
+03. Audio P - After Hours
+04. Ayra - Sweet Smoke(   Читать дальше...   )Жанр: Arabic, Arabic Pop, New Age, WorldПродолжительность: 02:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB37F6B93B98000A57877C783110731F964E6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108159   (864533) от 24.02.2017
+
+Blonker - Zeitreise-25 Jahre Gitarrenmusik (2003) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864533.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Sidewalk Cafe (3:13)
+02. Cape Ladiko (3:25)
+03. Zeitreise (2:54)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 02:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C40728459FDF0EA0C11A6B25718FCE6842E9A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108123   (864529) от 24.02.2017
+
+Deva Premal - Password (2011) [FLAC|Lossless|tracks + .cue] <New Age, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mangalam (10:16)
+02. Shyam! (7:06)
+03. Sri Nanda- Nandanastakam (7:41)
+04. Narasimha (7:12)(   Читать дальше...   )Жанр: New Age, MantrasПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529E93E9C7AB8A17EC706E30A216B702FBAD11CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108332   (864270) от 24.02.2017
+
+Mairead Nesbitt - Hibernia (2016) [MP3|320 Kbps] <Instrumental,  Celtic,  Folk>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallowed Fire
+02. The First Sheaf
+03. Becoming
+04. Seán Ó Duibhir A' Ghleanna(   Читать дальше...   )Жанр: Instrumental,  Celtic,  FolkПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0606489F9193C0AE69FC5FB0BA792E12061F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497507   (863066) от 23.09.2021
+
+Unknown Artist - A Night In A Greek Taverna (Unknown) [FLAC|Lossless|image + .cue] <Folk, Country, Laiko;>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ti Lozani, Ti Kozani (3:08)
+02. Fragkosirianoi (2:26)
+03. Kai Tote Monos (4:07)
+04. Leei-Leei (3:00)(   Читать дальше...   )Жанр: Folk, Country, Laiko;Продолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69699C288E57B1F084B08C7F3C00ED771AC1D510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108539   (862579) от 25.02.2017
+
+Tristeria - Epoka (2011) 2017 Tristeria [FLAC|Lossless|WEB-DL] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashrouk
+02. Darkness
+03. Ethnika
+04. I Love You (Dimitra)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897CA1392BA1DDFFB1FA62BBCE94260106425DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999700   (861972) от 23.03.2016
 
 Иеродиакон Герман (Рябцев) - Псалмы Давидовы (2001) 5CD Box Set [FLAC|Lossless|image + .cue] <Песнопение>
@@ -580,186 +754,6 @@ John Murphy - 28 недель спустя / 28 Weeks Later (2007) [MP3|320 kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC516EB5E5E5C6C9B37353A5A53DB0A3F9ADFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377019   (854588) от 20.04.2020
-
-Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Metal, Electro>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854588.jpg" />
-</div>
-
-
-###  Подробнее
-
-|05:02| 01. Mick Gordon, Chad Mossholder - Hell On Earth
-|05:33| 02. Mick Gordon - Cultist Base
-|03:37| 03. Mick Gordon, Chad Mossholder - Blood Harvesting
-|07:51| 04. Mick Gordon, Chad Mossholder - Soul Extraction(   Читать дальше...   )Жанр: Soundtrack, Score, Industrial Metal, Electro-Industrial, Dark AmbientПродолжительность: 04:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A2B25F2D9BEF4B8559464E2D6A8DFED6AF8299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498519   (853994) от 28.09.2021
-
-2Cellos - Dedicated (2021) [FLAC|Lossless|image + .cue] <Instrumental Pop, Instrumental Soft Rock, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853994.jpg" />
-</div>
-
-
-###  Подробнее
-
-2CELLOS - всемирно известный хорватский дуэт виолончелистов, который составляют Luka Šulić и Stjepan Hauser. Музыканты исполняют инструментальные аранжировки известных поп- и рок-песен, а также классическую музыку и музыку из фильмов. Собрав более 1,3 миллиарда просмотров на YouTube, миллиарда audio streams, бесчисленные аншлаговые концерты и миллионы поклонников (   Читать дальше...   )1. Wherewer I Go (3:23)
-2. Bad Guy (2:38)
-3. Sweet Child O' Mine (4:01)
-4. Halo (4:22)(   Читать дальше...   )Жанр: Instrumental Pop, Instrumental Soft Rock, ClassicalПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54987459F48F25C33AE0CF649CBDE9B4506034F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110292   (853735) от 02.03.2017
-
-Isgaard - Whiteout (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Сrossover, Pop-art, Progressive>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (3:28)
-02. No Man's Land (5:48)
-03. Shine On (4:54)
-04. You Didn't Fall (4:35)(   Читать дальше...   )Жанр: New-Age, Сrossover, Pop-art, ProgressiveПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A2A12073CF45008A0D13901609D0B9AD10B9D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110197   (853606) от 02.03.2017
-
-VA - The Best of Instrumental Music (2004) Compilation [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Mauriat Orchestra - El Bimbo (2:30)
-02. Candy Dulfer & Dave Steward - Lily Was Here (4:18)
-03. The Ventures - Vibrations (2:53)
-04. Mario Cavallero - La Cumparsita (2:32)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B31042B9D4421B70FFADBA128FD2A5B35651C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191324   (853020) от 11.04.2010
-
-Various - Полонезы И Вальсы Русских Композиторов (1990) [FLAC|Lossless]<Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Waltz From The Ballet Raymonda
-02 - Waltz From The Ballet Lady Soubrette
-03 - Waltz From Ballet Suite Op.52
-04 - Waltz Capriccio
-05 - Waltz From The Opera Eugene Onegin
-06 - Polanaise From The Opera Christmas Eve
-07 - Polonaise From The Opera Pan Voyevoda
-08 - Introduction And Polonaise From The Opera Boris Godunov
-09 - Polonaise From Ballet Suite Op. 52
-10 - Polanaise From The Opera Cherevichki(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000891   (852107) от 29.03.2016
-
-John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Work Is Done
-02. Now the Day Is Over
-03. Dream Dance
-04. Goldberg Sleeps(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8BF03158A5037520E18CE51D23A2AC4DB8C0CE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

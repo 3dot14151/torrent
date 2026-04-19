@@ -1,3 +1,29 @@
+###  Публикация: 1446264   (1033019) от 08.02.2021
+
+Macsome Spotify Downloader 2 v2.1.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spotify Downloader для Mac - это профессиональный Music Converter, Audio Downloader и Recorder, который может конвертировать все музыкальные файлы и плейлисты Spotify в MP3, AAC, FLAC и WAV и разблокировать Spotify, так что вы можете воспроизводить преобразованные треки на Sony PSP, Sony Walkman, iRiver, общий MP3-плеер и так далее.Тип издания: macOS SoftwareРелиз состоялся: 07.02.2021Разработчик: Macsome Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0828D2B47881A6AE4EF7AF30EB29F5062ACB6D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446488   (1032732) от 09.02.2021
 
 KPlayer 2.1.0 [En]
@@ -649,32 +675,6 @@ Downcast – программа для загрузки и прослушива�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A62B01B0AEC898349F237861EA4314A01A801A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351472   (1002178) от 10.01.2020
-
-vGuru - Video Player 1.6.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002178.jpg" />
-</div>
-
-
-###  Подробнее
-
-vGuruSoft Video Player - отличительный HD мультимедийный проигрыватель, который поддерживает более 200 мультимедийных форматов, таких как МТС, MKV, VOB, MP4, AVI, MP3, 4K, SRT, ASS и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2019Разработчик: vGuruSoft Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA951F598E794901832A35F9F2C86A07FB9842A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

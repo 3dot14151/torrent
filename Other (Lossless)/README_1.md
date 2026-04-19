@@ -1,3 +1,61 @@
+###  Публикация: 1203275   (788122) от 02.02.2018
+
+Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Divorce Me C.O.D.
+2. Deep South
+3. Blue Smoke
+4. So Round, So Firm, So Fully Packe(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D976318DDDFA61E510B8C29CEB16D7753CD21534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124071   (785927) от 10.04.2017
+
+Mixed Choir под управлением М. Попсавова - Страстная пятница - Bulgarian Orthodo (1993) [FLAC|Lossless|tracks + .cue] <Orthodox Liturgy>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Great Litany (Velika ektenia) [6'13"]
+02. Good-Looking Joseph (Blagoobraznii Jossif) [8'05"]
+03. Grave-Wailing (Nadgroben plach) 20:44
+04. Eulogitarium [06:16](   Читать дальше...   )Жанр: Orthodox LiturgyПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270A002BEE164A55CEDD39D4B10834C02C581B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276824   (785332) от 20.01.2019
 
 VA - Virtually Surrounded (Headphone Demo) (2018) [FLAC|Lossless|tracks + .cue] <Demonstration & test>
@@ -698,75 +756,6 @@ Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
 05. Safety In Numbers (07:53)
 06. Everything All Of The Time (09:38)
 07. Saint (09:01)1999-2006Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509995   (672202) от 13.06.2012
-
-Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain Leuh (05:08)
-02. Jeroen Van Aken (09:11)
-03. Three (05:26)
-04. Adolescent (05:30)
-05. Abutting, Dismantling (06:26)
-06. Young and Old (06:33)
-07. Du Meine Leise / ALTMIX (03:52)
-08. XXX / GS + Tiempo (04:40)
-09. Lean / GS + B Donne (07:09)2002-2009Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510253   (670651) от 14.06.2012
-
-Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|Lossless]<Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jacques Arcadelt - La pastorella mia [03:03]
-02. Filippo Azzaiolo - Ti partir cor mio caro [01:44]
-03. Francesco da Milano - Fantasia 16 [01:10]
-04. Marchetto Cara - Mal un muta per effecto [02:24]
-05. Anonimo - Perla mya cara [02:32]
-06. Francesco da Milano - Fantasia 31 [01:17]
-07. Joan Ambrosio Dalza - Piva [02:04]
-08. Antonio Caprioli - Quella Bella E Biancha Mano [02:44]
-09. Vincenzo Capirola - Balletto [01:59]
-10. Adrian Willaert - Vecchie letrose non valete niente [00:59](   Читать дальше...   )1993-1994Жанр: ClassicalПродолжительность: 00:54:51
 
 ## Скачать торент
 ```bash

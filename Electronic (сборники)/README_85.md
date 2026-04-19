@@ -1,3 +1,61 @@
+###  Публикация: 1287964   (699770) от 09.03.2019
+
+VA - Techno House: Fashionable Music (2019) [MP3|320 Kbps] <Techno, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699770.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Volkan Erman - Hope (Original Mix)
+002. Jamie Roy - Movin'
+003. Caravaca - Gotcha
+004. Sante Sansone - Keep Movin'(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 09:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE52AE8F266B08F23C9239EB3D73C79D64F001B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287727   (699629) от 09.03.2019
+
+VA - Trap Pro V.02 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Trap, Future Bass, Electronica>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yerbownik - Save Me (Original Mix) [4:34]
+02. Julius Kasa & No ExpressioN, Stephen Geisler - Never Be The Same (Original Mix) [3:28]
+03. EBEN & Calli Boom - Exhale (Original Mix) [3:08]
+04. Barren Gates & Beauz feat. Harley Bird - Tomorrow [2:35](   Читать дальше...   )Жанр: Trap, Future Bass, ElectronicaПродолжительность: 02:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329D0F95D7CC1D29AE5CFDF8FACAF4FEAF88EDD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287769   (699624) от 09.03.2019
 
 VA - Get Physical (2019) [MP3|320 Kbps] <Drum And Bass, Dubstep>
@@ -686,64 +744,6 @@ VA - Best Chillout Vol.29 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:659275FAFBDCE6C18EAF37296535300D5EBC7B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133254   (696708) от 11.05.2017
-
-VA - Keep Moving: 100 Progressive Mix (2017) [MP3|320 Kbps] <Progressive House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696708.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Afterboy A.K.A. Joseph Pecsvari - Girls In Deep 6:16
-002. Akrosonix - Casualties Of Love (Original Mix) 5:37
-003. Al - B - Give Me Your Love 4:26
-004. Alex Mel - Summer Skies (Feat. Michaelangelo) 4:11(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 10:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77529BA4A9DFC224AC9D86E9ACE5811F59EA3378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027558   (696666) от 19.06.2016
-
-VA - Your Temptation: Downtempo Mediterranean Mix (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonoric Academy - Under Dress - Water Mix
-02. Meadowlark - Eyes Wide
-03. Oblique Style - Relax Yourself (Baia Mix)
-04. Interior Beats - Green Blink - Nigh O' Phonic Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51917B927E8C80B7BAF557111D7C76C47DED88C
 ```
 
 https://mybot314.ru/tekegram_catalog/

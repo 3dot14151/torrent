@@ -1,3 +1,29 @@
+###  Публикация: 537874   (504894) от 28.08.2012
+
+Computer Desktop Wallpapers Collection (21.08.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9487E9B30D8A4CFBB4BD0FB250066A8A2A80EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540230   (504822) от 28.08.2012
 
 ANIME-PATCHWORK (28.08.2012) [Графика]
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37E394B888D606DA6F2F0882B0A6A15D2BAB6903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540506   (502436) от 30.08.2012
-
-Digital Art Collection (29.08.2012) [Графика]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Art Collection (06.08.2012)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C92B6D5BCD9496C7A4702F866A1CED1D63D3A5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

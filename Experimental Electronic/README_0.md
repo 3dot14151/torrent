@@ -352,6 +352,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493796   (248971) от 08.05.2012
+
+In The Nursery - 35 albums (1986-2011) [mp3|320 kbps] <Neoclassical, Darkwave, Industrial, Ambient>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artisans of Civilisation (06:57)
+02. Past Glory (05:01)
+03. Blind Sound (04:40)
+04. Crepuscule (04:19)
+05. Trial By Error (05:25)
+06. Coloured Silence (03:01)
+07. Lectern (04:32)
+08. Crave (05:28)
+09. Resonate (03:55)
+10. Overtone (02:11)Жанр: Neoclassical, Darkwave, Industrial, AmbientПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492280   (247980) от 05.05.2012
 
 Archon Satani - 8 albums (1991-2002) [mp3|192-320 kbps] <Dark Ambient, Ritual Ambient, Death Industrial>

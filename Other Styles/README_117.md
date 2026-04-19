@@ -1,3 +1,224 @@
+###  Публикация: 1169085   (403152) от 27.09.2017
+
+Brian Tyler - Law Abiding Citizen (2009) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Designs
+02 - Predestined
+03 - Mechanical Mind
+04 - Origins(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F674F5F0FDFA77B611E01F749A597675C96B14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169097   (403148) от 27.09.2017
+
+Ashla Taylor - Truth Is... (2017) EP [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Truth Is (3:24)
+02 - Nothin' About Love (2:51)
+03 - Waves (2:55)
+04 - First Kiss (2:44)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B875C20795F36DABEB22D98D06C7E87F7A73115E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168870   (403104) от 27.09.2017
+
+Richard Evans - Seaside: Solo Piano (2008) [FLAC|Lossless|tracks] <New Age, Solo Piano, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Beginnings (5:48)
+ 02. Sea Breeze (5:31)
+ 03. Riding The Surf (5:27)
+ 04. Watching The Shorebirds (5:13)(   Читать дальше...   )Жанр: New Age, Solo Piano, RelaxПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED33C69ABC8A1A888FB44C081E7A7CCB49420068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564207   (402849) от 23.10.2012
+
+Daridan - Listen To Beautiful Music II (2012) [MP3|320 кб/с]<New age, Instrumental, Relax, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402849.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:55) 01. Do Not Ask Me Who
+(4:26) 02. A Thousand Words
+(4:41) 03. Monsoon
+(3:52) 04. Double Star Love Song
+(4:23) 05. Embrace The Starlight
+(5:40) 06. Hand
+(4:33) 07. Never Been Relentless Love
+(3:47) 08. Fishing Boat Lights Shining
+(4:44) 09. Aizaishenqiu
+(4:36) 10. The Edge Of Love And Pain(   Читать дальше...   )Жанр: New age, Instrumental, Relax, PianoПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1558E7C3DA97311F2A48C9C8400BA4FFC43893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564122   (402794) от 23.10.2012
+
+Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Elena [03:49]
+02. Maria-La-O [03:27]
+03. La Mer [05:10]
+04. Concierto De Aranjuez [04:33]
+05. One Note Samba [03:54]
+06. Amapola [04:00]
+07. Besame Mucho [04:23]
+08. The Girl From Ipanema [04:25]
+09. It's Now Or Never [03:45]
+10. Guantanamera [04:26](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564144   (402789) от 23.10.2012
+
+Manuel Granada - The Hi-Fi Sound of Spanish Guitar (2007) [FLAC|Lossless]<Guitar, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Te Quiero Dijiste [02:22]
+02. Angelitos Negros [03:34]
+03. Maria Elena [03:08]
+04. Beguin The Beguine [03:42]
+05. Cuando Sali De Cuba [02:53]
+06. Cielito Lindo [02:38]
+07. Amapola [02:28]
+08. La Flor De La Canela [03:37]
+09. Guadalajara [02:33]
+10. My Way [03:06](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169689   (402405) от 28.09.2017
+
+Various Artists - Pretty Woman (1990) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Natalie Cole - Wild Women Do
+02 - David Bowie - Fame 90
+03 - Go West - King Of Wishful Thinking
+04 - Jane Wiedlin - Tangled(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C210D2B00847842A8999B9F28F9A38AFCCDEA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169632   (401596) от 29.09.2017
 
 Rolfe Kent - Kate & Leopold (2001) [MP3|320 Kbps] <Score>
@@ -560,215 +781,6 @@ Randy Newman - Maverick (1995) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A31688D2DF8E4CE94CDC613B9AAE4DF72BA13703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567217   (396755) от 29.10.2012
-
-Delerium - Music Box Opera (2012) [FLAC|Lossless]<New Age, Ambient, Chillout, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Consciousness Of Love (feat. Stef Lang) [4:39]
-02.  Monarch (feat. Nadina) [5:20]
-03.  Days Turn Into Nights (feat. Michael Logen) [6:10]
-04.  Chrysalis Heart (feat. Stef Lang) [3:51]
-05.  Light Your Light (feat. Jael) [5:40]
-06.  Raindown [5:50]
-07.  Sky (Tears From Heaven) (feat. Kristy Thirsk) [7:11]
-08.  Hammer (feat. Leona Naess) [5:35]
-09.  Awakening (feat. Nadina) [6:46]
-10.  Frostbite (feat. Anna-Lynne Williams) [6:02](   Читать дальше...   )Жанр: New Age, Ambient, Chillout, DowntempoПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171390   (396734) от 04.10.2017
-
-David Arnold - Stargate (The Deluxe Edition) (2006) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stargate Overture
-02 - Wild Abduction
-03 - Giza, 1928
-04 - Unstable(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3C91A4B0DB0279C30EBF2BAF0CCECF5815D97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171392   (396680) от 04.10.2017
-
-Joel Goldsmith - Stargate: Atlantis (2005) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Main Title
-02 - Atlantis Takes Flight
-03 - Rogue Drone
-04 - Messages(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE816B06332699687713DC64624D27F1A99FB0B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171474   (396567) от 04.10.2017
-
-Jesse Cook - Beyond Borders (2017) [MP3|320 Kbps] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Borders
-02. Hembra
-03. Unchosen
-04. To the Horizon(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6FC1E3C7FB1D09AB4CE2226C1989F024D5AC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171443   (396560) от 04.10.2017
-
-Nino Rota & Carmine Coppola - The Godfather Trilogy I - II - III: 30th Anniversary (2001) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Godfather - Waltz
-02 - The Godfather - Love Theme from The Godfather
-03 - The Godfather - Sicilian Pastorale
-04 - The Godfather - The Pick-Up(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6EDEA0E1F5C14EE1D00DCC3D6C169B5456E922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171430   (395754) от 05.10.2017
-
-Harald Kloser - The Day After Tomorrow (2004) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Day After Tomorrow
-02 - Tornado Warning
-03 - Sam!
-04 - Tidal Wave(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B25F592F3AC978618E60267AC61697A3EE62DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171404   (395703) от 05.10.2017
-
-VA - La Femme Nikita (TV Series) (1998) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mark Snow - Main Title
-02 - Enigma - Beyond the Invisible
-03 - Mono - Silicone
-04 - Depeche Mode - The Love Thieves(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E27E4541CC9E6BA987D6FBAC859DAF222F03FC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

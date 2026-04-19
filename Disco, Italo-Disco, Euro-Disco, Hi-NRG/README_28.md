@@ -1,3 +1,61 @@
+###  Публикация: 1060634   (455185) от 07.10.2016
+
+Poussez! - Poussez! (Poo-say) (1979) Reissue CD (2005) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On And Do It (7:29)
+02. Boogie With Me (7:53)
+03. You're All I Have (8:58)
+04. Never Gonna Say Goodbye (7:58)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3325EE279CC3281CC5D23395B1FF0549A1F3ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247132   (454931) от 14.09.2018
+
+Liquid Gold - Liquid Gold (1981) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Panic (2:58)
+02. Substitute (4:29)
+03. The Night The Wine The Roses (4:26)
+04. Mr. Groovy (5:45)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EFDA8CEFAD38424A53D81230B12A440AF47AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569327   (453504) от 12.08.2022
 
 Bad Boys Blue - Totally (1992) [OGG|485 Kbps] <Disco>
@@ -692,64 +750,6 @@ Mike Mareen - Greatest Hits & Remixes (2020) [OGG|485 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D365AA08CA6E05F101016CC8580AB6C0AC376A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570292   (445011) от 16.08.2022
-
-VA - The Best Of Italo-Disco Vol. 7 (1991) Vinyl-rip [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Mareen–	Love-Spy (The Badman-Mix)	6:12
-02. Ken Laszlo–	Don't Cry (Vocal)	5:33
-03. K·B·Caps*–	Do You Really Need Me	6:37
-04. Grant Miller–	Doctor For My Heart	5:17(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F666BA66D21CA756CCA774220216B2723DE6886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570208   (445005) от 16.08.2022
-
-Radiorama - Greatest Hits & Remixes Vol. 2 (2021) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vampires (Swedish Remix)	6:25
-02. Desire (Remix)	6:00
-03. Fire (Extended Swedish Remix)	6:33
-04. Aliens (Swedish Remix)	5:50(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8FD7055B9948E4553B45AD749A9D2740B0FD8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1763614   (35403) от 02.12.2024
+
+VA - The Orient Collective: Timeless Sands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juantxo Munoz, Robric, Tibetania - El Libanes (Air Paradise Remix) (5:28)
+02. Jay Deep - Dominant Culture (Original Mix) (7:00)
+03. Martin Valencia, Tibetania - Jungle Dream (Original Mix) (6:33)
+04. Jennifer Dons, Tibetania - Dau Ayuni (Original Mix) (6:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E29249EF16395536298D0B476E160BECD2EC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763749   (35206) от 04.12.2024
+
+The Cherokee Spirit - Meditation (2011) [MP3|320 Kbps] <Native American, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wairapasunquy [06:12]
+02. The Big Circle [05:07]
+03. The Last Mohicans [04:17]
+04. Precious Water [05:53](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67B26F9DC492A23AD203ED7FB6F131F9E4F1266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763584   (35116) от 05.12.2024
+
+Michael Hedges - Aerial Boundaries (1984) [FLAC|Lossless|tracks + .cue] <New Age, Acoustic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aerial Boundaries (4:42)
+02. Bensusan (2:32)
+03. Rickover's Dream (4:51)
+04. Ragamuffin (3:15)(   Читать дальше...   )Жанр: New Age, AcousticПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AF706D60735A9586D054571F7C4A5D81758532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763612   (35115) от 05.12.2024
+
+VA - Can't Hardly Wait (Music From The Motion Picture (1998) CD, Compilation [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Funk / Soul, Pop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graduate (remix) - Third Eye Blind  - (03:10)
+ 02. Can't Get Enough of You Baby - Smash Mouth  - (02:32)
+ 03. Dammit - blink-182  - (02:47)
+ 04. I Walked In - Brougham  - (04:20)(   Читать дальше...   )Жанр: Hip Hop, Rock, Funk / Soul, PopПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E5B83A4472C6ADD266CB91A5F7B8C83A01C59E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764999   (34419) от 12.12.2024
+
+Travis Tritt - Greatest Hits: From the Beginning (1995) CD, Compilation [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here’s a Quarter (Call Someone Who Cares)    [0:02:32.58]
+02. Anymore    [0:03:48.15]
+03. Put Some Drive in Your Country    [0:04:19.72]
+04. Foolish Pride    [0:04:19.48](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B097F17851C75F5C40FE0644976E9F8F2FD2C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764238   (34414) от 12.12.2024
+
+David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps] <New age, Relax, Meditative, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Stalking (Spirit Dance remix) [06:26]
+02. The Moa Hunters (Spirit Dance remix) [05:29]
+03. The Rainmakers (Spirit Dance remix) [04:32]
+04. Frog Dancing (Spirit Dance remix) [04:44](   Читать дальше...   )Жанр: New age, Relax, Meditative, WorldПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92909C9343F094E2816B92F859210B62CA1C571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764212   (34410) от 12.12.2024
+
+Andrés Segovia - The Segovia Collection (Vol. 9): The Romantic Guitar (1991) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Classical guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chant du Paysan, Op. 62, No. 2 (2:34)
+02. Waltz, Op. 12, No. 2 (2:06)
+03. Song Without Words, Op. 30, No. 3 (2:21)
+04. Canzonetta (4:32)(   Читать дальше...   )Жанр: Classical guitarПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83814E612EE5159ED003BEBDA5FB696BD5C85236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765000   (34392) от 12.12.2024
+
+The Chieftains - Tears of Stone (1999) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Give All the Heart (2:48)
+02. A Stór Mo Chroí (3:46)
+03. The Lowlands of Holland (3:48)
+04. The Magdalene Laundries (4:58)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0164106C91981893C5E288C0A1A59D2310AB675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765289   (34389) от 12.12.2024
 
 Trisha Yearwood - The Song Remembers When (1993) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Rock, Folk, World, & Country>
@@ -513,238 +745,6 @@ Armik - Gitano Amor (2025) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E53715FF24196061FC5D63069C75A9AEAB3C4B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775194   (29793) от 25.01.2025
-
-Angelo Badalamenti – Music From Twin Peaks (1990) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twin Peaks Theme (Instrumental)
-02. Laura Palmer's Theme (Instrumental)
-03. Audrey's Dance (Instrumental)
-04. The Nightingale (Vocals – Julee Cruise)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26839AE7830E4756FB01BEDE754D0A6CAC1A9BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911836   (28900) от 02.02.2025
-
-Damon Albarn & Michael Nyman - Ravenous (1999) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hail Columbia
-02. Boyd's journey
-03. Welcome to Fort Spencer
-04. Noises Off(   Читать дальше...   )Жанр: FolkПродолжительность: 1:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92A3BBE10B266BB75EF582D81A749973CDCC61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776474   (28780) от 03.02.2025
-
-Deep Forest - Live Machine (2025) [MP3|320 Kbps] <Ambient, Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DEEP SAKURA (Live Version) [00:59]
-02. DESERT Medley (Live Version) [05:42]
-03. DEEP FOREST (Live Version) [04:32]
-04. DEEP FAKEAR (Live Version) [05:12](   Читать дальше...   )Жанр: Ambient, Electronic, New AgeПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C27C0684B0EF82340D12397B47A01AA17DB6D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778348   (28261) от 08.02.2025
-
-Jean-Michel Jarre - Musik Aus Zeit Und Raum (1983) Reissue, 1984, Polydor [FLAC|Lossless|tracks + .cue] <Electronic, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene IV
-02. Equinoxe Part V
-03. Oxygene II
-04. Magnetic Fields Part II(   Читать дальше...   )Жанр: Electronic, Instrumental, New AgeПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E579BA944A93F2261461236B103B442345FCA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776782   (28238) от 08.02.2025
-
-Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Modern Classical, Film Soundtracks>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Dark Knight: Why Do We Fall? [4:32]
-02 - Gladiator Suite : Part 1 [2:41]
-03 - Gladiator Suite : Part 2 [6:49]
-04 - Gladiator Suite : Part 3, Now We Are Free [3:58](   Читать дальше...   )Жанр: Classical, Modern Classical, Film SoundtracksПродолжительность: 01:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961659ED1CF4B10BAF04C7AE215F9043047C6C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777091   (28023) от 10.02.2025
-
-VA - Emmanuelle - Instrumental Collection (2004) [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental Pop, Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadows - Chattanooga Choo Choo    [0:02:23.70]
-02. P. Weekers - El Condor Pasa    [0:03:16.68]
-03. F. Pappetti - Smoke Gets In You Eyes    [0:02:32.13]
-04. F. Lay - Emmanuelle II    [0:04:00.69](   Читать дальше...   )Жанр: Easy Listening, Instrumental Pop, RockПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441746F6F244231C2E6561275E981DE903DE86AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780247   (27316) от 17.02.2025
-
-Stive Morgan - Serenity (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above the Heavens, Pt. 1
-02. Sky Energy
-03. The Blue Sky in Your Eyes
-04. Serenity(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13244FF8ED4AFFABC099B308D36D0AEC07410375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780259   (27292) от 17.02.2025
-
-Stive Morgan - Philosophy of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit of the Earth
-02. Promised Land
-03. The Master of Souls
-04. Window to Paradise(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D62B68094D7F6B4888E701D551E55F410429FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

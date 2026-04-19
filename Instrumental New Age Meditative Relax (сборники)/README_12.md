@@ -1,3 +1,32 @@
+###  Публикация: 944304   (440231) от 07.10.2015
+
+VA - Calming Piano Music The Best Relaxing Instrumental Songs Easy Listening Mellow Cafe and Jazz Piano Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relaxing Piano Music Ensemble - Calming Piano Music
+02. Relaxing Piano Jazz Music Ensemble - Piano Lounge (SPA Music)
+03. Sad Instrumental Piano Music Zone - Jazz Piano Music (Relaxing Jazz)
+04. Piano Jazz Calming Music Academy - Relaxing Music(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C60366C94B1B0017D2B1DA2AC93D51445090C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554730   (436310) от 01.10.2012
 
 VA - Инструментальная музыка (2012) vol. № 89 [MP3|320 кб/с]<Instrumental>
@@ -787,35 +816,6 @@ VA - The Spirit of Acoustic (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrume
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC42A042BCAB705182B093415B675AC5E09A9478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067879   (382645) от 31.10.2016
-
-VA - Acoustic Covers for Weddings (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo – A Sky Full of Stars
- 02. Max Tanner – The One
- 03. Landa – Your Song
- 04. Henrietta Adewole – Run Away With Me(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEAFF69FA6D08E380695803878B37D02C9E8FFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,22 @@
-###  Публикация: 469652   (97272) от 20.03.2012
+###  Публикация: 1822748   (101618) от 08.10.2025
 
-Patе de Fuа - Boquita Pintada (2011) [MP3|320 кб/с]<Ethnic Jazz, Easy Listening, Swing, Latin>
+Internet Download Manager 6.42 Build 50 [Multi/Ru]
 
->>Архив торрентов
->>Архив Музыки
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Boquita pintada
-02. Mujer que te peinas
-03. Bas-Aut
-04. A donde vas?
-05. La Lupita
-06. El loco Igor
-07. El vals del circo
-08. El sonador
-09. Balcarce
-10. Madre querida(   Читать дальше...   )Жанр: Ethnic Jazz, Easy Listening, Swing, LatinПродолжительность: 00:55:55
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2E15F6F4563F55DD8D74854344A64B918B437CF
+magnet:?xt=urn:btih:671B13F0720CC0CC0FB4D0016F02E214A02C68EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,29 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471007   (97268) от 20.03.2012
+###  Публикация: 2814   (101617) от 08.10.2025
 
-[Wallpapers] HD Pictures №2
+Неуместный человек / Den Brysomme mannen (2006) DVDRip
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>След.
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №2
-Название: HD Pictures №2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Сорокалетний Андреас при загадочных обстоятельствах попадает в странный город — абсолютная идиллия, опрятные улицы, благополучные жители. Его принимают на работу в офис большой компании — сотрудники благожелательны, условия работы безупречны. Андреас даже заводит себе жену и пытается наладить семейный быт.
+
+Но Андреасу не по себе. Что-то не так. Люди вокруг лишены (   Читать дальше...   )Производство: Норвегия, Исландия / Sandrew Metronome Norge A/S, The Icelandic Filmcompany, Tordenfilm ASЖанр: фэнтези, драма, комедия, детективРежиссер: Йенс ЛиенАктеры: Тронд Фауса Аурвааг, Петронелла Баркер, Пер Шаанинг, Биргитте Ларсен, Йоханнес Йонер, Эллен Хорн, Андерс Т. Андерсен, Сигве Бёэ, Ханна Линдбэк, Ивар ЛуккеПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:31:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F15FAAA55AF321846C0EE531B642260BDCB61F25
+magnet:?xt=urn:btih:A637A48CBA025B6C9987072C80B83F89D1CE73FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -63,25 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471029   (97267) от 20.03.2012
+###  Публикация: 708902   (101616) от 08.10.2025
 
-[Wallpapers] Mixed Wallpapers (21.03.12)
+Проекты - VideoHive - Baby or Kids Gallery - 1365914 [AEP]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Проекты
+>>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101616.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Пара красивых детских проектов - для мальчиков (в голубых тонах) и для девочек (в оранжево-красных).Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
+magnet:?xt=urn:btih:CB151E63E66EC56E2DD82A24C464BB0EAEA6F425
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -89,29 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471008   (97266) от 20.03.2012
+###  Публикация: 1822708   (101615) от 08.10.2025
 
-[Wallpapers] HD Wallpapers Pack 3
+Фантастическая четвёрка: Первые шаги / The Fantastic Four: First Steps (2025)  BDRip [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101615.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 3
-Название: HD Wallpapers Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Рид Ричардс, Бен Гримм, Сью Сторм и её брат Джонни должны защитить Землю от космического бога Галактуса и его приспешника - Серебряного Сёрфера. И если план Галактуса поглотить всю планету и всех её жителей кажется недостаточно ужасающим, ситуация внезапно становится личной.Производство: Великобритания, США, Канада, Новая Зеландия / Marvel Studios, Walt Disney Studios Motion PicturesЖанр: фантастика боевик приключенияРежиссер: Мэтт ШекманАктеры: Педро Паскаль, Ванесса Кирби, Эбон Мосс-Бакрак, Джозеф Куинн, Ральф Айнесон, Джулия Гарнер, Наташа Лионн, Пол Уолтер Хаузер, Сара Найлз, Марк ГэтиссПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, Английский, УзбекскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:54:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
+magnet:?xt=urn:btih:4C66AC5C99D90467930FB2FA42337F558989C075
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -119,29 +104,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470987   (97265) от 20.03.2012
+###  Публикация: 1239362   (101614) от 08.10.2025
 
-[Wallpapers] HD Pictures №1
+Неуместный человек / Den brysomme mannen (2006) BDRemux [H.264/1080p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №1
-Название: HD Pictures №1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Сорокалетний Андреас при загадочных обстоятельствах попадает в странный город - абсолютная идиллия, опрятные улицы, благополучные жители. Его принимают на работу в офис большой компании - сотрудники благожелательны, условия работы безупречны. Андреас даже заводит себе жену и пытается наладить семейный быт.
+Но Андреасу не по себе. Что-то не так. Люди вокруг лишены (   Читать дальше...   )Производство: Норвегия, Исландия / Sandrew Metronome Norge A/S, The Icelandic Filmcompany, Tordenfilm ASЖанр: Драма, Фэнтези, Детектив, КомедияРежиссер: Йенс ЛиенАктеры: Тронд Фауса Аурвааг, Петронелла Баркер, Пер Шаанинг, Биргитте Ларсен, Йоханнес Йонер, Эллен Хорн, Андерс Т. Андерсен, Сигве Бёэ, Ханна Линдбэк, Ивар ЛуккеСубтитры: RUS, ENG, NOR | softsub (SRT)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
+magnet:?xt=urn:btih:8C08C83B6D80505683667D09D955FF2254687B26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -149,29 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470988   (97264) от 20.03.2012
+###  Публикация: 1378508   (101613) от 08.10.2025
 
-[Wallpapers] Nature Pictures №32
+Идиократия / Idiocracy (2006) WEB-DLRip [H.264/720p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101613.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №32
-Название: Nature Pictures №32
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+В результате вырождения интеллектуалов, неконтролируемого размножения людей с, мягко говоря, средними умственными возможностями, неправильной направленности научных исследований и деградации моральных ценностей, человечество тотально отупело к XXVI веку. Но, благодаря проводимому в наше время эксперименту по заморозке людей, в будущем оказываются военный и проститутка. (   Читать дальше...   )Производство: США, 20th Century Fox Film Corporation, Ternion PicturesЖанр: фантастика, комедия, приключенияРежиссер: Майк ДжаджАктеры: Люк Уилсон, Майя Рудольф, Дэкс Шепард, Терри Крюс, Энтони Кампос, Дэвид Херман (I), Сонни Кастилло, Кевин МакЭфи, Роберт Мусгрейв, Майкл МакКафферти и др.Перевод: Многоголосый профессиональный, авторскийСубтитры: Русские (ненормативная лексика), английскиеПродолжительность: 01:24:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
+magnet:?xt=urn:btih:6AA898A47830BB3C346DB0CB315B18FB03E20860
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -179,33 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470164   (97263) от 20.03.2012
+###  Публикация: 1822761   (101612) от 08.10.2025
 
-VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
+Пойман с поличным / Caught Stealing (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit]
 
->>Архив торрентов
->>Архив Музыки
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Zyce & Flegma - Afterglow (8:41)
-2. Cabal - The sacred Spirit (7:38)
-3. Aquafeel - GloryLand (6:43)
-4. Aqualize - Land of 2 Suns (7:51)
-5. Audioload - Way Out (7:42)
-6. Andromeda - Sensation (Aquafeel RMX) (6:32)
-7. Time in Motion - Colour (8:07)
-8. Progenitor - Typical Human Behaviour (8:18)
-9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
+1998 год, Нью-Йорк. Хэнк — подававший надежды бейсболист, так и не ставший профессионалом из-за травмы — ведёт обычную жизнь: работает в баре, встречается с красавицей Ивонн, болеет за любимую команду и каждый день звонит маме, тоже большой фанатке бейсбола. Когда сосед-панк уезжает на пару дней и просит присмотреть за кусачим котом, жизнь Хэнка круто меняется. Его (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Eagle PicturesЖанр: криминал, комедия, боевикРежиссер: Даррен АронофскиАктеры: Остин Батлер, Реджина Кинг, Зои Кравиц, Никита Кукушкин, Юрий Колокольников, Мэтт Смит, Тоник, Лив Шрайбер, Винсент Д’Онофрио, Гриффин ДаннПеревод: Дублированный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:46:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
+magnet:?xt=urn:btih:FD2A967083FCFA1CC0C17FE42D21260798E3EA3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -213,25 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470712   (97262) от 20.03.2012
+###  Публикация: 1822744   (101611) от 08.10.2025
 
-[Wallpapers] Best HD Wallpapers (20.03.12)
+Карапузики. Сборник мультфильмов. Веселые истории для малышей (1947-1954) DVDRip
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101611.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Сборник кукольных и рисованных отечественных мультипликационных фильмов для детей. В него вошли: Веселый огород, Весенняя сказка, Волшебная птица, Карандаш и Клякса, Крашеный лис, Лесной концерт, Мойдодыр. Сармико, Царевна-лягушка.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Владимир Сутеев, Виктор Громов, Евгений Мигунов, Мстислав Пащенко, Александр Иванов (II), Иван Иванов-Вано, Ольга Ходатаева, Евгений Райковский, Михаил ЦехановскийАктеры: Елена Тяпкина, Георгий Милляр, Татьяна Пельтцер, Борис Чирков, Глеб Романов, Анастасия Зуева, Инесса Дровосекова, Дмитрий Павловский, Николай Никитич и другиеСубтитры: отсутствуютПродолжительность: 02:52:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
+magnet:?xt=urn:btih:DEE8DB172764EFD4F6127932A734B4D536295DC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,25 +209,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470715   (97261) от 20.03.2012
+###  Публикация: 1822749   (101610) от 08.10.2025
 
-[Wallpapers] Nature Desktop Wallpapers (20.03.12)
+Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Let'sРlay
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Win Игры
+>>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+В Blood of Mehran вам предстоит исследовать бескрайние песчаные дюны, шумные базары и огромные дворцы. Сражайтесь с врагами в ближнем бою, сбивайте их своими стрелами или же проскользните мимо них, как призрак. Повышайте уровень и создавайте свою собственную легенду.Тип издания: RepackРазработчик: Permanent Way Game Co.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
+magnet:?xt=urn:btih:EBB165BD1F909F91D966EF245BB26E87CE014BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,29 +235,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471067   (97259) от 20.03.2012
+###  Публикация: 1822751   (101609) от 08.10.2025
 
-[Wallpapers] HD Wallpapers Pack 4
+Люди и звери (1962) WEBRip [H.264/1080p] (серии 1-2 из 2)
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 4
-Название: HD Wallpapers Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Поскитавшись по чужбине, Алексей вернулся на родину и, не найдя сочувствия и понимания у близких, затравленных страхом за свои судьбы, поехал в Запорожье, где случайные попутчицы Анна Андреевна и ее дочь Таня стали первыми, кому Алексей Павлов, поведал о своих мытарствах...Производство: СССР, Германия (ГДР) / Киностудия им. М. Горького, Киностудия ДефаЖанр: ДрамаРежиссер: Сергей ГерасимовАктеры: Николай Еременко (ст), Тамара Макарова, Жанна Болотова, Виталий Доронин, Наталья Медведева, Сергей Никоненко, Олеся Иванова, А.Горина-Филиппова, Михаил Глузский, Сергей Герасимов, Вадим ЗахарченкоСубтитры: русские, английскиеПродолжительность: 01:35:35 + 01:44:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
+magnet:?xt=urn:btih:D231710C37BDBC4117B7E8F93AEB74CFD21EE280
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,29 +261,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470985   (97258) от 20.03.2012
+###  Публикация: 1822770   (101608) от 08.10.2025
 
-[Wallpapers] Nature Pictures №31
+Шрифты - MyFonts - Ice Cream [OTF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №31
-Название: Nature Pictures №31
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 3200х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Ice Cream – это продукт заброшенной концепции шрифта – несвязанного шрифта для упаковки продуктов питания. Первоначальные образцы были настолько культовыми, настолько вдохновляющими, что требовали доработки. Извилистый, с изрядной долей веселья, честно говоря, и я бы не хотел ничего другого. На него сильно повлияли Kari и Juicy (и даже бесстыжие копии моих оригиналов, (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
+magnet:?xt=urn:btih:5776FFBBEE9B8DE64D29ED4F1339225ECF5328DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,25 +287,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470621   (97256) от 20.03.2012
+###  Публикация: 1822774   (101607) от 08.10.2025
 
-[Wallpapers] Desktop wallpapers (19.03.12)
+MAX Desktop 25.12.2 [Ru]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Быстрое и лёгкое приложение для общения и решения повседневных задач. Общайтесь в удовольствие благодаря высокому качеству связи и быстрому соединению даже в сетях со слабым сигналом. Анимированные стикеры, реакции в чатах, возможность отправки файлов до 4 ГБ – все необходимое для того, чтобы делиться настроением и важной информацией. В MAX можно войти сразу с нескольких (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
+magnet:?xt=urn:btih:667ADD899C20C1255C8A4C0BFE36D1E5A166D4CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,25 +313,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470709   (97255) от 20.03.2012
+###  Публикация: 1822775   (101606) от 08.10.2025
 
-[Wallpapers] Computer Desktop Wallpapers Collection (20.03.12)
+Проекты - VideoHive - Frame Slideshow - Clean and Elegant Gallery - 59681776 [AEP]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Проекты
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Frame Slideshow — это простой и современный шаблон After Effects, разработанный для фото и видео презентаций.
+
+Музыка очищена и предоставлена.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
+magnet:?xt=urn:btih:8DC72F688055422F17D2DB585A1A30CE2E24868A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,34 +341,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467137   (97253) от 20.03.2012
+###  Публикация: 1822776   (101605) от 08.10.2025
 
-Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House/Commertial>
+3D print - The Dragon Trappers Lodge - Stoican Halloween [STL, LYS]
 
->>Архив торрентов
->>Архив Музыки
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Tommy Vee & Nicola Fasano & Steve Forest & Luca Guerrieri - Tell Me (Meg Nerak Vocal Mix)
-02 - Eurythmics vs. Tonite Only & Nicky Romero - Sweet Gonna Dreams (Relanium Bootleg)
-03 - David Di Sabato - Orbits (Alex Cucciolini Remix)
-04 - Ultra Nate - Save Me (Dj Chus and Abel Ramos Miami Mix)
-05 - Dj Soulstar feat. Wally B - Move (Tune Brothers Remix)
-06 - Tom Geiss & Mark Simmons feat. Polina - Dream On (A.C.K. & Love N Joy Remix)
-07 - Jared Dietch feat. Kelli Sae - You're Not Alone (Gregori Klosman Instrumental Mix)
-08 - Sebastien Drums feat. Mitch Crown - Fly Again (Rob Adans Remix)
-09 - Joey C & Dj Torio & Nikki Kay - Fade Away (Valetto Remix)
-10 - Mitchell Niemeyer - Botox (Nene Dasile Remix)(   Читать дальше...   )2012Жанр: Progressive House/CommertialПродолжительность: 01:04:39
+Более 60 моделей в этом жутком, пугающем и весёлом наборе! Получите в свои руки жутких монстров, уморительных костюмированных персонажей и слегка жуткие разбросанные объекты!Формат: STL, LYS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
+magnet:?xt=urn:btih:1A2FE13AC37766CCFAB06BFDEFB7EB78F43C9E74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,25 +367,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470613   (97252) от 20.03.2012
+###  Публикация: 1822740   (101604) от 08.10.2025
 
-[Wallpapers] Best HD Wallpapers (19.03.12)
+Влечение / Affinity (2025) WEB-DL [H.264/1080p] [MVO]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Бывший морской котик, страдающий от ПТСР, спасает женщину и влюбляется в неё, но вскоре её похищают при загадочных обстоятельствах. Собрав команду профессионалов, он отправляется её вызволять, однако вскоре раскрывает шокирующую правду: женщина была биоинженерным проектом учёного, одержимого воскрешением своей покойной жены.Производство: США, Таиланд, Австралия, Чили / Atomik Content, Cut Mix and ColorЖанр: фантастика, боевик, триллерРежиссер: Брэндон СлэглАктеры: Луис Мэндилор, Марко Сарор, Брук Энс, Брахим Чаб, Эго Микитас, Андрей Касушкин, Эллиотт Эллисон, Тофан Пирани, Джейн Мирро, Джонатан СэмсонПеревод: Многоголосый (MUZOBOZ), Авторский (М.Яроцкий)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:20:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68FC7F58F2AE58EA866DB7C6B91A60B6E4ADAC9B
+magnet:?xt=urn:btih:0E6B40E3951A7B80E9B843ADF01C5E683C4117F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,25 +393,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470259   (97251) от 19.03.2012
+###  Публикация: 1822704   (101603) от 08.10.2025
 
-[Wallpapers] Girls Wallpapers (18.03.12)
+Шрифты - MyFonts - Maksym Kobuzan - Segment A [TTF, OTF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Segment A - это мощное отображаемое семейство шрифтов из 18 стилей, вдохновленных европейским гротеском 19-го века, но с четкими геометрическими пропорциями. Выполненные в черном цвете, формы букв вдохновлены агрессивным индустриальным графическим дизайном 1960-х и 70-х годов. Оба шрифта имеют 3 оси и регулируются по весу, ширине и 10-процентному выделению курсивом. (   Читать дальше...   )Формат: TTF, OTFПоддержка кириллицы: Есть
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
+magnet:?xt=urn:btih:B175396F8773971B164D5690A3AD9B4A231349EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,29 +419,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470170   (97250) от 19.03.2012
+###  Публикация: 1041220   (101602) от 08.10.2025
 
-[Wallpapers] Sexy Girl Wallpapers Pack 42
+Colin McRae Rally + DiRT Antology (1998-2015) [Ru/En] (1.5/1.09/1.1/1.01/1.01/1.22/1.1/1.0/1.2/1.0/1.2) Repack R.G. Origami
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>След.
+>>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101602.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Sexy Girl Wallpapers Pack 42
-Название: Sexy Girl Wallpapers Pack 42
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Созданная компанией Codemasters и испытанная членами сообщества DiRT на дороге в более 95 миллионов километров, DiRT Rally является лучшей игрой в ралли на сегодняшний день. Она непревзойденно передает сущность этого уникального вида гонок - вы пытаетесь не поддаваться эмоциям, несясь по опасным, неровным дорогам на головокружительной скорости, стремясь выжать из (   Читать дальше...   )Тип издания: RepackРазработчик: Codemasters Racing StudioЖанр: Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
+magnet:?xt=urn:btih:2F1B51ED0FA757ADC1F7904DDED356403131059A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,34 +445,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470316   (97247) от 19.03.2012
+###  Публикация: 1822785   (101601) от 08.10.2025
 
-Municipal Waste - The Fatal Feast (2012) [MP3|320 кб/с]<Thrash Metal>
+CyberLink PowerDirector 2026 Ultimate 24.0.1003.0 (x64) [Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Waste In Space
- 2. Repossession
- 3. New Dead Masters
- 4. Unholy Abductor
- 5. Idiot Check
- 6. Covered In Sick/The Barfer
- 7. You’re Cut Off
- 8. Authority Complex
- 9. Standards and Practices
- 10. Crushing Chest Wound(   Читать дальше...   )2012Жанр: Thrash MetalПродолжительность: 00:39:12
+PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и др. (Русского нет)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:395F85C473A0A849F1035DE32A016BC0E233842E
+magnet:?xt=urn:btih:F6E493AE4C7939B60CE5FAD2CC504A28FCA41CA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,34 +471,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468559   (97244) от 19.03.2012
+###  Публикация: 1822786   (101600) от 08.10.2025
 
-VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
+Влечение / Affinity (2025) WEB-DLRip [H.264] [AVO]
 
->>Electronic
->>House
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Swedish House Mafia - Save The World
-2. Avicii - Fade Into Darkness (Vocal Extended)
-3. Axwell - Heart Is King
-4. Michael Calfan - Resurrection (Axwells Recut Club Version)
-5. Armin Van Buuren - Drowning (Avicii Remix)
-6. David Tort Feat. Gosha - One Loock (Axwell Vs Dimitri Vegas)
-7. Eric Prydz - Niton The Reason (Extended Mix)
-8. Tim Berg - Seek Romance (Avicci Vocal Extended)
-9. Albin Myers Feat. St James - There 4 You (Extended Mix)
-10. Adrian Lux - Teenage Crime (Axwell & Henrik B Remode)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 03:54:11
+Бывший морской котик, страдающий от ПТСР, спасает женщину и влюбляется в неё, но вскоре её похищают при загадочных обстоятельствах. Собрав команду профессионалов, он отправляется её вызволять, однако вскоре раскрывает шокирующую правду: женщина была биоинженерным проектом учёного, одержимого воскрешением своей покойной жены.Производство: США, Таиланд, Австралия, Чили / Atomik Content, Cut Mix and ColorЖанр: фантастика, боевик, триллерРежиссер: Брэндон СлэглАктеры: Луис Мэндилор, Марко Сарор, Брук Энс, Брахим Чаб, Эго Микитас, Андрей Касушкин, Эллиотт Эллисон, Тофан Пирани, Джейн Мирро, Джонатан СэмсонПеревод: Авторский (М.Яроцкий)Язык озвучки: РусскийСубтитры: Английские (SDH)Продолжительность: 01:20:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1513E762128A87881843EF7A86CA77F660D7C372
+magnet:?xt=urn:btih:043D4129DF4F6D9DA0BD58CB019BE9C3F7C0F13E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,31 +497,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470439   (97243) от 19.03.2012
+###  Публикация: 1822790   (101599) от 08.10.2025
 
-VA - Get Sexy vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
+FastCopy Pro 5.11.0 [Multi]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Get Sexy vol.1 (2012)Год: 2012
-Жанр: Electro House, House
-Продолжительность: 01:40:24Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:
-01.Ian Carey & Rosette Ft. Timbaland & Brasco - Amnesia (Cazzette Another Sugar Hunt Mix)
-02.Sean Paul - She Doesnt Mind (LX-Tronix Remix)(   Читать дальше...   )
+FastCopy - инструмент для быстрого копирования/удаления файлов и папок. Поддерживает юникод (unicode) символы и пути/имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92B89A1F2E44A2D23DCB432D6D50A16CFE7AE008
+magnet:?xt=urn:btih:8283AD1D729E095B211B50F150A85ACB598C4306
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,34 +523,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470267   (97241) от 19.03.2012
+###  Публикация: 1822783   (101598) от 08.10.2025
 
-VA - Prodвинутые Новинки Радиостанций 50\50(2012) [MP3|256 кб/с]<Pop,Dance>
+Бутылочная ракета / Bottle Rocket (1996) BDRip [H.264] [MVO]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Мара - Головокружения
-02. Ian Carey Ft. Bobby Anthony & Snoop Dogg - Last Night
-03. Дмитрий Колдун - В Комнате Пустой
-04. Alice Cooper - What Baby Wants
-05. Мила Нитич - Каюсь
-06. Kalomira - This is the time
-07. Сергей Ялтан - Окаянная
-08. Sophie Ellis-Bextor - Not Giving Up On Love (Extended Version)
-09. Земфира - Webgirl (Alex Valenso Remix)
-10. Darren Hayes - Talk Talk Talk2012Жанр: Pop,DanceПродолжительность: 06:32:36
+Три техасских друга Энтони, Дигнан и Боб, первый из которых недавно вышел из психиатрической лечебницы, не нашли ничего лучшего, как стать преступниками. Они разработали и осуществили план ограбления книжного магазина. Однако после этого дела им пришлось пуститься в бега...Производство: США / Columbia Pictures Corporation, Gracie FilmsЖанр: комедия, криминалРежиссер: Уэс АндерсонАктеры: Люк Уилсон, Оуэн Уилсон, Нед Дауд, Ши Фаулер, Джеймс Каан, Хейли Миллер, Роберт Мусгрейв, Эндрю Уилсон (I), Брайан Тененбаум, Дженни Тули, Темпл Нэш, Дипак Паллана, Дэррил Кокс, Стивен Дигнан, Луми КавасосПеревод: профессиональный многоголосый (SDI Media), авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:31:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D26F63ED3240ECB048B8A9A36D100B086451EFE1
+magnet:?xt=urn:btih:C57FC390C8DE73B41192F8BAB78BF8D4217472E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,34 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470199   (97240) от 19.03.2012
+###  Публикация: 1822791   (101597) от 08.10.2025
 
-Lana Lane - El Dorado Hotel (2012) [FLAC|Lossless]<Progressive Metal / Symphonic Rock>
+Бутылочная ракета / Bottle Rocket (1996) BDRip [H.264/720p] [MVO]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101597.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Dream Full Of Fire
-02. Maybe We'll Meet Again
-03. El Dorado
-04. Darkness Falls
-05. Hotels
-06. Believe
-07. Life Of The Party
-08. Gone Are The Days
-09. Moon God
-10. In Exile2012Жанр: Progressive Metal / Symphonic RockПродолжительность: 01:02:08
+Три техасских друга Энтони, Дигнан и Боб, первый из которых недавно вышел из психиатрической лечебницы, не нашли ничего лучшего, как стать преступниками. Они разработали и осуществили план ограбления книжного магазина. Однако после этого дела им пришлось пуститься в бега...Производство: США / Columbia Pictures Corporation, Gracie FilmsЖанр: комедия, криминалРежиссер: Уэс АндерсонАктеры: Люк Уилсон, Оуэн Уилсон, Нед Дауд, Ши Фаулер, Джеймс Каан, Хейли Миллер, Роберт Мусгрейв, Эндрю Уилсон (I), Брайан Тененбаум, Дженни Тули, Темпл Нэш, Дипак Паллана, Дэррил Кокс, Стивен Дигнан, Луми КавасосПеревод: профессиональный многоголосый (SDI Media), авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:31:43
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:8138486C21C74988499E0ED9520D52C3CDCC3090
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,34 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469505   (97238) от 19.03.2012
+###  Публикация: 1822793   (101596) от 08.10.2025
 
-VA - Groove Attack (2CD) (2012) [MP3|320 кб/с]<Psychedelic Trance, Progressive Trance>
+FastStone Capture 11.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 
->>Архив торрентов
->>Архив Музыки
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 (01:19:03)
-01. Sinister Silence Feat. Camille Jones - Someday (Still Around Mix) 08:03
-02. Liquid Soul & Electric Universe - Liquid Universe 09:36
-03. Major7 - Obsession 06:37
-04. Zyce - Dreaming 07:32
-05. Liquid Soul & Symbolic - Different Reality 08:31
-06. Timelock - 99 Calibre 07:17
-07. Sonic Species - Machina Terra (E-Clip Remix) 08:41
-08. D-Addiction - WTF 08:40
-09. Rocky & Sphera - Echo (Yotopia Remix) 08:21(   Читать дальше...   )2012Жанр: Psychedelic Trance, Progressive TranceПродолжительность: 02:36:16
+FastStone Capture представляет собой довольно мощное, но в то же время простое средство для захвата снимков с рабочего стола Windows. Позволяет захватывать как отдельные элементы, окна, части рабочего пространства, так и полный экран (поддерживается прокрутка страниц). Оснащена небольшой панелью для манипуляций с изображениями. Кроме того, имеются в наличии такие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A42A11B4525C841B15915E7902B2A041956B53F3
+magnet:?xt=urn:btih:AFF71EB484C87B7367F4644A599ACDE7D7A3C47A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,29 +601,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470181   (97236) от 19.03.2012
+###  Публикация: 1822792   (101595) от 08.10.2025
 
-[Wallpapers] Games Wallpapers Pack 2
+Хоккей. НХЛ 2025-2026. Питтсбург Пингвинз - Нью-Йорк Рейнджерс (07.10.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Games Wallpapers Pack 2
-Название: Games Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 3200х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+8 октября 2025, среда. 03:00 МСК. Стадион: Мэдисон Сквер Гарден (Нью-Йорк, США), вместимость: 18006 зрителей.
+Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Джейк Бренк (Детройт Лейк, США)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E55FCDDD5AE2F06F6C627827297AD7434DDAF23
+magnet:?xt=urn:btih:3D90F8023115874F6B7783EBA62A66E38BE91C87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -731,29 +628,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470185   (97233) от 19.03.2012
+###  Публикация: 1822795   (101594) от 08.10.2025
 
-[Wallpapers] Best Wallpapers Pack 8
+SketchUp Pro 2026 26.0.429 RePack by KpoJIuK [Ru/En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Мультимедиа и Графика
+>>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Best Wallpapers Pack 8
-Название: Best Wallpapers Pack 8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200/1680x1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F538A2BAB06939F3CA62F34B57CA56ABAD9BEE8A
+magnet:?xt=urn:btih:2B6EFD216DC424A709794DE045F69079FDE4595E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -761,27 +654,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470584   (97230) от 19.03.2012
+###  Публикация: 1822804   (101593) от 08.10.2025
 
-Журнал | Едим со вкусом №1-2 [2012] [PDF]
+Пойман с поличным / Caught Stealing (2025) WEB-DLRip [H.264]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Едим со вкусом - одно из самых лучших изданий о кулинарии. Каждый номер этого издания включает не только множество оригинальных и доступных кулинарных рецептов, включающих полную калькуляцию расходов, но и потребительскую экспертизу и тесты различных продуктов питания, кухонной утвари и бытовой техники для кухни. Также в каждом номере журнала приводятся сводный бюджет питания на месяц.
-Хороший ресторан - дома!
-Шеф-повара столичных ресторанов раскрывают свои профессиональные секреты.2012Формат: PDF
+1998 год, Нью-Йорк. Хэнк — подававший надежды бейсболист, так и не ставший профессионалом из-за травмы — ведёт обычную жизнь: работает в баре, встречается с красавицей Ивонн, болеет за любимую команду и каждый день звонит маме, тоже большой фанатке бейсбола. Когда сосед-панк уезжает на пару дней и просит присмотреть за кусачим котом, жизнь Хэнка круто меняется. Его (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Eagle PicturesЖанр: криминал, комедия, боевикРежиссер: Даррен АронофскиАктеры: Остин Батлер, Реджина Кинг, Зои Кравиц, Никита Кукушкин, Юрий Колокольников, Мэтт Смит, Тоник, Лив Шрайбер, Винсент Д’Онофрио, Гриффин ДаннПеревод: Дублированный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:46:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
+magnet:?xt=urn:btih:861BFA0A274595E278E2263D1BD821597804A40D
 ```
 
 https://mybot314.ru/tekegram_catalog/

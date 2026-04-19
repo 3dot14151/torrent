@@ -1,3 +1,171 @@
+###  Публикация: 1183404   (307870) от 14.11.2017
+
+VA - Club Beats 2017 (Compilation) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fezz - In My House 04:05
+02. WTDJ - Don't Forget 04:22
+03. T3rminal - Moksha 03:56
+04. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound 04:18(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDBB695122932A0D4BA6E1AE86D4462BCF8B0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183776   (307869) от 14.11.2017
+
+VA - Deep Attraction (Deep House Grooves Selection) (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darles Flow and Marga Sol - Alive 5:22
+02. Meital De Razon & Asi Tal - In Love Again (Asi Tal Deep Remix) 4:46
+03. DMPR - Love Life 3:52
+04. Beat Ballistick - Deeper 5:50(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD992B08AA934F9DFA72DE67607E284BB8436A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183608   (307860) от 14.11.2017
+
+Soulful-Cafe - Deep & Chill (2017) [MP3|320 Kbps] <Deep House, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Way Through the Life  3:58
+02.  Down In The River  2:34
+03.  I Get High  3:44
+04.  Look Around  3:11(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71321E407008E5EA6F645F57DB42096024B40D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183530   (307788) от 14.11.2017
+
+VA - EDM 2018 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, Club, DanceПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8BC521128DB4CDE831F26FC488A909836D10A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729892   (306893) от 03.12.2013
+
+Guy Mantzur - Moments (2013) [MP3|320 кб/с]<Tech House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, ProgressiveПродолжительность: 03:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0E6FABD1B3452AADE440C85F882C2A92852731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261201   (305647) от 10.11.2018
+
+VA - 50 Ultimate House Tracks: Workout Edition (2018) [MP3|320 Kbps] <House, Funky, Groove, Future-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rinaldo Montezz & Pepper Mashay - Radioactive (Radio Edit)
+02. Alexdoparis - House Beat (Radio Mix)
+03. Grande Vue - Work Your Body 2.15 (Radio Mix)
+04. DJ Ricky da Dragon - How 2 Love U (Grande Vue Radio Mix) (feat. Fatty Blanco)(   Читать дальше...   )Жанр: House, Funky, Groove, Future-HouseПродолжительность: 04:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A1C51D8B254380A06E199762A4B0EA72842E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077865   (305104) от 29.11.2016
 
 VA - Deep into the Vibe Vol.6 (2016) [MP3|320 Kbps] <Deep House>
@@ -571,180 +739,6 @@ VA - Chillout Deep House 2017 Vol.1 (Mixed By Gerti Prenjasi) (2017) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97D2058FD4E479B3E9515C06F81684032BC47C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262653   (293522) от 16.11.2018
-
-VA - Whore House Loves Tech House (2018) [MP3|320 Kbps] <House, Tech-House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Ourselves & Us - Good Vibrations [5:33]
-02. Mescal Kids - Got Me Spinning [6:35]
-03. Kevin Andrews - Say Mumma [6:21]
-04. Monkeye - Invisible Man [6:00](   Читать дальше...   )Жанр: House, Tech-House, FunkyПродолжительность: 04:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C61687D39C125073F42C0C46E9EBC60D11E40A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185297   (293477) от 21.11.2017
-
-Purple Disco Machine - Soulmatic (2017) [MP3|320 Kbps] <House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Disco Machine feat. Lorenz Rhode - Music in You (4:31)
-02. Purple Disco Machine - Body Funk (4:17)
-03. Purple Disco Machine & Boris Dlugosch feat. Karen Harding - Love for Days (3:16)
-04. Purple Disco Machine feat. CeeLo Green - Pray for Me (5:42)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8152C1D4D727DE0D3563C6D879AF006926600A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079595   (292140) от 05.12.2016
-
-VA - 5 Years Of Drugstore Records (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MadMal/Rokka Animal - Brutal Style (original mix) 05:33
-02. Kill Eat Ratz - Goosebumps (original mix) 05:15
-03. Victor Bascu - Hello Man (original mix) 06:00
-04. Ralph Le Beat - Mexican Legends (MinimalFlex remix) 06:46(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 03:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074BF7F03527700F6695CFE1D6457FC771263A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185671   (291728) от 22.11.2017
-
-VA - Christmas Mega Dance 2017 [MP3|320 Kbps] <House, Electro House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Angerboyz - Infinity 03:25
-02. DJ 4Real - Together 02:46
-03. DJ Johan Weiss - Bitches 06:29
-04. DJ Luciano - Burn That House (Candy Mix) 03:06(   Читать дальше...   )Жанр: House, Electro House, DanceПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A820066A5AEA8A11823F0061085133974861FC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334861   (291670) от 31.10.2019
-
-VA - Halloween Night EDM Party (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - On & On (Radio Edit) 2:55
-02. FLGTT - Don't Go 2K20 (Radio Edit) 3:08
-03. Teknova - Dragostea Din Tei 2K19 (Original Mix) 3:16
-04. Teknova - Rhythm Is A Dancer 2K19 (Melbourne Bounce Mix) 3:36(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AF7C6879B54DDF2FA8F221F7B8CCCC2115225D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262921   (291562) от 17.11.2018
-
-VA - Club Royale: Vocal House (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milkbar Rockers - My Universe (Extended Mix)
-02. Blue Drift - Don't Believe (Berlin Club Mix)
-03. Nothing but the Beat - Never Coming Back (Extended Tropical Mix)
-04. Sugapop - Elysion (Alex Phunk Remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75CAFAE077CAEBC19D3E6A498AF04B0C9B34A9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

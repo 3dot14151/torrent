@@ -1,3 +1,57 @@
+###  Публикация: 984949   (936471) от 10.02.2016
+
+Проекты - VideoHive - 3D Slide Photo - 13359869 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D57CC76945D67E8E613B1A5FC6DD8A6000D7C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985236   (935397) от 11.02.2016
+
+Проекты - VideoBlocks - Triple-Double Photo Presentation [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191AA4F71E6696C5732F55010CA25F18BD93A5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985179   (935392) от 11.02.2016
 
 Проекты - VideoBlocks - Whirly Slideshow [AEP]
@@ -638,60 +692,6 @@ Hexa Parallax | Futuristic Slideshow - это футуристическое с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8113646F3970E51C376D5DCF09F62EC6C992CCF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094725   (928769) от 18.01.2017
-
-Проекты - VideoHive - Epic Opener - 19161016 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания начального видео, промо-ролика или трейлера на эпическую тематику.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE35B814CCB86D8B43907594EC52F9ED8C8670A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987000   (928761) от 15.02.2016
-
-Проекты - Проект ProShow Producer - Rolling Effects [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторский проект от grandpajanek. Рулоны разворачивающиеся и сворачивающиеся.
-Презентация очень проста в редактировании, обычная замена файлов. Всё оставлено в авторском исполнении.
-Превью (авторский ролик) и аудиотрек (извлечённый из ролика превью) - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E92A917CA251CF57C32282291AAFFA9BC8B6CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

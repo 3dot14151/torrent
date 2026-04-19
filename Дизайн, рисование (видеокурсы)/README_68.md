@@ -1,3 +1,31 @@
+###  Публикация: 1617822   (201620) от 08.03.2023
+
+Rebelway, Saber Jlassi, Igor Zanic | Ocean rendering using Redshift (2020) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это ваше руководство, чтобы полностью понять как использовать инструменты Ocean в Houdini и создавать фотореалистичные рендеры в redshift.
+
+Этот курс представляет собой подробный обзор того, как создавать реалистичные океаны с помощью Redshift в Houdini.Производство: RebelwayЖанр: 3D ГрафикаЯзык озвучки: РусскийПродолжительность: 05:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1727D5548DA2340E57EBF3DC5865445293D75D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617568   (201596) от 07.03.2023
 
 Rebelway, Saber Jlassi | Abstract FX in Houdini Using Karma (2021) WEB-DL [EN, RU]
@@ -690,35 +718,6 @@ CGcircuit, David Anastácio Ferreira | Houdini Elements - Particles FX (2022) WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD6922681B043D1A210B6992D93D1BA066316478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623453   (200543) от 01.04.2023
-
-Geometrium studio, Павел Герасимов | Техническое задание и обмеры (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200543.jpg" />
-</div>
-
-
-###  Подробнее
-
-20% теории и 80% практики
-длительность курса 3,5 недели
-
-Для кого курс:(   Читать дальше...   )Производство: Geometrium studioЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 07:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5332A5DDDFC6138A5CF6199C3FDB12D38B36C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

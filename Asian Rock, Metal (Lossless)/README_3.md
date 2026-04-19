@@ -1,3 +1,32 @@
+###  Публикация: 1597410   (166743) от 14.12.2022
+
+Eizo Sakamoto - Speed Metal Show (1999) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 蜘蛛伯爵 3:52
+02. ハローワーク'99 2:28
+03. 文京恋歌 5:06
+04. 我SOSー空想Cityー 1:43(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B65DF738996C0D4DBAC5AF28B810B28B0E1DB34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597301   (166740) от 14.12.2022
 
 Marge Litch - Fantasien (1991) [WavPack|Lossless|image + .cue] <Power Metal>

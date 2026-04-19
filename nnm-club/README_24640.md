@@ -1,25 +1,23 @@
-###  Публикация: 1775105   (71490) от 25.01.2025
+###  Публикация: 467110   (81838) от 13.03.2012
 
-VA - Dance Classics Gold 2 (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+Dance Midi Samples Darwins Piano Sessions Vol.2 [MIDI, WAV Samles][английский]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81838.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kool & The Gang - Celebration
-02. Gloria Gaynor - Never Can Say Goodbye
-03. The Four Tops - Don't Walk Away
-04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 02:17:51
+Собрание 20 красиво обработанных Пиано мелодий в MIDI формате, в стилях -  Chillout, House, Trance, D&B, Hardcore, и др..
+Как бонус Пакет также включает Пиано сэмплы (wav) и патчи для EXS24 и любых SF2 шаблонов, совместимых с PS программных сэмплеров.Название программы: Dance Midi Samples Darwins Piano Sessions Vol.2Язык интерфейса: английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42616DFA38CE1BA1A41885CD7EF39BDEEAEDA959
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,251 +25,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775220   (71489) от 25.01.2025
+###  Публикация: 467022   (81834) от 13.03.2012
 
-VA - Dance Classics Gold 3 (1992) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - Last Dance
-02. The Jacksons - Can You Feel It
-03. Kool & The Gang - Get Down On It
-04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 02:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E481A51F6E88BD5274986FCF8D1B56099130E1AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775141   (71488) от 25.01.2025
-
-Газета | Мир Новостей №1(1619) (1 января 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71488.jpg" />
-</div>
-
-
-###  Подробнее
-
-В газете можно найти материалы практически на любую тему: о политике и экономике, о здоровье и садоводстве, о науке и о мире таинственного, непознанного. Советы врачей, психологов, экспертов по судебным делам, стилистов, косметологов, народных целителей - вот далеко не полный перечень того, что можно видеть на страницах "Мира новостей", тираж которого неизменно (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "Редакция газеты "Мир новостей"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015BA4CA1606318CF2CEB48060A8B95A6AB3CFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775217   (71487) от 25.01.2025
-
-VA - Dance Classics Gold 3 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - Last Dance
-02. The Jacksons - Can You Feel It
-03. Kool & The Gang - Get Down On It
-04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A00B67CCDB3F2158E505D9F3030239808674061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775192   (71486) от 25.01.2025
-
-De/Vision - Devolution (2003) 2CD [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drifting Sideways (T.O.Y.toburger Wald Mix)
-02. Digital Dream (Mesh Classic Cupboard Cut)
-03. Sadness (The Sad Death Of Mix)
-04. The Day's Not Done (Telekommander Mix)Жанр: SynthpopПродолжительность: 01:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F1EE829BA2E68CA1C9237EDE9172863AB711AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775260   (71485) от 25.01.2025
-
-Крис Пристли | Страшные сказки Женщины в белом (2023) [MP3, Фёдор Малышев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберту Харперу впервые предстоит совершить самостоятельное путешествие на поезде. Раньше его всегда кто-то сопровождал, а теперь он один, как взрослый, возвращается в школу после каникул. Но вскоре стук колёс замолкает: поезд останавливается перед тоннелем. Чтобы скоротать время, загадочная попутчица Роберта — женщина, с головы до ног одетая во всё белое, — рассказывает (   Читать дальше...   )Жанр: детские приключения, зарубежные детские книги, мистические сказки, ужасы, фантастика и фэнтези для подростков, хоррорПеревод: Наталья АлександроваИздательство: СамокатПродолжительность: 04:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAB2B4080BBC679E3406C4BE4B5CAEE7E52A1ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775068   (71484) от 25.01.2025
-
-Панда и Антилопа / Xiong mao he xiao tiao ling / Panda and Springbok (2021) WEB-DL  [H.264/1080p] (Сезон 1,  Серии 1-52 из 52)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южноафриканская антилопа Лола и китайская панда Хэ-Хэ случайно встречаются в одной прекрасной долине. С этого момента начинается удивительная история их дружбы. Несмотря на различия в культурах и привычках, они быстро становятся лучшими друзьями. Герои отправляются в большое путешествие, параллельно рассказывая зрителям истории о своих традициях. Каждый новый день (   Читать дальше...   )Производство: КитайЖанр: мультфильм, фэнтези, приключенияРежиссер: Ли ЦзяньпинАктеры: Ма Чэн, Тан Сяоси, Го Чжэнцзянь, Чжао Минчжоу, Син Чао, Чжэн Сяопу, Вэй ИффаньПеревод: Дублированный (официальный)Субтитры: отсутствуютПродолжительность: ~ 00:12:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC08EF86C8DEA36A50D3BE1D0DFEB1F6B1A7F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775014   (71483) от 25.01.2025
-
-Amaranthe - The Catalyst (2024) Bonus Version, 2025, Nuclear Blast [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metal, Power Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71483.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. The Catalyst (3:41)
-• 02. Insatiable (2:59)
-• 03. Damnation Flame (3:34)
-• 04. Liberated (3:06)(   Читать дальше...   )Жанр: Melodic Metal, Power Metal, MetalcoreПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E576E747C55FDB60F2CA53CD1D5DBADB655DC7C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773589   (71482) от 25.01.2025
-
-Clouds - Desprins (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Melodic Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disguise [00:07:13]
-02. Life Becomes Lifeless [00:07:55]
-03. Unanswered [00:06:31]
-04. Forge Another Nightmare [00:06:38](   Читать дальше...   )Жанр: Atmospheric Doom Metal, Melodic Funeral Doom MetalПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBD54F68DCB1ED8D544A96E82EFF736EFC2C185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775225   (71481) от 25.01.2025
-
-VA - The Orient Collective: Eastern Bloom (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+Лоракс / The Lorax - Original Songs From The Motion Picture (2012) [MP3|320 кб/с]<Soundtrack>
 
 >>Other Styles
->>Other (Lossless)
+>>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81834.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Elias Fassos & RisK (Gr) & Tibetania - Moonflower (Original Mix) (6:18)
-02. Baudoin & Tibetania - Daybreak (Original Mix) (6:51)
-03. Diego Galloso & Noam Garcia & Tibetania - Eastern Sun (Original Mix) (9:44)
-04. Bahri Bekil & Tibetania - Nomad (Original Mix) (4:56)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:04:46
+01. Ester Dean - Let It Grow (Celebrate The World)-03:39
+ 02. Fletcher Sheridan - Thneedville-02:44
+ 03. Ed Helms - This Is The Place (Tricky Version)-02:24
+ 04. Ed Helms - Everybody Needs A Thneed-01:31
+ 05. Ed Helms - How Bad Can I Be-02:52
+ 06. Fletcher Sheridan - Let It Grow-03:17
+ 07. Jenny Slate - Let It Grow Gospel Ending (Original Demo)-00:53
+ 08. Fletcher Sheridan - Thneedville (Original Demo)-03:58
+ 09. Ed Helms - The Once-ler's Traveling Madness-01:35
+ 10. Randy Crenshaw - I Love Nature-02:43(   Читать дальше...   )2012Жанр: SoundtrackПродолжительность: 00:34:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A9B9617F2FF750F209E5F1F014680FC10CCF794
+magnet:?xt=urn:btih:23D9A40BF73F8EDCF71BA5E7966ED59CAE811EF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,396 +60,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775189   (71480) от 25.01.2025
+###  Публикация: 467431   (81824) от 13.03.2012
 
-DJ Maretimo - Winter Time Vol.13 - 18 Premium Trax...Chillout, Chillhouse, Downbeat Lounge (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Chill House, Downbeat, Lounge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71480.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Frank Borell - Don'T Be Shy (Skyfall Mix) (4:39)
-• 02. Airstream - Another Dream (Nightfly Mix) (4:37)
-• 03. Vladi Strecker - Winter Time (The Bossa Mix) (8:22)
-• 04. Retro Rider - Posada Al Mar (The Mystic Ocean Cut) (6:18)(   Читать дальше...   )Жанр: Chill-Out, Chill-House, Downbeat, LoungeПродолжительность: 01:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89C3C06E40E4B34A0BFAE37A22EF4EA3BC59397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775011   (71479) от 25.01.2025
-
-Empire Of The Sun - Ask That God (2024) Deluxe Edition, 2025, EMI Recorded Music Australia Pty Ltd [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electropop, Synth-pop, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71479.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Empire Of The Sun - Changes (3:38)
-• 02. Empire Of The Sun - Cherry Blossom (3:28)
-• 03. Empire Of The Sun - Music On The Radio (2:56)
-• 04. Empire Of The Sun - The Feeling You Get (4:16)(   Читать дальше...   )Жанр: Electropop, Synth-pop, Indie PopПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC85C8DBF3149EB13964624AE215EAEBD864A9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775133   (71478) от 25.01.2025
-
-Горячие головы - Выходи за меня замуж (2025) Remastered 2025 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71478.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выходи за меня замуж (Remastered 2025)
-2. Джентельмены удачи (Remastered 2025)
-3. Танцы (Remastered 2025)
-4. Не верят девушки (Remastered 2025)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF49453576A311A5516E35EC3456D3F3DA5A7F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775263   (71477) от 25.01.2025
-
-Rosy Vista - Forty (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can’t Live Without My Radio
-02. Masquerade _ See You Later
-03. Uniform
-04. One Way(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2655308AD38D473A24AABDDE088808E11C4DEED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775103   (71476) от 25.01.2025
-
-VA - Dance Classics Gold 2 (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool & The Gang - Celebration
-02. Gloria Gaynor - Never Can Say Goodbye
-03. The Four Tops - Don't Walk Away
-04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11A02274CB65D187D1B26B9DB479F71103EAE70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775219   (71475) от 25.01.2025
-
-VA - Markus Schulz - Year in Review 2024 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hel:Sløwed & Amber Revival - If You Only Knew (Intro Mix) (Mixed) [3:10]
-02. Yotto & AVIRA feat. ALSO ASTIR - Forget (Mixed) [2:51]
-03. PARAFRAME - Breathe (Mixed) [2:35]
-04. Markus Schulz & HALIENE - Death Of A Star (Mixed) [3:06](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 06:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F86E041BD6906FFDFE73258BABDBF06901F6D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775256   (71474) от 25.01.2025
-
-Крис Пристли | Страшные сказки с Чёрного корабля (2023) [MP3, Фёдор Малышев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три дня на побережье беснуется шторм. «Старый трактир», где живут Итан и Кэти, жмётся на краю скалы. Отец ушёл за доктором, и дети сидят одни, пока буря не приводит в их дом незнакомца. Он мастер рассказывать морские истории, одна страшнее другой. Об оживших татуировках, чёрных парусах, морских чудовищах и жутких открытиях. Итан с Кэти готовы слушать их бесконечно. (   Читать дальше...   )Жанр: детские приключения, зарубежные детские книги, страшные сказки, фантастика и фэнтези для подростковПеревод: Наталья АлександроваИздательство: СамокатПродолжительность: 04:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550CBF00C052DC09314A564E5E3161EAE1CDB91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775254   (71473) от 25.01.2025
-
-Любовь кассира / Le roman d'un caissier (1914) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драматическая история о двух поколениях. Банкир и кассир в его банке уже пожилые люди, все жизнь усердно и честно работающие. И имеющие за это не только честный заработок, пусть и разной величины, но и соответствующую репутацию. А вот их дети молоды и легкомысленны и очень огорчают своих родителей...Производство: Франция / Société Française des Films ÉclairЖанр: короткометражный, драма, немое киноРежиссер: Эмиль ШотарАктеры: Devalence, Нита Романи, Bahier, Georges Raulin, André Liabel, Жорж Сайяр, Suzanne RevonneПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBF30C147A94DCF93EDD0903071D4FA4758C3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775121   (71472) от 25.01.2025
-
-Пятеро на одного (25.01.2025) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39AA1F726C1BC827BE7BFF8977D20DA571333310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775004   (71471) от 25.01.2025
-
-Across the Shade - Madness (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71471.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Falling Leaf (5:02)
-• 02. On The Horizon (3:35)
-• 03. Don't Fall Asleep (3:27)
-• 04. Protect The Day (3:46)(   Читать дальше...   )Жанр: Gothic Metal, Melodic Death MetalПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7572B6B1D2C93086962078475031C31270797B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775249   (71470) от 25.01.2025
-
-Anbaric - Energy Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sink Or Swim (3:57)
-02.  The Blind Leading The Blind (3:10)
-03.  Losing Myself (3:42)
-04.  Adrenalized (3:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4FD8CAE78ECAFB53C2D0339D0766A8E26E3FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775106   (71469) от 25.01.2025
-
-Eric Prydz - Live @ 20 Years Of Pryda, HISTORY Toronto, Canada (2025-01-18) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pryda - Annexet
-02. Pryda - Bergen
-03. Eric Prydz - Liberate (Eric Prydz 2017 Remix)
-04. Pryda - The Hoax(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC54E05C836B1D53A4C4E75377783CC02E156CA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775264   (71468) от 25.01.2025
-
-Obsidian Path - Ignite the Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fuel the Flame (3:00)
-02.  Racing the Storm (3:24)
-03.  Turn It Up (3:35)
-04.  Phoenix Rising (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEAE09E2D6A6C5DE854469660D1AEAFE7EA6F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775137   (71467) от 25.01.2025
-
-VA - Blue Notes, Vol.1: Milestones Of Jazz Legends (1950 - 1962) 10CD, 2022, The Intense Media [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+VA - 100 Best Jazz Piano Standards (2006) 6 CD [APE|Lossless]<Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lee Morgan - Candy [7:05]
-02. Lee Morgan - Since I Fell For You [5:38]
-03. Lee Morgan - C.T.A. [5:08]
-04. Lee Morgan - All The Way [7:27](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 12:19:32
+01.Benny Green - Dat Dere (4:59)
+02.Takashi Matsunaga - A Child Is Born (4:55)
+03.Les McCann - Django (5:13)
+04.Ray Bryant - Whisper Not  (3:36)
+05.Clare Fischer - Billie's Bounce (6:16)
+06.Michel Petrucciani - Lush Life (3:44)
+07.Horace Parlan - Bag's Groove (5:44)
+08.Jutta Hipp - Dear Old Stockholm (4:38)
+09.Bud Powell - A Night in Tunisia  (4:15)
+10.The Three Sounds - Now's The Time (5:39)(   Читать дальше...   )2006Жанр: JazzПродолжительность: 07:37:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:046AF1F3E8C93FAF65B07FCD1D631A819687CB82
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,28 +95,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775095   (71466) от 25.01.2025
+###  Публикация: 466211   (81823) от 13.03.2012
 
-Vintage Culture - Live @ Affairs, Green Valley Camboriu, Brazil (2025-01-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+Инвазия / Infestation (2009) [1080p] BDRip
 
->>Electronic
->>Radioshow, Live Mixes
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vintage Culture & Fancy Inc & Meca - Electricity
-02. CamelPhat x ARTBAT ft. Rhodes - For A Feeling (Adam Sellouk & Y do I Remix)
-03. Elderbrook & Vintage Culture - Run (DEPARTAMENTO Remix)
-04. Gabss & Vintage Culture - Creatures(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:01:42
+Куперу крупно не повезло. Он опять опоздал на работу и его увольняют. Но не успел он выйти за дверь, как жуткий звук, как будто с небес, лишил его чувств. Очнулся он в коконе из паутины. Кругом его бывшие сослуживцы и почти все они мертвы.
+Началось вторжение на Землю гигантских насекомых. Любой их укус превращает землянина в такую же безобразную тварь. Купер, вместе с дочкой начальницы Сарой и оставшимися в живых людьми, пытаются выбраться из города и спастись. По дороге они встречают спецназовца на пенсии и вместе с ним начинают войну с агрессорами.Жанр: Ужасы, Боевик, КомедияРежиссер: Кайл Ранкин / Kyle RankinАктеры: Дайан Гаета, Дебора Геффнер, Рей Уайз, VJ Kewl, Крис Маркетт, Брю Мюллер, Брук Невин, Кинси Паккард, Линда ПаркПеревод: любительский (двухголосый) + оригиналПродолжительность: 1:31:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FFA416A87CC9692E96BE4E5F5B258001B282DA7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -705,28 +122,629 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774999   (71465) от 25.01.2025
+###  Публикация: 467303   (81819) от 13.03.2012
 
-Labÿrinth (Labyrinth) - In The Vanishing Echoes Of Goodbye (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
+Жизнь в розовом цвете / La Vie en Rose / La Mome (2007) HDRip
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-• 01. Welcome Twilight (5:46)
-• 02. Accept The Changes (7:24)
-• 03. Out Of Place (5:02)
-• 04. At The Rainbow's End (5:10)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:57:45
+Жизнь Эдит Пиаф была похожа на сражение, каждый день ей приходилось бороться за право жить, петь и любить! Из трущоб Парижа она поднялась на подмостки Нью-Йоркских концертных залов и завладела сердцами всего мира. Ее друзьями были известнейшие люди того времени — Жан Кокто, Марлен Дитрих, Марсель Сердан. Выросшая в жуткой нищете, Пиаф достигла колоссального успеха. Но, взлетев на необозримую высоту, она не смогла не обломать крылья…Жанр: драма, биография, музыкаРежиссер: Оливье ДаанАктеры: Марион Котиллард, Сильви Тестю, Паскаль Грегори, Марк Барбе, Эмманюэль Сенье, Жан-Поль Рув, Клотильда Куро, Каролин Сиоль, Катрин Аллегре, Жерар Депардье, Манон Шевалье, Жан-Пьер Мартинс, Полин Бюрле, Уильям Армстронг, Доминик Беттенфельд, Элизабет Коммелин, Натали Дорвал, Дэвид Фэллоус, Гэррик Хэйгон, Силия Малки, Жан-Поль Мюэль, Эшли УэннингерПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 02:20:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F934818BE8B4CBDAB18D1C7A7A595FBBACA0F641
+magnet:?xt=urn:btih:0B49EF530D3C960A05EC3BBE73AC2CD0B6B57C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467216   (81814) от 13.03.2012
+
+VA - Настоящий блюз (2010) [FLAC|Lossless]<Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Muddy Waters - Im Your Hoochie Coochie Man (3:58)
+02.Buddy Guy - Damn Right, Ive Got The Blues (4:22)
+03.John Mayall & The Bluesbreakers - When The Devil Starts Crying (4:10)
+04.Stevie Ray Vaughan And Double Trouble - Pride And Joy (3:40)
+05.Willie Dixon - The Same Thing (4:42)
+06.Keb Mo - Soon As I Get Paid (4:37)
+07.Taj Mahal - Statesboro Blues (2:58)
+08.J.J. Cale - Shanghaid (2:35)
+09.Michael Bloomfield - Farther Up The Road (3:17)
+10.Champion Jack Dupree - My Homes In Hell (4:55)(   Читать дальше...   )2010Жанр: Blues, Blues RockПродолжительность: 02:20:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467111   (81812) от 13.03.2012
+
+Крушение / Airline Disaster (2010) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда президент узнает, что террористы угнали пассажирский самолет, которым управляет ее брат, она должна принять решение, что для нее важнее, брат или жители городов.Жанр: Боевик, ТриллерРежиссер: Джон Уиллис IIIАктеры: Мередит Бакстер , Линдсей МакКеон, Скотт Валентайн, Джефф Мид , Джуд Джерард Прест, Мэтт Лэгэн , Барт Бэггетт, Лондэйл Теус, Чип БентПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:25:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466885   (81811) от 13.03.2012
+
+Идеальное убийство / A Perfect Murder (1998) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преуспевающий бизнесмен Стивен Тэйлор, испытывающий серьезные трудности на работе, грозящие ему разорением, узнает, что жена Эмили, женщина очень богатая, изменяет ему с художником Дэвидом.
+Наведя справки, он узнает, что Дэвид вовсе не художник, а брачный аферист с солидным «послужным» списком и рядом отсидок в тюрьме. Встретившись с Дэвидом, Стивен предлагает ему 500 тысяч долларов за убийство собственной жены…Жанр: Криминал, ТриллерРежиссер: Эндрю ДэвисАктеры: Майкл Даглас , Гуинет Пэлтроу , Вигго Мортенсен , Дэвид Суше  , Сарита Чудхури , Констанс ТауэрсПеревод: ДублированныйЯзык субтитров: Русские,АнглийскиеПродолжительность: 01:43:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466629   (81810) от 13.03.2012
+
+Гром в штанах / Thunderpants (2002) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81810.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Патрика есть редкостный дар — безудержно пускать газы в самый неподходящий момент. Однако вскоре из объекта шуток он превратится в знаменитость, когда юный гений Алан, начисто лишенный чутья, создаст для Патрика уникальный летательный агрегат, базирующийся на энергии его громового желудка. Уникальная способность вмиг делает парня звездой, но Патрик даже не предполагает, что однажды он спасет Америку…Жанр: Комедия, СемейныйРежиссер: Питер ХьюитАктеры: Брюс Кук, Селия Имри, Виктор МакГуайр, Брона Галлахер, Пол Джиаматти, Саймон Кэллоу, Руперт Гринт, Нед Битти, Адам Годли, Стивен ФрайПеревод: Многоголосый закадровыйПродолжительность: 01:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8A089571D67CAD4F0F2AE4281B0B6FAD75FE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466941   (81808) от 13.03.2012
+
+Приключения Оаки в Аутбэке / Oakie's Outback Adventures (2011) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленького щенка, Оаки, должны были доставить в Техас, США, однако посылка с ним внутри выпала посреди пустынного Аутбэка в Австралии. Щенок вскоре знакомится с местными обитателями и местными традициями на примере басен и былин Аутбэка.Жанр: Приключения, Семейный, АнимацияРежиссер: Трой ДэннАктеры: Кэтри Бэккетт, Йен Кэлдер, Кейт Шантель Кокс, Трой Дэнн, Джейми Данн, Крис Грю, Кэти Мэннинг, Дэнни МакМастер, Робин МурПеревод: Одноголосый закадровыйПродолжительность: 01:29:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467564   (81807) от 13.03.2012
+
+А. Колесникова | Самые лучшие вареники, пельмени, хинкали [2011] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вареники с клубникой и вишней, картошкой и капустой, творогом и грибами, пельмени с мясом, сыром, рыбой и морепродуктами, аппетитные равиоли, манты и хинкали пленят вас своим вкусом и неповторимым ароматом. Рецептов - великое множество. Вы можете следовать им буквально или проявить свою кулинарную фантазию.2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7769E80F02DBB170C8376FB8760C7150FA6C4E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467113   (81805) от 13.03.2012
+
+Pink - Can't Take Me Home (2000) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Split Personality
+02. Hell Wit Ya
+03. Most Girls
+04. There You Go
+05. You Make Me Sick
+06. Let Me Let You Know
+07. Love Is Such a Crazy Thing
+08. Private Show
+09. Can't Take Me Home
+10. Stop Falling(   Читать дальше...   )2000Жанр: PopПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5683742A3C2BD657085CDC86879DF60441420E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467463   (81804) от 13.03.2012
+
+А.И. Калашников | Наука побеждать. Тренинги лидерства и преодоления конфликтов [2008] [DJVU]
+
+>>Разное (категория книг)
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга позволит вам окунуться в мир решений, результатов, эффективных методов работы с конфликтами, а также грамотных и умелых приемов управления людьми и развития своих лидерских качеств.2008Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4717E6A1BFB4CDF50E7FFF68A19B25EE7072A875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466803   (81800) от 13.03.2012
+
+Blue October - Any Man In America (2011) [MP3|320 кб/с]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything (A.M. Limbo)
+ 02. The Feel Again (Stay)
+ 03. The Money Tree
+ 04. For The Love
+ 05. Drama Everything
+ 06. The Chills
+ 07. The Flight (Lincoln To Minneapolis)
+ 08. Any Man In America
+ 09. You Waited Too Long
+ 10. The Honesty(   Читать дальше...   )2011Жанр: Alternative RockПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D553BA33585B1F0950D14F6C4687D1E21184915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467347   (81799) от 13.03.2012
+
+Игорь Агафонов | Легионы — вперед! [2012] [FB2,RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что могло бы предотвратить падение Рима Только воины самого Рима, но из другого времени...
+
+Обреченная на гибель в парфянской пустыне армия Красса невероятным образом переносится на четыре столетия вперед — в 472 год. Встав на защиту гибнущей империи, легионы разбивают варваров Рицимера, громят бургундов Гундобада и вступают в жестокую схватку с вестготами короля Эвриха, пытающимися захватить остатки римских владений в Галлии.
+
+Римский разведчик Фульциний, исполняющий невероятно опасные и сложные поручения Красса, — всего лишь пешка на шахматной доске великих сражений эпохи, но именно такими людьми порой вершится история, хитрым узором сплетая их личную судьбу и судьбы сильных мира сего.2012Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A199BD4630F6925A0E17A090DA5E3350EE001AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467077   (81796) от 13.03.2012
+
+Mp3tag 2.50 Final [Multi/Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81796.jpg" />
+</div>
+
+
+###  Подробнее
+
+MP3Tag - многофункциональная утилита которая позволяет вам делать всевозможные операции над ID3 тэгами. например, Вы можете создать любой шаблон для нового названия файла, используя информацию ID3 тага (номер, название, исполнитель, альбом, год и т. д.) и переименовать всю или часть вашей музыкальной коллекции. Также Вы можете редактировать ID3 таг в отдельном MP3 файле.Язык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467307   (81795) от 13.03.2012
+
+Патрисия Корнуэлл | Реестр убийцы [2012] [TXT, RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81795.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Риме безжалостно убита юная американская теннисистка. Доктора Кей Скарпетту, прибывшую в Италию из США на симпозиум, посвященный проблемам судебной медицины, привлекают в качестве консультанта...
+Вернувшись на родину, Кей обнаруживает связь между этим преступлением и убийством мальчика, истерзанное тело которого найдено в болоте неподалеку от города. Вскоре к этим двум преступлениям добавляется третье - зверское убийство женщины в роскошном приморском особняке...
+Скарпетте и прежде приходилось иметь дело с серийными убийцами. Но ни разу еще загадка не была так близка - и так далека. Ведь не каждый маньяк выслеживает жертву по темным глухим закоулкам. Иногда он ходит рядом с вами...2012Формат: TXT, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3909D0BEED26E9D4E65B425C209D2D8D358094A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466159   (81794) от 13.03.2012
+
+«Кадиллак» Долана / Dolan's Cadillac (2009) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь долгих лет Робинсон мечтал о мести — босс мафии Джимми Долан приказал убить его жену, собирающуюся давать показания против Долана в суде. Преступники взрывают машину жены Робинсона и остаются безнаказанными. Семь долгих лет, слыша в своем сознании голос погибшей супруги, Робинсон разрабатывал идеальный план возмездия…Жанр: триллер, криминалРежиссер: Джефф БислиАктеры: Кристиан Слэйтер, Эммануэль Вожье, Уэс Бентли, Грег Брайк, Эйдан Дивайн, Эл Сапьенза, Карен ЛеБланк, Вивиан ЭнДжи, Патрик БёрдПеревод: Многоголосый закадровыйПродолжительность: 01:28:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466921   (81793) от 13.03.2012
+
+Поларис (Сергей Лемох) - Поларис (1997) [APE|Lossless]<Dance-Pop/Instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81793.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Шторм [6:10]
+2. Снежная королева [4:41]
+3. Диско в океане [4:13]
+4. Электрический ветер [5:44]
+5. Элегия [6:35]
+6. Корсар [6:12]
+7. Радуга [4:44]
+8. Свобода [4:46]
+9. Шторм видео микс [4:32]1997Жанр: Dance-Pop/InstrumentalПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467196   (81791) от 13.03.2012
+
+Душевные песни, знакомые с детства / THE OLD [Part 2] (2007) SATRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F8985D8DB057504E90314DD3E569E37AC1E2CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466915   (81789) от 13.03.2012
+
+Эрл Стэнли Гарднер | Дело зеленоглазой сестрички [2004] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:2004Жанр: детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BB5A1D271CA9FB9A38910F6D7DEB41C76DC4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467382   (81788) от 13.03.2012
+
+Buck 69 - When She Whispers Your Name (2007) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01- T-Town
+02- When She Whispers Your Name
+03- Misery
+04- Risk It All
+05- Cold Wind
+06- Sometimes
+07- No Time For Love
+08- Sex, Drugs, Ur Mom & Me
+09- Sweet Spot
+10- Good Days Bad Days(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972FF6C94E63B3653160C88756CC82371B158A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467317   (81786) от 13.03.2012
+
+Принцесса на горошине (1976) DVD5
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81786.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам сказок Ганса Христиана Андерсена. Когда принцу пришла пора жениться, на воротах дворца появилось объявление: «Требуется принцесса». Но не дождался принц визита и отправился сам на поиски. Обойдя великое множество земель, принц вернулся домой, где вскоре и нашел ту, о которой мечтал.Жанр: Фэнтези, СемейныйРежиссер: Борис РыцаревАктеры: Ирина Малышева, Андрей Подошьян, Иннокентий Смоктуновский, Алиса Фрейндлих, Ирина Юревич, Юрий Чекулаев, Александр Калягин, Василий Куприянов, Игорь Кваша, Марина Либакова-Ливанова ...Продолжительность: 01:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD2633F876B2C9A18D4812750182E2EA616F489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466624   (81785) от 13.03.2012
+
+Эрл Стэнли Гарднер | Дело о хромой канарейке [1996] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:1996Жанр: детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BADF632B4109A779EAA5512403DCD919B1D917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466965   (81783) от 13.03.2012
+
+Эрл Стэнли Гарднер | Дело опасной вдовы [2004] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название: The Case of the Dangerous Dowager 1937 год
+Варианты названия: Дело о рисковой вдове; Рисковая вдова; Дело о соломенной вдовушке
+
+Перри Мейсон берется помочь богатой вдове, которая желает выкупить долговые расписки внучки. В этот момент, на борту судна-казино, за границей территориальных вод, убивают хозяина игорного клуба. Но это не может остановить адвоката Перри Мейсона.2004Жанр: детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D547CF73CAE260D7419C36C341CAD1E5A4B1EE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467492   (81782) от 13.03.2012
+
+[Wallpapers] Коллекция обоев для рабочего стола
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев для рабочего столаНазвание: Обои для рабочего стола
+Тип раздаваемого: JPЕG
+Разрешение файлов: 1600x1200 - 2560x1600
+Количество: 309Описание:
+Очередная коллекция обоев для рабочего стола!Время раздачи: С 13.00 до 23.00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD93B1D6254B4672879FB47C26F241058B02308
 ```
 
 https://mybot314.ru/tekegram_catalog/

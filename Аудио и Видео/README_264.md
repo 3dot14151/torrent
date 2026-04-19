@@ -1,3 +1,206 @@
+###  Публикация: 1517810   (161729) от 17.12.2021
+
+VA - Sophisticated Jazzy Lounge, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Moonchild (Instrumental Mix) (4:24)
+02. FlyHigh - Happy Ness (Original Mix) (6:22)
+03. Lounge Groove Avenue - Smoking Jazz (Original Mix) (2:29)
+04. Kamill Le Jarvin - New Day (Original Mix) (3:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56F02742039E8E57F79211DCFF25AAAAB06FD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517809   (161728) от 17.12.2021
+
+VA - Sophisticated Jazzy Lounge, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Nuii (Original Mix) (3:50)
+02. Planet Sun - Track It (Lovin' Jazz Mix) (3:45)
+03. Mikis Theodorakis, Francesco Diaz - Lakis on the Beach (The Acid Jazz Tribute) (Original Mix) (5:57)
+04. Paolo Gonzalez - Music in the Air (Original Mix) (11:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70297D045F269837605065F2C87B6F6ACD6828E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517813   (161723) от 17.12.2021
+
+VA - Lakeside Chill Sounds - Autumn (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andre Wildenhues - Silent Beach (Original Mix) (4:35)
+02. Twentyeight - Stars (Bodean's Sunset Ashram Version) (5:32)
+03. Lemongrass - Cafe De Paris (Original Mix) (4:48)
+04. Twentyeight - The Journey (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A67ADADD30F482DF0B42459E8A326A2329F0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517815   (161720) от 17.12.2021
+
+VA - Anjunadeep The Remixes 2021 (2021) [AAC|~327 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161720.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Lakou Mizik, Joseph Ray - Sanba Yo Pran Pale (DJ Koze Remix) (10:48)
+1.02. Alan Fitzpatrick, Lawrence Hart - Warning Signs (CamelPhat Remix) (3:14)
+1.03. Eli & Fur - Come Back Around (Maya Jane Coles Remix) (3:42)
+1.04. CRi - Stranger (DJ BORING Remix) (4:35)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E046FDE439872B741A53C8272985976978069A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517850   (161717) от 17.12.2021
+
+VA - The Yearbook 2021 (2021) [AAC|~337 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Spirit, Spieltape, Oliver Schories - To The Sea (Oliver Schories Remix) (7:19)
+02. Ralf Urland - Activity (Dave Pad Remix) (7:21)
+03. Dj Skif - Unique (6:33)
+04. Anturage, S.Samo - Evolving Flow (6:29)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610194CCF5BAD3C09F15068C3C555FCD7622D6B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517847   (161706) от 17.12.2021
+
+VA - Hoom Side of the Moon, Vol. 02 (2021) [AAC|~334 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyler Mesa - Saharan Dawn (6:00)
+02. Emegepe - Tulum (8:40)
+03. Juan Deminicis - Ivan the Bigger (6:56)
+04. Balad - Still (7:12)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A01ABCA79372DEBCFB3D160B47598B22EB0600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517845   (161704) от 17.12.2021
+
+VA - Hoom Side of the Moon, Vol. 01 (2021) [AAC|~335 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Onetreeevn - Leaving the City (7:15)
+02. Different Ray - Inner Child (6:40)
+03. Beije - Tabernas (7:20)
+04. Armen Miran, Felix Raphael - Ghost (7:57)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275010A2A863F31B3A6EBF26FF49E1A76017B90D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517816   (161692) от 17.12.2021
 
 VA - Zen Garden: Winter Vibes (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
@@ -527,188 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F580A3E1D9D13404A67168082E4D72F60EC26A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433251   (158038) от 20.12.2020
-
-Олег Таругин | Дорога домой (2020) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крохотный метеорит попадает в двигатель инопланетного космического рудовоза. Бортовой Искусственный Интеллект решает спасти экипаж корабля, спящий в криосне. Грузовой отсек отделен. Он врезается в атмосферу маленькой голубой планеты и взрывается… 30 июня 1908 года над сибирской тайгой, в районе реки Подкаменной Тунгуски. Капсула с экипажем благополучно опускается (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 12:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8209490C971D4E1C0328647F5F0ADEF2C0BF2ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853632   (158009) от 26.12.2014
-
-Аномалия / The Anomaly (2014) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Райан Рив, как и любой солдат, всегда готов к любым поворотам судьбы. Этому не помешает ни отстранение от службы, ни тяжелое психологическое состояние – ведь ты солдат. Но даже профессионалам требуется собрать всю силу воли в кулак, чтобы вырваться из состояния, когда твоим сознанием кто-то управляет. Когда только мгновенные промежутки времени подконтрольны подсознанию, чтобы узнать правду, понять как собственная судьба связана с мальчиком Алексом, с которым оказываешься внутри темного движущегося фургона... (   Читать дальше...   )Жанр: Фантастика, боевик, триллерРежиссер: Ноэль КларкПродюсер: Ноэль Кларк, Джеймс Харрис, Марк ЛэйнАктеры: Ноэль Кларк, Иен Сомерхолдер, Брайан Кокс, Алексис Нэп, Люк Хемсворт, Ниал Грег Фултон, Майкл Биспинг, Али Кук, Арт Паркинсон, Рубен ДуброуПеревод: Профессиональный (дублированный) (R5)Язык субтитров: АнглийскийПродолжительность: 01:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2EAD1BCE1628CD4688B68B1FC40C7587BBCB69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194011   (157281) от 24.12.2017
-
-Group | Stand Up Сезон 2 (2014) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 15:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F80A1465DD0325710739F12B13CB7AEBAC00FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194012   (157262) от 24.12.2017
-
-Group | Stand Up Сезон 3 (2015) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 08:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58995FD15DC5ABBCE3A75B9AADF0D2C3FD3B482C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194016   (157171) от 24.12.2017
-
-Group | Stand Up Сезон 6 (2017) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 06:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BAE76FDC27F36541FB42503104808E343424CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194014   (157153) от 24.12.2017
-
-Group | Stand Up Сезон 5 (2016) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 07:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730345600A7285336CA353F96594EAAC08AB6FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194013   (157053) от 24.12.2017
-
-Group | Stand Up Сезон 4 (2016) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 07:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3807B0A39458ADFCEEBABA7A54B58710E55BCCE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

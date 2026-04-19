@@ -1,3 +1,90 @@
+###  Публикация: 1199213   (801835) от 15.01.2018
+
+VA - Future Sounds. EDM (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maureen Sky Jones & DJ Combo  -  I Had A Dream (Stephan F Remix)  4:44
+02.  Geo Da Silva & DJ Combo  -  To My Beat (Original Mix)  3:39
+03.  Turbotronic  -  Show Me The Money (Original Mix)  4:13
+04.  Mr. Pit & Sean Norvis feat. Justine Berg  -  Afraid To Feel (Original Mix)  5:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDACB54FC357EDFB94A76021935E40462056DE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384642   (801677) от 21.05.2020
+
+VA - Workout Trance & Workout Electronica - Workout 2020 Progressive House [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801677.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Workout Playlist 2020 Progressive House (90 Min Continuous Mix) (88:53)
+2. Tough Track Tech House, Pt. 1 (130 BPM Workout Playlist 2020 Mixed) (4:55)
+3. Make Me Move, Pt. 2 (130 BPM Workout Playlist 2020 Mixed) (5:02)
+4. Machine Time, Pt. 3 (130 BPM Workout Playlist 2020 Mixed) (4:10)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78D9CB58BB65FFBE33993D3E3B477C084DBE0C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199436   (801090) от 16.01.2018
+
+VA - Workout Motivation Vol.1 (Most Motivating Tech House & Techno Tunes For Sport) (2018) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dash & Preuss  -  Charvis (Original Mix)  6:38
+02.  Der Dienstleister  -  Serious Situation (Original Mix)  6:21
+03.  Kerem Tekinalp  -  Lotus Effect (Original Mix)  6:59
+04.  Resilient  -  Groovy Soul (feat. Mila Mono) (Ibiza Instrumental Version)  5:51(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 02:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE033F87A24729787A0E2FA94157CDFC67DC4CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121583   (799654) от 03.04.2017
 
 VA - Spring Workout Music 40 Dance Hits & 1 Megamix (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -655,93 +742,6 @@ VA - The House of House (2019) [MP3|320 Kbps] <House, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AF30C66EDC81DA7FD240196C1400690D449004E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386538   (794439) от 29.05.2020
-
-VA - Workout Beach 2020 Summer [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davide Colombo - Still the One
-02. Skiller - Fields of Gold
-04. Tek66 - Drum Time
-05. Supernocs - Henday(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B128973D56EF5AF78A2DDE7FB1FDCFCB583057F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274282   (794169) от 06.01.2019
-
-VA - Cratediggers (2019) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KRS-One - Free Flow (Low Steppa Remix)
-02. Dantiez Saunderson - Groove Machine (Gene Farris Acid Ingestion Mix)
-03. Mr. V - My House (Italobros Remix)
-04. Brett Gould - People Up Top (Original Mix)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 03:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208C0E44E2E51B961A3BF5CFAF3E2BB762CF40B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201080   (794068) от 23.01.2018
-
-VA - Urban Dance Vol.23 (2018) 3CD [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794068.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD1:
-01.  Ofenbach vs. Nick Waterhouse  -  Katchi  2:34
-02.  Alan Walker, Noah Cyrus & Digital Farm Animals  -  All Falls Down  3:19
-03.  Jason Derulo feat. French Montana  -  Tip Toe  3:09(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49E1745FA438B00E551733B1074BFF59D6DCD06
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1808232   (10589) от 23.07.2025
+
+3D модели - Craftwork - Wooden Toys [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10589.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Wooden Toys» — это набор из 51 объёмного элемента в трёх ракурсах: спереди, в перспективе и сверху. Сочетание натурального цвета и текстуры дерева создаст особое настроение вашей презентации или веб-сайта. 3D-модели доступны в Photoshop. Меняйте цветовую схему или оставляйте натуральное дерево для любого ракурса.Формат: PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796073EA676C638F912C96714B63873AB2FED030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808642   (10288) от 26.07.2025
 
 3D модели - BM - Summer Pack - People Set [BLEND]
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EC9A310BDA30ECA3ECB16AA53455B2914615E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819271   (1643) от 21.09.2025
-
-3D print - Cults3D - Yongblood Sculpture - Yoshimitsu - Tekken 8 [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yoshimitsu (Tekken 8)Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59113DE3378280E4017B4FFA16246688145F144
 ```
 
 https://mybot314.ru/tekegram_catalog/

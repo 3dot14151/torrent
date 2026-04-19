@@ -1,3 +1,154 @@
+###  Публикация: 1341221   (262622) от 27.11.2019
+
+VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Excitations and Fred Ventura - State Of Confusion (Italoconnection Remix) (6:31)
+02. Stockholm Nightlife feat. Helly - My Guiding Star (ZYX Extended) (7:28)
+03. Tom Hooker - You're Right (Mixtended Version) (7:04)
+04. Alex Valentini - See You Again (Extended Mix) (5:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FF031A5CAE6EA4871C378B0EE5BF6FFC50EFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341216   (262615) от 27.11.2019
+
+VA - ZYX Italo Disco Spacesynth Collection 2 (2015) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.M. Samurai - Secret Entrance (4:42)
+02. Marco Rochowski - Voyage Of Discovery (5:46)
+03. Synthesis - Strange Land (6:51)
+04. Rygar - Illusion In C Minor (6:37)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834F9E7CC05CC4BC4759A97F1DBA76FBDF3DED03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341559   (262314) от 28.11.2019
+
+VA - ZYX Italo Disco Spacesynth Collection 3 (2017) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - Endless Space (5:22)
+02. Albiero - Electronic Scout (6:05)
+03. Steve Burbon - Night In Motion (Space-Mix) (6:51)
+04. Aphelion - Virtual Life (6:20)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB92848B3B4DC3F9AC305ACAB6018AB760CD550F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838675   (261342) от 23.11.2025
+
+Aurum Project - Can't Fight This Feeling (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance, AI Music>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Fight This Feeling (4:42)
+02. All We Need Is Love (4:39)
+03. Casanova (4:12)
+04. Darlin' (4:09)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 02:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BAA0E34BDDF898275452F07F92A594FE349509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501654   (259125) от 28.05.2012
+
+VA - Tribute in Bossa To The Beatles (2010) [FLAC|Lossless]<Pop, Bossa>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259125.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Come Together - Monique Kessous
+2 - A Hard Day'S Night - Monique Kessous
+3 - Help - Barbara Mendes
+4 - Got To Get You Into My Life - Lulu Joppert
+5 - Day Tripper - Tahta Menezes
+6 - We Can Work It Out - Marcela Mangabeira
+7 - Yesterday - Monique Kessous
+8 - Penny Lane - Maria Augusta
+9 - Hey Jude - Monique Kessous
+10 - Eleanor Rigby - Eduardo Braga(   Читать дальше...   )2010Жанр: Pop, BossaПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838183   (258024) от 21.11.2025
 
 Lian Ross - V (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -604,150 +755,6 @@ VA - Italian Style Vol. 1 (1988) [FLAC|Lossless|image + .cue] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABCA5C1849E165294B0F746846794ED868285D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342507   (223622) от 02.12.2019
-
-Stars On 45 - The Very Best Of... (2010) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, Pop, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars On '89 Remix (Radio Version) (4:47)
- 02. Stars On 45 (Original 12-Inch Version) (9:47)
- 03. More Stars (Abba Medley) (Original Single Version) (3:53)
- 04. More Stars (U.S.A. Version) (Original 12 Inch Version) (6:56)(   Читать дальше...   )Жанр: Electronic, Disco, Pop, 80sПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F6252719DC3AFBF6A7358956CDDE7FA945BDBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425306   (222475) от 20.11.2020
-
-Savage - Love And Rain (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Second Of My Life (Ouverture) (0:41)
- 02. Don't Say You Leave Me (3:02)
- 03. I Love You (3:17)
- 04. Italodisco (3:07)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2678FC0BAB4135F7E2AEB4D3CC0FB2C02F47C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425183   (222186) от 20.11.2020
-
-Savage - Love And Rain (Remixes) (2020) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love You (Kimmo Salo Flashback Remix) (6:54)
-02. Where Is The Freedom (Kimmo Salo Flashback Remix) (6:11)
-03. Italodisco (Kimmo Salo Flashback Remix) (5:52)
-04. Lonley Nights (Kimmo Salo Flashback Remix) (6:25)(   Читать дальше...   )Жанр: Electronic, Italo-Disco |Продолжительность: 01:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC74ED76C2F5E0E45E04869AB74B2A6981AF7390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342929   (221196) от 04.12.2019
-
-Digital Emotion - You'll Be Mine / Run Away (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll Be Mine
-02. Run AwayЖанр: Disco, ElectronicПродолжительность: 00:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF3498B22D854DB11411E904B8EE87A6CB2A3DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164166   (218176) от 02.12.2021
-
-Matia Bazar - Коллекция (1976-1989) [FLAC|Lossless] <Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218176.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 Альбомов с вокалом Антонеллы Руджеро (Antonella Ruggiero)
-Спасибо bazar и dimitri28 с "национального"01. Stringimi
-02. Se Tu
-03. Il Mare
-04. Winnie(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4431EC1DDA951A0C7A747E576BDDF39DC1FF572
 ```
 
 https://mybot314.ru/tekegram_catalog/

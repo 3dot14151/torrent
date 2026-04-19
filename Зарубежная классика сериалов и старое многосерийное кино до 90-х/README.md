@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1862116   (1063007) от 
+###  Публикация: 1862116   (1063000) от 08.04.2026
 
 Ти Минь / Tih Minh (1918) WEBRip [H.264/1080p]  (серии 1-12 из 12)
 
@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063000.jpg" />
 </div>
 
 

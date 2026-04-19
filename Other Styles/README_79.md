@@ -1,3 +1,224 @@
+###  Публикация: 519899   (635350) от 07.07.2012
+
+Julian Bream - Music of Spain (2005) [APE|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_635350.jpg" />
+</div>
+
+
+###  Подробнее
+
+JOAQUIN RODRIGO
+
+   Concierto de Aranjuez
+01. Allegro con spirito	   5:46
+02. Adagio	 10:35
+03. Allegro gentile	   4:55
+
+   Tres piezas espanolas
+04. Fandango	[04:06]
+05. Passacaglia	[07:20](   Читать дальше...   )Жанр: Classical GuitarФормат: 6 x CDПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519849   (635344) от 07.07.2012
+
+VA - Песни кубанских казаков (2002) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635344.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Из-под течушки. (4:28)
+ 2. Ой, в 877 году. (1:52)
+ 3. Генерал наш, генерал Кавказский. (2:11)
+ 4. У нашего барина. (1:08)
+ 5. Вспомним, храбрые кубанцы. (2:51)
+ 6. Да кукушечка, моя душечка. (2:08)
+ 7. Казаки, казаки. (1:34)
+ 8. За Кавказом огни горят. (1:32)
+ 9. Из-за леса, леса копий и мечей. (5:26)
+ 10. Васенька мой. (3:13)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE56372EC0E20BA4E7CE15ED1C9920003A926F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519981   (635203) от 07.07.2012
+
+VA - Cossacks-Songs and dances of the Don and Cuban Cossacks / Казаки-песни и танцы Донских и Кубанских казаков - 3 Альбома (2008) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635203.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vocal ensemble from Leningradskaya stanitsa - Zazhurilis chernomortsy (5:55)
+ 2. Bayda (4:45)
+ 3. A vzhe lit bilsh dvesti (3:57)
+ 4. Vy, kubantsy, brattsy-molodtsy (2:49)
+ 5. I ne pyut, ne yedyat koni voronye (3:23)
+ 6. Zelyonoe zhito, zelene (3:07)
+ 7. Cholovik propiv indika (1:49)
+ 8. Stradaniya (0:33)
+ 9. Korobeyniki (1:14)
+ 10. Vocal ensemble from Chelbasskaya stanitsa - Oy, vechora - izvechora (3:49)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CFB6CB16596B59B0B7E3C1DFE2D6B39418F890E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033914   (634360) от 13.07.2016
+
+Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image + .cue] <New age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Will I Be Faithful? (radio edit)    04:06
+02.  Will I Be Faithful? (forever mix)    04:36
+03.  Will I Be Faithful? (heaven cut)    04:37
+04.  Jonas Song    05:16Жанр: New age, EnigmaticПродолжительность: 00:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531B21B12BADD057382F81A92BC70EDDF9928E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033884   (634311) от 13.07.2016
+
+The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock, Power Pop>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's All In The Head
+02. Just Another Party
+03. Never Take You For Granted
+04. Waiting On The Other Side(   Читать дальше...   )Жанр: Rock, Garage Rock, Power PopПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C989504E5E651A18AABC4B06B130D17AC15DCDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034422   (634309) от 13.07.2016
+
+VA - Legends (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medwyn Goodall - The Legend
+02. Wychazel - Druid's Grove
+03. Medwyn Goodall - The Lands Beyond
+04. Jon Richards - The Triple Goddess(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:945A468B1B63DA098F36D1740E4352A96903692C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033878   (634299) от 13.07.2016
+
+Bluchel & Von Deylen - Bi Polar (2004) [FLAC|Lossless|image + .cue]<Electronic, Ambient, Trance>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634299.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gymnopedie No.1 6:11
+2. Etoile Polaire 7:08
+3. Budapest - Bukarest 6:18
+4. Summertime 7:20(   Читать дальше...   )Жанр: Electronic, Ambient, TranceПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8AF21B29C1AABADA4D1B6E009193ADBFD67BEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034258   (634298) от 13.07.2016
 
 Airforce Delta / Deadly Skies (1999) unofficial [MP3|320 кб/с]<Score>
@@ -563,215 +784,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:581A08D9F63DBDA47D7544FD258EEF5EBFD278FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144142   (629362) от 21.06.2017
-
-Karushanti - Celtic New Age  (2017) [MP3|320 Kbps] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629362.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Celtic Paths (8:07)
-2. At the Cliffs (7:07)
-3. The Hunt (8:09)
-4. Coming Home (7:05)(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755932F28AE7ECD769D06CD824DFC7434279839E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908496   (629290) от 16.06.2015
-
-Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HBO Series) Season 5 (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:46)
-02. Blood of the Dragon (01:34)
-03. House of Black and White (05:09)
-04. Jaws of the Viper (02:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7CC80107C8CF2AA2D3415802A0EC47091AA3A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520904   (629093) от 10.07.2012
-
-Wonder - Far Off the Beaten Path (2012) [MP3|192 кб/с]<New age,Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival
-02. Night Sky Song
-03. Village Child
-04. Traveler's Story
-05. Edge of the World
-06. Faces in the Smoke
-07. Dance for the Gods
-08. Longing Heart
-09. Message from the Past
-10. Secret Love(   Читать дальше...   )Жанр: New age,EnigmaticПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502ECBD17C8B788117FD76EC92573866D3CC7FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035199   (628637) от 16.07.2016
-
-Elise Lebec - Heart Song (2014) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence (3:34)
-02. Lullaby (3:29)
-03. Heart Song (4:57)
-04. Pirates And Poets (3:53)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B491C9588D7248210D23B3AD2C0C17A62319CA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035239   (628613) от 16.07.2016
-
-John Debney - Ice Age: Collision Course  / Ледниковый период Столкновение неизбежно (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice Age Collision Course Main Title (00:15)
-02. Cosmic Scrat-tastrophe (02:42)
-03. Earthbound Acorn (00:41)
-04. Family Bonding (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB39DF0787B2AF995AF0684A7301D3FB35A01C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035221   (628535) от 16.07.2016
-
-Theodore Shapiro - Ghostbusters / Охотники за привидениями (Original Motion Picture Score) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Aldridge Mansion (02:58)
-02. The Garrett Attack (01:30)
-03. Never Invited (01:24)
-04. Distinct Human Form (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8298977E7235136BAA32490DEDB31A7D60567247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035234   (628521) от 16.07.2016
-
-John Debney - Ice Age: Collision Course  / Ледниковый период Столкновение неизбежно (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice Age Collision Course Main Title (00:15)
-02. Cosmic Scrat-tastrophe (02:42)
-03. Earthbound Acorn (00:41)
-04. Family Bonding (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2B48D290EA2990D389CBAAA1C411D0B4EF0D50
 ```
 
 https://mybot314.ru/tekegram_catalog/

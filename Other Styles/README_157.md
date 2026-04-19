@@ -1,3 +1,234 @@
+###  Публикация: 162682   (172542) от 17.10.2023
+
+Геннадий Гладков - Джентльмены удачи (1971) Переиздание 2002 [MP3|320 kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление (00:56)
+02. Джентльмены удачи (01:17)
+03. Палатка археологов (00:21)
+04. Подозрительная личность (01:06)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7031F7FEF1E2AEEBDDC2C0932A46078204F183CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670490   (171714) от 22.10.2023
+
+Malte Marten, Yatao, Leander Greitemann - To the Stars (Studio Live Sessions) (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpan>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Stars (Live)
+02. Dance through the Sky (Live)
+03. Two Suns (Live)
+04. Golden Times (Live)(   Читать дальше...   )Жанр: Meditative, HandpanПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB4ECF692B644B03D87B852AE0290DFD35A7B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671963   (170836) от 26.10.2023
+
+Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 20th Century Fox Fanfare [00:00:25]
+02. Somebody To Love (Remastered 2011) [00:04:55]
+03. Doing All Right (...Revisited) [00:03:16]
+04. Keep Yourself Alive (Live At The Rainbow) [00:03:56](   Читать дальше...   )Жанр: OSTПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAD018914B7D8EBFECED9CF7A4CEF2296B77E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430263   (170613) от 10.12.2020
+
+Emma Swift - Blonde On the Tracks (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Alternative Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Jane Approximately [04:36]
+02. I Contain Multitudes [05:07]
+03. One of Us Must Know (Sooner or Later) [06:19]
+04. Simple Twist of Fate [04:20](   Читать дальше...   )Жанр: Folk Rock, Alternative CountryПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDA5B18D0D8A3C9E7A7CC497872E2E78558BCF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343964   (170532) от 10.12.2019
+
+Оседлать льва / Yamraaj (Original Motion Picture Soundtrack) - EP (1998) [MP3|320 Kbps] <OST, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zahid Nazaam & Praveen Saba - Chabake Panwa Tune
+02. Lakha Singh & Jaspinder Narula - Hai Hai Mere Dilki
+03. Altaf Raja - Hum Hai Aise Chor
+04. Vinod Rathod feat. Udit Narayan & Bela Sulakhe - Hum Karenge Aish(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A3B327E45F0032CE71333342B0E7A6970EA55C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322251   (170462) от 10.12.2019
+
+VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня бензопилой: Начало (2006) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free - All Right Now
+02. The Ides of March - Vehicle
+03. The Dixon Brothers - A Church At The Foot Of The HillЖанр: SoundtrackПродолжительность: 00:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5CE58F38588D6C0F27CAE7826658F347DFC1AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344453   (170423) от 10.12.2019
+
+Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystics Monks (4:24)
+02. Morphos (5:30)
+03. Lux Aeterna (4:47)
+04. Portal of Peace (5:17)(   Читать дальше...   )Жанр: New Age, Enigmatic, RelaxПродолжительность: 01:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAD49E7D1BA747DDDE7A27B61DD0E57D24D2C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515087   (170355) от 06.12.2021
+
+VA - Гармонь России (2005) [FLAC|Lossless|tracks + .cue] <Фольклор, Русские народные песни>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Митрофановна - Никто тебя не любит так, как я (3:19)
+02. Митрофановна - Все татары, кроме я (2:08)
+03. Валентина Гуряшина - Одуванчик (2:23)
+04. Валентина Гуряшина - Ягода-смородина (3:23)(   Читать дальше...   )Жанр: Фольклор, Русские народные песниПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA37C175577DD4F4CC0963EB94F108B21E3A5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515091   (170318) от 06.12.2021
 
 VA - Гармонь России 2 (2006) [FLAC|Lossless|tracks + .cue] <Фольклор, Русские народные песни>
@@ -512,238 +743,6 @@ Estas Tonne (Станислав Тонне, род. 24 апреля 1975, гор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCD5890BD5DB35C601E1EC65B6156BB66D9444FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 84233   (166597) от 30.10.2023
-
-Хиты украинской эстрады 60-х годов / Хіти української естради 60-х років (2005) [APE|~600 Kbps] <Folk, Народные песни>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166597.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Черемшина
-2. Два кольори
-3. Києве мій
-4. Чорнобривці(   Читать дальше...   )Жанр: Folk, Народные песниПродолжительность: 01:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E602359952E9EAFD294C3B88E78472E2483944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514467   (166545) от 10.12.2021
-
-Estas Tonne - 16 Альбомов (2002-2020) [FLAC|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Estas Tonne (Станислав Тонне, род. 24 апреля 1975, город Запорожье) — гитарист-виртуоз. Изучал музыку с восьми лет и тогда же стал играть на гитаре. Учитель гитары Сергей Борисович Щербак.  В 1990-е годы вместе с семьёй переехал в Израиль, где прожил около десяти лет, не занимаясь музыкой. Несколько лет он ездил по разным странам, а в сентябре 2002-го года в Нью-Йорке (   Читать дальше...   )01 - Romani Song (2:06)
-02 - The Winds Will Bring You Home (8:31)
-03 - All Roads Lead to Rome/Jerusalem (6:17)
-04 - Paris Heart (3:32)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B34147A41F2BC0DB0F3661FFF6E4FF15D39718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344711   (166481) от 15.12.2019
-
-Sean Kolton - MechWarrior 5: Mercenaries Digital Deluxe Edition (2019)  [MP3|320 Kbps] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Threshold.mp3
-02 - Outlier.mp3
-03 - Zero Signal.mp3
-04 - Imminent Threat.mp3(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 01:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF13796C6C830E75969F2F19F1DB4D2C8156BF29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516420   (165955) от 11.12.2021
-
-Sexy Saxophone Christmas Band - A Sexy Sax Christmas - Sensual Instrumental Favorites (2013) [MP3|320 Kbps] <Instrumental, Easy Listening, Sax>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have Yourself a Merry Little Christmas
-02. The Christmas Song
-03. White Christmas
-04. Silent Night(   Читать дальше...   )Жанр: Instrumental, Easy Listening, SaxПродолжительность: 04:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE98567D420D746046673C9E6855BC7C37CB49FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516763   (165133) от 12.12.2021
-
-Daniel Deluxe - Ghostrunner (2020) Original Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave, CyberPunk>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air (2:55)
- 02. Infiltrator (3:30)
- 03. Blood and Steel (2:44)
- 04. Dharma (2:43)(   Читать дальше...   )Жанр: Electronic, Synthwave, Darkwave, CyberPunkПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD20C6D1E3267B8C4B63123A924975FCA7FCE4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345129   (165012) от 17.12.2019
-
-Jean Michel Jarre - Images: The Best Of Jean Michel Jarre (1991) Compilation, Reissue, 1992, Disques Dreyfus [FLAC|Lossless|image + .cue] <Ambient, New-Age, Experimental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Oxygene 4 [3:09]
- 02 - Equinoxe 5 [3:22]
- 03 - Chants Magnetiques 2 [3:57]
- 04 - Oxygene 2 [3:12](   Читать дальше...   )Жанр: Ambient, New-Age, ExperimentalПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11C17AA8285C03657C6CC1FBE7C2FBCBF948968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432257   (164964) от 16.12.2020
-
-Ulvesang - Ulvesang (2015) [FLAC|Lossless|Web-DL|tracks] <Folk, Ambient, Dark Folk, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Purge (6:33)
-02. Taakeferd (5:20)
-03. Two Rivers (3:39)
-04. Wolf's Passage (5:22)(   Читать дальше...   )Производство: Ulvesang Self-releasedЖанр: Folk, Ambient, Dark Folk, NeofolkПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D782472C52FE80A161588511E7F3C400A3401C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432258   (164928) от 16.12.2020
-
-Ulvesang - The Hunt (2018) [FLAC|Lossless|Web-DL|tracks] <Folk, Black Metal, Dark Folk, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invocation (2:02)
-02. The Trial (4:55)
-03. The Dance (5:59)
-04. The End (5:43)(   Читать дальше...   )Производство: Nordvis Produktion - NVP072Жанр: Folk, Black Metal, Dark Folk, Neofolk, Dark AmbientПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77C1A98773FC40462F10A33F7E47FBEA2EDA746
 ```
 
 https://mybot314.ru/tekegram_catalog/

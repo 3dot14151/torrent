@@ -1,3 +1,29 @@
+###  Публикация: 591411   (136412) от 19.12.2012
+
+[Wallpapers] Обои для рабочего стола - Новый Год. Часть 3
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка обоев для рабочего стола на новогоднюю тематику!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93DFF4924D303174CFDE809B34211A51F31BC25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591620   (136127) от 20.12.2012
 
 [Wallpapers] Заставки на экран 2
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C802BBD0526CA6A9274F278564661C6D44507687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592528   (134422) от 24.12.2012
-
-Фотография - Anka Zhuravleva
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Anka Zhuravleva
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DA473480F23E8C5131DF1B478E75083ED1D9F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

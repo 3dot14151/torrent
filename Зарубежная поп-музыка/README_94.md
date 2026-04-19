@@ -1,3 +1,61 @@
+###  Публикация: 1761484   (36703) от 20.11.2024
+
+Bee Gees - 3 Albums (2020-2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Radio Sessions 1967-1969 + Digital Booklet
+Melbourne 1971
+Live On Air 1967 - 1968Жанр: PopПродолжительность: 3 CD, 03:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E916B9FCD279F28A2DA78E122A88BA09FE7B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646376   (35807) от 29.11.2024
+
+Адриано Челентано - Избранное. Коллекция от Ридерз Дайджест (3CD) (2012) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Soli. (4:03)
+02 - People. (5:23)
+03 - Pay Pay Pay. (4:18)
+04 - Io E Te. (5:13)(   Читать дальше...   )Жанр: popПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB643D0A66FE59162F855175A09CD051C99B79A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763835   (35298) от 03.12.2024
 
 VA - Greatest Love Songs (2024) [MP3|320 Kbps] <Pop, Rock>
@@ -687,64 +745,6 @@ VA - Billboard Top Hits 1979 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18C2FF1F91F0D428FE80F0F4A47F95C934A330D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780778   (26985) от 20.02.2025
-
-a-ha - Greatest Hits - Japanese Singles Collection (2020) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Synth-pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me
-02. The Sun Always Shines On T.V. (Single Mix)
-03. Train Of Thought (Remix)
-04. Hunting High And Low (Remix)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, Synth-pop, Pop RockПродолжительность: 01:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C17248CAF20A9DBD0B34CC1FC511786CDE2EA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782050   (26379) от 26.02.2025
-
-VA - Pop Gold 100 Greatest Hits Ever (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26379.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Shape of You - 03:54
-002. Madonna - Hung Up - 05:38
-003. Bruno Mars - Locked Out of Heaven - 03:54
-004. Dua Lipa - Dance The Night (From Barbie The Album) - 02:57(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BEA7E47AEFA3D187E1677AB4A612676A294A22
 ```
 
 https://mybot314.ru/tekegram_catalog/

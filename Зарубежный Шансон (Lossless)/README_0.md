@@ -1,3 +1,38 @@
+###  Публикация: 552900   (445523) от 27.09.2012
+
+Patricia Kaas - 6 Студийных альбомов (1988 - 2002) /Japan/ [FLAC|Lossless]<Shanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Man (Mon Homme)
+02. If You Go Away (Ne Me Quitte Pas)
+03. What Now My Love (Et Maintenant)
+04. Un Homme Et Une Femme
+05. The Summer Knows (Un Ete 42)
+06. I Wish You Love (Que Reste-t-il De Nos Amours)
+07. Yesterday When I Was Young (Hier Encore)
+08. Les Moulins De Mon Coeur (The Windmills Of Your Mind)
+09. Autumn Leaves (Les Feuilles Mortes)
+10. Where Do I Begin (Love Story)(   Читать дальше...   )Жанр: Shanson, PopПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252548   (408987) от 05.10.2018
 
 Charles Aznavour - Duos (2008)(2CD) [FLAC|Lossless|image + .cue] <Chanson>
@@ -523,6 +558,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494962   (251290) от 11.05.2012
+
+Dalida - 40 Succes En Or (1956 - 1997) 2CD [FLAC|Lossless]<Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ciao Amore Ciao
+02. Les Grilles De Ma Maison
+03. Salma Ya Salama
+04. Parle Plus Bas
+05. Comme Disait Mistinguett
+06. Lambeth Walk
+07. Fini, La Comedie
+08. Il Pleut Sur Bruxelles
+09. Il Venait D'avoir Dix-Hui
+10. Mamma(   Читать дальше...   )1956 - 1997 (Dec 17, 1997)Жанр: ChansonПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965206   (223634) от 15.12.2015
 
 Souchon - C'Est Deja Ca (1993) [FLAC|Lossless|tracks + .cue] <Chanson>
@@ -690,67 +760,6 @@ Patricia Kaas - Je Te Dis Vous (1993) [FLAC|Lossless|image + .cue] <Pop, Chanson
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0233A91494613A1D544A69B2BE005C890E511E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489992   (102468) от 01.05.2012
-
-Charles Aznavour - 40 Chansons d'Or (1996) 2CD [FLAC|Lossless]<Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sur Ma Vie
-02. J'en Deduis Que Je T'aime
-03. Parce Que
-04. Je M'voyais Deja
-05. Que C'est Triste Venise
-06. Il Faut Savoir
-07. L'amour C'est Comme Un Jour
-08. Et Pourtant
-09. Hier Encore
-10. Paris Au Mois D'aout(   Читать дальше...   )1996Жанр: ChansonПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456389   (77758) от 22.02.2012
-
-Dalida - 2 альбома (2010) [FLAC|Lossless]<Pop, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bambino2010Жанр: Pop, ChansonПродолжительность: 02:04:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

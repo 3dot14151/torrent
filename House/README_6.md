@@ -1,3 +1,90 @@
+###  Публикация: 1364434   (936406) от 03.03.2020
+
+VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936406.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Electro Jack - Stadium 4:11
+2. Edgar Blaime - Legazy 4:11
+3. Dustin Phillow - Amount 4:11
+4. Duna Shain - Sculpt 4:11(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8725EC070A18897B7CC93680976BF684AA717A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093331   (934026) от 15.01.2017
+
+VA - The Sound Of Trice (Mixed By Vigel) (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daleri ft Vice - Somebody Told Me (En Route)  3:06
+02.  Tom Fall - Irok (Radio Edit)  3:14
+03.  Julian Jordan - Pilot  2:33
+04.  Sunstars - Crysis  2:50(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 02:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA55AE6F6A3E2BF9D9A6B7082C561DC4B0948DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093701   (934024) от 15.01.2017
+
+VA - Jack The PlaceUp (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mortimer Snerd III – Crazy Fox (Miggs & Mortimer ReTouch) 06:50
+02. TrackHead Steve – U 4Get About Me (Steve Miggedy Maestro ReTouch) 07:27
+03. Michele Laws – Saditty (Miggedy’s Jackin ReTouch) 06:35
+04. Tink Thomas – Breathe (Tink Thomas Mix) 08:56(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA6455BA934C98DEB1FDFC811C1BDCED46E668D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365082   (933811) от 05.03.2020
 
 VA - Urban Sports Music, Vol. 3 (2019) [MP3|320 Kbps] <House, Progressive House>
@@ -658,93 +745,6 @@ VA - Ibiza Fitness Music (2016) [MP3|320 кб/с] <Club, Progressive, Future Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7A3D70BDE58A7D47174480C97B51C62AEA2C025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096154   (920943) от 23.01.2017
-
-VA - I Love Fitness Training (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electro Jack - Funktup 05:01
-02. Vladimir Damira - Grabba 05:38
-03. Sammy Kaiser - Flow with Da Grow 05:03
-04. Susan Sustain - Hypnotize2 07:28(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76F1BE9D1F7FFED9BAC7C321DE3978742F4767D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096428   (920932) от 23.01.2017
-
-VA - Motivation Training Music 2016 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Qamil Stello — Gonet 02:52
-02. Saber Wolf — Hong Kong 02:37
-03. Sofia Morales — Macsound 04:01
-04. Jeff Haymaker — Elec 04:40(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817EF78BF0F3DED7A754C72371BD022E3902EEF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096478   (919308) от 24.01.2017
-
-VA - Deephouse Night Beats (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Performative Mode — First Mode (Original Mix) 05:48
-02. Mighty Real — Remote Viewing (Original Mix) 06:43
-03. Circuito Zeta — Step Down (Original Mix) 07:17
-04. Stube — Calling Dingo (Original Mix) 06:30(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B73650F921E9DD2A7E3AE39EBBE9DF0A021E171
 ```
 
 https://mybot314.ru/tekegram_catalog/

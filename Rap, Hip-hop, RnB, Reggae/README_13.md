@@ -1,3 +1,32 @@
+###  Публикация: 1212646   (775034) от 13.03.2018
+
+Грот - Лучшее (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Обитатели рая
+02. Лиза
+03. Кровь с кислородом
+04. Рубежи(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB7E7134B33A3713024DB5071E3548D4A43749A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117653   (773441) от 13.04.2017
 
 SERPO & DJ MTR - На осколки (2017) EP [MP3|320 Kbps] <Hip-Hop, Reggae, House>
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E26B44E4C391F29365F413952B9C28F3F465037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283856   (731822) от 18.02.2019
-
-UB40 - UB40 (1988) Reissue [FLAC|Lossless|image + .cue] <Electronic, Synth-pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance With The Devil
-02. Come Out To Play
-03. Breakfast In Bed
-04. You're Always Pulling Me Down(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475252E1163360CA1BF8A05AB8753D24828D57FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1623171   (1029595) от 31.03.2023
+
+VA - Mystera II (1998) [OGG Vorbis|480 Kbps] <NewAge, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enya - Storms In Afrika
+02. Era - Enae Volare Mezzo
+03. Enigma - Beyond The Invisible
+04. Capercaillie - Ailein Duinn(   Читать дальше...   )Жанр: NewAge, MeditativeПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14E59DA6FEE74AFA597244BCDB07EE7FF9EA79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449559   (1029523) от 23.02.2021
+
+VA - Country Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Hofmeyr - Amanda (03:07)
+02. Demi Lee Moore - Neon Moon (04:10)
+03. Chris Else - I Am I Said (03:47)
+04. Roan Ash - Whiskey To My Soul (03:45)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4077B8D2B4E512875811504660687796666AC982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449973   (1029347) от 24.02.2021
+
+Darren Korb - Pyre OST (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029347.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In the Flame [3:10]
+2. Downriver [0:38]
+3. Downside Ballad [4:11]
+4. Path to Glory [3:15](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5277F93292D6660F13DC5E5AEF477026140737BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450117   (1029343) от 24.02.2021
+
+Devesh Sodha - Past & Present (2018) + Singles (2013-2020) [FLAC|Lossless|WEB-DL] <Soundtrack, Instrumental, Epic>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destiny Of The Urban Warrior
+02. Carol of the Bells (Epic Version)
+03. Promises
+04. Falling FasterЖанр: Soundtrack, Instrumental, EpicПродолжительность: 00:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28186DE1AD7B25F70FE6EA3D4FC758A85F02410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449974   (1029337) от 24.02.2021
+
+Darren Korb - Hades OST (2020) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029337.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. No Escape [2:26]
+2. The House of Hades [4:53]
+3. Out of Tartarus [5:55]
+4. Wretched Shades [2:56](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFC18A2620B3407DC4D1D55FE92646CE3F0A885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450418   (1029003) от 26.02.2021
+
+Simon Chylinski - Subnautica (Original Game Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salutations (01:50)
+02. Into the Unknown (02:58)
+03. Tropical Eden (01:43)
+04. God Rays (01:30)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4A2FE3ACAE93BC6A6E4B55F0E62169C2C4646A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 19013   (1027979) от 04.03.2021
 
 The Best of Paul Mauriat 10 CD
@@ -574,180 +748,6 @@ VA - Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ED8384987710643905A77BDFFC68236B0EED37A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458751   (1023475) от 31.03.2021
-
-VA - More Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Brickman - Sing (2:56)
-02. Stan Whitmire - Hero (4:21)
-03. Jim Brickman - Love Me Like You Do - From Fifty Shades Of Grey (5:03)
-04. Pat Coil - The Old Songs (3:49)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 03:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B46301E934A8B23E864F9385EF0D2A3DAE54C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459059   (1023468) от 31.03.2021
-
-Corrado Carosio & Pierangelo Fornaro - Rocco Schiavone 1-4 (Colonna Sonora Originale Della Fiction TV) (2016-2021) Rai Com [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Soundtrac ...
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ugo In Love (02:07)
- 02. Teatro Romano (02:48)
- 03. Il Grande Ritorno (02:17)
- 04. Amantidi (01:40)(   Читать дальше...   )Тип издания: WebЖанр: Modern Classical, Ambient, Soundtrack •Продолжительность: 02:44:48 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A554CB22C7870A2D617DE6ABDDF1F64D4A18BC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457771   (1023466) от 31.03.2021
-
-Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023466.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:29] 01. '84
-[04:39] 02. No Hero Is Born from Lies
-[05:09] 03. Apex Predator
-[06:50] 04. The Monkey Paw(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8973E0E51144EDCA2099EAD44AA244AD917366AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457715   (1023464) от 31.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023464.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:20] 01. Pensacola, Florida (Godzilla Theme)
-[07:26] 02. Skull Island (Kong Theme)
-[02:02] 03. Apex Cybernetics
-[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB15A744B58F72E42D5115BFDB70BABFBD932CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457977   (1023463) от 31.03.2021
-
-Oscar Lopez - Guitar Masters (2002) Compilation [MP3|320 Kbps] <Flamenco, Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armando's Fire (3:26)
-02. Walking Through The Pyramid (3:53)
-03. Chile (3:28)
-04. Latino (4:28)(   Читать дальше...   )Жанр: Flamenco, GuitarПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9CBC2FEDE047D6126D6C2C2D2152812F9EB8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457766   (1023462) от 31.03.2021
-
-Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023462.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:52] 01. Themyscira
-[05:18] 02. Games
-[07:05] 03. 1984
-[04:56] 04. Black Gold(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6F9B061A998978472BB45B79C61637848BEE8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

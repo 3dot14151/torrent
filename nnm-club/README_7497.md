@@ -1,23 +1,75 @@
-###  Публикация: 1126719   (764616) от 19.04.2017
+###  Публикация: 1125765   (766883) от 16.04.2017
 
-Lingon X 4.3.8 [Multi/Ru]
+Михаил Жванецкий | Женщины (2014) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Читая Жванецкого, слышишь его голос, и легко представить себе, как Михаил Михайлович выходит на сцену, вынимает из портфеля стопку страничек и читает их в своей оригинальной манере: с паузами и акцентами на отдельных словах. Но когда мы сами читаем его тексты, нам открывается иная глубина знакомых фраз и многовариантность их понимания.
+Юмор - самая притягательная (   Читать дальше...   )Жанр: Юмор, сборник миниатюрПродолжительность: 05:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7DFBF212B6A80E753E4C99A677E05771661685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126094   (766882) от 16.04.2017
+
+Олеся Тимофеева | Займись собой – сделай тело! 90-дневная программа похудения (2017) [FB2, DOCX, MOBI, EPUB]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – инструкция для похудения. Программа, рассчитанная на 90 дней. Выполнив задания, вы станете легче на 10–15 килограммов, измените пищевое поведение, создадите красивое сильное тело, избавитесь от лишнего веса и наведёте порядок в рационе и здоровье. Для широкого круга читателей, интересующихся темой похудения.Жанр: Здоровье, cамосовершенствованиеФормат: FB2, DOCX, MOBI, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7AC5597A2F920D951A5957E6CB26E80C0C6111E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125929   (766881) от 16.04.2017
+
+Symantec Endpoint Protection v14.0.2349.0100 [En]
 
 >>Программы для macOS
->>Утилиты для macOS
+>>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lingon X  - автоматический запуск приложений и сценариев
-Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: апрель 2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Немецкий  и др.
+Рост числа направленных атак и сложных устойчивых угроз требует многоуровневой защиты и интеллектуальных средств обеспечения безопасности в конечных точках. Symantec Endpoint Protection гарантирует непревзойденный уровень безопасности, потрясающее быстродействие и интеллектуальное управление в физических и виртуальных средах. Благодаря использованию преимуществ крупнейшей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.03.2017Разработчик: Symantec Inc.Поддерживаемая ОС: OS X 10.8 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED6BB1C154BC303740F7D11DE220FB7593A56B49
+magnet:?xt=urn:btih:053D5DE2584AC5ADE10AAB7CC50517DA0AC46CDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +77,157 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126787   (764615) от 19.04.2017
+###  Публикация: 1125614   (766880) от 16.04.2017
 
-Network Speed Monitor 2.1 [En]
+Е.Д. Баран | LabVIEW FPGA. Реконфигурируемые измерительные и управляющие системы (2009) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766880.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлено описание нового модуля графической среды проектирования LabVIEW. С помощью этого модуля, расширяющего концепцию виртуальных инструментов в область разработки аппаратных средств, можно создавать собственные каналы ввода-вывода и устройства обработки данных, функциональность и характеристики которых определяются не на заводе изготовителе, а инженером-разработчиком (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9270814436F86EA013D35894737695678FE314C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126039   (766879) от 16.04.2017
+
+La-Mulana (2012) [Ru/Multi] (1.6.6.1b) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Меня зовут Лемеза Косуги. Я читаю лекции по археологии, а в свободное время исследую тайны древних развалин. Недавно я получила записку, написанную моим давно пропавшим отцом: “Наконец-то я отыскал его! Я победил!”. Похоже, старик наконец добился того, что хотел, и разыскал Ла-Мулану, древний храм, все эти годы скрывавший от человечества тайное знание наших предков. (   Читать дальше...   )Тип издания: LicenseРазработчик: NIGOROЖанр: Экшн, Приключение, ПлатформерЯзык интерфейса: Русский, Английский, Японский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85092F85DA607CF505BD55EE80611295F607975F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126050   (766878) от 16.04.2017
+
+Stand Up (2017.04.16) SATRip (сезон 6, выпуск 9) [AD]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Network Speed Monitor - скорость сети в строке меню
-Network Speed Monitor - очень простая утилита для отображения текущей скорости сети в строке состояния, в том числе загруки/выгрузки (download/upload).
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:45:50Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC775FE0782F9F10A66933694D4EAD57D0E7F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126114   (766877) от 16.04.2017
+
+Dism++ 10.1.25.4 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dism++ - утилита предназначена для продвинутых пользователей, которая поможет осуществить «генеральную уборку» в операционной системе Windows. С ней вы можете очистить систему от временных файлов, удалить логи, кэш и т.д. Интересной особенностью является поддержка сжатия уже установленной системы (% сжатия выбирается в настройках программы). помимо всего прочего (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B2A003891381BC795E9662D883A7D9FCA29598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125660   (766876) от 16.04.2017
+
+Перед рассветом (1989) HDTVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жаркое лето 1941 года. Небольшая станция в прифронтовой полосе. В один из вагонов погружают группу уголовников. Не успевает поезд проехать и несколько километров, как подвергается налету авиации и атаке десанта. После боя из всего состава в живых остаются только трое: молодой лейтенант НКВД, «вор в законе» и репрессированный генерал. Они бегут в лес, подальше от (   Читать дальше...   )Производство: СССР, Свердловская киностудияЖанр: Военный, ДрамаРежиссер: Ярополк ЛапшинАктеры: Николай Бадьев, Евгений Миронов, Александр Панкратов-Чёрный, Валерий Рыжаков, Раиса Рязанова, Константин Степанков, Вера Альховская, Олег Корчиков, Вячеслав Кириличев, Игорь ГоловинСубтитры: отсутствуютПродолжительность: 01:19:36Реклама: 2 анонса от телеканала (см. доп.скриншоты)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3D6317BEE572B440B4344EAA03A63EDE519DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125944   (766875) от 16.04.2017
+
+Остров сокровищ / Treasure Island (1972) BDRip [H.264/720p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766875.jpg" />
+</div>
+
+
+###  Подробнее
+
+В комнате Билли Бонса, погибшего в схватке с пиратами, юный Джим Хокинс находит карту острова с обозначением места, где спрятаны сокровища капитана Флинта.
 
-Когда ваш компьютер подключается к сети, вы можете увидеть текущую скорость сети с помощью Network Speed Monitor. Network Speed Monitor удобное приложением для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.04.2017Разработчик: CokeSoftПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
+Он с друзьями отправляется в путь на поиски таинственного клада. Немало приключений и испытаний выпало на долю путешественников. Клад был найден, но самым дорогим сокровищем оказалась дружба, проверенная в схватке (   Читать дальше...   )Производство: Франция, Италия, Испания, Великобритания, Германия (ФРГ) |  Central Cinema Company Film (CCC), Eguiluz Films, Les Productions FDLЖанр: Приключения, СемейныйРежиссер: Андреа Бьянки, Джон Хаф, Антонио МаргеритиАктеры: Орсон Уэллс, Ким Берфилд, Лайонел Стэндер, Вальтер Слезак, Анхель дель Позо, Рик Батталья, Мария Ром, Пауль Мюллер, Жан Лефевр, Мишель ГарлэндПеревод: Многоголосый закадровыйСубтитры: Отсутствуют
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:635036D77EF848878AC8FCA370D66920BDB349DD
+magnet:?xt=urn:btih:31C0BCEC118725FA6FB0D6DD98189299E40F145B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,254 +235,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126674   (764614) от 19.04.2017
+###  Публикация: 1279187   (766874) от 28.01.2019
 
-Elvin Bishop - She Puts Me In The Mood (2012) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gone  (03:57) 
-02. Middle Aged Man  (03:07) 
-03. Long Shadows  (04:44) 
-04. Home Of The Blues  (04:32) (   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E30782801ADB6237F4AF527AD2BDC981B8FD527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125676   (764613) от 19.04.2017
-
-VA - Сотка популярных весенних хитов на Europa Plus. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764613.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cash'u - Хочу 3:29
-002. Алла Пугачева - Счастливые Дни 3:52
-003. Митя Фомин - Твоя Энергия 3:21
-004. Adil Karaca - Музыка 3:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB49A48C05DB4FFB4E3B949640683B0CADE453C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126980   (764612) от 19.04.2017
-
-Журнал | Цветы в саду и дома №2 (февраль 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание является приложением к журналу "Приусадебное хозяйство". Каждый номер журнала посвящен либо одному виду растений/кустарников (выбор места посадки, почвосмеси, уход), либо одному виду работ (обрезка), либо элементам садового дизайна.Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58695B5B0604395E291808921A55CCCF3FC3BA8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126957   (764611) от 19.04.2017
-
-Vektor - Terminal Redux (2016) [MP3|320 Kbps] <Thrash, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764611.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Charging the Void (9:11)
-2.Cygnus Terminal (8:15)
-3.LCD (Liquid Crystal Disease) (7:33)
-4.Mountains Above the Sun (1:22)(   Читать дальше...   )Жанр: Thrash, Progressive MetalПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE984E0BB792078CBF2D69512AEED5183B088B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126633   (764610) от 19.04.2017
-
-Lonnie Brooks - Deluxe Edition (1997) Compilation, Remastered [APE|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jealous man  (03:41) 
-02. Something You Got  (03:35) 
-03. Temporary Insanity  (03:40) 
-04. End of the Rope  (03:54) (   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB3191CA2FCD49A5A9434B112CFB948CA8554EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126818   (764609) от 19.04.2017
-
-VA - Sunrise Energy Melodies (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Energy, Harmonic, Euphoric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sam Laxton - Decadence (Extended Mix)  6:22
-02.  Paul van Dyk - Touched By Heaven (Extended)  7:30
-03.  DJ T.H. & Natalia Meister - Where We Belong (Original Mix)  7:15
-04.  Fady & Mina - Akemi (Extended Mix)  8:22(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Energy, Harmonic, EuphoricПродолжительность: 02:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357F8998C868D08084FAA95CB92F589F40267745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126912   (764608) от 19.04.2017
-
-VA - Empire Records - Dancenudisco 14 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond feat. Gemma Hayes - Counting Down The Days (MiRo Remix)
-02. Arilena Ara - Nentori (Beverly Pills Remix)
-03. El Mukuka feat. Kayla Jacobs - Bottle of Loneliness (Filatov & Karas Remix Extended)
-04. LP - Tightrope (Regard Remix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63DF693DCB6C19D8B5D7C23587AD00FEBB91505E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126981   (764607) от 19.04.2017
-
-Журнал | Цветы в саду и дома №4 (апрель 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание является приложением к журналу "Приусадебное хозяйство". Каждый номер журнала посвящен либо одному виду растений/кустарников (выбор места посадки, почвосмеси, уход), либо одному виду работ (обрезка), либо элементам садового дизайна.Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FDEC9C48C74A011C3480A9BAA503DF052D1812B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126902   (764606) от 19.04.2017
-
-Kelly Simonz's Blind Faith - Overture Of Destruction (2017) Japanese edition [FLAC|Lossless|image + .cue] <Neoclassical Metal, Shred>
+Distant Dream - It All Starts From Pieces (2017) [FLAC|Lossless|image + .cue] <Instrumental Progressive Post Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Overture 00:55
-02. Road To Destruction 06:45
-03. Close Your Eyes 04:50
-04. Road To Ruin 05:43(   Читать дальше...   )Жанр: Neoclassical Metal, ShredПродолжительность: 01:02:11
+01. Sleeping Waves (feat. Dhalif Ali) (5:30)
+02. A Touch Of The Sky (5:00)
+03. Waiting For Silence (4:31)
+04. Reverse (feat. Stel Andre) (5:41)(   Читать дальше...   )Жанр: Instrumental Progressive Post MetalПродолжительность: 00:40:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD4017C64127BB147312E68FE5CCE91E4E768F91
+magnet:?xt=urn:btih:28883C5E20360A887C69D1582BD9520AD93087C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,28 +264,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126963   (764605) от 19.04.2017
+###  Публикация: 1278626   (766873) от 28.01.2019
 
-The Great Disco Bouzouki Band - Disco Bouzouki (1978) LP [MP3|320 Kbps] <Pop, Disco>
+Марианна Алфёрова | Леонардо да Винчи. Настоящая история гения (2019) [MP3]
 
->>Pop
->>Зарубежная поп-музыка
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Giorgio (4:14)
-02. Greek Magic (Instrumental-Medley): Never On Sunday, Zorba The Greek, Pireas (5:06)
-03. Ouzo & Retsina (3:32)
-04. Disco Bouzouki (4:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:35:12
+Леонардо да Винчи - самый таинственный и загадочный гений. Кто же он был на самом деле? Есть предположения самые невероятные - любители сенсаций объявляют его гостем из будущего и даже инопланетянином.
+Перед вами книга о научных открытиях и изобретениях великого итальянца, о его живописных произведениях.
+Юный читатель сможет:
+- окунуться в атмосферу эпохи Возрождения, (   Читать дальше...   )Жанр: Познавательная литература для детей, Культура и искусствоПродолжительность: 07:50:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F985522DCCA290FC7371C0A418EA950FBB9D2DF4
+magnet:?xt=urn:btih:297FE8A9623F80EF0B30436ECFB6CE48D3441B7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,342 +293,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126836   (764604) от 19.04.2017
+###  Публикация: 1279257   (766872) от 28.01.2019
 
-Профили детей в соцсетях могут стать закрытыми
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комитет СФ предложил защитить детей в соцсетях, сделав их страницы доступными только друзьям и родственникам.В связи со случаями ­­вовлечения детей в сомнительные группы в соцсетях Минкомсвязи РФ разрабатывает новые меры безопасности и обсуждает возможность их реализации с заинтересованными компаниями. Одной из таких мер является закрытие принадлежащих несовершеннолетним (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279801   (764603) от 31.01.2019
-
-Philippe Soirat Quartet - You Know I Care (2015) Paris Jazz Underground [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Eye of the Hurricane [5:06]
-02. Ugly Beauty [5:06]
-03. Ants Get Sip [5:00]
-04. Ezz-Thetic [4:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6FD4F73DD66FFBA81FA3207E0B3A542E7FA5B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279839   (764602) от 31.01.2019
-
-Richard Cole - The Forgotten (2001) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Any Skynyrd [9:05]
-02. The Best Thing for You [5:53]
-03. Angel Eyes [6:47]
-04. Without a Song [7:01](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16695E435F8F1F5590E506BDACB97F1C26564F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279791   (764601) от 31.01.2019
-
-Mel Torme & Rob McConnell - And The Boss Brass (1986) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Friends [4:49]
-02. September Song [4:59]
-03. Don'cha Go 'Way Mad [4:30]
-04. A House Is Not a Home [3:40](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C58FF01F196305AA747D8B0119A6148629776CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279794   (764600) от 31.01.2019
-
-Harry Connick, Jr. - What a Night! A Christmas Album (2008) Columbia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's the Most Wonderful Time of the Year [3:29]
-02. What a Night! [3:25]
-03. Christmas Day [3:24]
-04. Have a Holly Jolly Christmas [4:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6CB6E261A664168B7561AAB375D52A61730419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279799   (764599) от 31.01.2019
-
-Domagoy Ralasic With Benny Bailey - The Bag Is Packed (1997) Timeless [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues For Lady 'J' [7:12]
-02. For All We Know [6:16]
-03. Lester Leaps In [4:28]
-04. Body & Soul [7:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FED658694227CBFCDA7A2BDA1BB239C0D37B495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279789   (764598) от 31.01.2019
-
-The Billy Taylor Trio - You Tempt Me (1989) Taylor-Made Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the A Train [7:12]
-02. Tom, Vaguely [6:19]
-03. You Tempt Me [5:22]
-04. Let Us Make a Joyful Noise/Spiritual [11:15](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B738DCA97E7335BAC7F862D84EE42DE470260967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279950   (764597) от 31.01.2019
-
-VA - Festival Anthems Vol.4 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - New Era (Suanda 150 Anthem) (Extended Mix)
-02. Frainbreeze - #Dvrk5ide (Extended Mix)
-03. Ruslan Radriges - Revival (Extended Mix)
-04. Adip Kiyoi - Start With A Dream (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA4D9B6C5DE90A8FD3BAF3E954D85CF11E87891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279882   (764596) от 31.01.2019
-
-VA - Nothing But...Tech House Essentials, Vol.07 (2019) [MP3|320 Kbps] <Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GAWP - Blocker (Original Mix)
-02. Hott Like Detroit - Groovers (Dub Mix)
-03. Fachini - Keep Holding (Original Mix)
-04. Black V Neck - Listen To My Flute(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BF280374615AD4D11B20A4D270D74800B4687C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279933   (764595) от 31.01.2019
-
-VA - JOOF 20 Years (Mixed by Gary Delaney & Facade & Daniel Lesden) (2018) [MP3|320 Kbps] <Progressive House,Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Delaney – JOOF 20 Years - Mixed by Gary Delaney (Continuous DJ Mix)
-02. Facade – JOOF 20 Years - Mixed by Facade (Continuous DJ Mix)
-03. Daniel Lesden – JOOF 20 Years - Mixed by Daniel Lesden (Continuous DJ Mix)
-04. Monojoke – Hollow Child (Original Mix)(   Читать дальше...   )Жанр: Progressive House,TranceПродолжительность: 11:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E901980BCDA19C1F6477172BBFF7C6B55F0099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279745   (764594) от 31.01.2019
-
-Artificial Silence - Negative Space (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skin Deep (06:23)
-02. Latency (04:26)
-03. Innocent (3:50)
-04. In the Midst of a Dream (06:42)(   Читать дальше...   )Жанр: Alternative Rock, Progressive rockПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB0FE3E2FC54A24D67CE47F93A5A33652BE401B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279813   (764593) от 31.01.2019
-
-TrashMe 2.1.21 [Multi/Ru]
+WinTools.net Premium 19.0 (Repack & Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TrashMe - утилита для удаления приложений, виджетов и связанных с ними файлов. Перетяните не нужное приложение на иконку TrashMe, а все остальное она сделает за вас, быстро и качественно. TrashMe представляет собой мощный деинсталлятор с дополнительными и полезными инструментами.
-Дополнительная информация:Тип издания: macOS SoftwareРелиз состоялся: 29.01.2019Разработчик: Jean-Baptiste ZEDDAПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0B4E26E4D5097EF186DCB98E5833D1776835C6F
+magnet:?xt=urn:btih:A9E7BA6FCEA16D66EAD2C54F1CD14AFE049FF203
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,28 +319,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279959   (764592) от 31.01.2019
+###  Публикация: 1278663   (766871) от 28.01.2019
 
-VA - Nicholson - Glorious (The Album) (2019) [MP3|320 Kbps] <Trance>
+Владимир Высоцкий | О времени и о судьбе (1989) [MP3]
 
->>Electronic
->>Trance
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nicholson - Toward The Light (Feat. Jennie Osborn) (Original Mix)
-02. Nicholson - Society (Original Mix)
-03. Nicholson & Emoiryah - In The Need (Original Mix)
-04. Nicholson - Shut Them Down (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:32
+Мы много рассуждаем сегодня о скоростях века, не замечая иногда, что на откуп этим скоростям отдаем что-то, что не подлежит ускорению. Нельзя быстрее любить, быстрее надеяться, быстрее рожать детей, быстрее страдать. В стихах Высоцкого все летит и мчится, но как стихотворец сам он шел пружинистым и легким шагом, отмечая все вехи (в себе и вокруг), все приметы времени. (   Читать дальше...   )Жанр: Поэзия, моноспектакльПродолжительность: 00:54:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D497DFE00126DDEF837B82F6F3A814C74B54D72E
+magnet:?xt=urn:btih:CA1F4F10D8285D62D8190F3B6A363452E5997A89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,28 +345,346 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279749   (764591) от 31.01.2019
+###  Публикация: 1279141   (766870) от 28.01.2019
 
-Manet - Devour (2017) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Dark Jazz, Post Rock>
+Process Lasso Pro 9.0.0.568 RePack (& Portable) by TryRooM [Ru/En]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Norwegian Horror Saga
-02. Delirious And Devoured
-03. Doctor Schnabel Von Rom
-04. Vendredi Noir(   Читать дальше...   )Производство: Dark Jazz Records – DJR 001Жанр: Ambient, Dark Ambient, Dark Jazz, Doom Jazz, Post RockПродолжительность: 00:49:15
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:732A90F7251BBAA669A66830586A54A5BC08DC37
+magnet:?xt=urn:btih:CF3CAA88932822AF23AC073BBD1CCCFFB8A853AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279125   (766869) от 28.01.2019
+
+Подшивка | СВЧ электроника (2018) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766869.jpg" />
+</div>
+
+
+###  Подробнее
+
+«СВЧ электроника» - приложение к журналу «Электронные компоненты». В журнале размещена информация по компонентам и материалам СВЧ, проектированию и разработке радиотехнических систем, приборам и проблемам электромагнитной совместимости. Журнал, прежде всего, ориентирован на инженеров-разработчиков и технологов в области СВЧ, работающих в различных сферах науки и (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC0EC0BE4F4F996F4D5606DC559FEA25C186C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279188   (766868) от 28.01.2019
+
+Glary Utilities Pro 5.113.0.138 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E19CF79C5AED64C4649432FC2B7E10FD33F5C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279172   (766867) от 28.01.2019
+
+Arturia SYNCLAVIER V v2.0.2 macOSX-DDP [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный Синклавир представляет собой цифровой синтезатор, совмещающий в себе несколько вариантов синтеза: аддитивный, FM, а также так называемый Timbre Frame — по факту это технология ресинтеза, основанная на объединении произвольных микросемплов в цепочку, в произвольной же последовательности. Синклавир создавался фактически как компьютер на базе 16-битного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: январь 2019Разработчик: Arturia IncПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F11CBAE3B60B9E6275F2D431AC59FEE7198444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279152   (766866) от 28.01.2019
+
+uMark Photo Watermarker 6.1 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766866.jpg" />
+</div>
+
+
+###  Подробнее
+
+uMark – программа нанесения водяных знаков с поддержкой пакетного режима обработки. Данная программа позволяет добавлять видимые водяные знаки к вашим цифровым изображениям и фотографиям. Будь то название компании, логотип или уведомление об авторских правах. Вы можете настраивать шрифты, цвет, тень, 3D, контурный текст, уровень прозрачности, вставлять специальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2019Разработчик: Uconomix Technologies LLP.Поддерживаемая ОС: macOS 10.9.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE07DB2549A934B8A3D667A8AC6159965EC9211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278871   (766865) от 28.01.2019
+
+Константин Седых | Даурия (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Константина Седых «Даурия» – своеобразный сибирский вариант шолоховского «Тихого Дона» – представляет собой впечатляющую панораму жизни сибирского казачества, столкновение частных судеб с катаклизмами Большой Истории «Революция, Гражданская война» высекает искры подлинного драматизма.
+
+Константин Седых | Даурия: Отчий край (2019)Жанр: Исторический романПродолжительность: 27:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4327D11B9905FB21EDDEED3AC4BD08807FEF26BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279104   (766864) от 28.01.2019
+
+VA - Neon Acid: Electronic Techno Mix (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766864.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adaro - The Otherside
+002. Empira - Sacrifice
+003. Loco & Jam - Resonate
+004. Matthias Meyer - Love Letters From Sicily(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 10:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB69CA71FAFEF038E3580F562DC11AAC207303AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277614   (766863) от 28.01.2019
+
+Вильгельм Гримм, Якоб Гримм | Сказки братьев Гримм [«Мелодия»] [1987, 1973 / 2010, lossless]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочетание поучительности и занимательности, высмеивания человеческих пороков и создание героев с потрясающими характерами - авторы как настоящие детские психологи затронули все аспекты жизни. Хотя как известно они сами не писали сказки, а просто записывали народные легенды и предания, при этом сами Яков и Вильгельм были видными учеными, дети всего мира всё равно (   Читать дальше...   )Жанр: Сказка / аудиоспектакльПродолжительность: 1:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF00F7C0D2D73D439194538EE5C1756E1BFA30A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279120   (766862) от 28.01.2019
+
+Максим Горький | Жизнь Матвея Кожемякина (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766862.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе «Жизнь Матвея Кожемякина» великого русского писателя М.Горького (1868—1936) изображен мещанский мир уездной России, с большой глубиной обрисованы жизнь и быт «уездных гнезд российской косности», социальная психология и мировоззрение реакционного мещанства. В романе отразилось брожение, охватившее под влиянием революции даже отсталые слои общества.Жанр: Русская классикаПродолжительность: 20:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25F7BFD46B5C23F32F8D78A6D114877CFDD9583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279128   (766861) от 28.01.2019
+
+VA - The Lyric Country and Blues (2019) [MP3|320 Kbps] <Country, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nashville Cast feat. Chris Carmack - My Turn
+02. Jason Aldean - Ride All Night
+03. John Lee Hooker - You Know I Love You
+04. The Wide Open - Never Knew(   Читать дальше...   )Жанр: Country, BluesПродолжительность: 02 :33 :37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F383BE9895E72A6DC78FA056557354FD1B41318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279065   (766860) от 28.01.2019
+
+Константин Седых | Даурия: Отчий край (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Отчий край» Константина Седых тематически продолжает его известный роман «Даурия». В нем изображаются события последних лет Гражданской войны: изгнание белогвардейцев и интервентов из Забайкалья и с Дальнего Востока, воссоединение Дальневосточной республики с Россией, возвращение партизан к мирной жизни, их работа по укреплению советского строя.
+Многие герои (   Читать дальше...   )Жанр: Исторический романПродолжительность: 26:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7D7A2B6EAAEDA4FA6DCC9C390055A1B7266E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278586   (766859) от 28.01.2019
+
+Мишель Бюсси | Самолёт без неё (2018) [MP3, Лора Луганская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все началось с катастрофы. За ней последовала загадка. Потом появился сыщик. Аэробус 5403 «Стамбул — Париж» врезался в гору Мон-Террибль. Никто так и не понял, что именно стало причиной крушения. Из всех, кто был на борту, в живых остался лишь один пассажир — трехмесячный ребенок. Девочка. Имя и фамилия девочки остались неизвестными. Две семьи начинают борьбу за (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 13:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572627B647B4284AC0F9D7CE42DDEFDC43692BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279184   (766858) от 28.01.2019
+
+Mozilla Firefox Quantum ESR 60.5.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D140A60F1A91001EEB55985F3B7E974AE0F83D64
 ```
 
 https://mybot314.ru/tekegram_catalog/

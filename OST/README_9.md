@@ -1,3 +1,32 @@
+###  Публикация: 1027961   (692964) от 21.06.2016
+
+Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vietnam War IV (01:41)
+02. Trials of the Blood Dragon (03:37)
+03. Bullet Proof (01:51)
+04. Punch! (02:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4154764632BE58EDD4AF5ABACB35180B625C5C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 332190   (691821) от 08.05.2011
 
 OST Лара Крофт: Расхитительница гробниц 2 - Колыбель жизни / Lara Croft Tomb Raider: The Cradle of Life  [MP3|320 Кбит/сек]<Soundtrack>
@@ -722,35 +751,6 @@ Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031143   (668594) от 03.07.2016
-
-John Williams - The BFG / Большой и добрый великан (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (01:19)
-02. The Witching Hour (04:41)
-03. To Giant Country (02:34)
-04. Dream Country (10:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD8BC4782AA459629EF123978629C92D171BF0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 961217   (300625) от 01.12.2015
+
+Футажи - Happy New Year Collection - IV [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертая часть сборника зимних футажей от различных авторов.Формат: MOVРазрешение файлов: 1920х1080 / 1400х1000 / 1280х720 / 800x600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227D0912D773F3E56E5718AE0C3A8153F0896ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961250   (300612) от 01.12.2015
 
 Футажи - Happy New Year Collection - V [MP4]
@@ -655,35 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4D59709211401BBF038D708AF21F6AB9B91B9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496404   (252993) от 14.05.2012
-
-Сборник - Light and Energy Background Bright Circuit (1080p)
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник - Light and Energy Background Bright Circuit (1080p) 
-Название: [Футаж] Light and Energy Background Bright Circuit (1080p)
-Тип раздаваемого: Футаж
-Разрешение файлов: 1920X1080Расширение (тип) файлов: MOVСкриншоты:Время раздачи: 24/7 по мере возможности...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4123926822DDCAAD9D3A76BB736680551B75D44F
 ```
 
 https://mybot314.ru/tekegram_catalog/

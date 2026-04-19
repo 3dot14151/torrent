@@ -1,3 +1,29 @@
+###  Публикация: 1379254   (841097) от 28.04.2020
+
+liquivid Video Fisheye Removal 1.4.1 [En/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841097.jpg" />
+</div>
+
+
+###  Подробнее
+
+liquivid Video Fisheye Removal - простое в использовании приложение, которое удаляет fisheye distortion из видео, снятых action cameras или другими широкоугольными объективовами.Тип издания: macOS SoftwareРелиз состоялся: 29.03.2020Разработчик: Razvan ChisuПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D41C66233BFD7BB1EE96D743B37261C87F3DCC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379231   (841089) от 28.04.2020
 
 Clipboard Center 2.2.2 [Multi]
@@ -684,32 +710,6 @@ DirEqual - это инструмент сравнения папок, котор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A53171F7D545C5EDF1E90BA7C25C0A43983388D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502066   (831903) от 12.10.2021
-
-WidsMob HDR 2.13 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой и продвинутый фоторедактор HDR. Воссоздать высокий динамический диапазон.Тип издания: macOS SoftwareРелиз состоялся: 11.10.2021Разработчик: © WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35769711E55CC1893AE7095BEDC4C6D857C1056
 ```
 
 https://mybot314.ru/tekegram_catalog/

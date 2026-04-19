@@ -1,3 +1,32 @@
+###  Публикация: 1731799   (52440) от 23.06.2024
+
+Windows 10 Enterprise 2021 LTSC Version 21H2 (x64) Elgujakviso Edition (v.21.06.24) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинального образа от MSDN:
+ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
+
+   Интегрированы важные и рекомендуемые обновления по Июнь 2024 года.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2932637D7B5613F40400750651F9C7025B05E3B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761952   (36303) от 24.11.2024
 
 Windows 10 Pro 22H2 build 19045.5131 by neyroslixs [Ru]

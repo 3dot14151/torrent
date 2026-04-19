@@ -1,3 +1,32 @@
+###  Публикация: 1044185   (567295) от 19.08.2016
+
+Harvey Mandel - Cristo Redentor (1968) Remastered 2003, Raven Records [MP3|320 Kbps] <Blues, Psychedelic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wade In The Water
+02. Lights Out
+03. Bradley's Barn
+04. You Can't Tell Me(   Читать дальше...   )Жанр: Blues, Psychedelic RockПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD731A613A33FEB469F3A8CC2FBB0713FEC38B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922983   (566464) от 30.07.2015
 
 VA - Muddy Waters 100 (2015) [MP3|320 кб/с]<Blues, Chicago Blues>
@@ -716,41 +745,6 @@ VA - Nighttime Lovers Vol.25 (2016) [MP3|320 Kbps] <Electronic, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F4E91E18F259D43CB0F1B5D0ED3B945C7B13964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532323   (538674) от 07.08.2012
-
-VA - Bar Room Blues: A 12-Track Program (2004) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538674.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tommy Castro - Rip This Joint (3:28)
-2. Tab Benoit - I Got Loaded (4:26)
-3. Charlie Musselwhite - Cold Grey Light Of Dawn (2:56)
-4. Kenny Neal - Whiskey Tears (5:23)
-5. Doug Wainoris - If The Sea Was Whiskey (4:21)
-6. Troy Turner - Later Than You Think (2:33)
-7. Junior Wells - Last Hand Of The Night (3:27)
-8. Sam Lay - Pure Grain Alcohol (2:41)
-9. Bob Margolin - My New Baby Owns A Whiskey Store (3:36)
-10. Tinsley Ellis - Feelin' No Pain (8:03)(   Читать дальше...   )Жанр: Blues
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B973304B3B412D2ED0C62C4C876F9DB54979F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

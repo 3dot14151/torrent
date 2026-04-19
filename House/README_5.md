@@ -1,3 +1,87 @@
+###  Публикация: 1089327   (950712) от 04.01.2017
+
+VA - If House Like To Party (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Maestro - Under A Palm Tree [00:06:24]
+02. Mama Maestro - Baby (Original mix) [00:06:20]
+03. Rousing House - Story House Piano [00:05:50]
+04. Big Bunny - Super Boom (Original mix) [00:05:09](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519E81750EF90AC136D84617AED045024A4A1C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089468   (950700) от 04.01.2017
+
+VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arent & Raxell - Damborola  [6:28]
+02. TimeMoment - Cosmo  [5:51]
+03. SHaRk - Summer Feelings  [5:46]
+04. Grim Mass - In Blizzard  [4:30](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01F819F9C15F5D497EF8989F5AC20320F6213C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171720   (950358) от 07.02.2010
+
+VA - Hed Kandi: Nu Disco (2010) [MP3|128-192 kbps]<House / Vocal House / Disco House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House / Vocal House / Disco House
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090245   (947690) от 06.01.2017
 
 VA - Deep House Christmas Selection (2016) [MP3|320 Kbps] <Deep House>
@@ -652,93 +736,6 @@ VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3DFCC87C7F43E3713D036CC5F84452255D92012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364434   (936406) от 03.03.2020
-
-VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936406.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Electro Jack - Stadium 4:11
-2. Edgar Blaime - Legazy 4:11
-3. Dustin Phillow - Amount 4:11
-4. Duna Shain - Sculpt 4:11(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8725EC070A18897B7CC93680976BF684AA717A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093331   (934026) от 15.01.2017
-
-VA - The Sound Of Trice (Mixed By Vigel) (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daleri ft Vice - Somebody Told Me (En Route)  3:06
-02.  Tom Fall - Irok (Radio Edit)  3:14
-03.  Julian Jordan - Pilot  2:33
-04.  Sunstars - Crysis  2:50(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 02:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA55AE6F6A3E2BF9D9A6B7082C561DC4B0948DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093701   (934024) от 15.01.2017
-
-VA - Jack The PlaceUp (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mortimer Snerd III – Crazy Fox (Miggs & Mortimer ReTouch) 06:50
-02. TrackHead Steve – U 4Get About Me (Steve Miggedy Maestro ReTouch) 07:27
-03. Michele Laws – Saditty (Miggedy’s Jackin ReTouch) 06:35
-04. Tink Thomas – Breathe (Tink Thomas Mix) 08:56(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA6455BA934C98DEB1FDFC811C1BDCED46E668D
 ```
 
 https://mybot314.ru/tekegram_catalog/

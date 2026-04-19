@@ -1,3 +1,55 @@
+###  Публикация: 1097113   (915268) от 26.01.2017
+
+Проекты - VideoHive - Fast and Clean Slideshow - 19280493 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389ECBB78BA65899B2194263FC08218170C0ADF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367516   (915236) от 16.03.2020
+
+Проекты - ProShow Producer - Winter Opener [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивое слайдшоу на новогоднюю тему. Дерзайте!Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B68479B5943678346B12EA5D63A9A0431C341CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367668   (915207) от 16.03.2020
 
 Проекты - VideoHive - Parallax Modern Opener - 18285958 [AEP]
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DD00FB998185271FECCAAB375488F3F80663C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098221   (910238) от 29.01.2017
-
-Проекты - VideoHive - Colorful Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Colorful Slideshow - красочное слайд-шоу. Придайте оригинальность своим снимкам.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460F7BE0773C76D433D32213CDE82F64EF22677C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368347   (910165) от 19.03.2020
-
-Проекты - VideoHive - Retro Vintage Opener - 25846073 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Retro Vintage Opener - это стильный шаблон After Effects со старыми шероховатыми текстурами, переходами на пленку и уникальной анимацией сцены.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE85D11BD9E2AFC06D0FA3D49D1FCF40902CA62B
 ```
 
 https://mybot314.ru/tekegram_catalog/

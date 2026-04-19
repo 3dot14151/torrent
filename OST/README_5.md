@@ -1,3 +1,32 @@
+###  Публикация: 1381191   (827730) от 06.05.2020
+
+Terry Scott Taylor - Return To The Neverhood (Comic Book Soundtrack) (2012) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture: The Return
+02. Let's Get This Ball Rolling!
+03. Over The Deeporama
+04. Out Of The Clay And Mud & Coilsssss And Sssssspringsssss(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4288F6CCB9C24605AF4AF99056BFEDECA551C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006491   (826905) от 12.04.2016
 
 Motoi Sakuraba, Yuka Kitamura - Dark Souls III (Original Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
@@ -713,35 +742,6 @@ VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E36BBEDDCB291A1E6208848EDB4E2C9FB48178E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119709   (805005) от 29.03.2017
-
-Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный день (Original Soundtrack Recording) (2017) Remastered 2016 [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title Terminator 2 Theme (01:57)
-02. Sarah On The Run (02:33)
-03. Escape From The Hospital (04:36)
-04. Desert Suite (03:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599F7DA1C0FE4B50D09778150BF6ED5C8285500E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 1352208   (1001293) от 13.01.2020
+
+Righeira - Reference 80 (2012) [FLAC|Lossless|image + .cue] <Italo-Disco, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Vamos A La Playa 3:37
+2 No Tengo Dinero (LP Version) 4:01
+3 L'Estate Sta Finendo 3:47
+4 Tanzen Mit Righeira 5:30(   Читать дальше...   )Жанр: Italo-Disco, EuropopПродолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96363FAB7FADAFB212FE4C4F51C37A641587689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598149   (999871) от 04.01.2013
+
+VA - Best Italo Disco Hits Remixed (2007) 3CD Boxset [FLAC|Lossless]<Italo-Disco, Euro House, Italodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Laszlo - Hey Hey Guy [03:39]
+02. Den Harrow - Push Push ( Captain Kook Remix ) [03:27]
+03. Gigi DґAgostino - Wellfare ( Gigi & Pandolfi P.M. ) [03:24]
+04. Di Fumetti feat. D-JMC - Di Fumetti ( Video Edit ) [03:19]
+05. Max Him - Lady Fantasy 2003 [03:58]
+06. Carajillo - Fotonovela [03:55]
+07. 2 Eivissa - Fire In The Sky [03:36]
+08. Mike Mareen Vs. Da-Freaks - Love Spy [03:37]
+09. Kelly G. - Ouragan ( Irresistable ) [03:35]
+10. Fabrizio Faniello - Love On The Radio ( Video Edit ) [03:22](   Читать дальше...   )Жанр: Italo-Disco, ItalodanceПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354297   (988996) от 21.01.2020
+
+The Crosslines - Cross The Line (2019) Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me Your Love (6:18)
+02. My Secret Love (Extended Version) (5:41)
+03. Tell Me (Album Version) (3:47)
+04. Hotel Of The Lonely Hearts (Maxi Version) (6:50)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F6AFFDEE011DFBFEDC346FA070F65AA98A74CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971127   (988585) от 01.01.2016
+
+Gepy & Gepy - Il Meglio (1997) [FLAC|Lossless|image + .cue]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body To Body 7:04
+02. Pui' 3:29
+03. Angela 3:37
+04. Angelo Blu 3:03(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA2433943E29C2B18E45447FFAEC974EAA2BE96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611651   (987903) от 31.01.2013
+
+Ricchi E Poveri - Perdutamente Amore (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amore E Odio
+02. Mamma Maria
+03. Cosa Sei
+04. Dimmi Che Mi Ami
+05. Voulez Vous Dancer
+06. Made in Italy
+07. Musica Vita Mia
+08. Piccolo Amore
+09. Acapulco
+10. Sara Perche Ti Amo(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 711807   (987825) от 22.01.2020
 
 VA - I Love Tocata 80's (2012) 2CD [FLAC|Lossless]<Italo-Disco, Hi-NRG, Synthpop>
@@ -596,151 +753,6 @@ JohnnyM5 - Fantasy Of Love (2008) [FLAC|Lossless|image + .cue] <Italo-Disco, Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:273CCBB9F481533E4A6B515496C70678C923159B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362637   (948317) от 24.02.2020
-
-Frank Lozano - The Album (2018) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948317.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Fotonovela 5:56
-2 Las Manos Quietas 5:08
-3 Vuela Vuela (Classic Mix) 4:17
-4 I Wanna Fly 3:44(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751D43C883C1EB9AC65515BF47168BD033EFA183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090339   (947442) от 06.01.2017
-
-JohnnyM5 - Fantasy Of Love (Extended & Remixed) (2009) [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night (For You & Me) (Extended Version) (6:40)
-02. Take The Heat (Extended Mix) (6:08)
-03. Fantasy Of Love (Maxi Version) (5:08)
-04. Give Me Your Love (Obsession Remix) (3:52)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Hi-NRGФормат: CD, AlbumПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F506D3B62DD719E9F1EC1FC23DAF18C51DC7D502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751137   (946404) от 30.01.2014
-
-C.C. Catch - Maxi Hit-Sensation: Nonstop DJ-Mix+Extra Bass (2006) [FLAC|Lossless]<Disco, Euro House, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soul Suvivor (Long Version)   (4:58)
-02.  Midnight Gambler (Long Version)   (4:11)
-03.  Back Seat Of Your Cadillac (Extended Version)   (4:35)
-04.  Good Guys Only Win In Movies (Maxi-Version)   (4:40)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8072CCB58BA46E6CDDF92FF265F8087C88FC3863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 88838   (944941) от 26.02.2020
-
-Chilly - Showbiz (1980) [FLAC|951 Kbps]<Pop/Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There's No Business Like Showbusiness (0:20)
-02. Showbiz (1:39)
-03. Rock'N'Roll Sally (2:32)
-04. Taxman (3:17)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A79599E88E86ED8CF9BD08D4F2E4BCEEE78950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363294   (943761) от 27.02.2020
-
-Do Piano - Again & Forever (2009) [FLAC|Lossless|image + .cue] <Italo-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Again (Single Version) (4:43)
-02. All The Time (Single Version) (4:34)
-03. This Angel (Single Version) (4:15)
-04. Encore (Single Version) (4:44)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E577D7ECBE8FC28584ED82A8D657609B90C080
 ```
 
 https://mybot314.ru/tekegram_catalog/

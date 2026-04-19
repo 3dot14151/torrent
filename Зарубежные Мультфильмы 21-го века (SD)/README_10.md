@@ -298,7 +298,7 @@ Barbie: Тайна Феи / Barbie: A Fairy Secret (2011) DVD-9
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_858234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_858234.jpg" />
 </div>
 
 

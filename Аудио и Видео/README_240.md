@@ -1,3 +1,206 @@
+###  Публикация: 1504350   (233936) от 23.10.2021
+
+VA - Après Lounge Club (2021) [AAC|~323 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florito - Nokondi (Original Mix) (6:24)
+02. Chris le Blanc, Paris Bizarre - Si Vous Voulez (Original Mix) (4:24)
+03. Sunyata Project - I Know Him (Original Mix) (5:30)
+04. FlyHigh - Happy Ness (Original Mix) (6:22)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD1A90639311A6289C8B1B80736D840FFBADB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504342   (233928) от 23.10.2021
+
+VA - Halloween Chilling Time 2021 (2021) [AAC|~288 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gazdabolt - Lucid Dreaming (5:50)
+02. Vakanzregel - Forest Tales (5:47)
+03. Evoking Silence - Somewhere on the Way (5:52)
+04. Sweetadelic - Natural Perspective (6:15)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B845ED0231025C1EF69919B90E6D6AF0EFF7D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512419   (233444) от 25.11.2021
+
+VA - Sunday Chill - Berlin, Vol. 1 (2021) [AAC|~325 Kbps] <Deep House, Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - I Don T Wanna Be You (3:48)
+02. The Upsetter - Rejection (Phunk Balearica Remix) (6:24)
+03. Lounge Groove Avenue - So Brave (3:05)
+04. Iblis - Skilltools (6:01)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9133284619B892BD2622307FCCAFEC70BC5C3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512401   (233430) от 25.11.2021
+
+VA - Take It to Church, Vol. 3 (2020) [AAC|~351 Kbps] <Disco House, Nu-Disco, Indie Dance, Boogie>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Gray, Kimberly Brown - Brother Brother (5:34)
+02. Sense of Sound Singers - Follow Me (Opolopo Remix) (6:54)
+03. REDSOUL - God Is Gonna (5:24)
+04. Jersey Maestros, Sarah Dash - Something Inside (DJ Spen & Reelsoul Remix) (10:10)(   Читать дальше...   )Жанр: Disco House, Nu-Disco, Indie Dance, BoogieПродолжительность: 01:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1565350EFBB27D8CFD35C478314F89B25791F275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530609   (233277) от 12.02.2022
+
+VA - Lounge Tribute, Vol. 5 (2010) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhod, MIKA - Trouble (4:22)
+02. Spiral 3 - Cocaine (4:42)
+03. Raffunk, Gushi - Bittersweet Symphony (5:14)
+04. Heiko - Let's Stay Together (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22794621F4EC510339F90FFD4464E3DE98A1E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530604   (233268) от 12.02.2022
+
+VA - Lounge Tribute, Vol. 2 (2010) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhod, MIKA - Crazy (4:21)
+02. Heiko - Miles Away (5:04)
+03. Alex Palmer - Woman (4:23)
+04. Soy Candle - I Touch Myself (4:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E936AC2A63B714481A59E7753C2DB7D018EA303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530606   (233257) от 12.02.2022
+
+VA - Lounge Tribute, Vol. 3 (2010) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anam, Umal - God Put a Smile Upon Your Face (5:12)
+02. Silver Pixel, Querubyna - Billy Jean (4:51)
+03. Wayra, Umal - Broken Wings (4:40)
+04. Raffunk, Gushi - King of Pain (5:02)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6C46A0C4AEE97B6B630D418D41F3542A02C6AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530607   (233248) от 12.02.2022
 
 VA - Lounge Tribute, Vol. 4 (2010) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
@@ -542,209 +745,6 @@ VA - Across the Ocean (Lounge Collection), Vol. 1 (2020) [AAC|~320 Kbps] <Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:321801B9714435C3D7C553D6EF301EB78226038C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541235   (232678) от 03.04.2022
-
-VA - Heights of Lounge (2019) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiffre 100 - New Heights of Glee (5:32)
-02. Schwarz & Funk - Late Back (Kay Fischer Sax Mix) (5:23)
-03. Dany Cohiba - The Siren''s Song (5:59)
-04. Leaking Shell - Moonshine (4:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3586A8F5CF43F6F238DA0B5213EC3246D828343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541111   (232662) от 03.04.2022
-
-Alice Francis - St. James Ballroom (2014) [AAC|~310 Kbps] <Neo Charleston>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Rivers of the Mississippi (0:21)
-02. St. James Ballroom (4:27)
-03. Don't Shoot Me (0:26)
-04. Shoot Him Down (3:28)(   Читать дальше...   )Жанр: Neo CharlestonПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898EBC05DC907721E569CEB76EB9298211942D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541256   (232650) от 03.04.2022
-
-VA - Across the Ocean (Lounge Collection), Vol. 4 (2020) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Groove Avenue - Nostalgia (Original Mix) (4:34)
-02. Openzone Bar - Caruso Blanco (Original Mix) (4:48)
-03. Flokkendof - Sax Flow (Original Mix) (3:45)
-04. Stargazer - The Approach (Original Mix) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6E500A00105C737A148EF53B1C336CA99A94A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541491   (232643) от 03.04.2022
-
-VA - Lakeside Chill Sounds - Spring (2022) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass - Kallisto (Original Mix) (4:06)
-02. Sebastian Bach - Boon and Bane (Original Version) (5:45)
-03. Dave T - Love (Original Mix) (4:07)
-04. Lumbadur - Mission Osiris (2:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CF57C016D3C13C350A708DCF235F315FD07CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541258   (232635) от 03.04.2022
-
-VA - Sweet Morning (Chill out and Lounge Collection), Vol. 3 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Groove Avenue - Lonely Child (Original Mix) (3:17)
-02. Five Seasons - Work Is Done (Original Mix) (4:00)
-03. Dub Mars - True (Original Mix) (4:37)
-04. Chillson, Marc Hartman - Inner Voices (Original Mix) (4:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577FC990522F34738ED2F149F1FCED6C648EE65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541205   (232622) от 03.04.2022
-
-Dream Widow, Foo Fighters - Dream Widow (2022) [AAC|~331 Kbps] <Thrash Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Encino (1:38)
-02. Cold (5:13)
-03. March of the Insane (3:31)
-04. The Sweet Abyss (4:20)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A53A0D48A0E1444F89923C9E5459DC177138A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541217   (232620) от 03.04.2022
-
-VA - Electro Swing Elite Compilation 2016 (2016) [AAC|~309 Kbps] <Electro, Swing, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Löhr, Alice Francis - Still Can Kiss... (5:33)
-02. Jazzotron, Manivi - Ain't No Man (4:31)
-03. Extra Medium - Mental Note (4:20)
-04. Sound Nomaden, MSP - Locomotive Swing (4:39)(   Читать дальше...   )Жанр: Electro, Swing, JazzПродолжительность: 01:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F67179CF6AF9A759694385220403A9EBAAC85E
 ```
 
 https://mybot314.ru/tekegram_catalog/

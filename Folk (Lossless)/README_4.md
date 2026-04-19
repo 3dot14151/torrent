@@ -1,3 +1,32 @@
+###  Публикация: 1219324   (715500) от 13.04.2018
+
+Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fridr 4:24
+02. Ginnung 4:55
+03. Fegurð 4:45
+04. Yggdrasil 4:32(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F682CB24D57E632E687F6FE75AC4C42B8E4C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285604   (715076) от 01.03.2019
 
 The Innocence Mission - Sun On The Square (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -713,36 +742,6 @@ The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAA1C180C41F51F4DA912CEE6BF4B417B38DC9AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223006   (680665) от 01.05.2018
-
-VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начались длинные праздники. Многие их проводят в заботах сельскохозяйственных, но и они вечерком любят посидеть. А как в старом анекдоте: "Чем отличаются хорошие люди от всех остальных - хорошие люди посидят-посидят, да и выпьют!" Ну а как не вспомнить хорошую песню при хорошем застолье.
-Но даже если и не сами, то обрадуйте этими раритетами своих пап и (   Читать дальше...   )CD1:
-01. Людмила Зыкина - Тонкая Рябина  (5:12)
-02. Екатерина Шаврина - Ой, Мороз, Мороз  (4:02)
-03. Н. Матвiенко - Ой, Летiли Дикi Гуси  (4:48)(   Читать дальше...   )Жанр: FolkПродолжительность: 02:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDA6A7D6746D05F86CC49FC54163F1AC6FDFB57
 ```
 
 https://mybot314.ru/tekegram_catalog/

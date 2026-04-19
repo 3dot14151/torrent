@@ -1,3 +1,31 @@
+###  Публикация: 659995   (774653) от 23.05.2013
+
+Siduction 13.1.0 (включая легкие DE) [i386 + amd64] (4xDVD + 6xCD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен siduction 13.1.0 стабильный выпуск нового desktop-ориентированного дистрибутива и Live CD/DVD, основанного на unstable-ветке Debian GNU/Linux. Проект siduction является форком дистрибутива aptosid, из которого он выделился в конце 2011 года, и предлагает пять  отдельных Live-носителей с различными рабочими столами, в том числе с легкими рабочими столами:  LXDE, XFCE, Razor-qt, а также с KDE и GNOME.
+
+Razor-qt легковесное десктоп-окружение, построенное на технологиях Qt. Ключевые направления развития Razor-qt - простота, скорость, настраиваемость и интуитивно понятный интерфейс. Небольшое потребление ресурсов позволяет использовать Razor-qt на маломощных и устаревших системах. Код написан на языке C++ (без QML и Qt Quick) и распространяется под лицензиями GPLv2 и LGPLv3+. Ядро Linux kernel  3.9.3, X-Server --  1.12.4-6. Это -- первый выпуск siduction, в который входит GNOME 3.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 659755   (774610) от 23.05.2013
 
 BackBox Linux 3.05 [Анализ безопасности, хакинг] [i386, x86-64] (2xDVD)
@@ -62,7 +90,7 @@ JonDo 0.9.76.2 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_769957.jpg" />
 </div>
 
 
@@ -353,7 +381,7 @@ JonDo 0.9.77 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_759054.jpg" />
 </div>
 
 
@@ -666,32 +694,6 @@ SnowLinux Frosty 4 базируется на Ubuntu 13.04 и используе�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020004   (746485) от 25.05.2016
-
-OSGeo-Live 9.5 (Дистрибутив для географов, картографов, кризисного управления) [i386, amd64] 2xDVD, 1xVM
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен очередной релиз OSGeo-Live — живого диска в виде DVD, образа для записи на USB-носитель и образа для виртуальной машины. Основан на Linux-дистрибутиве Lubuntu текущей LTS версии. Также может быть установлен на жесткий диск. Содержит обновленное до актуальных версий открытое/свободное ПО для работы с пространственными данными (ГИС, СУБД, веб-картография (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E4DBACC89EC17DAE517E2740C81AE90C840E98
 ```
 
 https://mybot314.ru/tekegram_catalog/

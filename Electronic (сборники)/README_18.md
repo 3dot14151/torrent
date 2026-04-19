@@ -1,3 +1,67 @@
+###  Публикация: 742657   (979162) от 06.01.2014
+
+VA - Lounge At The Seashore 2 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979162.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Smoker Lab - Coffe Break
+002. Placid Larry - Over The Skyscrapers Into The Desert
+003. Sundance - Morning Glory
+004. The Beater - Miami Beach(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759B39A456D818536A947CAB641C08F94AB96C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612038   (978873) от 07.02.2013
+
+VA - Drum and Bass Pro V.6 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultima C - Cry Another Day (Original Mix)
+02. Scott Allen - Every Time (Original Mix)
+03. John B - Love Again feat. Jillian Ann (Original Mix)
+04. Skyweep - Need To Feel Loved (ft. Durrant & UnClubbed) (Original Mix)
+05. Seven Lions - Days To Come (Dead Battery DnB Remix)
+06. SynthForce - Hear You Calling (Original Mix)
+07. Phil Tangent - Hindsight (Original Mix)
+08. Bcee & Bladerunner - Fatal Attraction (Original Mix)
+09. Primal Therapy - Screamshot (Original Mix)
+10. Subformat feat. Charli Brix - More (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD067DA4063AD48FBD0A1DD05D812E1EC95C266F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974245   (978178) от 10.01.2016
 
 VA - Deep Sound Icons (2016) [MP3|320 кб/с] <Deep House, Electro>
@@ -715,64 +779,6 @@ VA - Extra House (New year edition) (2016) [MP3|320 кб/с] <House, Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205CCCCEB442661F4DFFEFED893B900A1B0FC480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357770   (973170) от 04.02.2020
-
-VA - Beatport Progressive Trance: Pack 05 (2020) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973170.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aspiration - The Story
-002. Alextrackone - Show Me The Light
-003. Mr. Greidor - Rescued In A Storm
-004. Kiyoi And Eky - Kumpala (Extended Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB60251CA5B820945E377FF0772792DFE551841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357533   (972711) от 04.02.2020
-
-VA - Ремиксы от MGDC FM Vol 3 (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972711.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.5sta Family - Первый снег (Struzhkin & Vitto Remix)(Radio Edit) (3:22)
-2.ALEX&RUS - Дикая львица (Olmega & Eugene Star Remix) (3:08)
-3.Batousai - Bombava (Struzhkin Remix)(Radio Edit) (2:29)
-4.Big Baby Tape - Trap Luv (Arteez x VeX & Myers Radio Edit) (3:22)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6C7DF31B8264A0174FE0B6351D61AB8C80F27E
 ```
 
 https://mybot314.ru/tekegram_catalog/

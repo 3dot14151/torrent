@@ -1,3 +1,177 @@
+###  Публикация: 1516795   (165094) от 12.12.2021
+
+VA - Record Super Chart 11.12.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto & KAROL G - Don't Be Shy (2:20)
+02. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
+03. Skrillex ft. J. Balvin - In Da Getto (2:10)
+04. Kungs - Never Going Home (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420772D4E9E270087D1F1BB3F63DC30FF07F1542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346107   (164548) от 18.12.2019
+
+VA - Dark Goa Psychedelic Trance (2019) [MP3|320 Kbps] <Trance Psychedelic, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164548.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aquila - The Locals
+002. Yoake - Square Pusher
+003. Juelz - Future Facing
+004. Aphid Moon - Feed The Beast(   Читать дальше...   )Жанр: Trance Psychedelic, GoaПродолжительность: 12:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198A3CAD2A67D8196660D20BD4A0B62D12C3D1BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346021   (164527) от 18.12.2019
+
+VA - Hi Games Vol.3 (Chiptune, Dubstep, Breaks Edition) (2019) [MP3|320 Kbps] <Chiptune, Dubstep, Breaks>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robotprins - Birth of Robotprins
+02. Purely Grey - Fragments
+03. Aethernaut - Title Screen
+04. Kubbi - Compass(   Читать дальше...   )Жанр: Chiptune, Dubstep, BreaksПродолжительность: 02:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89400305176E3E87FBB21FB653ACBCAE976CE6E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346108   (164487) от 18.12.2019
+
+VA - Frozen Sounds: Techno Hypnotic Mix (2019) [MP3|320 Kbps] <Techno, Minimal, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164487.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marco Livolsi - Community
+002. Frequencerz - The Source
+003. Lee - Trip To Congo
+004. Peat Noise - Before The Summer(   Читать дальше...   )Жанр: Techno, Minimal, EDMПродолжительность: 12:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299D81EBD34F483017E3253F0D0DD278AFC50492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432447   (164445) от 17.12.2020
+
+VA - Beatport Electro House: Sound Pack #211 (2020) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнечная и оптимистичная атмосфера в треках 211-го сборника от Beatport. Оригинальная подача саунда и своеобразный тип вокала придает звуку некой клубной винтажности и беззаботности. Какой-то определенный трек сложно выделить и назвать однозначным хитом, абсолютно все композиции достаточно разные по своей структуре и хороши по своему настроению и формату в целом.001. Sazly Rahman - After Sunset
+002. Xnxx - Electric Vibes
+003. Xsandr - Thirteen
+004. Halil - All I Want(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16FD05F4B9A021C1A268D9794A9080DE590F2BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432234   (164404) от 17.12.2020
+
+VA - Oxygenesis: Clubbing Techno Mix (2020) [MP3|320 Kbps] <Club, Dance, Tech House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка техно с самого времени зарождения живёт и продолжает жить в своей индивидуальной вселенной, где такие условности, как музыкальный жанр или смена эпохи, не оказывают никакого влияния на его форму и суть. По той причине Вы или приемлете или не принимаете эту музыку, но она остаётся быть такой как есть!001. Daniel Sbert - Lemur (Original Mix)
+002. Dj Territo - My Love
+003. Dodi Palese - Cassini
+004. Aroent - Eleese(   Читать дальше...   )Жанр: Club, Dance, Tech House, TechnoПродолжительность: 11:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A049A43F90E0337EFDCDE08C4AC50688A5191795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432214   (164307) от 17.12.2020
 
 VA - Beatport Deep House: Electro Sound Pack #209 (2020) [MP3|320 Kbps] <Deep House, Electro>
@@ -571,180 +745,6 @@ VA - Electronic compilation part 39 (2023) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F2282DA3AF93E9E9C78B108734ED1AC0178016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675742   (159886) от 10.11.2023
-
-VA - Silent Shore - Euphoric Trance Vol. 3 (2023) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edneese - Memories Of You (Extended Mix) [7:27]
-02. Virtuan - Magenta (Extended Mix) [7:05]
-03. V.E.L.E. - Spirit Of Nature (Extended Mix) [6:10]
-04. Vascotia presents Aztec - Aztec (Northern Project Extended Remix) [6:08](   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7510D9140F624A33E10354338291DC69698E00AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676079   (159153) от 11.11.2023
-
-VA - Techno Universe (2023) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warind - Different Habits
-02. Nicolas Barnes - Enter My Soul
-03. Yves Deruyter - Xyz
-04. Wasted Penguinz - Wild Love(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 08:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC39A2DAFA398ED8697E2A756BF1060898C2987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676083   (159152) от 11.11.2023
-
-VA - Reflection Of A Dream (2023) [MP3|320 Kbps] <Progressive, Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen Watts & Paul Denton - Shellshock
-02. Vapour Trail - Periapsis
-03. Vasily Goodkov - Cold Soul
-04. Denis Airwave & Ren Faye - Want It All(   Читать дальше...   )Жанр: Progressive, Trance, ElectroПродолжительность: 08:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC01BE87E9A3C3BDEF1BAAD771C7A6A63D971FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676169   (158943) от 12.11.2023
-
-VA - Trance In Motion Vol.365 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allende - Horizon Painter (Original Mix)
-02. Myon - Albion (Pavel Khvaleev Extended Remix)
-03. Ron with Leeds - Obsidian (Extended Mix)
-04. Sunlight Project - Darkstar (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15194472E83BCBDAECE8AAF20E7C7EE0B93F69B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676170   (158933) от 12.11.2023
-
-VA - Trance In Motion Vol.366 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gareth Emery - Mistral (Extended Mix)
-02. John O'Callaghan Official - Riverside (Extended Mix)
-03. Stoneface & Terminal & Neev Kennedy - Lost (Ciaran McAuley Extended Remix)
-04. Doppenberg & Harshil Kamdar - Meet Again (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9D396D1920688A6F55E9D2D50882BA18E5005D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676264   (158909) от 12.11.2023
-
-VA - Big Room Dance 3 (2023) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deorro - Hands Up (2:11)
-02. Blasterjaxx - New Generation (2:20)
-03. Quintino - No Pictures (2:30)
-04. MR.BLACK - Flight 303 (2:34)(   Читать дальше...   )Жанр: Big Room, Dance, Hands UpПродолжительность: 03:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25AB32405CAF379006DE1281037DDF5C24848CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

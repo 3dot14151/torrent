@@ -1,3 +1,32 @@
+###  Публикация: 1405653   (483373) от 30.08.2020
+
+Walter Trout - Ordinary Madness (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ordinary Madness (06:46)
+ 02. Wanna Dance (04:30)
+ 03. My Foolish Pride (05:55)
+ 04. Heartland (04:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A323CA59109967DE4DD317B9868A6B61422CC32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938210   (482092) от 18.09.2015
 
 Mike Goudreau - Je Reste Accroche (2015) [MP3|320 кб/с]<Chicago & Texas Blues>
@@ -723,35 +752,6 @@ Venom Blues - Recoil (2007) [MP3|320 kbps]<Electric blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D99775CB947AC7B60611A33CCC953D09B90679A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060150   (457170) от 06.10.2016
-
-VA - Simply Sixties (4CD) (2016) [MP3|320 Kbps] <Soul, Funk, Disco, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457170.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-001. Wilson Pickett - Land Of A 1000 Dances (02:25)
-002. Arthur Conley - Sweet Soul Music (02:21)
-003. Sam & Dave - Soul Man (02:38)(   Читать дальше...   )Жанр: Soul, Funk, Disco, JazzПродолжительность: 03:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE230496BA24F34577CE5505DAB07C9ED047E0CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

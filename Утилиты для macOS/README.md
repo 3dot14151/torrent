@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1862359   (1063425) от 
+###  Публикация: 1862359   (1064122) от 30.03.2026
 
 DMG Canvas 4.2.3 [En]
 
@@ -7,7 +7,7 @@ DMG Canvas 4.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064122.jpg" />
 </div>
 
 

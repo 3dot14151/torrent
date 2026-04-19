@@ -1,3 +1,29 @@
+###  Публикация: 1261894   (301085) от 12.11.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 349 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301085.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE2199553B730FCB4EC971522538AB065D8F6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261882   (301081) от 12.11.2018
 
 Обои - Desktop Wallpapers Full HD. Part (331) [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CFA1CAAFDFC294275597CA21EDCD173903A787B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962484   (292989) от 05.12.2015
-
-Обои - Водные обои (Mega Pack 1) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему водыФормат: JPGРазрешение файлов: 1600x1200 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7803FEDCB567C046402010A6AAA94823EBC601
 ```
 
 https://mybot314.ru/tekegram_catalog/

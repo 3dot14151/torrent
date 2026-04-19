@@ -1,363 +1,24 @@
-###  Публикация: 476087   (85934) от 02.04.2012
+###  Публикация: 453542   (93663) от 17.02.2012
 
-Разделитель / The Divide (2011) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк внезапно разрушен в результате сверхмощного взрыва внеземного происхождения. Сюжет фильма Разделитель строится вокруг восьми людей, которым удалось уцелеть от взрыва и укрыться в подвале здания. Вскоре они обнаруживают, что кроме них в подземном спасилище есть еще один человек, который объявил на них охоту.Жанр: Ужасы, Фантастика, ТриллерРежиссер: Ксавьер ГенсАктеры: Лорен Джерман, Майкл Бьен, Майло Вентимилья, Кортни Б. Вэнс, Эштон Холмс, Розанна Аркетт, Иван Гонзалез, Майкл Эклунд, Дженнифер БланкПеревод: Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:02:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476176   (85932) от 02.04.2012
-
-Газонокосильщик / The Lawnmower Man (1992) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой талантливый ученый Трэйс ставит над умственно неполноценным косильщиком лужаек Джоубом эксперименты с использованием высоких компьютерных технологий в комбинации с наркотиками. Трэйс внедряет Джоуба в виртуальную реальность — трехмерный компьютерный мир. Ученому удается развить умственные способности вчерашнего недоумка до супергения. Но в ход эксперимента тайно вмешиваются военные, и испытуемый превращается в сверхинтеллектуального монстра-психопата в человеческом облике, у которого возникают претензии на мировое господство.Жанр: Ужасы, Фантастика, ТриллерРежиссер: Бретт ЛеонардАктеры: Джефф Фэйи, Пирс Броснан, Дженни Райт, Марк Бринглсон, Джеффри Льюис, Джереми Слейт, Дин Норрис, Коллин Коффи, Джим Лэндис, Трой ЭвансПеревод: Многоголосый закадровый, одноголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 01:43:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476728   (85931) от 02.04.2012
-
-Suzi Quatro - Story (2011) [MP3|320 кб/с]<Rock, Hard Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85931.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011Жанр: Rock, Hard Rock, BluesПродолжительность: 01:17:04
- 01. Your Mamma Won't Like Me
- 02. Can't Trust Love
- 03. Fever
- 04. Michael
- 05. Rolling Stone
- 06. Heartbreak Hotel
- 07. Wake Up Little Susie
- 08. Wiser Than You
- 09. Suicide(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68BED2C69474081733B14E0408DE7646DEF06244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476801   (85929) от 02.04.2012
-
-[Eng] Господин Лазар / Monsieur Lazhar (2011) [H.264/720р-LQ] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бахир Лазар, иммигрант из Алжира, получает работу учителя младших классов — ему приходиться заменить недавно трагически погибшую учительницу. Бахиру приходится не только преподавать, но и стараться излечить души детей после трагедии. В самой же школе никто ничего не знает о прежней жизни Бахира: ни то, насколько трагична судьба его самого, ни то, что он может быть депортирован из страны в любую минуту.Жанр: Драма, КомедияРежиссер: Филипп Фалардо / Philippe FalardeauАктеры: Monhamed Fellag, Sophie Nélisse, Émilien Néron, Даниель Пру, Brigitte Poupart, Жюль Филип, Daniel Gadouas, Louis Champagne, Seddik Benslimane  Marie-Ève BeauregardПеревод: Отсутствует (Русские субтитры)Язык субтитров: Русские, Английские, ФранцузкиеФормат: MKVПродолжительность: 01:34:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476470   (85928) от 02.04.2012
-
-VA - Erotic Chill Vol. 1 - Sweet And Sexy (2012) [MP3|320 кб/с]<Ambient, Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85928.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD12012Жанр: Ambient, Downtempo, Lounge, ChilloutПродолжительность: 00:46:21
-
-01.Julienne - Sugar Daddy
-02.Dawn Sessions - What If I
-03.Newton Ft. Twila.too - New Beautiful Life
-04.Mark Oakland - Live Forever
-05.Malkou - Paris Denim
-06.Tafubar + Eskadet - Paradise Reconquered (Feat. Airily)
-07.DJ Hen Boogie Ft. Suzy Duffy - Trust In Me
-08.Synthphatic - Play With You (Ft. Juno)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC0ED345045637A3B936DF817DA4A7B72420745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477337   (85925) от 02.04.2012
-
-Видеоприложение к журналу "Рыбалка на Руси". Выпуск №4 Апрель (2012) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85925.jpg" />
-</div>
-
-
-###  Подробнее
-
-● СНАСТИ И СНАРЯЖЕНИЕ.
-Репортаж с 31-ой Международной выстаки "Охота и рыболовство на Руси"
-● КЛУБ РЫБОЛОВНЫХ ПУТЕШЕСТВИЙ.
-Дельта Волги. Ловля сома джигом.
-● ФЕСТИВАЛИ И СОРЕВНОВАНИЯ.
-Чемпионат Мира в Италии 2011. Как это было.
-● РЫБНЫЙ СТОЛ.
-Жаркое из налима.
-● ФЕСТИВАЛИ И СОРЕВНОВАНИЯ.
-Народная рыбалка.(   Читать дальше...   )Жанр: Документальный, Телепередача, СпортПеревод: ОтсутствуетПродолжительность: 02:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B487E7E05A832ADDEAD72F382F4212BED9C58914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477340   (85920) от 02.04.2012
-
-Фактор холода / Замороженный ужас / Chill Factor (1999) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85920.jpg" />
-</div>
-
-
-###  Подробнее
-
-На одном из тропических островов проводятся секретные эксперименты с химическим оружием под руководством доктора Лонга. Неправильно рассчитав радиус поражения, доктор проводит пробный взрыв, в результате которого в страшных мучениях погибает целый отряд капитана Бриннера. Капитана увольняют из армии и отправляют на 10 лет в тюрьму, а доктор остается на свободе. Через десять дет Бриннер набирает себе вооруженную команду и находит доктора, продолжающего свои страшные эксперименты…Жанр: Боевик, Комедия, ПриключенияРежиссер: Хью ДжонсонАктеры: Кьюба Гудинг мл., Скит Ульрих, Питер Фёрт, Дэвид Пэймер, Хадсон Лейк, Дэниэл Хью Келли, Кевин Дж. О’Коннор, Джадсон Миллс, Джордан Мотт, Дуэйн МакопсонПеревод: Профессиональный многоголосыйПродолжительность: 01:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CB0F0FAE7E20372BD7D2B0FFE1C25AF9274BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476832   (85918) от 02.04.2012
-
-Паразит / Parasite (1982) DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалёкое постапокалиптическое будущее. В маленьком городке появляется доктор Пол Дин, заражённый собственным созданием — смертельным слизняком-паразитом. За ним охотится Вольф, представитель властей, для которых был создан паразит, и от которых сбежал Пол. После нападения на доктора местной банды, на свободу вырвался ещё один слизняк. Помочь доктору Дину вызывается молодая симпатичная девушка Патриция Уэллс.Жанр: Ужасы, ФантастикаРежиссер: Чарльз БэндАктеры: Деми Мур, Роберт Глаудини, Лука Берковичи, Джеймс Дэвидсон, Эл Фэнн, Том Виллард, Скотт Томсон, Чери Карри, Вивиан Блейн, Джеймс КаванПеревод: Одноголосый закадровыйПродолжительность: 01:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0660C64D55A4C928DB20069F3E5B0331A376BC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477033   (85917) от 02.04.2012
-
-MVP Loops - Fret: Pro RnB & Pop Guitar Loops (Wav, Aiff, RX2)[английский]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fret Pro RnB & Pop Guitar Loops - Петли акустических, электрических и искаженных гитар, которые будут питать Ваше воображение в стилях  R&B, Funk, Rock, Hip Hop и других абстрактных ритмах. Мульти-форматы Acid/WAV, Apple, и REX лупы  включаются со всеми ключами и обеспеченными темпами. Каждый формат составляет 10 различных групп темпа с 10 петлями за темп. Все части качества 44.1 kHz/24-Bit в этом продукте отделены, редактированы и форматированы в форматы WAV (ACIDised), Apple Loops Aiff, REX. Этот продукт содержит 109 индивидуальных петель для творчества в Ваших разнообразных проектах.
-В раздаче для ознакомления присутствует Demo версия в формате MP3 (320 kbps, 44.1kHz)Название программы: MVP Loops - Fret: Pro RnB & Pop Guitar LoopsЯзык интерфейса: английскийФормат: Wav, Aiff, RX2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475612   (85915) от 02.04.2012
-
-[Картинки] Фото/Мисс России-2011 Наталья Гантимурова
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наталья Сергеевна Гантимурова (род. 14 августа 1991 года, Пласт, СССР) — российская модель, победительница всероссийского конкурса красоты «Мисс Россия 2011».
-Финал конкурса прошёл 5 марта в концертном зале Барвиха Luxury Village. Первое место дало Наталье право в 2011 году представлять Россию на международных конкурсах красоты, в том числе и на конкурсе «Мисс Вселенная 2011», где она не вошла в число 16 финалисток.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661E9D06E259735C9F3C2DAA26B4427AADA9B5B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476908   (85914) от 02.04.2012
-
-08/15 - На Родине / 08/15 - In der Heimat (1955) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний фильм из трилогии о солдатах Вермахта, в котором прослеживается история одной воинской части, от учебного лагеря и до капитуляции.Жанр: Военный, ДрамаРежиссер: Пол МэйАктеры: О.Э. Хассе Ханнес Шиль Густав Кнут Emmerich Schrenk Михаэль Яниш Йоахим Фуксбергер Стиг Роланд Max Mairich Ганс Кристиан Блех Питер КарстенПеревод: Одноголосый закадровыйПродолжительность: 1:32:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477390   (85912) от 02.04.2012
-
-Книжный дом | Раскрась Прописи: Фрукты [2011] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-развивающее издание для детей дошкольного возраста - тематическая раскраска с прописями.Жанр: тематическая раскраска, прописиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753B881436E423AD8E488494B1CFD4BA3601E71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477064   (85909) от 02.04.2012
-
-Газета | Компьютер для начинающих №3 [март 2012] [PDF]
+Руслан Мельников | Тевтонский крест [2004] [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Газета «Компьютер для начинающих» рассказывает о самых азах работы с компьютером, различными программами, сетью Интернет. Данный номер целиком посвящен следующим актуальным темам: всё по полочкам — диски, файлы, папки; что такое бит и байт; какие бывают файлы; сколько нужно иметь разделов на диске.Формат: PDF
+Отряду ОМОН поставлена задача усмирить распоясавшихся хулиганов. Но вместо кучки бритоголовых подростков перед шеренгами стражей правопорядка вдруг появляется целая толпа хорошо вооруженных и подготовленных фанатиков. Вспыхивает настоящая уличная война. А невдалеке тем временем вожди скинхэдов, помешанные на мистике третьего рейха, приступили к таинственному колдовскому обряду. Какой бы ни была их цель, она не сулит ничего хорошего нашему миру.
+
+Случайный удар милицейской дубинки по украденному из местного музея экспонату – и затея «новых тевтонов» с треском проваливается. Но заодно с ней проваливается и омоновец Василий Бурцев – в глубину веков, в тот роковой год, когда татарские орды вступили в пределы Польши…2004Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6DB7713CA88518DE6E7BEC6DFE88C88CFC13BCA
+magnet:?xt=urn:btih:954D17CC51D5681ACE93FA98B2F78AE5905E3F18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,34 +26,69 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476502   (85908) от 02.04.2012
+###  Публикация: 453640   (93661) от 17.02.2012
 
-Serenity - 3 альбома (2007 - 2011) [FLAC|Lossless]<Progressive Metal,Symphonic Metal,Melodic Metal>Serenity - 3 альбома (2007 - 2011) [FLAC|Lossle
+Armin van Buuren - A State of Trance 548 (16.02.2012) [MP3|256 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omnia & Ira - The Fusion
+02. Tenishia – Always Loved, Never Forgotten (The Day Will Come)
+03. Ronski Speed feat. Sir Adrian - Seen It All (Estiva Dub)
+04. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase (Norin & Rad Remix)
+05. Beat Service - Solo
+06. Cerf, Mitiska & Jaren with Rank1 - Witness
+07. Beat Service - Fortuna
+08. Tom8 - Deceit (Dimension remix)
+09. Armin van Buuren feat. Ana Criado – Suddenly Summer
+10. Super8 & Tab – Awakenings (Tritonal Remix)(   Читать дальше...   )16.02.2012Жанр: TranceПродолжительность: 01:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E061A853AD1016A338737AAED0F8C610B3AFCFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453149   (93650) от 17.02.2012
+
+Bap Kennedy - The Sailor's Revenge (2012) [MP3|320 kbps]<Rock / Blues-Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История группы Serenity берет свое начало с января 2001 года, тогда стартовый состав был следующим: Mario Hirzinger (вокал, клавишные), Matthias Anker (гитара, вокал), Stefan Schipflinger (гитара), Stefan Wanker (бас) и Andreas Schipflinger (ударные, вокал). Группа начала работать над сочинением и исполнением песен в стиле Melodic Metal с влияниями Progressive.01. Set Sail To… (Intro) 00:30
-02. New Horizons 06:50
-03. The Chevalier (feat. Pilar "Ailyn" Gimenez Garcia) 05:33
-04. Far From Home 04:49
-05. Heavenly Mission 05:24
-06. Prayer (Interlude) (feat. Pilar "Ailyn" Gimenez Garcia) 01:23
-07. State Of Siege 06:48
-08. Changing Fate (feat. Amanda Somerville) 05:42
-09. When Canvas Starts To Burn 04:49
-10. Serenade Of Flames (feat. Charlotte Wessels) 04:56(   Читать дальше...   )Жанр: Progressive Metal,Symphonic Metal,Melodic MetalПродолжительность: 01:07:20
+01. Shimnavale - 05:07
+02. Not A Day Goes By - 04:07
+03. Jimmy Sanchez - 04:40
+04. Lonely No More - 03:08
+05. The Right Stuff - 03:48
+06. Maybe I Will - 04:36
+07. Please Return To Jesus - 04:13
+08. The Sailor's Revenge - 04:55
+09. Working Man - 04:33
+10. The Beauty Of You - 03:32(   Читать дальше...   )2012Жанр: Rock / Blues-RockПродолжительность: 00:48:55
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CC44893FDAE7CCEACF166617D86867ECE2229A23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,25 +96,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477137   (85907) от 02.04.2012
+###  Публикация: 453110   (93646) от 17.02.2012
 
-Журнал | Моделист-конструктор №1 [январь 2012] [PDF]
+Dollar Co. - Country Beatles (1981) [MP3|320 kbps]<Сountry, Rock>
 
->>Журналы
->>Хобби (журналы)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Моделист-конструктор» — ежемесячный популярный научно-технический журнал. Издаётся с августа 1962 года. В каждом номере журнала публикуются чертежи и схемы самых разнообразных конструкций — от приспособлений для домашнего хозяйства до самодельных микроавтомобилей и любительских самолётов.январь 2012Формат: PDF
+01. Hey Jude - Something (05:50)
+02. Ob-La-Di, Ob-La-Da - If I Nee (02:30)
+03. And I Love Her (03:38)
+04. I Want To Hold Your Hand (02:22)
+05. Eight Days A Week (03:03)
+06. Get Back (02:45)
+07. Help ! (02:53)
+08. With A Little Help From My Fr (04:01)
+09. A Hard Dayґs Night (03:08)
+10. Let It Be (03:29)(   Читать дальше...   )1981Жанр: Сountry, RockПродолжительность: 00:40:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E668D3A492CBCE7EBFB48D65C8D25DCC3B265C49
+magnet:?xt=urn:btih:9514C728DD2E50B33B55BB70BFD4892452F75F67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,80 +131,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476817   (85903) от 02.04.2012
+###  Публикация: 453595   (93635) от 17.02.2012
 
-Ватель / Vatel (2000) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция. 1671 год. Его Величество «король Солнце» Луи XIV в сопровождении королевы и многочисленной свиты изъявляет желание навестить замок принца Де Кондэ и провести там три дня. Небывалая честь одновременно и радует и пугает принца, ведь обедневшее поместье вряд ли сможет оказать достойный первой особы прием.
-Единственная надежда хозяина — его верный дворецкий (   Читать дальше...   )Жанр: Мелодрама, ДрамаРежиссер: Ролан ЖоффеАктеры: Жерар Депардье, Ума Турман, Тим Рот, Тимоти Сполл, Джулиан Гловер, Джулиан Сэндс, Мюррэй Лачлан Янг, Хайвел Беннетт, Ричард Гриффитс, Ариэль ДомбальПеревод: ДублированныйЯзык субтитров: РусскиеПродолжительность: 01:52:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477165   (85902) от 02.04.2012
-
-Миссис Даутфайр / Mrs. Doubtfire (1993) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неприятности сыплются на Дэниеля Хиларда, как из рога изобилия: он теряет работу, от него уходит жена и после развода ему позволено видеть детей всего раз в неделю!
-
-Но Дэниель находит выход — переодевается в женское платье и становится Миссис Даутфайр — пожилой женщиной. Он нанимается к собственной жене в домработницы, и теперь может видеть своих детей каждый день. Последствия, естественно, будут самыми непредсказуемыми.Жанр: драма, комедия, семейныйРежиссер: Крис КоламбусАктеры: Робин Уильямс, Сэлли Филд, Пирс Броснан, Харви Файерстин, Полли Холлидей, Лиза Якуб, Мэттью Лоуренс, Мара Уилсон, Роберт Проски, Энн ХейниПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 02:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC3FC78ACDBE6FB547E678DF1AE0991E02FF9A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476923   (85900) от 02.04.2012
-
-DJ Boomer - DA BASS 9 (2005) [FLAC|Lossless]<Drum & Bass>
+Astartica - Error Sapiens (2011) [MP3|320 kbps]<Psychedelic / Full On>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93635.jpg" />
 </div>
 
 
 ###  Подробнее
 
-N/A2005Жанр: Drum & BassПродолжительность: 01:16:54
+01. We Are The New 07:14
+ 02. Constant Control 07:47
+ 03. Hu-Man Choice 07:52
+ 04. Ancient Space Program 07:07
+ 05. Stop Supporting The System 07:18
+ 06. Error Sapiens 06:02
+ 07. Run The Show 08:00
+ 08. Freedom Rally 07:44
+ 09. EarCell 07:042011Жанр: Psychedelic / Full OnПродолжительность: 01:05:57
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:3330D347962501F990921156388678C8A3004631
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,34 +165,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477099   (85894) от 02.04.2012
+###  Публикация: 453761   (93624) от 17.02.2012
 
-Мара - Два Мира (предрелиз НАШЕрадио) (2012) [MP3|256 кб/с]<Rock>
+VA - Blacklite Tubes (2011) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Full On>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Львы и Сефарды / Возьми меня в небо
-02. Два мира
-03. Почувствуй разницу
-04. Мой друг из Иордании
-05. Арктика
-06. Япония
-07. Без тебя… Всё не так
-08. Неоспоримо взрослым
-09. Головокружения / Я голосую за мэра-гея!
-10. Калевала(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:46:52
+01. Flegma & Zyce - Out Of Control (8:26)
+02. Purple Raver - Total Integration (7:38)
+03. Nukleall - Ayahuasca Reset (7:50)
+04. Loud - Pink Noize (8:24)
+05. M-Theory - Exact Dosage (7:41)
+06. Nukleall - Ancient Plants (Barkode Rmx) (8:00)
+07. Hypnoise - Super Conscious (8:12)
+08. Ovnimoon & Axis - Galactic Mantra (Wizack Twizack Rmx) (8:41)
+09. Ghost Signal - Impulse Response (Rack Riders Rmx) (8:30)2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 01:13:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4316637584B6F1A323C707B3897A91D3132C279
+magnet:?xt=urn:btih:ECD5E2C30C29E672582A245F4699F15D9CB5E1CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,21 +199,65 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476732   (85892) от 02.04.2012
+###  Публикация: 452983   (93604) от 16.02.2012
 
-08/15 Фильм второй. / 08/15 - Zweiter Teil (1955) DVDRip
+VA - Operatic Metal Voices (2011) [MP3|320 kbps]<Symphonic Metal, Power Metal, Gothic Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение фильма о солдатах Вермахта, в котором прослеживается история одной воинской части, от учебного лагеря и до капитуляции.Жанр: Военный, ДрамаРежиссер: Пол МэйАктеры: О.Э. Хассе Рольф Кучера Emmerich Schrenk Рейнер Пенкерт Йоахим Фуксбергер Ганс Кристиан Блех Paul Bösiger Питер Карстен Эллен Швирс Хелен ВитаПеревод: Одноголосый закадровыйПродолжительность: 01:43:32
+01. Amberian Dawn - Incubus (05:02)
+02. Liva - Rosa Marcet Oriens (06:46)
+03. Diablo Swing Orchestra - A Rancid Romance (04:27)
+04. Soner Canцzer & The City Of Prague Philharmonic Orchestra - Candle In The Night (05:45)
+05. Adrana - The Grey Princess (05:25)
+06. Niobeth - My Dead Angel (05:17)
+07. Magni Animi Viri - Heroes... (04:13)
+08. Overdream - Navigator (04:04)
+09. Therion - Son Of The Sun (05:35)
+10. Haggard - Herr Mannelig (04:50)(   Читать дальше...   )2011Жанр: Symphonic Metal, Power Metal, Gothic MetalПродолжительность: 01:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9797B46E3EF989AFDDE87F6255E5541CEC988C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453272   (93601) от 16.02.2012
+
+Corby Yates - Back From Yesterday (2005) [APE|Lossless]<Blues Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dallas (1:32)
+02. Back From Yesterday (4:54)
+03. Green Eyed Girl (3:45)
+04. Are You Not There? (3:48)
+05. Back To You (4:50)
+06. Salty Pain (5:32)
+07. Is This Evil? (5:27)
+08. Do You Know? (4:52)
+09. I Don't Mind (4:06)
+10. The Wrong Song (6:39)(   Читать дальше...   )2005Жанр: Blues RockПродолжительность: 00:52:25
 
 ## Скачать торент
 ```bash
@@ -568,34 +269,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476350   (85891) от 02.04.2012
+###  Публикация: 453229   (93581) от 16.02.2012
 
-VA - Дискотека Бездна Original 50/50 vol. 3 (2012) [MP3|128-320 kbps]<Pop>
+Закон зимовки (1984) SATRip
 
->>Неофициальные сборники
->>Pop (сборники)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dj Meg, Timati, Sergey Lazarev - Moscow To California
-002. Far East Movement Feat. Justin Bieber Redfoo - Live My Life (Party Rock Remix)
-003. Dj Nil Sexy Liya - На Краю У Рая (Extended Mix)
-004. Tacabro - Tacata (Radio Edit)
-005. Джиган Feat Жанна Фриске - Ты Рядом (Dj Meg Nerak Remix)
-006. Nick Cox Feat. Lil Lee - Good Sex Beat (Radio Edit)
-007. Лавика - В Городе Весна (Dj Melloffon Remix)
-008. Toni Braxton - I Heart You
-009. Пропаганда - Нет-Да
-010. Simple Plan Feat. Sean Paul - Summer Paradise(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:17:11
+Жанр: ТелеспектакльРежиссер: Евгений ЛазаревАктеры: Армен Джигарханян, Галина Анисимова, Евгений Лазарев, Владимир Самойлов, Александр Фатюшин, Александр Шаврин, С. КузнецоваПродолжительность: 01:57:05 (00:55:02 + 01:02:02)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A520584EA4957F78BDFC4E0A532DF0095FAA3531
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -603,29 +295,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477350   (85889) от 02.04.2012
+###  Публикация: 452846   (93578) от 16.02.2012
 
-[Wallpapers] Girls Desktop Wallpapers Pack 23
+Frank Popp Ensemble - Touch And Go (2005) [FLAC|Lossless]<Acid Jazz, Synth-pop>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 23 
-Название:  Girls Desktop Wallpapers Pack 23 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 5616х3744
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Business & Pleasure (3:42)
+02. Leave Me Alone (2:58)
+03. Just Say Goodbye (2:43)
+04. GettinґDown (3:00)
+05. The World Is Waiting (3:08)
+06. Foncй Dans Le Coeur (5:09)
+07. All I Need (3:42)
+08. Enough (4:05)
+09. Donґt Waste My Time (4:16)
+10. Touch & Go (3:03)(   Читать дальше...   )2005Жанр: Acid Jazz, Synth-popПродолжительность: 00:43:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A76E32000E17FA5513DE406E938801010C3258F4
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,27 +330,62 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476880   (85888) от 02.04.2012
+###  Публикация: 453056   (93569) от 16.02.2012
 
-Большая слежка (Долгий путь) / The Big Trail (1930) [1080i] Blu-ray
+Necondition - Original Necondition (2012) [MP3|320 kbps]<Ska Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ska and Oi! (02:12)
+02. Let's Make a Riot (03:56)
+03. Is it Enough for the Young (03:56)
+04. Емкие Слова (04:28)
+05. Булка, Парадная, Паребрик, Шаверма.. (01:48)
+06. Airseekness Bag (02:57)
+07. Israel (03:24)
+08. Не Умеешь - Не Берись! (02:18)
+09. Hool's Ska (02:38)
+10. Don't Sell Your Soul (03:16)(   Читать дальше...   )2012Жанр: Ska PunkПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FC98CE9785E2F991DCB11BF201F67510D519D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452388   (93562) от 16.02.2012
+
+Незаконченная жизнь / An Unfinished Life (2005) DVD9
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Брек Коулмэн человек молодой и горячий, желающий отомстить за смерть своего старого друга. Он подозревает Реда Флэка и его подручного Лопеса и чтобы подтвердить свои подозрения он присоединяется к группе переселенцев, следующих на Запад под началом Флэка.
+Эйнар Джилкисон, на протяжении последних десяти лет тяжело переживающий смерть своего единственного сына, совершенно запустил собственное ранчо и разрушил свой брак. Единственный человек, о котором Эйнар продолжает заботиться, — это его наемный работник и друг Митч, который был страшно искалечен медведем-гризли.
 
-Во время похода Брек знакомится с дочерью полковника - Рут Кэмерон, которая присоединяется к каравану вместе с младшим братом и маленькой сестрой и между молодыми людьми вспыхивает взаимное чувство, хотя они оба с гонором и не хотят признаться в этом друг другу.Жанр: мелодрама, приключения, вестернРежиссер: Рауль Уолш, Луис Р. ЛоффлерАктеры: Джон Уэйн, Маргарит Черчилль, Эль Брендел, Талли Маршалл, Тайрон Пауэр ст., Дэвид Роллинз, Фредерик Бертон, Иэн Кит, Чарльз Стивенс, Луиз КарверПеревод: Многоголосый закадровый, Одноголосый закадровыйПродолжительность: 01:56:44
+Утратив всякую связь с внешним миром, Эйнар собирается (   Читать дальше...   )Жанр: ДрамаРежиссер: Лассе ХалстремАктеры: Дженнифер Лопес, Роберт Рэдфорд, Морган ФриманПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:43:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F5D1C50A04AADB673CA3574D71066E8947C5213
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,25 +393,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477286   (85887) от 02.04.2012
+###  Публикация: 453234   (93559) от 16.02.2012
 
-Католицизм. Война двух Римов (2008) DVDRip
+VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что такое католицизм? Католицизм и еретические учения. Что нёс католицизм России на протяжении всей её истории? Эти и другие вопросы освещаются в фильме "Католицизм: война двух Римов". Показаны кадры встреч последних лет между католиками и православными на экуменических форумах, а также кадры соместного "моления" католиков и представителей других ересей на всемирном совете "церквей".Жанр: ДокументальныйРежиссер: А. ПетровПродолжительность: 01:15:21
+01.Count Basie - I'm Confessin' (That I Love You) (4:51)
+02.Billy Taylor Trio - La Petite Mambo (4:49)
+03.Paul Desmond - Alice In Wonderland (4:06)
+04.Bill Evans - For Heaven's Sake (4:26)
+05.Thelonious Monk - It Don't Mean A Thing (If It Ain't Got That Swing) (4:40)
+06.Oscar Peterson - Georgia On My Mind (3:46)
+07.Eugen Cicero  - Autumn Leaves (6:24)
+08.Earl Hines - Moonlight In Vermont (3:13)
+09.Erroll Garner - Misty (2:48)
+10.George Shearing - Someone To Watch Over Me (2:35)(   Читать дальше...   )2009Жанр: JazzПродолжительность: 01:08:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:712C77AACA50A40FA5959C47957EF30BB08F244B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,30 +428,100 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476861   (85886) от 02.04.2012
+###  Публикация: 453160   (93555) от 16.02.2012
 
-VA - From Russia With Italo Disco (2012) [FLAC|Lossless]<Italo Disco>
+Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stoned Again (4:36)
+02. Daddies Bones (4:55)
+03. Can't Dress It Up (5:05)
+04. In Your Corner (4:54)
+05. I Heard Voices (0:48)
+06. Everybody's Got Something (5:02)
+07. Workin' (5:57)
+08. She Sees Ghosts (4:45)
+09. Inside of Me (4:29)
+10. As the Tears Go By (4:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452392   (93552) от 16.02.2012
+
+Twina - Out As A Signal (2012) [MP3|192-320 kbps]<Psychedelic / Full On>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Magic System D.J. - I Wanna Touch Your Body Now (Extended version)
-02. Siberian Heat - Flute Cries (Maxi version)
-03. Dyva - Harsh Wind (Duro Mix)
-04. Squash Gang - When I Close My Eyes
-05. Marylinn - Only Mine (Solo Mio)
-06. Mode-One - Sometimes
-07. Modo - With Or Without You (Vocal version)
-08. Riccardo Campa - The Witch (Original version)
-09. Andy Romano - Don't Run Away (Extended version)
-10. Peter Aresti - Latina Angel (Album version)(   Читать дальше...   )2012Жанр: Italo DiscoПродолжительность: 01:14:57
+01. Out As A Signal 07:29
+02. SuperNova 07:46
+03. See The Light 2020 5:51
+04. Ultratwina (Ultravoice vs. Twina) 06:44
+05. Two Kinds of People 07:23
+06. Visual Your Dream 06:53
+07. Venus from Mars (Echo Logic vs. Twina Remix) 06:56
+08. Get What You Give 06:56
+09. Man Becomes What He Thinks About 08:18
+10. Communicating on Some Level 06:272012Жанр: Psychedelic / Full OnПродолжительность: 01:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A9B27D1115C74BEF6FB2488411DB62157D654F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453266   (93550) от 16.02.2012
+
+Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be Satisfied (2:57)
+02. You Crossed the Line (3:58)
+03. Fortune Teller (4:47)
+04. Yesterdays (4:40)
+05. Get Behind the Mule (4:34)
+06. Ring Them Bells (3:49)
+07. Drown in My Own Tears (3:54)
+08. The Ballad of Judith Anne (4:07)
+09. Cigarettes and Coffee (4:14)
+10. Mother in Law Blues (2:51)(   Читать дальше...   )2007Жанр: Vocal Jazz, BluesПродолжительность: 00:48:24
 
 ## Скачать торент
 ```bash
@@ -722,28 +533,299 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477166   (85885) от 02.04.2012
+###  Публикация: 452411   (93540) от 16.02.2012
 
-SAM CoDeC Pack & SAM DeCoDeR Pack 2012 v4.05 Final[Best]
+Meander - Time Machine (2012) [MP3|320 kbps]<Psychedelic / Full On, Psy-Prog>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сейчас существует множество различных кодек-паков, но подбор компонентов в них не является оптимальным и не дает возможности просмотра максимального числа форматов файлов без поиска дополнительных декодеров и фильтров. Я предлагаю свой вариант подборки нужных декодеров и кодеков для проигрывания и упаковки мультимедийных файлов. Теперь все декодеры, которые необходимы для просмотра видео и прослушивания музыки, а также кодеки, необходимые для упаковки и конвертирования мультимедийных файлов, будут всегда у Вас под рукой.
- DeCoDeR содержит только декодеры и фильтры для проигрывания аудио и видео файлов. Оптимальный набор тем, кто только смотрит видео и слушает музыку
- CoDeC содержит как декодеры для проигрывания, так и кодеки для паковки и конвертирования аудио и видео файлов.
- Главное отличие пака от других - это максимально возможная поддержка разных форматов - другие рассчитаны на популярные форматы и редкие им не под силуНазвание программы: SAM CoDeC Pack & SAM DeCoDeR Pack 2012 v4.05 FinalЯзык интерфейса: Русский
+01. Meander - Sacred Lands (Original Mix) 07:04
+ 02. Meander - Completely Nuts (Original Mix) 07:17
+ 03. Meander - Spiritual Communion (Original Mix) 07:47
+ 04. Meander - 4 Years After Years More (3 Years More Remix) 07:54
+ 05. Meander - Lucid Dream (Original Mix) 07:10
+ 06. Meander feat Ridden - Virus_Desirus (Original Mix) 07:12
+ 07. Meander - The I We And It (Original Mix) 08:10
+ 08. Meander - Crystal Frequencies (Original Mix) 08:16
+ 09. Meander - Time Machine (Original Mix) 07:262012Жанр: Psychedelic / Full On, Psy-ProgПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679C2C3381287D471C7F3D33E4EFB43F8481C804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453359   (93538) от 16.02.2012
+
+Газета | Сад, огород – кормилец и лекарь №3 (январь 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93538.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6553EA71A260BDE13D033ACF34626C63284A19B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453355   (93537) от 16.02.2012
+
+Газета | Сад, огород – кормилец и лекарь №2 (январь 2012) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93537.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1DC4D14F78E6ADF682CF3A7AC92C263A7C7806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452798   (93531) от 16.02.2012
+
+VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cal Tjader - Morning (2:59)
+02.Dusty Springfield - Breakfast In Bed (2:54)
+03.Astrud Gilberto - Champagne And Caviar (3:23)
+04.John Scofield - Green Tea (5:12)
+05.Incognito - Smiling Faces (5:10)
+06.Curtis Stigers - My Babe (4:48)
+07.Stan Getz & Joao Gilberto - Doralice (2:47)
+08.Stephane Grapelli - Hot Lips (2:51)
+09.Hildegard Knef - Coffee Song (1:59)
+10.De-Phazz - Rise And Shine (5:00)(   Читать дальше...   )2009Жанр: Vocal Jazz, BopПродолжительность: 01:00:44
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453277   (93524) от 16.02.2012
+
+Red Garland Trio - Can't See For Lookin' (1996) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't See For Lookin' (9:29)
+02. Soon (6:57)
+03. Blackout (8:56)
+04. Castle Rock (9:45)1996Жанр: JazzПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452975   (93522) от 16.02.2012
+
+Исповедники Оптинские (2006) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о трех монахах - подвижниках Оптиной пустыни начала 20 века: епископе Михее (Алексееве), иеромонахе Рафаиле (Шейченко), иеросхимонахе Мелетии (Бармине). Недавно останки исповедников веры Христовой были перезахоронены на территории монастыря. Съемочная группа кинокомпании "Лествица" стала свидетелем этого выдающегося события. Авторам фильма пришлось исследовать большой объем документального материала, чтобы по крупицам собрать свидетельства о жизни подвижников двадцатого векаЖанр: ДокументальныйРежиссер: О. Волынская, протоиерей И. СобкоПродолжительность: 00:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BF468FD32C594CD2C885DC4DAFB363A7E8E24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453261   (93517) от 16.02.2012
+
+Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old country (3:50)
+02. Maria (4:06)
+03. Wish you were here (4:01)
+04. Don't worry 'bout me (2:37)
+05. Caravan (5:10)
+06. Everytime we say goodbye (4:52)
+07. Not dark yet (6:08)
+08. I will wait for you (5:35)
+09. My man's gone now (3:04)
+10. Someone to watch over me (4:35)(   Читать дальше...   )2007Жанр: Vocal JazzПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452774   (93516) от 16.02.2012
+
+IntroWert - Progressive Reason Episode 071 [13.02.2012] (2012) [MP3|192 kbps]<Progressive Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild & Perfect Day (Extended Mix)
+ 02. Ashley Wallbridge - Meta4 (Club Mix)
+ 03. 2nd Phase - Lesson Learned (Original Mix)
+ 04. Origin - Sunstroke (Original Mix)
+ 05. Tiesto - Maximal Crazy (Original Mix)
+ 06. Neev Kennedy - The Unknown (DNS Project Extended)
+ 07. Ali Wilson - Pandora (Original Mix)
+ 08. Victor Dacoff feat Jane Maximova - Around Us (Dub Mix)
+ 09. Heatbeat - Arganda (Original Mix)
+ 10. Ralphie B. - Massive (Airtight Remix)(   Читать дальше...   )2012Жанр: Progressive Trance, Uplifting TranceПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D927B568EE27C139E23197556DEEBBEB7F5D454F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452877   (93514) от 15.02.2012
+
+Trisquel GNU/Linux 5.0 (GNOME) [i686 + x86_64] (2xCD + 2xDVD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93514.jpg" />
+</div>
+
+
+###  Подробнее
+
+К дню празднования «свободы программного обеспечения» была представлена новая версия Trisquel GNU/Linux 5.0 – полностью свободного дистрибутива основанного на пакетной базе Ubuntu Linux 11.04, вышедшего под кодовым именем «Dagda». Главная особенность дистрибутива заключается в том, что в нем проведена полная чистка всех не свободных компонентов, таких как бинарные драйверы, firmware и элементы графического оформления, распространяемые под несвободными лицензиями или использующие зарегистрированные торговые марки. В качестве деcктоп окружения используется GNOME и LXDE в легковесной «Mini» редакции. В ближайшем будущем намечен выпуск релиза с рабочим столом «KDE» и специальная версия для образовательных учреждений.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4EF241C0E1A70341F2DB17FD981C56BEC36548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452494   (93502) от 15.02.2012
+
+Андрей Посняков | Вандал-2. Призрак Карфагена [2011] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разбойничьи племена закрепились на севере Африки, создали там государство и теперь стремительно приближают крушение своего главного врага — Рима. Не только слабостью прогнившей империи объясняются их успехи, но и помощью со стороны. А точнее, из нашего столетия, где есть силы, которые пытаются изменить прошлое, чтобы достичь абсолютной власти в настоящем.
+ По Средиземному морю рыщет огромный черный корабль. На борту экспериментальный хроногенератор, вооруженная до зубов банда и двое пленников.
+ Александр Петров — бывший матрос славного брига «Товарищ», бывший каскадер, бывший храбрый вождь вандалов — должен во что бы то ни стало вновь перенестись в далекую эпоху. Ведь эти пленники — его жена и друг, и надеяться им больше не на кого.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588F13E588F06246B747354D634BD6E18BCAB85F
 ```
 
 https://mybot314.ru/tekegram_catalog/

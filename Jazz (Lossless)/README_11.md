@@ -1,3 +1,32 @@
+###  Публикация: 1449821   (1029587) от 23.02.2021
+
+Duke Ellington - Live And Rare (1965 - 1973) 3CD, 2002, Bluebird [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029587.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Piano Player [2:57]
+02. Creole Love Call [4:29]
+03. Don't You Know I Care? [4:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6B4F1B7D2D4B90B4C559884FE121BC210CD9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449747   (1029576) от 23.02.2021
 
 Marbin - Russian Dolls (2020) [FLAC|Lossless|WEB-DL|tracks] <Fusion,Jazz-Rock>
@@ -716,35 +745,6 @@ Ahmad Jamal - Tranquility & Outertimeinnerspace (1968, 1972) 2015, Universal [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E640ABAE897963F3E76C53CAF78B048F8D7BCB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454675   (1026136) от 16.03.2021
-
-Bob Baldwin - Newurbanjazz 3 - an Urbansmooth Suite (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Urban Smoothsmith
-02. Funk in De Pocket
-03. Friday Night
-04. Dance 3000(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3BE26338F2E4C615FA67E540328C458D9C951F
 ```
 
 https://mybot314.ru/tekegram_catalog/

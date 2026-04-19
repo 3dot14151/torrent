@@ -624,7 +624,7 @@ CentOS 7.3 (1611) [i386] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_888620.jpg" />
 </div>
 
 

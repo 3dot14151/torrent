@@ -1,3 +1,90 @@
+###  Публикация: 960437   (303089) от 30.11.2015
+
+VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Soundtrack>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emmanuelle In The Mirror
+02. Bachelet, Pierre / Emmanuelle Song (French Vocal Version)
+03. Emmanuelle In Thailand
+04. Emmanuelle Steps Out(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E58A7A69521ABB59350F3F15EB7BEAFBF71D437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423585   (299651) от 13.11.2020
+
+Riccardo Cocciante - Notre Dame De Paris  (2000) English Version [FLAC|Lossless|tracks + .cue] <Musical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live for the One I Love - Céline Dion (4:02)
+02. The Age of the Cathedrals - Bruno Pelletier (3:24)
+03. The Refugees - Luck Mervil (3:36)
+04. The Bohemienne Song - Tina Arena (5:24)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8445BD0743EEDECCB9D8501F4DA1252AA5014FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423560   (299056) от 13.11.2020
+
+Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hugo (2001) Italian Version [FLAC|Lossless|image + .cue] <Musical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il tempo delle cattedrali (3:20)
+02. I clandestini (3:32)
+03. Zingara (5:22)
+04. Bella (4:36)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25BCFC8BA531DB90C5D22A84322B38469AF2167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 143074   (279028) от 24.11.2018
 
 Various Artists - Наши песни - Песни Победы (2001) [APE|lossless]<Военные песни>
@@ -360,6 +447,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495112   (251227) от 11.05.2012
+
+Лидия Русланова - Поет Лидия Русланова (1996) [FLAC|Lossless]<Народная Песня>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Окрасился месяц багрянцем (2:58)
+02. Саратовские частушки (2:41)
+03. Коробейники (2:44)
+04. Липа вековая (4:37)(   Читать дальше...   )Жанр: Народная ПесняПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618727   (249908) от 12.03.2023
 
 Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
@@ -690,122 +806,6 @@ VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D13457E7D0FA5076B12457C66E91092975BA7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654724   (205011) от 22.08.2023
-
-VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ali Termos - La Serenissima (MI.LA Remix) (5:54)
-02. Wadd - Back (6:19)
-03. Marga Sol - Mirage (6:14)
-04. Yassine H - Pyramid Vibes (5:38)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546121FFCF0C4AE0DED798E7B9884EC7ED4018E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655059   (193920) от 24.08.2023
-
-VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mystic - Soul of the Universe (5:26)
-02. Mikhail Catan - Solace (6:24)
-03. Gumale - Scenery (7:11)
-04. Ali Termos - Road to Mombasa (Evan Mars Remix) (7:26)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F8506D7B2AD693180ADB2778A61988272525B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654919   (193913) от 24.08.2023
-
-VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atman (US) - Namekia (6:49)
-02. Mikhail Catan - Away (7:23)
-03. Tamer ElDerini - Fagr (5:42)
-04. Michael Simon - Canzul (6:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B3D37036B4F383BC22BC0214D61F8C8744C0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665612   (180169) от 03.10.2023
-
-VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EASTERN WIZARD - The Mystic Lady (Mikhail Catan Remix) (6:56)
-02. Michael Simon - Umami (6:45)
-03. Michael Simon - Canzul (6:28)
-04. Mikhail Catan - Solace (OneRec Remix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638D67D18CE40A7F2589E0DDCE17300908839C31
 ```
 
 https://mybot314.ru/tekegram_catalog/

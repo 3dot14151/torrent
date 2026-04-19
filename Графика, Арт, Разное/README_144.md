@@ -1,3 +1,29 @@
+###  Публикация: 1347613   (148372) от 24.12.2019
+
+Обои - Desktop Wallpapers Full HD. Part (541) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD0B9628878BB4418C86DC2BB370C315BA27D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347610   (148340) от 24.12.2019
 
 Обои - Desktop Wallpapers Full HD. Part (540) [JPG]
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE51BE49DC028392179B345383E9C58B54E62A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435937   (141587) от 29.12.2020
-
-Картинки - NNM-Club - Календари на 2021 от Warrior 123 №16 - 1435937 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5575A9C589270D0EE16257B779227A00870C4419
 ```
 
 https://mybot314.ru/tekegram_catalog/

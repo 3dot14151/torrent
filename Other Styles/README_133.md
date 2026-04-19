@@ -1,3 +1,206 @@
+###  Публикация: 1183511   (307677) от 14.11.2017
+
+Сергей Курёхин - Трагедия в стиле рок (2000) [FLAC|Lossless|image + .cue] <AvantGarde Jazz, Folk/Rock, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пролог
+02. Часть 1
+03. Часть 2
+04. Часть 3(   Читать дальше...   )Жанр: AvantGarde Jazz, Folk/Rock, SoundtrackПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57007165F3CDD8FC3D9CA842A3AC87D44CA8D469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332990   (307650) от 23.10.2019
+
+Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy (01:29)
+02. 29 (02:44)
+03. Rising Star (02:05)
+04. From the Bottom (01:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101A71656D2EEA8D706B7B0A0796AFB5AAB80C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260608   (307615) от 09.11.2018
+
+Bernward Koch - Touched by Love (2016) Compilation [FLAC|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking through Clouds (2:43)
+ 02. Touched by Love (3:26)
+ 03. Long Way Home (4:15)
+ 04. Back to Myself (3:49)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72AA7E88FBA3EADF0175ADDEDC4C0F8C2BAFF437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333138   (307496) от 23.10.2019
+
+The O'Neill Brothers - Calming Piano for Comfort (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307496.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Meditation 05:18
+2. Remembering When 05:45
+3. Farewell	04:21
+4. Snowflakes 04:15(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49C8E1FE328362F7AF3B7DD9445F62E35ED4EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332992   (307488) от 23.10.2019
+
+Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy (01:29)
+02. 29 (02:44)
+03. Rising Star (02:05)
+04. From the Bottom (01:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DB4A7488C9F62C18DEFD0B92947ED27F4A7467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333011   (307337) от 23.10.2019
+
+Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy (01:29)
+02. 29 (02:44)
+03. Rising Star (02:05)
+04. From the Bottom (01:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25443468D9DEE7A04B123BCD9C35155D2310BF91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260595   (307294) от 09.11.2018
+
+Баян Mix - Нескучная классика (2014) [MP3|320 Kbps] <Instrumental, Pop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Симфонименто 5 (4:06)
+02. Попурри 40 (3:49)
+03. Чардаш (3:18)
+04. Легенда (4:03)(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96AB133D2C2A464069014FB5FC645D4C6C2415B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260596   (307293) от 09.11.2018
 
 Баян Mix - Танцы мира (2016) [MP3|320 Kbps] <Instrumental, Pop>
@@ -554,209 +757,6 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AE3A68A9B8DB1D88ACD8892FBF5965A90F3BD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961021   (303247) от 30.11.2015
-
-VA - Master & Mistress  Tango 50 Original Favourites (2010) [MP3|192 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Di Sarl - El Pollito
-02. Tania Con Orquesta - Yuyo Verde
-03. Rosita Quiroga - Apologia Tanguera
-04. Alfredo Di Angelis - El Choclo(   Читать дальше...   )Жанр: TangoПродолжительность: 02:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF296D69DEB2D27BF92E468FFC17A0FAEE33941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960352   (303228) от 30.11.2015
-
-VA - Road House (The Original Motion Picture Soundtrack) (1989) [FLAC|image + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jeff Healey Band/Roadhouse Blues
-02. Bob Seger/Blue Monday
-03. The Jeff Healey Band/I'm Tore Down
-04. Otis Redding/These Arms of Mine(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4998A896658F6519A8E85F2AD2CCD946B88EAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261583   (303128) от 11.11.2018
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 2 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303128.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pathetique / Nutcracker - Tchaikovsky Romeo ans Juliet - Symphonic Rock Orchestra
-   2. Ave Maria - Bach-Gounod - Orchestra Charles Monet
-   3. Ave Verum – Mozart - Wave's Computer Orchestra
-   4. Waltz in A Flat Major – Brahms - Philharmonics of London(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805C197E0565551272415A2D05EB7A6BAF2035BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960437   (303089) от 30.11.2015
-
-VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Soundtrack>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emmanuelle In The Mirror
-02. Bachelet, Pierre / Emmanuelle Song (French Vocal Version)
-03. Emmanuelle In Thailand
-04. Emmanuelle Steps Out(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E58A7A69521ABB59350F3F15EB7BEAFBF71D437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077697   (302838) от 30.11.2016
-
-VA - Spa Relaxation Ambient Music, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Balearic, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manifestation - Chillout Piano [00:04:21]
-02. Wolfgang Ohmer - Vanya Sulie [00:04:46]
-03. Rocco Muller - Victim's Song [00:08:00]
-04. Niefelsen - Deep in the Space [00:08:22](   Читать дальше...   )Жанр: Downtempo, Balearic, MeditationПродолжительность: 04:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323FE427DA5059EC055DA1A14A43FC27D192D8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261565   (302765) от 11.11.2018
-
-Richard Clayderman - Super Best (2015) [FLAC|24/192|Lossless|WEB-DL|tracks] <Easy Listening, Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto pour une jeune fille nommée je t'aime
-02. Ballade Pour Adeline
-03. Couleur Tendresse
-04. Concerto Des Etoiles(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C0FF8A3F91C29150A5D55E0A89DFAEA3561EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078120   (302656) от 30.11.2016
-
-Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Television Soundtrack) (2015-2016) [MP3|320 кб/с]<Soundtrack, Folk>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outlander - The Skye Boat Song (French Version) (feat. Raya Yarbrough) (01:36)
-02. Leave the Past Behind (05:15)
-03. Wrath of the Comte (02:27)
-04. Versailles (02:54)(   Читать дальше...   )Жанр: Soundtrack, Score, Folk •Продолжительность: 03:13:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3450BF1DA0919F5BD7C6A91FE23C95E7D39E2DEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

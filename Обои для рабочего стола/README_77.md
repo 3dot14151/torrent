@@ -1,3 +1,29 @@
+###  Публикация: 1268672   (226397) от 11.12.2018
+
+Обои - Desktop Wallpapers Full HD. Part (348) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC5176D08CFC445F0C1FC09A9F8ACABC59CA4F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268669   (226368) от 11.12.2018
 
 Обои - Desktop Wallpapers Full HD. Part (347) [JPG]
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CF7B423F39C35CFBB2951987AA26277322EDF2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583188   (205957) от 13.10.2022
-
-Обои - Обои от Snake v 8.0 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для "рабочего стола" на различную тематику.Формат: JPGРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7BB3D3FFC4142B4D4499A961AFF08AD79A6C1BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

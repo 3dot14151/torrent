@@ -1,3 +1,109 @@
+###  Публикация: 1321668   (456456) от 25.08.2019
+
+Проекты - VideoHive - News 24 (Broadcast Pack) - 9120666 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456456.jpg" />
+</div>
+
+
+###  Подробнее
+
+News 24 (Broadcast Pack) - это полный пакет необходимого дизайна для создания телешоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47720083A74EDFEB2D3D4B0A56F5DA250BBC03FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942378   (455264) от 30.09.2015
+
+Проекты - VideoHive - Trio Broadcast Openers Package [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для заставки ТВ эфира: бизнес, новости, спорт. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EAFBA1509B65D8086F5AF9F0CD17545F1805C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162763   (454416) от 03.09.2017
+
+Проекты - VideoHive - MIO Animation Pack - 10693345 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454416.jpg" />
+</div>
+
+
+###  Подробнее
+
+MIO - это симпатичный и забавный персонаж для вашей промо-истории.
+Для вас: - 90 анимаций, управление цветом, альфа-канал.
+Оживите свое видео и добавьте ему привлекательности.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D151F82DF669E0C472C8F447DEDE63A3491B7075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163034   (454164) от 03.09.2017
+
+Проекты - VideoHive - Fashion Broadcast Youtube Package - 20262825 [AEP]
+
+>>След.
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Broadcast Youtube Package - пакет, который отлично впишется в различные страницы социальных сетей, канала YouTube и пр. Так же подойдет для видео-презентаций и промо.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1EA0FBD5641A678E100F54A2F607E9657CC9A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942491   (453108) от 01.10.2015
 
 Проекты - VideoHive - Website Presentation (Dark & Light) - 9725975 [AEP]
@@ -570,114 +676,6 @@ VideoHive - Today Be Strong - 2844646 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1E51FFD5C341925B376CFB90FAE1C5CA52C699C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 829019   (437040) от 07.10.2014
-
-VideoHive - Fashion City - 7364076 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стильный проект для демонстрации ваших фото или видео.
-Превью, файл помощи - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E336F109A62183CFD1769433A8919E5C76B039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706161   (436993) от 05.10.2013
-
-VideoHive - Night club 3 - 2597195 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436993.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: Hello friends  This project is well suited for advertising, presentations, website, video and photos. (Этот проект хорошо подходит для рекламы, презентаций, веб-сайта, видео и фотографии.)
-
- Project features:
- - Attention! Plug in Trapcode Form, Optical Flares required;(   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518EA3B6339A214C22F41FF00AD9E14D7CE44820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707311   (436705) от 05.10.2013
-
-VideoHive - Starlight Promo - 3854874 [AEP]
-
->>След.
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный проект отлично подходит для промо вечеринок, ночных клубов и любых мероприятий. Вы можете легко добавить больше сцен и также легко изменить цвета.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202128027B23F1219C4D2C6CC6E3579892882337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062960   (436601) от 15.10.2016
-
-Проекты - VideoHive - Barber Shop Presentation - 17723242 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо-ролика, рекламы товаров и услуг.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A0895F5C68357F3B43BC0E481B896392DB031D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1132052   (702742) от 08.05.2017
+
+VA - Beatport Top 100 Downloads April (2017) [MP3|320 Kbps] <House, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. CamelPhat - Hangin Out With Charlie (Original Mix) 6:22
+002. Tiesto, Sevenn - BOOM (Extended Mix) 3:54
+003. Dennis Cruz - Mad (Original Mix) 6:35
+004. Pastaboys & Osunlade - Deep Musique (Rampa Remix) 8:01(   Читать дальше...   )Жанр: House, Deep House, Electro HouseПродолжительность: 10:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5FCE78B8F44377D3FB74E45F0C493F194F487E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793589   (702564) от 06.06.2014
+
+VA - Lounge At The Seashore 14 (by Alex3107) (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702564.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Spring Lounge Club - An Irish Breeze
+002. Urselle - Beautiful Life
+003. Auditive Escape - Blue Minds Boulevard
+004. Sannan - Bluetone(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843657BB6B112EE9095F882175B51092081C318A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026738   (702513) от 16.06.2016
 
 VA - Flash Party Line DJ (2016) [MP3|320 кб/с] <House, Future House, Bigroom>
@@ -687,64 +745,6 @@ VA - Night In The Tropics (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DE45A1B5388750F366702CC3BDC3155AC2FD8F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287964   (699770) от 09.03.2019
-
-VA - Techno House: Fashionable Music (2019) [MP3|320 Kbps] <Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699770.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Volkan Erman - Hope (Original Mix)
-002. Jamie Roy - Movin'
-003. Caravaca - Gotcha
-004. Sante Sansone - Keep Movin'(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 09:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE52AE8F266B08F23C9239EB3D73C79D64F001B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287727   (699629) от 09.03.2019
-
-VA - Trap Pro V.02 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Trap, Future Bass, Electronica>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yerbownik - Save Me (Original Mix) [4:34]
-02. Julius Kasa & No ExpressioN, Stephen Geisler - Never Be The Same (Original Mix) [3:28]
-03. EBEN & Calli Boom - Exhale (Original Mix) [3:08]
-04. Barren Gates & Beauz feat. Harley Bird - Tomorrow [2:35](   Читать дальше...   )Жанр: Trap, Future Bass, ElectronicaПродолжительность: 02:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329D0F95D7CC1D29AE5CFDF8FACAF4FEAF88EDD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

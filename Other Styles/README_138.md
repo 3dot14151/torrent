@@ -1,3 +1,203 @@
+###  Публикация: 1079266   (285715) от 08.12.2016
+
+Two Steps From Hell - Vanquish (2016) [MP3|320 Kbps] <Soundtrack, Trailer music, Instrumental, Chor.>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Fall of the Fountain World [04:39]
+02 Pegasus [04:30]
+03 Vanquish (feat. Felicia) [03:16]
+04 New World Order [03:22](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Instrumental, Chor.Продолжительность: 01:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57301EEFFD3DAE58624D9C831C4704431EBEF6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335676   (285668) от 03.11.2019
+
+Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Темные судьбы (Music from the Motion Picture) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terminated (01:28)
+02. My Name Is Dani (03:39)
+03. REV 9 (03:10)
+04. Iron Spike (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0A635FF39633118FFB6279E7015B178C338D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335677   (285516) от 03.11.2019
+
+Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Темные судьбы (Music from the Motion Picture) (2019) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terminated (01:28)
+02. My Name Is Dani (03:39)
+03. REV 9 (03:10)
+04. Iron Spike (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D6939C7A2C0C3281DA792B93889F2C0226C079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 733667   (285051) от 13.12.2013
+
+Хоббит: Пустошь Смауга / The Hobbit: The Desolation of Smaug (2013) /Special Edition/ by Howard Shore [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 02:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0816EEF795B6DE841DE791E1765C15F71CB329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335808   (284555) от 04.11.2019
+
+Kacey Musgraves - Pageant Material (2015) [FLAC|Lossless|tracks] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - High Time (2:58)
+02 - Dime Store Cowgirl (3:35)
+03 - Late To The Party (3:38)
+04 - Pageant Material (3:54)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EB0E3479949EA89C1630BDB200A121EF011C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263393   (284361) от 21.11.2018
+
+Various Artists - Лондонские поля/ London Fields (Original Motion Picture Soundtrack) WEB-DL (2018) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Barber - Destiny
+02. James Bagshaw - How Do You Sleep
+03. Adam Barber - Her Curves Kill
+04. The Cold and Lovely - Not with Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D25AC4B8394F82C550CEB2C2F130033FDA61EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335982   (284259) от 04.11.2019
+
+Guilhem Desq - Visions (2017) Les Jeudis Du Rock, 2018 [FLAC|Lossless|Web-DL|tracks] <Folk, World, Instrumental>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le château magique (4:10)
+02. Visions (3:46)
+03. La libellule et le baobab (5:06)
+04. Sand Sailor (4:13)(   Читать дальше...   )Производство: Les Jeudis Du Rock - 3615934412514Жанр: Folk, World, Instrumental, Hurdy GurdyПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257EA170167EC721BAD64480689CBEA5F4D3CF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963972   (283946) от 10.12.2015
 
 Fridrik Karlsson - Total Chillout (2009) [APE|image+.cue]<New Age, Instrumental, Relax>
@@ -542,206 +742,6 @@ Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A37A8E6316B679033448105FCF3F4170A702461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336449   (280676) от 06.11.2019
-
-VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (Unofficial Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. YUNGBLUD - Time In A Bottle (04:36)
-02. The Heavy - Better as One (02:56)
-03. Logic feat. Wale Folarin (as Wale) & John Lindahl - 100 Miles and Running (05:54)
-04. The Who - Won't Get Fooled Again (03:40)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1AD5024070C344223326D1F344F4E00EF49FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336448   (280671) от 06.11.2019
-
-Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (Original Score + Original Soundtrack) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Score, Soundtrack •Продолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D3EE24F746A570E01C82B280D430B8AB5CF436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336302   (280668) от 06.11.2019
-
-Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music from the HBO Series) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HOW THE WEST WAS REALLY WON (03:45)
-02. ORPHANS OF KRYPTON (01:57)
-03. GARRYOWEN (01:18)
-04. NUN WITH A MOTHERF*&*ING GUN (03:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA9D19C1A49CB5523FCE180766BF186B944953E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187487   (280601) от 28.11.2017
-
-Maryada Ram - Eternal Tibet (2017) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Invocation (4:06)
-02.  Mindful Chant (3:51)
-03.  Healing Tibet Bowls (3:20)
-04.  Offering (3:21)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4636FF080523E5117B6BF11C01E2CED769CC59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187382   (280435) от 28.11.2017
-
-Gregorian - Holy Chants (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Celebrate Christmas (2:32)
-02.  Walking In The Air (3:56)
-03.  You'll See The Snow (4:09)
-04.  Ding Dong (2:14)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CB72C9786BEC614DEE8F696213A646CF582F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336303   (280327) от 06.11.2019
-
-Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music from the HBO Series) (2019) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HOW THE WEST WAS REALLY WON (03:45)
-02. ORPHANS OF KRYPTON (01:57)
-03. GARRYOWEN (01:18)
-04. NUN WITH A MOTHERF*&*ING GUN (03:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3695523D041A087498B1F8BB93F29F2411C67D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336423   (280324) от 06.11.2019
-
-Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Late (02:24)
-02. We Will Break That Record (02:33)
-03. Anything Can Happen In This Weather (02:08)
-04. You'll Get Your Chance (01:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3729055B62B4545545B728C907A99F019C8A82B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,112 @@
-###  Публикация: 1811776   (8418) от 11.08.2025
+###  Публикация: 1806985   (11289) от 16.07.2025
 
-VA - Feel-Good Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Black Logos - The Devil's Kiss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Symphony of Lies (5:02)
+02.  Tell Me (3:58)
+03.  Fade Away (3:40)
+04.  One More Time (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494D5F2DF37414A0C34D7EADA7094E4171112875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806938   (11288) от 16.07.2025
+
+Eight In The Room - Eight In The Room (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viva [00:04:22]
+02. Lovely [00:04:53]
+03. Imagine [00:03:41]
+04. Panda [00:04:15](   Читать дальше...   )Жанр: HouseПродолжительность: 00:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94AE2F2AFD5618CE0F7650A94C102ECF4021B12E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806984   (11287) от 16.07.2025
+
+BigBlack Rhino - Supralove (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boogie Town (3:28)
+02.  The Crowes (4:33)
+03.  Crazy Betty (3:45)
+04.  Angels will Fly (6:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C083694682E5DFE5FB062EC15FE85BA1182CD9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806911   (11286) от 16.07.2025
+
+Palecurse - dark room (2025) [MP3|320Kbps|tracks] <Alternative Rock, Mrtalcore>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  My Chemical Romance - Burn Bright (4:17)
-02.  Paramore - Ain’t It Fun (4:57)
-03.  Faith No More - We Care a Lot (4:04)
-04.  Biffy Clyro - A Little Love (3:08)(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:15
+01. Fever [00:03:59]
+02. Duplicity [00:03:30]
+03. On My Knees [00:03:16]
+04. Haunted [00:03:23](   Читать дальше...   )Жанр: Alternative Rock, MrtalcoreПродолжительность: 00:34:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F5FCDF3ECB932D62CC75D686640A7B25C759893
+magnet:?xt=urn:btih:878942151624E1E833C3C9E396730190BD3CBCC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +114,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811794   (8417) от 11.08.2025
+###  Публикация: 1806989   (11285) от 16.07.2025
 
-VA - Rock songs para gising sa biyahe (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Blind Alice - Nothing Changes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Call a Doctor (3:48)
+02.  Spin the Wheel (4:04)
+03.  If There Are Angels (6:12)
+04.  Beg Steal or Borrow (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348B8B554F7F922914B86A844747B1AB0A6DBE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806933   (11284) от 16.07.2025
+
+Devilskin - Re-Evolution (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red [00:04:49]
+02. Swelter [00:03:23]
+03. Desiderium [00:03:15]
+04. Have I Come Undone [00:04:54](   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Alternative MetalПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42A140F4F7A5297DC163DE4687B9E5129B5E595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806930   (11283) от 16.07.2025
+
+Tokimonsta - Eternal Reverie Remixes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance. Alternative, Electronic, Experimental Hip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Switch It (Kingdom Remix) [00:03:21]
+02. Say Tell Me (Maya Jane Coles Remix) [00:04:58]
+03. All In (KARABA Remix) [00:04:20]
+04. For You (Next To Blue Remix) [00:03:22](   Читать дальше...   )Жанр: Dance. Alternative, Electronic, Experimental Hip-HopПродолжительность: 3 CD, 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9EF8F7FD716020E5D46DDCC6D3D6E407361C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806995   (11282) от 16.07.2025
+
+David Starr - Must Be Blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hole in the Page (3:07)
+02.  Bringin' It Back (4:12)
+03.  Just Got Back From Baby's (3:28)
+04.  Lonesome Train (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969B4756EEB7BEA6435FB30FEEA6CADF03A44DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806896   (11281) от 16.07.2025
+
+Nad Sylvan - Monumentata (2025) Bonus Track Edition [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11281.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Secret Lover (7:03)
+• 02. That's Not Me (5:19)
+• 03. Monte Carlo Priceless (5:38)
+• 04. Flowerland (5:09)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4809535BE014B76BCC27F0592304FFC4C15381C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807064   (11280) от 16.07.2025
+
+The Way of Silence - 1 Albums, 3 Singles (2018-2024) [MP3|320 Kbps] <Metalcore>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  My Chemical Romance - Welcome to the Black Parade (4:38)
-02.  Linkin Park - Heavy Is the Crown (2:47)
-03.  Good Charlotte - Rejects (2:55)
-04.  Fall Out Boy - Grand Theft Autumn / Where Is Your Boy (3:11)(   Читать дальше...   )Жанр: RockПродолжительность: 01:59:02
+Список альбомов:
+2018 - Flame of Your Lie (LP)
+2020 - Одиссея: Сирены (Single)
+2022 - Горгона (Single)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 4 CD, 00:31:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C7EE19D96B3382C2186769D6B3179BA318907E0
+magnet:?xt=urn:btih:3E54DB90E91FA35DE5E14B19C61FC979FD7A2F52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811625   (8416) от 11.08.2025
+###  Публикация: 1806936   (11279) от 16.07.2025
 
-Андрей Первухин | Наследник (Книга 2) (2025) [MP3, Константин Парфенов]
+Nathan James - Hollywood Mortician (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Metalcore, Industrial Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На главного героя объявлена охота, теперь ему пришлось отправиться к границе империи, участвовать в войне. Только охотник устремился следом за ним, так что ему угрожают не только враги империи, но и пока неизвестный преследователь.Жанр: Фэнтези, приключения, попаданцыИздательство: ЛитРесПродолжительность: 07:31:30
+01. Crown of Thorns [00:03:08]
+02. Ghost Under The Veil [00:03:11]
+03. Lost Angeles [00:03:19]
+04. The Hanged Man [00:02:49](   Читать дальше...   )Жанр: Nu-Metal, Metalcore, Industrial MetalПродолжительность: 00:35:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B4429914F5426C46595D61C3DB77E71F740B074
+magnet:?xt=urn:btih:B7D1B88B7EF5AB0BAED1EB2EE3E9E7F60FF1E578
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,27 +317,384 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811800   (8415) от 11.08.2025
+###  Публикация: 1806997   (11278) от 16.07.2025
 
-Генри Каттнер | Механическое эго (2021) [MP3, Puffin Сafe]
+Don Felder - The Vault 1975-2025 Fifty Years Of Music (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мартин — очень талантливый сценарист, который попал в кабалу к одному нечистому на руку режиссеру. Мартин был бы рад разорвать контракт, или признаться в любви Эрике, своему агенту… Но ему не хватает духа ни на то, ни на другое.
+01.  Move On (3:12)
+02.  Free At Last (4:46)
+03.  Hollywood Victim (5:17)
+04.  Last All Night (3:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3766CF3F61FACFA6C59CC60BDA33CDCFFCA9CC6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806981   (11277) от 16.07.2025
+
+Art Nation - Re-Revolution (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Need you to Understand (3:51)
+02.  3000 Beats (3:58)
+03.  I Want Out (3:12)
+04.  Number One (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413ADCFC0953CFDCB28E14C6AE414B0A33658FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806918   (11276) от 16.07.2025
+
+Born of Osiris - Through Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seppuku [00:03:19]
+02. Elevate [00:03:13]
+03. Through Shadows [00:05:09]
+04. The War That You Are [00:03:39](   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2AB785DF369EF7628CAAB36E01A9F3AD9D4451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806982   (11275) от 16.07.2025
+
+Big Boy Bloater - Dirty Disco Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dirty Disco Blues (3:24)
+02.  Kensington Gore (3:23)
+03.  I Don't Miss You As Much As You Thought I Would (4:11)
+04.  The Devil Went Down To Rehab (4:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6F2A8771FCAFFE567A21AE016C83633A439562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806935   (11274) от 16.07.2025
+
+Everything But The Girl - Lullaby Of Clubland (2000) [FLAC|Lossless|tracks +.cue] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lullaby Of Clubland (Original Mix) 5:27
+02 Lullaby Of Clubland (Markus Schulz Renaissance Vocal) 9:58
+03 Lullaby Of Clubland (Ben Watt Summer Storm Remix) 6:24
+04 Lullaby Of Clubland (Matty Heilbronn II Deep Club Mix) 7:36(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8DDE59C6E432D088E372D6B7130667FCF6730E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802908   (11273) от 17.07.2025
+
+Арт-детективы / Art Detectives (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) TVShows
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харизматичный следователь Мик Палмер и прямолинейная констебль Шазия Малик берутся за резонансные дела, в которых могут фигурировать как золото викингов и картины Вермеера, так и работы Бэнкси или коллекционный винил. Чаще всего такие преступления связаны с убийствами. А когда в жизни Мика вновь появляется его отец, один из самых известных арт-мошенников в Великобритании, (   Читать дальше...   )Производство: Ирландия / Black Dog Television, Dynamic TelevisionЖанр: драма, криминалРежиссер: Дженни Пэддон, Деклан РексАктеры: Стивен Мойер, Нина Сингх, Джо Барбер, Барри Джон Кинселла, Уоррен Маккук, Ники Харли, Стивен Кэлверт, Сэм Филлипс, Ричард Эштон, Адам ЛоуренсПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Forced, SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666F5CF4B32CB2D2BD077B58E5CD96414942CA0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807231   (11272) от 17.07.2025
+
+Windows 7 SP1 7601.27820 x64 3in1 by OneSmiLe [17.07.2025] [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+• ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774
+• ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
+• ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC78BBC457E0A3D4E1745083C5FAE308622EA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804154   (11270) от 17.07.2025
+
+Игра в кальмара / Ojingeo geim / Squid Game (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 3, серии 1-6 из 6) Videofilm, Red Head Sound, HDrezka, LostFilm, TVShows, WStudio, LE-Production, Сербин
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сон Ги-хун уже немолод, разведён, по уши погряз в долгах и сидит на шее у старенькой матери. Даже выигранные на скачках деньги в его руках долго не задерживаются, и однажды он встречает в метро загадочного незнакомца, который сначала предлагает сыграть в детскую игру, а затем вручает Ги-хуну немалую сумму и визитку. Но радость мужчины сменятся отчаянием, когда он (   Читать дальше...   )Производство: Корея Южная, NetflixЖанр: триллер, драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ким Джу-рён, Ви Ха-джун, Ю Сон-джу, Ли Ю-миПеревод: Дублированный (Videofilm, Red Head Sound), Многоголосый (HDrezka, LostFilm, TVShows, WStudio, LE-Production), Авторский (Ю. Сербин)Язык озвучки: Русский, украинский, английский, корейскийСубтитры: Русские (Forced, Full), украинские (Forced, Full), английские (Forced, Full, SDH), корейские (Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D275DC2B4739452CB41839EF5F29C17B457E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807109   (11268) от 17.07.2025
+
+Driver Easy Pro 7.0.2.1910 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Easy Professional — профессиональная и в тоже время простая в использовании программа для вашего компьютера, которая предназначена для работы с драйверами системы — для поиска и загрузки последних версий драйверов. Просканировав вашу систему, программа найдет устаревшие драйвера, позволит вам скачать их обновленные версии и установить. Driver Easy может создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302B694B29645605E57CB5F11E4513A5E46F8070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807115   (11267) от 17.07.2025
+
+Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.110/dlc) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба Забытых Королевств - в ваших руках... Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition возвращает вас обратно в Невервинтер! Темные силы снова рыщут по Фаэруну, разоряя все на своем пути. Как будто в поиске чего-то... что вы уже нашли. Только вы, носитель осколка, можете остановить Короля Теней и его армию и не дать ему осквернить ваши родные (   Читать дальше...   )Тип издания: RepackРазработчик: Aspyr MediaЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46E4FFE4102B2767BB47AE4757575CF6E01F250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639254   (11266) от 17.07.2025
+
+Sneaky Sasquatch v.2.0.5 (2019) [Multi/Ru] [macOS Native game]
+
+>>Игры для macOS
+>>Quests, Adventure, Arcade для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попробуйте себя в роли йети и займитесь привычными для него делами.Тип издания: macOS Native gameРелиз состоялся: 2019Разработчик: RAC7Поддерживаемая ОС: macOS Catalina 10.15 и вышеЖанр: приключенческая играЯзык озвучки: Звуковые сопровожденияЯзык интерфейса: Русский, Английский, Итальянский, Arabic, French, German, Japanese, Korean, Portuguese, Simplified Chinese, Spanish, Traditional Chinese, Turkish
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D501B282C91085C0677F9185D5DA6948970B4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788451   (11265) от 17.07.2025
+
+Inayah - Life after Gods (2025) [Ru/Multi] (1.0.4) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в захватывающий 2D экшен-платформер с элементами метроидвании, где каждый уголок постапокалиптического мира оживает благодаря детально прорисованной вручную графике. Этот мир полон опасностей, но его красота не раз заставит вас остановиться и задержать дыхание.Тип издания: RepackРазработчик: ExoGenesis StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1F745BA50F6F568E1FEB5621287E0B205F4A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695482   (11264) от 17.07.2025
+
+Серж Винтеркей | Цикл "Антидемон" [21 книга] (2023-2025) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тебя отправили в прошлое спасать мир, а ты оказался в теле парализованного мага с выжженным источником? Не беда, привыкай, дальше будет ещё круче! Но ты убьешь любого, кто станет перед тобой и твоей целью, потому что твоя ставка — весь мир!Жанр: Боевая фантастика, Попаданцы, ФэнтезиИздательство: Самиздат, litresФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7337C5EA4D8D523830DDC0B77C4E8E1F2418C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806921   (11263) от 17.07.2025
+
+Microsoft Windows 10 [10.0.19045.6093], Version 22H2 (Updated July 2025) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
 
-И надо же было именно перед самым продлением контракта, когда надо действовать, появиться этому… роботу… Явно проделка ненавистного режиссера, (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:54:00
+Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.6093.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6447A2B648029F4EB7C06D059054D7773C7471F
+magnet:?xt=urn:btih:0FF2C8D074BCACB70F5771D6DF0E2801CCA7191C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,589 +702,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811667   (8414) от 11.08.2025
+###  Публикация: 1806893   (11262) от 17.07.2025
 
-Дмитрий Иванов | Противостояние (Книга 1). Моя игра. Начало (2025) [MP3, Сергей Уделов]
+Декстер: Воскрешение / Dexter: Resurrection (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit] (сезон 1, серии 1-2 из 10) Red Head Sound (обновляемая)
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Зарубежные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Недалекое будущее. Земля вступила в космическое Содружество, возможности которого огромны, но, к сожалению, не бесплатны. Единственный значимый доход землян - это заработки в виртуальной вселенской онлайн-игре "Основание". Главный герой - самый обычный молодой парень, в игре ухватил удачу за хвост и смог получить во владение своё личное, пусть и небольшое, (   Читать дальше...   )Жанр: Фантастика, LitRPGИздательство: ЛитРесПродолжительность: 08:30:23
+Чудом избежавший смерти Декстер Морган отчаянно хочет сблизиться с сыном Гаррисоном, но боится ему навредить, ведь на мужчину ведет охоту бывший сослуживец. А в городе тем временем появляется опасный враг: миллиардер-психопат, манипулирующий людьми, и его телохранительница. Дорога к семейному счастью для Декстера рискует вновь стать кровавой.Производство: США / Counterpart Studios, Showtime StudiosЖанр: криминал, драмаРежиссер: Маркос Сига, Моника РеймундАктеры: Майкл С. Холл, Джек Элкотт, Нтаре Мвине, Джилл Мари Лоуренс, Джейсон Алан Карвелл, Дэвид Магидофф, Брайан Лиллис, Кристен Риттер, Джон Мария Гутьеррес, Уилл РоджерсПеревод: Дублированный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: ~00:51:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8ED787F999EC764D3B601337C2B331565EE444DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811695   (8413) от 11.08.2025
-
-Бернар Вербер | Муравьи (Книга 1). Муравьи (2021) [MP3, Александр Дунин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их цивилизация существует уже много миллионов лет... У них есть свои города объединенные в федерации... Они во много раз меньше человека и живут практически везде. Это муравьи. Кто мы для них и кто они для нас?Жанр: Социальная фантастикаИздательство: ЭксмоПродолжительность: 12:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E823136EEF0710E9DA6D38B07289E202EE7794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811802   (8412) от 11.08.2025
-
-Sonible smart:gate 1.0.1 VST, VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8412.jpg" />
-</div>
-
-
-###  Подробнее
-
-smart:gate обеспечивает интеллектуальное обнаружение источника, фокусируясь на выбранном целевом источнике сигнала. По сравнению с обычными гейтами, smart:gate обеспечивает стабильные результаты и невероятно быстро и просто выполняет параметризацию.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54CC824775A147542981DF09D073BE65241C453D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811666   (8411) от 11.08.2025
-
-Pawlo-X Sax - Smooth Jazz Summer 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Smooth jazz to relax (6:18)
-02.  Contemporary Smooth jazz love (5:52)
-03.  Smooth Jazzy Sax For Lovers (4:55)
-04.  Smooth Jazz Passion (5:10)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D8E70AD7B157A4D3A8C75ACC177DD404A5558B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811671   (8410) от 11.08.2025
-
-VA - Funky Summer Grooves (SUMMER 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mario Biondi - Back Together Again (3:57)
-02.  Frankie Lovecchio - You Should Be Mine (3:35)
-03.  Alixia Mistral - The Way You Move (3:04)
-04.  The Smoke Orchestra - Lenticular Galaxy (2:49)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF6165BD5A95C88F450D76B7E065C27B950FE7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811650   (8409) от 11.08.2025
-
-Фиби Гансуорси | Выбирай себя каждый день (2022) [MP3, Людмила Пахмутова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная жизнь нередко заставляет нас забывать о главном — о внимании к собственным желаниям и потребностям. В погоне за успехом и внешними достижениями мы забываем прислушиваться к себе и заботиться о внутреннем покое и балансе. Между тем, ощущение гармонии и внутреннего удовлетворения создает условия для прихода настоящего счастья, любви и успеха. Книга Фиби (   Читать дальше...   )Жанр: Аффирмации, Медитации, Привлечение денегИздательство: БОМБОРАПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF691268FE7B1FB5130F49B1EDCE1F74C2228E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811655   (8408) от 11.08.2025
-
-VA - Блатной Шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Александр Дюмин - Да гори оно огнем (4:29)
-02.  Группа Пули-Дни - Север, Север (каторжанская песня) (2:14)
-03.  Константин Жиляков - Бродяга (3:49)
-04.  Михаил Грубовъ - Жить по-разному (2:57)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 00:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59718200913FD41B925286141EDB58132F4F197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811789   (8407) от 11.08.2025
-
-Сергей Мусаниф | Боб Кэррингтон (Книга 3). И уйти в закат (2023) [MP3, TED]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уверенное движение к хэппи-энду или тотальной гибели всех персонажейЖанр: Фэнтези, приключенияИздательство: Аудиокнига своими рукамиПродолжительность: 08:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0815952AC67A38C0F16AB9A429BC0F5F7A78EB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811698   (8406) от 11.08.2025
-
-Бернар Вербер | Муравьи (Книга 3). Революция муравьев (2021) [MP3, Александр Слуцкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жюли Пинсон, девятнадцатилетняя лицеистка, которая уже третий год не может сдать выпускной экзамен, находит в лесу в пещере третий том «Энциклопедии относительного и абсолютного знания» Эдмонда Уэллса. Из него она узнает о том, как сложен и необычен мир муравьев, как многому можно у них научиться. Тем временем особь номер 103 из Бел-о-Кана, муравьиного города, пытается (   Читать дальше...   )Жанр: Социальная фантастикаИздательство: ЭксмоПродолжительность: 23:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872BA36DC21B36BE8FC6D62045C98BFE0A17A7B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811749   (8405) от 11.08.2025
-
-Инди Видум | Под знаком Песца (Книга 3). Плюсы и минусы алхимии (2025) [MP3, Никита Петров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заиметь во врагах самый сильный целительский род -- что может быть хуже? Но Песцовы не унывают и пытаются искать союзников.Жанр: Фэнтези, приключения, попаданцыИздательство: ИДДКПродолжительность: 08:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46FDBBC0AFE4805A83713EF6DBF02135E531613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811755   (8404) от 11.08.2025
-
-Брэдли Бэлью | Песнь раскалённых песков (Книга 1). Двенадцать королей Шарахая (2024) [MP3, Мирослав Велесов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шарахай – великий город в пустыне, центр культуры и торговли. С незапамятных времен им правят Двенадцать королей – жестоких, могущественных и бессмертных. Непобедимые хозяева пустыни, они удерживают власть с помощью армии Серебряных копий, элитного отряда Стальных дев и особых защитников – ужасающих асиримов. И вот уже четыре столетия нет никакой надежды на освобождение. (   Читать дальше...   )Жанр: ФэнтезиИздательство: ЭксмоПродолжительность: 18:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47367D678ECCF513A627D5BCBAC687BD40DEB522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811682   (8403) от 11.08.2025
-
-Сергей Мусаниф | Тёмная сторона медали (Книга 3). Колдуны и герои (2025) [MP3, Василий Канделаки]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прямое продолжение "Темной стороны медали".
-Ланс (на самом деле он Кевин, он жив, если кто не в курсе, то во второй части это тоже был Кевин и он наврал о собственной гибели) устал и ищет смерти, но все никак не может ее найти.Жанр: Фэнтези, приключенияИздательство: ЛитРесПродолжительность: 08:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B96FD038C1797F93D79C79BB1DADC859B95D09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811637   (8402) от 11.08.2025
-
-Пётр Жгулёв | Город гоблинов (Книга 11). Храм Пустоты (2025) [MP3, Амир Шакиров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой посетил школу Семи Камней и прошёл испытания. Теперь ему нужно разобраться с полученным наследием, время вернуться домой и подготовиться к штурму Башни, а попутно разобраться со всем полученным наследием.Жанр: Фэнтези, приключения, ЛитРПГИздательство: 1С-ПаблишингПродолжительность: 14:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78670890A64CBAAD82B8A8E74F8DCEDE39EEC9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811664   (8401) от 11.08.2025
-
-Mr. Saxxy and the Funkaholix - The Dusty Tape Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Old Guitar (4:23)
-02.  Night’s Got a Rhythm (4:32)
-03.  Thankful for the Rain (5:04)
-04.  Groove in the Grays (3:25)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz Rock, Vocal JazzПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E507B1B0EC4660E3CD396DB267BE1D553CF004DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811684   (8400) от 11.08.2025
-
-Петр Жгулёв | Страж перевала (Книга 2). Мятеж (2023) [MP3, Вадим Пугачев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив статус гильдейского мага и избавившись от могущественного врага, Игорь недолго наслаждается спокойной жизнью. Дом Ночи поднимает восстание, вынуждая его сделать выбор - бежать и потерять все, либо вступить в борьбу на стороне их противников. Хотя, для начала, требуется просто выжить и покинуть ставший ловушкой город...Жанр: Фэнтези, боевикИздательство: 1С-ПаблишингПродолжительность: 15:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB79EB5BF98841C000968361DCF70AA58603206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811678   (8399) от 11.08.2025
-
-Дмитрий Шелег | Кровь и лёд (Книга 3). Егерь Ладов (2025) [MP3, Амир Шакиров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путь к выпуску из центра подготовки усеян множеством сложностей. Но если наш герой к ним готов, то его товарищам и соратникам приходится гораздо сложнее…
-Сможет ли Ладов им помочь? Сумеет ли провести их через невзгоды? Найдёт ли применение тем, кто получит звание егеря? Откроет ли тайны начальных рангов воинского искусства?Жанр: Фэнтези, приключения, попаданцыИздательство: 1С-ПаблишингПродолжительность: 08:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719F08CF1F4F1E4D5BD0559E9717EBFEF98627D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811617   (8398) от 11.08.2025
-
-Бернар Вербер | Кошки (Книга 3). Планета кошек (2022) [MP3, Люба Петрова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для того чтобы управлять миром людей, кошкам для начала придется его спасти.
-Парусник «Последняя надежда» наконец-то доставляет Бастет, Пифагора и других членов разномастного экипажа в Нью-Йорк. Вопреки их ожиданиям, каждый квадратный метр мегаполиса кишит крысами, и последние выжившие люди вынуждены искать убежища в новой башне Всемирного торгового центра. Теперь (   Читать дальше...   )Жанр: Социальная фантастика, Психологическая фантастика, Философская фантастикаИздательство: ЭксмоПродолжительность: 11:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD20594B8CFFF6989FBF38AB62032A1D41FDEA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811694   (8397) от 11.08.2025
-
-Андрей Первухин | Целитель (Книга 6). Возрождение империи (2024) [MP3, Константин Парфенов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой смог создать государство, с которым приходилось считаться всем, только вот на этом он не успокоился, начал становиться всё сильнее и сильнее. К сожалению, его растущая с каждым годом мощь нравилась далеко не всем.Жанр: Фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 07:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02C0732A3779E3288587620374A879C395F641C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811782   (8396) от 11.08.2025
-
-Сергей Карелин, Родион Дубина | Демоны нашего времени (Книга 3) (2025) [MP3, Вадим Кривошеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, профессия преподавателя – благородное дело. А учить студентов убивать демонов в наше время вообще бесценно. Как бы не так… Из-за одного богатенького выскочки я лишился не только работы, но и жизни. Неожиданно меня спасла одна из тварей, на которых я охочусь и у меня появился шанс отомстить…Жанр: Фэнтези, боевикИздательство: ИДДКПродолжительность: 08:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049A5D7B4A6376A471030385128F299FF5401202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811670   (8395) от 11.08.2025
-
-Дмитрий Иванов | Империя Хоста (Книга 2). Граф (2025) [MP3, Максим Полтавский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший матерый заключенный с Земли осваивается в новом теле провинциального барона. Он умеет брать от жизни, что нужно, и не стесняется жить в свое удовольствие. А тут еще возможность стать графом! Конечно, надо повоевать за титул и земли. Что же – тем хуже для недругов.Жанр: Фантастика, боевик, попаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 09:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A01A4B0406BB37C820DC67F04DE6D70FACFF89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811748   (8394) от 11.08.2025
-
-Инди Видум | Под знаком Песца (Книга 2). Дорогами алхимии (2025) [MP3, Никита Петров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство Родов пытается выглядеть богаче, чем они есть. Песцовы же, напротив, вынуждены скрывать появившиеся возможности. Но это не значит, что они откажутся от новых приобретений.Жанр: Фэнтези, приключения, попаданцыИздательство: ИДДКПродолжительность: 09:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133206BDA03A8BD18EA71BC5825253FCD4BE1C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811669   (8393) от 11.08.2025
-
-VA - Funky House Summer 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Paul Mover - Funky Bassline (Original Mix) (2:42)
-02.  Sunlife Boulevard - Crossing The Line (Funky House Mix) (3:13)
-03.  Boogie Signs - Flashback (Original Mix) (2:56)
-04.  Franklyn Weeks - Take Me Higher (Original Mix) (2:44)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B18E11455B160A13E5F1E72BC6D29C8D8AF4BC
+magnet:?xt=urn:btih:5F539878521A75BF871900067870369AFFC9ACD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

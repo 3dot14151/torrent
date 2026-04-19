@@ -1,3 +1,34 @@
+###  Публикация: 496528   (252821) от 14.05.2012
+
+[Wallpapers] Ford
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252821.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Ford
+Название: Ford
+Официальный сайт: www.netcarshow.com
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200
+Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00  (до первых скачавших, перебои со связью бывают,зависит от провайдера)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E1C707B0C800E5EE0E05356AFEE3291D76A1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496109   (252395) от 13.05.2012
 
 [Wallpapers] Hi-Tech Wallpapers (13.05.2012)
@@ -689,32 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:365E77BB3C8A3DFD04D24CCF79A628CC01B166E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268672   (226397) от 11.12.2018
-
-Обои - Desktop Wallpapers Full HD. Part (348) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC5176D08CFC445F0C1FC09A9F8ACABC59CA4F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

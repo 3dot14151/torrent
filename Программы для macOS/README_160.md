@@ -1,3 +1,55 @@
+###  Публикация: 1600685   (155574) от 28.12.2022
+
+FonePaw iPhone Data Recovery 7.6.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155574.jpg" />
+</div>
+
+
+###  Подробнее
+
+FonePaw iPhone Data Recovery – это новое приложение для Mac, позволяющее получить доступ к резервным копиям мобильных устройств Apple. Утилита поддерживает все гаджеты под управлением iOS, включая новейшие iPhone и iPad Air.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2022Разработчик: © 2022 FonePaw Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFCA9A7E28E98ABCD3BD0B073BD0985E571EC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346873   (155383) от 21.12.2019
+
+PDF to PowerPoint Converter 6.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создать PDF из документа PowerPoint действительно легко. Но это довольно хлопотно, если вы хотите конвертировать PDF-файл обратно в презентацию PowerPoint. Облегчение PDF в PowerPoint Converter для Mac эффективно избавляет нас от этой назойливой проблемы.Изменение PDF в PPT при сохранении оригинального форматирования является одной из ключевых функций PDF в PowerPoint (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C0BFEAB366823A8CE8CC951F89C037937B40E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518304   (155369) от 19.12.2021
 
 Affinity Designer Beta 1.10.5.1 [Multi/Ru]
@@ -632,59 +684,6 @@ FileUnhider 3.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7311A1F533363BFDF98D9348C51DF86E8A80D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434148   (153623) от 23.12.2020
-
-Markdown+ 2.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактирование, стиль, предварительный просмотр и экспорт, все это с помощью Markdown+ на Mac.
-Стильно, красиво и просто.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: ENSILI.CO.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A72DA426F1C70A727F79958BF1AC9272C2C5675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434171   (153538) от 23.12.2020
-
-Yuki – Ad Blocker+ for YouTube 1.8 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yuki – Ad Blocker+ for YouTube - приложение для блокировки  рекламы на канале  «YouTube».Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: My PheakdeyПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B046FA119E2B6919E8C40363FBE9BCAA39651588
 ```
 
 https://mybot314.ru/tekegram_catalog/

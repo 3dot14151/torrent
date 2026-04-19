@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1861986   (1063108) от 
+###  Публикация: 1861986   (1064428) от 28.03.2026
 
 Scarface: The World Is Yours (2006) [Ru] (1.0) Repack Other s
 
@@ -7,7 +7,7 @@ Scarface: The World Is Yours (2006) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064428.jpg" />
 </div>
 
 
@@ -25,15 +25,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862035   (1063078) от 
+###  Публикация: 1862035   (1064401) от 28.03.2026
 
-World War Z: Aftermath (2021) [Ru/Multi] (10.03.2026/dlc) Repack Let'sРlay [Deluxe Edition]
+World War Z: Aftermath (2021) [Ru/Multi] (2.47/dlc) Repack Let'sРlay [Deluxe Edition]
 
 >>Win Игры
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064401.jpg" />
 </div>
 
 
@@ -51,7 +51,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862199   (1062967) от 
+###  Публикация: 1862199   (1064300) от 29.03.2026
 
 Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (4792145/dlc) Repack dixen18
 
@@ -59,7 +59,7 @@ Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (4792145/dlc) Repack dixen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064300.jpg" />
 </div>
 
 
@@ -77,7 +77,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860931   (1062273) от 
+###  Публикация: 1863779   (1063236) от 06.04.2026
+
+Mindseye (2025) [Ru/Multi] (6508009/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир MindsEye! Действие этого однопользовательского сюжетного боевика происходит в ближайшем будущем в вымышленном городе Редрок, суматошном и жарком пустынном мегаполисе, где правят технологии. Роботы выполняют рутинные задачи, а всевидящие устройства делают Редрок «самым безопасным городом в мире». Это живой эксперимент по исследованию экзистенциального (   Читать дальше...   )Тип издания: RepackРазработчик: Build A Rocket BoyЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48ACE38B17B53C0FC54F5A9C132A4FE2D093F640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860931   (1062273) от 23.03.2026
 
 Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (Build 22315089) Repack FitGirl
 
@@ -103,7 +129,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860928   (1062272) от 
+###  Публикация: 1860928   (1062272) от 23.03.2026
 
 Gotham Knights (2022) [Ru/Multi] (Build 21284365/dlc) Repack HardwareMining [Deluxe Edition]
 
@@ -129,7 +155,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860833   (1062095) от 
+###  Публикация: 1860833   (1062095) от 22.03.2026
 
 Alan Wake Remastered (2021) [Ru/En] (1.33/dlc) Repack dixen18
 
@@ -155,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860387   (1061851) от 
+###  Публикация: 1860387   (1061851) от 20.03.2026
 
 Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack seleZen [Master Assassin Edition]
 
@@ -181,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859351   (1061052) от 
+###  Публикация: 1859351   (1061052) от 15.03.2026
 
 Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack HardwareMining [Master Assassin Edition]
 
@@ -259,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859223   (1060793) от 
+###  Публикация: 1859223   (1060793) от 15.03.2026
 
 Tomb Raider: Legend (2006) [Multi] (1.2) License GOG
 
@@ -642,32 +668,6 @@ Yakuza Kiwami (2019) [Ru/Multi] (2.13) Scene Rune
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FC1DBD0C1948CEBDD7774A2ED8D6FA04C341B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857146   (1059332) от 04.03.2026
-
-Catwoman (2004) [En] (1.0) License
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем известно, что каждая кошка от рождения наделена девятью жизнями. Это утверждение вы сможете на деле проверить в игре от Electronic Arts, созданной по мотивам одноименного фильма. Став игровым персонажем, неподражаемая Хелли Берри ничуть не теряет своей привлекательности, и действие от этого становится еще более захватывающим - ведь теперь вы принимаете в нем (   Читать дальше...   )Тип издания: LicenseРазработчик: Electronic Arts UKЖанр: Экшены, АркадыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E23AD3DDC8228B5A5F39B1A7C7D532C4422AD70
 ```
 
 https://mybot314.ru/tekegram_catalog/

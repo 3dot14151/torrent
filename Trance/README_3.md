@@ -1,3 +1,61 @@
+###  Публикация: 1438662   (1040936) от 09.01.2021
+
+VA - Best Of FSOE Parallels (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monoverse - Everything You Are (Extended Mix)
+02. Kristian Nairn & Andretta - Arrow (Extended Mix)
+03. Collide The Sky - Muted Magnetism (Extended Mix)
+04. MR90 - Need You Now (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494066399465827E17D7EA4F3D017531FCE350BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438523   (1040935) от 09.01.2021
+
+VA - Henry Moe Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Restonia - Moonlit Sky (Intro Mix)
+02. Victor Special & Elev8 - Time (Double Motion Remix)
+03. Marco MC Neil - Unforgiven (Abide Remix)
+04. David Surok - White December (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AA5DBC67F42A61B9882D860DFA4963F9549369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438542   (1040932) от 09.01.2021
 
 VA - Danny Oh Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -687,63 +745,6 @@ VA - Aly & Fila - FSOE Top 20: January (2021) [MP3|320 Kbps] <Trance, UpliftingT
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:288D7889831C1142E9BB0A6276F777C2B26A76A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441605   (1037460) от 22.01.2021
-
-VA - Black Hole Trance Music 01-21 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JES & Oliver Smith - Don't Let It End (Extended Mix)
-02. Will Atkinson - Rush (Extended Mix)
-03. Alexander Popov & Planet Perfecto - Bullet In The GunЖанр: TranceПродолжительность: 02:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E924FB914284B782920417EEA6869A3760EAA757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616036   (1037007) от 28.02.2023
-
-VA - Global Trance Masters Vol. 8 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Choose & That Mucho - Release Me (Original Mix) [6:17]
-02. Angel Ace - The Sunset (Radio-Edit) [3:37]
-03. Carlo Mathaye - Digitalize (Hiroki Nagamine Remix) [7:47]
-04. Lyes & Slimane - Find Your Way (Original Mix) [7:03](   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1004CABD022896F3CE1BB87BBF9FF2B2F5635B38
 ```
 
 https://mybot314.ru/tekegram_catalog/

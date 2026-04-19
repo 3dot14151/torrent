@@ -1,3 +1,61 @@
+###  Публикация: 1271298   (149989) от 23.12.2018
+
+VA - Christmas - The Ultimate Collection (2018) [MP3|320 Kbps] <Ballad, Country, Smooth Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149989.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Shakin' Stevens - Merry Christmas Everyone - 00:03:40
+02.Jona Lewie - Stop The Cavalry - 00:02:55
+03.Chris De Burgh - A Spaceman Came Travelling - 00:04:03(   Читать дальше...   )Жанр: Ballad, Country, Smooth JazzПродолжительность: 05:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E8927AE4141E3D132373A39440C17F3850C17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677969   (149402) от 19.11.2023
+
+VA - Hit News Vol. 10 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scatgirl - I'm A Scatgirl
+02.  Obsession - Only Wanna Be With You
+03.  Michael J.Gibbs - Save My Soul
+04.  Waldo - Forever(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1E2307261FE56DB0F3BC20655D17FBB08F113E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969258   (148885) от 26.12.2015
 
 Ace Of Base - Cruel Summer (1998) Remastered, 2015, Mega Records [MP3|320 кб/с] <Pop, Eurodance>
@@ -681,64 +739,6 @@ Alizee - Remixes (2018) [MP3|320 Kbps] <Deep House, Pop, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD1013ACBABADFF320FF3C5650621AA86D6CDB4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194924   (144260) от 28.12.2017
-
-Wincent Weiss - Irgendwas gegen die Stille (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musik sein [3:14]
-02. Feuerwerk [3:29]
-03. Ein Jahr [3:32]
-04. Frische Luft [3:18](   Читать дальше...   )Жанр: PopПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97A0BBF96DB66669723F6AA7F2C450502E4E5CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194928   (144045) от 28.12.2017
-
-Dalida - 50 De Succese Disco (1978) LP [MP3|320 Kbps] <Pop, Funk-Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярные в СССР исполнительница и её пластинка.01. Monday Tuesday - Laissez Moi Danser (3:50)
-02. J'Attendrai (4:14)
-03. Besame Mucho (2:53)
-04. Generation 78 (6:50)(   Читать дальше...   )Жанр: Pop, Funk-Soul, DiscoПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CC4DFDC3DD605F2D746C1BD4AF564601D5FA85
 ```
 
 https://mybot314.ru/tekegram_catalog/

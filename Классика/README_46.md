@@ -1,3 +1,32 @@
+###  Публикация: 1652708   (206514) от 12.08.2023
+
+The WHOOP Group - Crimes II (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture from The Marriage of Figaro K. 492
+02. Miniature Overture from The Nutcracker Suite op. 71
+03. Dance of the Sugar Plum Fairy from The Nutcracker Suite op. 71
+04. March from The Nutcracker Suite op. 71(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546D3EBC03E333A91A8612611BA95EF8FD188B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652602   (206152) от 16.08.2023
 
 VA - Piano Black & White (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -717,35 +746,6 @@ Bela Bartok - Bartok Complete Edition (2000) 29CD [APE|Lossless|image + .cue]<Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F57BBD9F5AD8CB18F46162A583B16778750A4626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 34841   (160490) от 07.11.2023
-
-Johannes Brahms Complete Edition (1996) 46CD Box Set [APE|Lossless|image + .cue]<Classical>
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Works on This Recording
-1.
-German Requiem, Op. 45 by Johannes Brahms
-Performer:  Andreas Schmidt (Baritone), Barbara Bonney (Soprano)(   Читать дальше...   )Жанр: Classical
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F84618034D694EFA1C43CF917F1762B3DD5840F
 ```
 
 https://mybot314.ru/tekegram_catalog/

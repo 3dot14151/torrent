@@ -1,22 +1,25 @@
-###  Публикация: 1707326   (62834) от 16.03.2024
+###  Публикация: 1802702   (65978) от 19.06.2025
 
-Welcome to ParadiZe (2024) [Ru/Multi] (Build Feb 26 2024/dlc) Repack FitGirl
+Waltari - Nations' Neurosis (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 
->>Win Игры
->>RPG
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Welcome to ParadiZe - это увлекательная изометрическая песочница с уклоном на выживание. Приготовьтесь взламывать, резать и выживать в постапокалиптическом мире, захваченном зомби. Вы готовы к испытаниям? Испытайте свои силы в одиночку или объединитесь с друзьями, чтобы пройти по коварной местности и раскрыть тайны этого открытого мира, кишащего нежитью. Собирайте (   Читать дальше...   )Тип издания: RepackРазработчик: Eko SoftwareЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+01. Nature Rules [00:04:29]
+02. Open the Gate [00:03:25]
+03. Do You Accept? [00:03:26]
+04. Breakfast in Eiffel Tower [00:04:12](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CB8888438A7DD9859FF0FA721CE19D3ECBF4ECA
+magnet:?xt=urn:btih:8CAFA4B2C2DDEEA220EE11BC0D703D62FBDDFD7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707337   (62833) от 16.03.2024
+###  Публикация: 1802846   (65977) от 19.06.2025
 
-Дева и дракон / Damsel (2024) WEB-DLRip [H.265] [MVO]
+Tardigrade Inferno - Made in Hell (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Принцессу Элоди из страдающей от неурожаев страны выдают за принца процветающего королевства. Девушка рада спасти свой народ от голода, и жених ей кажется вполне симпатичным, но она даже не подозревает, что ей уготовано место не в спальне принца в качестве законной супруги, а в пасти дракона в качестве ритуальной жертвы.Производство: США / PCMA Management and Productions, Roth/Kirschenbaum FilmsЖанр: фэнтези, боевикРежиссер: Хуан Карлос ФреснадильоАктеры: Милли Бобби Браун, Шохре Агдашлу, Рэй Уинстон, Анджела Бассетт, Брук Картер, Ник Робинсон, Робин Райт, Мило Твоми, Николь Джозеф, Патрис НайамбанаПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (full, SDH)Продолжительность: 01:49:33
+01. Einzug Der Gladiatoren (Live) [00:02:29]
+02. All Tardigrades Go to Hell (Live) [00:02:53]
+03. Hypnosis (Live) [00:05:34]
+04. Ringmaster Has to Die (Live) [00:04:40](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:28:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E87DF995D018FFBF7349DF6939C371032C012666
+magnet:?xt=urn:btih:1481E46F931D336D60065FDD0549364339377520
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707491   (62832) от 16.03.2024
+###  Публикация: 1802843   (65976) от 19.06.2025
 
-Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1027.0/dlc) Repack Decepticon [20 Year Celebration]
+War Of Ages - Eternal (2010) 15th Anniversary Rerecorded Version, 2025, Facedown Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore, Heavy Metal, Metalcore>
 
->>Win Игры
->>Action (TPS)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наша задача в Rise of the Tomb Raider - опередить врагов, отправиться в свою первую экспедицию и смотреть интерактивные ролики, которых в игре не меньше 1,5 часа геймплея. Лара Крофт отправляется в неизведанный мир города Китеж. Туда же направляется секретная организация под названием «Троица». Принцип игры про Лару - это адвенчура с примесью приключенческой романтики (   Читать дальше...   )Тип издания: RepackРазработчик: Crystal DynamicsЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+01. Collapse (Rerecorded) [00:04:05]
+02. Desire (Rerecorded) [00:02:55]
+03. Failure (Rerecorded) [00:04:31]
+04. My Resting Place (Rerecorded) [00:03:03](   Читать дальше...   )Жанр: Hardcore, Heavy Metal, MetalcoreПродолжительность: 00:39:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3344BAD665AF8D43A366A01886088377CA4906A
+magnet:?xt=urn:btih:B046F3CB540A5DB48963625125A77FF403DC8004
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707299   (62831) от 16.03.2024
+###  Публикация: 1802708   (65975) от 19.06.2025
 
-Мадам Паутина / Madame Web (2024) WEBRip [H.264/1080p] [VO]
+Samsara Blues Experiment - 3 Albums (2011-2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner Metal>
 
->>След.
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Медсестра из Манхэттена Кассандра Уэбб открывает в себе способность видеть будущее и понимает, что может использовать эту силу, чтобы его изменить. Столкнувшись с тайнами своего прошлого, Кассандра знакомится с тремя девушками, которым суждено однажды стать великими, если они вместе смогут пережить смертельно опасное настоящее.Производство: США, Канада, Мексика / Columbia Pictures Corporation, Marvel Entertainment, Sony Pictures Entertainment (SPE)Жанр: Фантастика, боевик, приключенияРежиссер: С.Дж. КларксонАктеры: Дакота Джонсон, Сидни Суини, Изабела Мерсед, Селеста О'Коннор, Тахар Рахим, Майк Эппс, Эмма Робертс, Адам Скотт, Керри Бише, Заша МэметПеревод: Любительский одноголосый (feofanio)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:57:49
+01. Second Birth [00:10:58]
+02. Massive Passive [00:06:00]
+03. Southern Sunset [00:06:46]
+04. End of Forever [00:07:55](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner MetalПродолжительность: 3 CD, 02:22:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12077EA1D716987AEC3556A936E60D4F0D16996E
+magnet:?xt=urn:btih:27A4E3FA8F8CBAE8D2FCCEB46F5D1E80A19A4518
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690316   (62830) от 16.03.2024
+###  Публикация: 1802796   (65974) от 19.06.2025
 
-AI ChatBot AI Friend Generator v3.0.5.6 Mod by Mixroot [Ru/Multi]
+Around The World in 80 Days - Euphoria (2014) [MP3|320 Kbps] <Post-Rock, Ambient, Space-Rock>
 
->>След.
->>ПО для Android
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Добро пожаловать в AI Chat Bot, работающего на основе ChatGPT & GPT-3 & GPT-4 Turbo - конечного языкового AI-помощника, который может помочь вам практически в любой области вашей жизни. Будь вы студентом, профессионалом или просто человеком, который хочет пообщаться, просто обратитесь к AI Chat! AI Chat, подкрепленный технологиями ChatGPT и GPT, здесь, чтобы (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 13.03.2024Разработчик: VIDEOSHOW Video Editor & Maker & AI Chat GeneratorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+01 - Last War [5:40]
+02 - Shock [3:15]
+03 - Gravity [5:40]
+04 - Racing The Light [3:35](   Читать дальше...   )Жанр: Post-Rock, Ambient, Space-RockПродолжительность: 00:37:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FD3F31D69BE1175747265E10FB40DE627ACA31A
+magnet:?xt=urn:btih:55F5C99149C1B78C0CD449FD2E21C45D596823B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 522174   (62829) от 16.03.2024
+###  Публикация: 1802865   (65973) от 19.06.2025
 
-Фарго / Fargo (1995) BDRip [H.264/720p] [MVO]
+Rivers Of Nihil - Rivers Of Nihil (2025) [FLAC|Lossless|image + .cue] <Technical Death Metal, Progressive Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если все дозволено, если нет границ насилию, похищение собственной жены — отличная идея. Тогда жестокость вырывается на волю и заливает весь мир кровью. Тогда цепь кровавых убийств растет и нет возврата к нормальной жизни, а единственное, что связывает людей — смерть. Вызов убийцам бросает отважная женщина полицейский и страшной будет расплата…Производство: США, ВеликобританияЖанр: Триллер, Драма, КриминалРежиссер: Джоэл Коэн, Итэн КоэнАктеры: Фрэнсис МакДорманд, Уильям Х. Мэйси, Стив Бушеми, Петер Стормаре, Кристин Рудруд, Харви Преснелл, Тони Денмен, Гэри Хьюстон, Салли Вингерт, Курт ШвейкхардПеревод: Многоголосый закадровыйСубтитры: Русские, АнглийскиеПродолжительность: 01:38:11
+01. The Sub-Orbital Blues (04:18)
+02. Dustman (04:33)
+03. Criminals (04:32)
+04. Despair Church (06:30)(   Читать дальше...   )Жанр: Technical Death Metal, Progressive MetalПродолжительность: 00:50:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19F6FDA6BAA4933131A24115CA0EF85C7A912D26
+magnet:?xt=urn:btih:62D86C248326DD6A803EF83EC1382090CBF24D4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476504   (62828) от 16.03.2024
+###  Публикация: 1802759   (65972) от 19.06.2025
 
-Красавцы / Антураж / Entourage (2004) WEB-DLRip (Сезон 1, серии 1-8 из 8) [MTV]
+Eluveitie - Anv (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Folk Metal>
 
->>Зарубежные сериалы
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Винсент Чейз родился и вырос в нью-йоркском районе Квинс. Став актером, он даже не мог представить, что бешеный успех обрушится на его голову после премьеры первого же фильма! Получив многомиллионный гонорар, Винс вместе с друзьями детства Эриком, Черепахой и Драмой быстренько пакует чемоданы и отправляется в Голливуд. Роскошный особняк в самом престижном районе (   Читать дальше...   )Жанр: Комедия, ДрамаРежиссер: Джулиан Фарино, Марк Майлод, Дэниэл ЭттиэсАктеры: Кевин Коннолли, Адриан Гренье, Кевин Диллон, Джерри Феррара, Джереми Пивен, Рекс Ли, Перри Ривз, Деби Мазар, Риз Койро, Эммануэль ШрикиПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: MTVПродолжительность: 8 x ~00:25:00
+01. Emerge 01:10
+02. Taranoías 03:25
+03. The Prodigal Ones 03:44
+04. Ànv 02:32(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:41:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F93C6ABF54A55C9FC74757948E3328B14A72C6C
+magnet:?xt=urn:btih:7758789FD0D3D3F9654EFC90C9EFAB2AF3D7EF45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 166298   (62827) от 16.03.2024
+###  Публикация: 1802777   (65971) от 19.06.2025
 
-Фарго / Fargo (1995) BDRip
+Eliane Elias - Dance Of Time (2017) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для робкого менеджера по продажам, работающего у собственного тестя, похищение собственной жены — отличная идея. Он нанимает двух преступников, чтобы по результатам разделить с ними крупный выкуп за заложницу. Но дело сразу идет не так, как замышлялось, проливается кровь... Вызов преступникам бросает отважная женщина-полицейский...Производство: США, Великобритания / PolyGram Filmed Entertainment, Working Title FilmsЖанр: триллер, драма, комедия, криминалРежиссер: Джоэл Коэн, Итан КоэнАктеры: Фрэнсис Макдорманд, Уильям Х. Мэйси, Стив Бушеми, Петер Стормаре, Харви Преснелл, Ларри Бранденбург, Джон Кэрролл Линч, Кристин Рудруд, Тони Денмен, Гэри ХьюстонПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:11
+01. O Pato [4:19]
+02. You're Getting to Be a Habit with Me [3:52]
+03. Copacabana [5:22]
+04. Coisa Feita [5:02](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:56:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F20C945B606B6EE04A58B70536F92ECC8733BF86
+magnet:?xt=urn:btih:23F7BF5AB6F0104AD914DECB6006C0E7264EBDAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,27 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399394   (62826) от 16.03.2024
+###  Публикация: 1802861   (65970) от 19.06.2025
 
-К 175-летию Русского географического общества (2019-2024) DVB, WEB-DL [H.264/1080p-LQ] (серии 1-93 из ?) (Обновляемая)
+Allegaeon - The Ossuary Lens (2025) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Technical Death Metal>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cерия документальных фильмов снятых при поддержке Русского географического общества. Удивительная природа, сложнейшие экспедиции и выдающиеся научные открытия. На Первом канале — марафон документальных фильмов, посвященных 175-летию Русского географического общества, которое будет отмечаться в августе. Съемочные группы отправились по местам, от красоты которых захватывает (   Читать дальше...   )Телекомпания: Россия / Единая медиа группа, ДокуМенталистЖанр: Документальный, История, ПриродаРежиссер: Михаил Родин, Олег КурамшинСубтитры: русские, телетекст (888) (Кроме "Ген высоты, или Как пройти на Эверест" и "Золото Тангутов. Тайна затерянного города", 02-03_Ген высоты_или Как пройти на Эверест, Байкал. Люди воды, Остров Матуа. О чем молчали 70 лет, Человек с Луны. Миклухо-Маклай, Ехал Грека)
-
-Золото Тангутов. Тайна затерянного города, 02-03_Ген высоты_или Как пройти на Эверест, (   Читать дальше...   )Продолжительность: ~00:50:00 серия
+01. Refraction (00:58)
+02. Chaos Theory (04:32)
+03. Driftwood (04:28)
+04. Dies Irae (03:47)(   Читать дальше...   )Жанр: Melodic Death Metal, Technical Death MetalПродолжительность: 00:44:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8B40ABAE0D6A48135221A1226B015A85E3AB79C
+magnet:?xt=urn:btih:A504608C847E758F7B00E2F749E7E957162F55B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,25 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706819   (62825) от 16.03.2024
+###  Публикация: 1802838   (65969) от 19.06.2025
 
-Прячемся на виду: проект TOR представил WebTunnel мосты
+VA - Sunny Day Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>3
->>4
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65969.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прячемся на виду: проект TOR представил WebTunnel12 марта, во Всемирный день борьбы с киберцензурой, группа проекта Tor официально объявила о выпуске WebTunnel, нового типа моста, предназначенного для помощи пользователям при подключении к сети Tor в регионах с жесткой цензурой. Разрабатываемый и поддерживаемый The Tor Project, WebTunnel присоединился к коллекции (   Читать дальше...   )
+01.  Peter De Girolamo - Sunny (3:48)
+02.  Lo Greco Bros Quartet - Naima (4:40)
+03.  Domenico Sanna - Fly Me to the Moon (4:18)
+04.  P. A. Jeron - Hiems (4:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:31:25
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:BE19089B5D67E76A8BC6FF25F0FE212156B1ED8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -260,25 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 257771   (62824) от 16.03.2024
+###  Публикация: 1802953   (65968) от 20.06.2025
 
-Отбросы / Плохие / Долбанутые / Misfits (2010) HDTVRip (Сезон 2, серии 1-7 из 7) Кубик в кубе
+DannyLux - Leyenda (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin America Pop>
 
->>3
->>След.
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представьте себе: если взять культовый английский сериал skins и смешать его с культовым американским сериалом heroes, хорошенько взболтать, добавить перчинку нецензурности, щедро сыпануть отменного английского черного юмора и перемешать, то получится сериал misfits, продукт отменного качества.Производство: Великобритания, Clerkenwell FilmsЖанр: фантастика, драма, мелодрама, комедияРежиссер: Том Грин, Джонатан ван Тюллекен, Том ХарперАктеры: Нэйтан Стюарт-Джарретт, Иван Реон, Лорен Соча, Антония Томас, Джозеф Гилган, Роберт Шиэн, Мэттью МакНалти, Крэйг Паркинсон, Карла Кроум, Нэйтан МакМалленПеревод: Профессиональный двухголосый - Кубик в кубеЯзык озвучки: русский, английскийСубтитры: русские, английские (внешние), на песнюПродолжительность: ~00:45:00 серия
+01. TRISTEZA DE LUX [00:02:48]
+02. DIME BB [00:02:40]
+03. MELANCOLÍA [00:03:49]
+04. SIRENA [00:04:13](   Читать дальше...   )Жанр: Latin America PopПродолжительность: 01:03:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44D6CEA9A181B6E465552D15D9EC1F4B53915ACE
+magnet:?xt=urn:btih:768F353FE2C43C033F264877F686060810A46EFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,25 +317,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707217   (62823) от 16.03.2024
+###  Публикация: 1802909   (65967) от 20.06.2025
 
-Ветчина, ветчина / Любовь, секс и ветчина / Jamon Jamon (1992) BDRip [H.264/1080p] [Handmade correction AI]
+Letters From The Colony - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Metal, Progressive Metal, Metalcore>
 
->>Остальное
->>hand made * video
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мать молодого человека Хосе не хочет его свадьбы с Сильвией - дочерью местной проститутки. Правда мама еще не знает, что Сильвия беременна от ее сына. А когда узнает об этом, то нанимает молодого красавца Рауля, который работает на колбасном складе и мечтает быть тореадором. По ее замыслу Сильвия должна влюбиться в него, а соперник - ее сын будет лишним. Но события (   Читать дальше...   )Производство: Испания, Lolafilms, Ovideo TV S.A., SogepaqЖанр: драма, мелодрама, комедия, эротикаРежиссер: Бигас ЛунаАктеры: Стефания Сандрелли, Анна Гальена, Хуан Диего, Пенелопа Крус, Хавьер Бардем, Хорди Молья, Томас Мартин, Армандо дель Рио, Диана Сассен, Чема МазоПеревод: Двуголосый профессиональный, одноголосый студийныйЯзык озвучки: русский, испанскийСубтитры: русские, английскиеПродолжительность: 01:35:06
+Letters From The Colony - метал-группа из Бурленге, Швеция. Основана в 2010 году.2011 - Letters From The Colony
+2014 - Galax (EP)
+2018 - VignetteЖанр: Post-Metal, Progressive Metal, MetalcoreПродолжительность: 01:46:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E4AB06BAB1CC89510D31B5E621B8E80C2C2CB65
+magnet:?xt=urn:btih:336F322A182CBC9AE5FEA5FF47B910EAB0FFB082
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,26 +345,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 321570   (62822) от 16.03.2024
+###  Публикация: 1802924   (65966) от 20.06.2025
 
-Дмитрий Мамин-Сибиряк | Повести и рассказы (1988) [MP3, Вячеслав Герасимов]
+Eliane Elias - So Far So Close (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Latin Jazz>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дмитрий Наркисович Мамин-Сибиряк (1852–1912) – подлинно народный русский писатель.
-В книгу вошли повести и рассказы Д. Н. Мамина-Сибиряка. В них писатель, знакомя с бытом и нравами горнозаводского Урала второй половины XIX века, воссоздавая события исторического прошлого, рисует жизнь полной социальной несправедливости и жестокой эксплуатации, показывает разнообразие (   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: Нигде не купишьПродолжительность: 09:51:51
+01. At First Sight [4:53]
+02. Bluestone [5:33]
+03. Barefoot [4:40]
+04. Nightimer [6:10](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:41:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:830FCA5B4BAF9D2FE3BF8DC3BEB0EAFA26568BD5
+magnet:?xt=urn:btih:3C81368F6742641EACC855C992868EBC0C2C38B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,28 +374,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707367   (62821) от 16.03.2024
+###  Публикация: 1802782   (65965) от 20.06.2025
 
-Melon VPN - Secure Proxy VPN 8.0.002 Mod By FreeApkexe [En]
+SanMinor - Дивный Новый Мир (2024) [MP3|320 Kbps] <Rap, Hip-Hop, Psychedelic>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65965.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Melon VPN - это быстрый, неограниченный, стабильный и полезный VPN (виртуальная частная сеть).
-Обходите ограничения местоположения на сверхбыстрых скоростях.
-Обходите географические ограничения и интернет-фильтры, пока вы на работе или в школе.
-Наслаждайтесь несколькими прокси-серверами и несколькими режимами VPN, чтобы обойти заблокированные веб-сайты и приложения, (   Читать дальше...   )Тип издания: ModРазработчик: Inf Security StudioПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+01.Быть человеком
+02.Мир
+03.Любовь обесценили
+04.Дивный новый мирЖанр: Rap, Hip-Hop, PsychedelicПродолжительность: 00:10:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9066AB74A79EBB83743C39B7BBAB8CC144198443
+magnet:?xt=urn:btih:1A4ADE4F68FADFCF5EC0C5B267217514267A1CE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,25 +403,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707536   (62820) от 16.03.2024
+###  Публикация: 1803019   (65964) от 20.06.2025
 
-Московский институт психоанализа, Людмила Сенкевич | Клиническая психология (2023) WEB-DL [AD] [RU] [Части 10 из 10]
+Bambii - Infinity Club II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic>
 
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65964.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Просто потрясающий курс, с каждым годом набирающий популярность - в последнем потоке было 930 студентов. Великолепный преподавательский состав, среди которых есть звезды и практикующие специалисты с мировой известностью. Очень-очень много практических занятий, на которых демонстрируется работа с реальными пациентами и клиентами, разбор клинических случаев. Это ценнейшая (   Читать дальше...   )Производство: Московский институт психоанализаЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 87:23:31Реклама: Присутствуют сторонние вставки и наложения
+01. INFINITY CLUB II [00:00:24]
+02. Remember (feat. Ravyn Lenae & Scrufizzer) [00:02:45]
+03. Blue Sky (feat. LYZZA & SadBoi) [00:02:22]
+04. Mirror (feat. Jessy Lanza & Yaeji) [00:02:48](   Читать дальше...   )Жанр: Drum & Bass, ElectronicПродолжительность: 00:24:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C7447A811F7EB4433A4387F42E77CA1B99BF7E3
+magnet:?xt=urn:btih:A5F54DDB58781953FD2116C1F50F07C8119B1F4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,27 +432,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707176   (62819) от 16.03.2024
+###  Публикация: 1802905   (65963) от 20.06.2025
 
-Kodachi Linux 8.27 [x64] 2xDVD
+Count Basie - The Standards (1989) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Jazz, Blues>
 
->>Linux, Unix и другие ОС
->>ОС Linux
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Linux Kodachi - дистрибутив операционной системы Linux, который разработан с акцентом на приватность, анонимность и безопасность пользователей. Он основан на более популярном дистрибутиве Xubuntu и предлагает ряд уникальных функций и инструментов для обеспечения конфиденциальности и защиты данных.
-
-Главной особенностью работы Linux Kodachi является принудительное (   Читать дальше...   )
+01. Chicago    [0:02:50.00]
+02. The Lady Is a Tramp    [0:02:56.00]
+03. Day In Day Out    [0:02:39.00]
+04. I Didn't Know What Time It Was    [0:02:14.00](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:52:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:439B1A185D120E786197A816B477A4E5D2D06FD7
+magnet:?xt=urn:btih:D064E95EDE322F3393512637E0DBA131EB675273
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,25 +461,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558162   (62818) от 16.03.2024
+###  Публикация: 1802830   (65962) от 20.06.2025
 
-Александр Ширвиндт | Сборник произведений [8 книг] (1999-2020) [FB2]
+Gotham - Pictures (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Разное (категория книг)
->>Публицистика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Александр Анатольевич Ширвиндт – русский актер, автор сценариев и книг, режиссер и телеведущий. Родился в московской семье 19 июля 1934 года. Отец – профессиональный скрипач и преподаватель музыки, мать – редактор в столичной филармонии. Творческая профессия была написана на роду. В год окончания Щукинского училища получил первую роль в кино. Сыграл певца в кинофильме (   Читать дальше...   )Жанр: История, МемуарыИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
+01. Prelude [00:02:04]
+02. Dirty Love [00:03:31]
+03. Let It Go (Extended Mix) [00:04:46]
+04. Pictures [00:04:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:268D729A92FC2931DC2EF4F76EDDC337B6F1FB41
+magnet:?xt=urn:btih:69AB3D41484B8EBBE0D8A5569A564E2C5A844B80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,25 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707386   (62817) от 16.03.2024
+###  Публикация: 1802980   (65961) от 20.06.2025
 
-Gumroad, Thiago Klafke | Environment Art Mastery (2023) WEB-DL [EN]
+Miles Davis - Kind of Blue (1997) CD, Album, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Modal>
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Основы курса "Мастерство работы с окружением" позволят вам приобрести необходимые навыки 3D-дизайна, независимо от того, на каком этапе вы находитесь. Под мои руководством, ветерана 3D-художника окружения Тьяго Клафке, я покажу вам, как воплотить ваши идеи в жизнь. С помощью моих простых в исполнении техник создания красивых 3D-окружений вы сможете создать (   Читать дальше...   )Производство: GumroadЖанр: 3D Графика для игрЯзык озвучки: АнглийскийПродолжительность: 36:10:42
+01. So What    [0:09:25.32]
+02. Freddie Freeloader    [0:09:49.05]
+03. Blue in Green    [0:05:37.43]
+04. All Blues    [0:11:35.57](   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:499954237BCF9B1700B91F1C3244E13916B275C2
+magnet:?xt=urn:btih:FAC7B638F85B5A13EE1523A846803DADA7C31A28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,25 +519,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419338   (62816) от 16.03.2024
+###  Публикация: 1802871   (65960) от 20.06.2025
 
-BBC: Доминик Монаган и дикие существа / Wild Things with Dominic Monaghan (2012) SATRip (Сезон 1, серии 1-8 из 8)
+Фоны - kaleriia - Envato - Blond Hair Backgrounds - M9GVLMT [JPG]
 
->>Зарубежные TV-бренды
->>BBC
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перед ними трепещут самые мужественные сердца. Они неустрашимы и безжалостны. Против них бессильно оружие. Их боятся люди и звери, и только отважный Доминик Монаган решился бросить им вызов и встретиться с ними лицом к лицу. В программе «Доминик Монаган и самые дикие существа» популярный киноактер отправляется в путешествие, чтобы рассказать о самых крупных, опасных (   Читать дальше...   )Производство: Великобритания, Канада, BBC America, A Cream and Wildfire TV ProductionsЖанр: Документальный, природа, флора, фаунаРежиссер: Брэд Бру, Пол КилбэкУчастники: Доминик МонаганПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 8 х ~ 00:46:00
+15 фонов со светлыми волосами.Формат: JPGРазрешение файлов: 5000 x 3333
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81EF442ED815B3366B8F82B323FEF98DDA9243D4
+magnet:?xt=urn:btih:19582F5835AD5726B2EB76A97F9E622FE42B06F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,27 +545,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707309   (62815) от 16.03.2024
+###  Публикация: 1802931   (65959) от 20.06.2025
 
-Журнал | BOUDOIR Inspiration (BOUDOIR Issue) (март 2024) [PDF][EN]
+Aesthetic Perfection - Closer to Human (2025) Limited Edition [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Human
+02 – Belong
+03 – Beautiful
+04 – Surface(   Читать дальше...   )Жанр: Dark-Electro, EBM, FuturepopПродолжительность: 01:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117C539968455639542B4D9B8D7E7AC2E86803AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802949   (65958) от 20.06.2025
+
+Soft Cell - Non-Stop Ecstatic Dancing (1981) Deluxe Edition, 2025, UMC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Electronic, Powerpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memorabilia (The Hacker 808 Remix) [00:06:39]
+02. A Man Could Get Lost (Jon Pleased Wimmin Remix) [00:05:48]
+03. Torch (MHC 2001 Remix) [00:08:42]
+04. Insecure Me (Hifi Sean Remix) [00:06:17](   Читать дальше...   )Жанр: Synthpop, Electronic, PowerpopПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AF2EADF2995779240C3824FE9E5D92979E3CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802922   (65957) от 20.06.2025
+
+Haim - I quit (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Gone
+02 – All over me
+03 – Relationships
+04 – Down to be wrong(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4E7AD9A58E34DA3D3847841EFFA6F8CC401115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802896   (65956) от 20.06.2025
+
+VA - Armin van Buuren - A State Of Trance 1230 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Fax – To The Ground (Matt Fax Doppelgänger Mix)
+02. ILLENIUM & HAYLA – In My Arms (KREAM Remix)
+03. Weekend Players – Into The Sun (Progressive Pick)
+04. Rivo & North – Stay Here (Leblanc Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B361D814E8B75C3763A2018032C9D881A612DA30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802952   (65955) от 20.06.2025
+
+Газета | Тайны СССР №3 (26) (февраль 2019) [PDF]
 
 >>Журналы
->>Мужские журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08DFDB0B5FDB2A30D49239107F981217FCDAA7BA
+magnet:?xt=urn:btih:877C8EEB1BF52FB184841B0F95648A021F53CD56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,27 +687,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643027   (62814) от 16.03.2024
+###  Публикация: 1802872   (65954) от 20.06.2025
 
-Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 из 11] BDRip 1080p HEVC 10-bit raw+rus
+Фоны - kaleriia - Envato - Red Hair Backgrounds - SHRLWZE [JPG]
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наверняка каждому хоть раз хотелось стать известным актёром или каким-нибудь певцом. Но что, если бы вы родились ребёнком знаменитости? Что, если бы нужные связи и внешние данные были у вас с самого начала? Акве Хошино повезло: он переродился одним из двойняшек шестнадцатилетней Аи — знаменитого айдола и лидера группы Би-Комачи.
-
-Однако, мир знаменитостей полон обмана: (   Читать дальше...   )Производство: Doga KoboЖанр: драма, повседневностьРежиссер: Хирамаки ДайсукэЯзык озвучки: Японский, русский (AniLibria, AniDub Online)Субтитры: Русские (AniLibria)Продолжительность: 11 эп. по 25 мин.
+15 фонов с рыжими волосами.Формат: JPGРазрешение файлов: 5000 x 3333
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02866B142B0428A838F5045557AC8165A2943CF4
+magnet:?xt=urn:btih:C870A97AA75A1E0DDDB5C06D733A08B8A79066A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,134 +713,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707284   (62813) от 16.03.2024
+###  Публикация: 1802817   (65953) от 20.06.2025
 
-Tank Operations: European Campaign (2024) [Ru/Multi] (1.0) Repack FitGirl
+Revelation - Inner Harbor (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doom Metal>
 
->>Win Игры
->>Strategy Tactical (RTS/TBS)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tank Operations: European Campaign ставит вас на место американского генерала времен Второй мировой войны. Это пошаговая стратегическая игра, в которой вы командуете танками и другими военными подразделениями на исторических полях сражений в Европе и Северной Африке. Ваша цель? Разгромить немецкую армию, известную как Вермахт, и остановить ее разрушительную кампанию.Тип издания: RepackРазработчик: Linked DimensionsЖанр: СтратегииЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+01. Inner Harbor
+02. Terribilita
+03. Rebecca at the Well
+04. Eve Separated(   Читать дальше...   )Жанр: Progressive, Doom MetalПродолжительность: 00:35:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D58E5A8A6995FE3EEB370C04454A9A52612B1190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707312   (62812) от 16.03.2024
-
-Журнал | BOUDOIR Inspiration (Lingerie Inspiration Issue) (март 2024) [PDF][EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62812.jpg" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: Lingerie Inspiration IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0253B103E102A48B9BB0E68ADA63E63ECA4780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707314   (62811) от 16.03.2024
-
-Андрей Коптелов | Бизнес-анализ на основе BABOK (express) (2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебный курс Бизнес-анализ на основании BABOK посвящен изучению основ бизнес-анализа в соответствии с BABOK Guide 3.0.
-В рамках учебного курса изучаются особенности профессии бизнес-аналитик и ключевые понятия бизнес-анализа, рассматриваются на практике задачи и техники бизнес-анализа.
-Длительность курса — 2 дня (длительность записанного видеоконтента)
-В курсе нет (   Читать дальше...   )Производство: Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 22:19:30Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF1F7B192E69447FB1EEA9A30DE278A434024EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705789   (62810) от 16.03.2024
-
-Джентльмены / The Gentlemen (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Jaskier
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек по имени Эдди Холстед узнаёт, что полученное им большое наследство связано с наркоимперией Микки Пирсона.Производство: Великобритания, США / Miramax Television, Moonage Pictures, Toff Guy FilmsЖанр: боевик, комедия, криминалРежиссер: Дэвид Кэффри, Эрен Криви, Нима НуризадеАктеры: Тео Джеймс, Кая Скоделарио, Дэниэл Ингс, Джоэли Ричардсон, Винни Джонс, Майкл Ву, Гарри Гудвинс, Stephane Fichet, Дин Дж. Логан, Шанель Крессвелл, Джанкарло ЭспозитоПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced от Jaskier, Full), Английские (SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72E34879515E14E4A280E7F9C465D7F42E0040D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130536   (62809) от 16.03.2024
-
-BBC: Гении современного мира / Genius Of The Modern World (2016) HDTVRip [H.264/720p-LQ] (Серии 1-3 из 3) (Обновляемая)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62809.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 век - эпоха бурных потрясений, время перемен в промышленности, науке и политике. Но самое главное - в мировоззрении. Это была пора смелых и рискованных идей, ознаменовавших возникновение нового мира. У его истоков стояли великие умы: Карл Маркс, Фридрих Ницше и Зигмунд Фрейд. Они жили в эпоху, когда рушились старые реалии, низвергались существующие режимы, а наука (   Читать дальше...   )Производство: Великобритания, ВВС Open University Partnership, Religion & Ethics Production SalfordЖанр: Документальный, история, исследованияРежиссер: Роб ГоулингУчастники: Историк Бетани ХьюзПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: английскиеПродолжительность: ~00:58:38 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CC6C244C27DAB600A79EE13756D86FB4FAB662
+magnet:?xt=urn:btih:DC7D2F415FC08C746BCA7156715E78AD8FD1A73E
 ```
 
 https://mybot314.ru/tekegram_catalog/

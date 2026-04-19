@@ -1,3 +1,90 @@
+###  Публикация: 1811181   (16464) от 08.08.2025
+
+VA - Nothing But... Trancetopia, Vol. 29 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonrider & Av - I Miss You (Original Mix) [2:56]
+02. Tom Exo - No Rainbow Without Rain (Original Mix) [4:51]
+03. Dreamira - Path Of Pilgrimage (Extended Mix) [7:43]
+04. Nolan Stenemberg - It's Not Too Late (Extended Mix) [5:56](   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F69739E468404F8D8FDABC54BB0922BA1CDFD65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800484   (15731) от 03.06.2025
+
+VA - 25 Years Of Anjuna Mixed By ANUQRAM (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (01:09:35)
+01. Andrew Bayer, Matt Lange & Kerry Leva - In And Out Of Phase (Mixed) [6:22]
+02. Answer 42 & Belinda Frank - Pink Houses (Dub Mix Mixed) [4:45]
+03. Spencer Brown & Rachel K. Collier - Always Do You (Mixed) [4:37](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F58B577118BFF35A2C77823C629A9FCC6DFC6790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800554   (15638) от 04.06.2025
+
+VA - Top 11 March 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maxim Kovalskiy - Comet (DJ Grom Remix) [7:26]
+02. KyousIn - The Name Of Youth (Duezher Remix) [7:03]
+03. GeorD - Something Ends, Something Begins (Original Mix) [8:00]
+04. Betibwe & DreamSkies - Embrace Of Your Heart (Original Mix) [6:24](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D1D749DCC9FF5903369152535C0C04F702ABC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802269   (14394) от 16.06.2025
 
 VA - Black Hole Trance Music 06-25 (2025) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Black Hole Trance Music 09-25 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E737DE7C2178663A4FC522C785B476BBDDC928B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817721   (3107) от 12.09.2025
-
-VA - Uplifting Trance Collection (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Rabbits - Prometheus (Original Mix) [6:41]
-02. Shelby Burnout & Edith Crosby - Théâtre Noire (Et Ton Triste Masque) [7:25]
-03. Magic O.D.A - Bridge To Happiness (Extended Mix) [7:38]
-04. Mazeev - Love Is Life (Original Mix) [5:32](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D3FB73BD063FDA439AC99ABBBC509F4AE49919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817860   (2936) от 13.09.2025
-
-VA - Trance Fusion, Vol. 13 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darren Tate & Marcella Woods - Lifted (C-Systems Extended) 06:08
-02. Calvin O'Commor - Goodbye To The Future (Extended Mix) 07:00
-03. ALRAXIS - God's Gift (Original Mix) 05:48
-04. Adip Kiyoi & ZUZAH - Together (Original Mix) 03:31(   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD57F9B7B9B7C403590F65A06E6E8702BCB2B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817807   (2933) от 13.09.2025
-
-VA - Transorica Trance Dreams (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound Forces - Party Started (Extended Version) [3:51]
-02. Oscar Anzo - Breathe (Original Mix) [6:48]
-03. Nation Epic - Sky At Night (Extended Mix) [6:22]
-04. LSound Fantasy - Revolution (Original Mix) [5:14](   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD83A0D474CB891C41996AABB6C1AA87DDBEC23
 ```
 
 https://mybot314.ru/tekegram_catalog/

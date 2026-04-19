@@ -1,3 +1,200 @@
+###  Публикация: 853955   (156020) от 27.12.2014
+
+Теорема Зеро / The Zero Theorem (2013) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксцентричный компьютерный гений Коэн Лет бьется над неразрешимой теоремой. Благодаря костюму для виртуальной реальности, изобретенному мальчиком Бобом, Лету удается совершить путешествие в скрытое пространство и узнать тайну своей души. Эту разгадку ищет не только он сам, но и таинственный Менеджмент, который правит всем миром посредством всевидящих устройств под названием ManCams.Жанр: Фантастика, триллер, драма, комедияРежиссер: Терри ГиллиамПродюсер: Николя Картье, Дин Занук, Марк БакунасАктеры: Кристоф Вальц, Гвендолин Кристи, Руперт Френд, Рэй Купер, Лили Коул, Дэвид Тьюлис, Санджив Бхаскар, Петер Стормаре, Бен Уишоу, Мелани ТьерриПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87304D90E9A5A9A1385FCC718E533A67AB6D7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518275   (156018) от 19.12.2021
+
+VA - Planeta Mix Hits 2022: Winter Edition (2021) [AAC|~324 Kbps] <House, Dance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stephan F, Ya-Ya - U & Me (2:31)
+02. Geo Da Silva, Dani Corbalan - Amore Sincero (2:27)
+03. Deep Emotion - Ready To Let Go (2:21)
+04. Heaven & Alone - I Want To Be Alone (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5840BB998B392C3945CDCE11383CE867437ECB0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518278   (156004) от 19.12.2021
+
+VA - The Sound of Emotional Content Recordings 2021 (2021) [AAC|~339 Kbps] <Progressive House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stage Van H - Doxtoutheo (6:52)
+02. Glenn Molloy - Enemy (Nichols Remix) (5:44)
+03. The Loco - Fate 25 (Ricardo Piedra Remix) (8:10)
+04. Darren Bray - Discovering Truth (Aman Anand Remix) (7:54)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3D4841D3D2E51727D15A778FD67DA7550537AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518221   (155926) от 19.12.2021
+
+Группа Сентябрь - А счастье где же ты (2021) [AAC|~319 Kbps] <Pop, Chanson>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А счастье где же ты (3:38)
+02. Где же ты была (4:03)
+03. Унесите меня журавли (4:39)
+04. Осенний сон (4:52)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AC82A9AEDD482B6F18E2C79F069B143E2054C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853003   (155676) от 27.12.2014
+
+Страховщик / Automata (2014) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главным героем фильма — страховой агент компании по изготовлению роботов Жак Вокан, который обнаруживает, что изобретаемые роботы создаются не для эксплуатации, а для истребления.Жанр: Фантастика, триллерРежиссер: Габе ИбаньесПродюсер: Антонио Бандерас, Сандра Эрмида, Дэнни ЛернерАктеры: Антонио Бандерас, Биргитта Йорт Сёренсен, Мелани Гриффит, Дилан МакДермотт, Роберт Форстер, Тим МакИннерни, Энди Найман, Дэвид Райалл, Эндрю Тирнан, Криста КэмпбеллПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 01:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129C62448702A791ADDE503B5ADFD2E5202FBD7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518264   (155657) от 19.12.2021
+
+Purple Disco Machine - Exotica (2021) [AAC|~335 Kbps] <Dance, Nu Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Disco Machine, Sahara Beck - Can't Get Enough (4:21)
+02. Purple Disco Machine, Lorenz Rhode - At The Disko (4:32)
+03. Purple Disco Machine, Moss Kena, The Knocks - Fireworks (3:20)
+04. Don't Stop (4:09)(   Читать дальше...   )Жанр: Dance, Nu DiscoПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530B7EE40EA81114E2D11207D4FD8AC0C71E369F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518266   (155639) от 19.12.2021
+
+Purple Disco Machine - Club Exotica (2021) [AAC|~343 Kbps] <House, Dance, Disco, Funk>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Disco Machine, Sahara Beck - Can't Get Enough (Monte Remix) (6:40)
+02. Purple Disco Machine, Lorenz Rhode - At The Disko (Extended Mix) (6:32)
+03. Purple Disco Machine, Moss Kena, The Knocks - Fireworks (Club Dub Mix) (6:18)
+04. Don't Stop (Extended Mix) (6:27)(   Читать дальше...   )Жанр: House, Dance, Disco, FunkПродолжительность: 01:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6615AE4F5785B1FFF82DF0FC68457CEA4302D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347013   (155549) от 21.12.2019
 
 Зверь / Biseuteu (2019) WEB-DL [720p] ATV
@@ -509,209 +706,6 @@ H.1, Hevi - Indigo Night (2021) [AAC|~310 Kbps] <Lounge, Chill Hop, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9DB19198877D0DE975DAD3997C4118219100749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518534   (154295) от 20.12.2021
-
-SolarFlow - Specter (2020) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SolarFlow, Veela - I Belive in Love (Original Mix) (5:46)
-02. Take It All the Way (Original Mix) (6:00)
-03. Behind a Mirror (Original Mix) (4:16)
-04. Sadness of Rain (Original Mix) (6:08)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8023F0ADCAF144A7CC2DA45E073D6D3D278D4493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518565   (154290) от 20.12.2021
-
-VA - Fireplace Chill - Winter Edition (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Menace & Lord - While the Record Plays (Original Mix) (2:50)
-02. Sebastian Bach - Wandering (Original Version) (5:01)
-03. Chambre 37 - A Warm Breeze (Original Mix) (5:49)
-04. Jens Buchert - Raumhafen (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAE3F446FA0B7C7CCB22F432CDB15DB271328AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518562   (154279) от 20.12.2021
-
-VA - Best Vocal Chill Out (Remixes for 2021) (2021) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angelo-K - Whatever You Need (Zetandel Chillout Mix) (4:24)
-02. Daminika, Bryan Milton, Natune - I Won't Sleep (Rayan Myers Remix) (5:22)
-03. DJ Artak, Angel Falls - Unity (Owl Stone Chill Mix) (4:17)
-04. Angelo-K - Whatever You Need (S.A.T Chillout Remix) (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BB1CE4D98316B1AA08846278B82B761E8F5BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518532   (154261) от 20.12.2021
-
-SolarFlow - Collection of the Best Tracks From: Solarflow (2020) [AAC|~326 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Sun (Original Mix) (6:04)
-02. Sundrifting, Natune - Just Be (SolarFlow Remix) (5:43)
-03. Two Worlds (Original Mix) (5:56)
-04. Dreaming Way, Angel Falls - A Little While (SolarFlow Chillout Remix) (5:57)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB21BBFDDC1334BE8A32855F831061D2B86FE37F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518555   (154248) от 20.12.2021
-
-VA - Winter Relaxation, Vol. 1 (2019) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock, Ivan M-sax - Wavedrops (Original Mix) (4:16)
-02. Myah - Falling (Original Mix) (4:09)
-03. Lemongrass, Jane Maximova - Shiny Pebbles (Original Mix) (5:20)
-04. Rex Kramer - 2800M Above (Original Mix) (5:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6EE5AE934F5FD1FA2C9F45CE5223CB7EF2164F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518533   (154242) от 20.12.2021
-
-SolarFlow - Imagine (2020) [AAC|~323 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begining of Life (Intro Mix) (3:24)
-02. Forest (Original Mix) (6:24)
-03. Dream of Mermaid (Original Mix) (5:37)
-04. Revival the Bird (Original Mix) (5:53)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024F7364B1671AC87BCD3FFEAF79488D206FBE66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518561   (154235) от 20.12.2021
-
-VA - Winter Relaxation, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Hartman - The End (Original Mix) (5:33)
-02. Tapelapse - Daydreaming (2:10)
-03. Stargazer - Return of Idleness (Original Mix) (3:35)
-04. Marc Hartman - Come over Here (Original Mix) (5:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03C6C2ACCCADBA0567F2916F6D1B78089C997BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

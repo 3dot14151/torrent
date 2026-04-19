@@ -1,3 +1,61 @@
+###  Публикация: 1211756   (776554) от 10.03.2018
+
+VA - Festival Anthems Vol.3 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer & Vito Fognini  -  Ambition (Eximinds Extended Remix)  4:45
+02.  Frainbreeze  -  Black Eagle (Ahmed Helmy Extended Remix)  5:49
+03.  Feel  -  The Nutcracker (Extended Mix)  5:36
+04.  Mino Safy  -  Persistence (Original Mix)  3:33(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B02A1C521C469907B9A32F0AEEFEF266090354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015155   (775859) от 09.05.2016
+
+VA - Recoverworld Radio 006 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skydust - Cairo (07:05)
+02. Obi - La Esperanza (06:58)
+03. Stealth Mode - In Her Eyes (07:26)
+04. Andy Cain - Adrift (Andy Cain's Dream Edit) (08:10)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FD43A8CAEB2A9D0F7369E8E8BCE62A7B84A920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212517   (775221) от 13.03.2018
 
 VA - Amsterdam Trance Sessions Vol.15 (2018) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Infrasonic Winter Selection (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE2C2D3D63F48D8586BDA1A70A296AE3895F9EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214666   (764074) от 22.03.2018
-
-VA - FG Top 10: March (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Freegrant & Slow Fish  -  Sweet Lies (Extended Mix)  7:13
-02.  Tony Hammer & Josa  -  Carpe Noctem (Original Mix)  6:23
-03.  Orphyd  -  Little Dreamer (Extended Mix)  6:19
-04.  Jon Bourne  -  Ameera (Original Mix)  5:31(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440186DED56364262F8E18F2F177E602622697F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280122   (763693) от 01.02.2019
-
-VA - #WeAreTrance #008-18-08 (Mixed by XiJaro & Pitch) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anske & Victoriya - Love Won’t End (Original Mix)
-02. Saad Ayub - Singularity (Original Mix)
-03. Madwave - Follow Your Path (Radio Mix)
-04. Misja Helsloot - We All Should Know (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749E6E60C733B257D540DA00A446167F5C80063B
 ```
 
 https://mybot314.ru/tekegram_catalog/

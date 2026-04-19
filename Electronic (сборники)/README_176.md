@@ -1,3 +1,177 @@
+###  Публикация: 1334259   (296818) от 28.10.2019
+
+VA - Follow The Wind: Live Groove Mix (2019) [MP3|320 Kbps] <Chillout, Lounge, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296818.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Billy Anderson - Fly With Me (Original Mix)
+002. Afterlife - Equator
+003. Chillbirds - One Foot Before The Other
+004. Mazelo Nostra - Shadow Groove(   Читать дальше...   )Жанр: Chillout, Lounge, RelaxПродолжительность: 08:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498F60A52084454032C067216594D5D0003D3C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334261   (296748) от 28.10.2019
+
+VA - Horizon Of Events: Synth Space Music (2019) [MP3|320 Kbps] <Synthspace, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296748.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Meastral - Messier (Original Mix)
+002. Human League - The Snake
+003. Hypnosis - Lost In Space
+004. Ahmed Helmy - My Dearly Beloving(   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 10:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B160DD8F83663ABC49E10BA0158CC64215AFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079235   (296403) от 03.12.2016
+
+VA - Progressive Trance 2017: 30 Top Hits Best Of (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Shaman - Last Remaining [10:58]
+02. Noiland - The Only Way [08:22]
+03. Ironvibe - Time 4 Machines [08:34]
+04. Shake - High Goa Pleasures (Remix) [06:48](   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 04:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800C751D6FEC74EF8E9C356095AAF261D9ADF222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334255   (296367) от 28.10.2019
+
+VA - Breaking From The Shadows: Electro House Dance Mix (2019) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Subandrio - The Future Now
+002. Lezcano - Abraham (Original Mix)
+003. Infected Mushroom - Chenchen Barvaz
+004. Acay - Yoruba (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E310A2E1B03DB598436F0021D840E2FE45EDD34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078925   (296243) от 03.12.2016
+
+VA - Timo Maas - Best275z (1999 - 2014) [MP3|320 Kbps] <Progressive House, Electronica, Breakbeat, UK Garage, Trip Hop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 First Day (Feat. Brian Molko, Jokate Benson) 03:53
+02 Help Me (Feat. Kelis) 04:41
+03 Shifter (Feat. MC Chickaboo) 05:36
+04 Pictures (Feat. Brian Molko) 05:12(   Читать дальше...   )Жанр: Progressive House, Electronica, Breakbeat, UK Garage, Trip HopПродолжительность: 03:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B61C53CF0D8249AA1E5EE190596D9BE02BE48FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424053   (295812) от 15.11.2020
+
+VA - Record Super Chart 662 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
+02. Slava Marlow - Снова я напиваюсь (1:56)
+03. Tiesto - The Business (2:43)
+04. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9295039EE03BAD3E26D5D54F632829A762FBDCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962104   (295353) от 04.12.2015
 
 VA - Trance Traveling 71 (2015) [MP3|320 кб/с]<Trance>
@@ -574,180 +748,6 @@ VA - Extra House: Bonus [03] (2015) [MP3|320 кб/с]<House, Deep House, Club Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ABBA8FEFDD742300B4485A7C584EACC0AB4CD98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079907   (292225) от 05.12.2016
-
-VA - Beatport Trance Pack (05.12.) (2016) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Sight & Fright Nite - Warp Velocity (Extended Mix) 6:47
-02. UDM - Sparkle (Extended Mix) 6:37
-03. Alex M.O.R.P.H. & Aimoon - Astra (Club Mix Extended) 6:38
-04. Sound Apparel - Iridescent Water (Original Mix) 7:35(   Читать дальше...   )Жанр: Trance, Harmonic, Energy, Emotional, Uplifting, ProgressiveПродолжительность: 03:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9767D1CF426423FD061B7667180FAA1F199095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424683   (292199) от 17.11.2020
-
-VA - Zen Psy Trance (2020) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agent Kritsek - Melody Of Soul
-02. Sabedoria - Universo
-03. Dark Whisper - Pacha
-04. Mina And Improvement - Spiritual Understanding(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 09:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D5CA4B5912C77009F968657015F8E48CA6D722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079633   (291910) от 05.12.2016
-
-VA - Deep House Collection Vol.99 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291910.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Aaron Smith - Dancin' (Dan K Remix) 4:55
-002.Alberto Sainz - Beyond The Surface (Jonnas B Beyond Heaven Remix) 8:12
-003.Albuquerque - Superlativa  (Paso Remix) 8:48
-004.Alfie Rhodes, John Rous - Oasis (Analog Trip Remix) 6:22(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1B736628A4B25252B3FDBD0B91200F1410A20F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185655   (291735) от 22.11.2017
-
-VA - Juicy Groove: Minimal Techno Mix (2017) [MP3|192-320 Kbps] <Minimal, Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291735.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Tort - Rush (original mix)
-002. PROFF - Misidentify (feat Cory Freisenhan)
-003. Dino Maggiorana - London (original mix)
-004. Anthony Cardinale - All Or Nothing(   Читать дальше...   )Жанр: Minimal, Techno, ElectroПродолжительность: 10:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC8662223527220F80AD4D300B9C5AC98D81DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185657   (291732) от 22.11.2017
-
-VA - Urban Legends: Techno Party (2017) [MP3|320 Kbps] <Hardstyle Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291732.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Knight, Green Velvet & Rene Amesz - Live Stream
-002. Ugur Yurt - Harmonix (Original Mix)
-003. Joeski - Blackbird (Gorgon City remix)
-004. Unresolved - Monster(   Читать дальше...   )Жанр: Hardstyle Techno, Tech House, ElectroПродолжительность: 10:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E830C32E963C1711D0F574AF48B59C7E22B588A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962972   (291500) от 06.12.2015
-
-VA - Wigbert & Carlo Ruetz - Dockyard 2015 (2015) [MP3|320 кб/с]<Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wigbert & Carlo Ruetz - Ade (06:57)
-02. Fabio Florido - Grooving (06:34)
-03. Matt Star - Cupo Ringhiare (05:33)
-04. Karotte - All She Wants Is (06:58)(   Читать дальше...   )Жанр: TechnoПродолжительность: 04:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC4364FEC7441531139DBCDDE4A53EBECEB31E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1635140   (232842) от 24.05.2023
+
+BBC Scottish Symphony Orchestra, Alpesh Chauhan - Tchaikovsky: The Tempest, Francesca da Rimini, The Voyevoda (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical, Symphonies>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voyevoda, Op. 78 (12:38)
+02. I. Andante con moto (3:44)
+03. II. Allegro moderato (1:48)
+04. III. Allegro vivace (3:05)(   Читать дальше...   )Жанр: Classical, SymphoniesПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8462BF6928EE371CEC2AC1736E88866ED7D5ADDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586579   (229158) от 08.12.2012
 
 Johann Strauss-Best of Strauss: Berliner Philharmoniker & Herbert von Karajan 1983-1991 (1996) [FLAC|Lossless]<Classic>
@@ -717,35 +746,6 @@ I. Introduction:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF206D9BF5415A9D940EDDB559223F305936F8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652708   (206514) от 12.08.2023
-
-The WHOOP Group - Crimes II (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture from The Marriage of Figaro K. 492
-02. Miniature Overture from The Nutcracker Suite op. 71
-03. Dance of the Sugar Plum Fairy from The Nutcracker Suite op. 71
-04. March from The Nutcracker Suite op. 71(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546D3EBC03E333A91A8612611BA95EF8FD188B21
 ```
 
 https://mybot314.ru/tekegram_catalog/

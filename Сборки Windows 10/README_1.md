@@ -1,3 +1,29 @@
+###  Публикация: 1253557   (362893) от 18.10.2018
+
+Windows 10 1803 Pro x86x64 By Vladios13 v.09.10 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362893.jpg" />
+</div>
+
+
+###  Подробнее
+
+За основу для этих сборок были взяты оригинальные образы ru_windows_10_consumer_edition_version_1803_updated_aug_2018_x64_dvd_910ae7a5 и ru_windows_10_consumer_edition_version_1803_updated_aug_2018_x86_dvd_d1b36c95. Установлены все важные и рекомендуемые обновления на момент создания сборки 09 октября 2018 года.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0217AAE32D248E5CA8902951B5C4233696E578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417032   (362084) от 18.10.2020
 
 Windows 10 Pro x64 2004.19041.572 2in1 Ост 2020 by Generation2 [Ru]
@@ -670,35 +696,6 @@ Microsoft® Windows® 10 x86-x64 Ru 22H2 8in2 Upd 05.2024 by OVGorskiy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:160E0080C5C2009FD7AD58848793EF376574E195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731799   (52440) от 23.06.2024
-
-Windows 10 Enterprise 2021 LTSC Version 21H2 (x64) Elgujakviso Edition (v.21.06.24) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN:
-ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
-
-   Интегрированы важные и рекомендуемые обновления по Июнь 2024 года.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2932637D7B5613F40400750651F9C7025B05E3B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

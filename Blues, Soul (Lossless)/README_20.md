@@ -1,3 +1,265 @@
+###  Публикация: 1480259   (1008922) от 28.06.2021
+
+Roberta Flack - 3 Albums (1970/2021) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Up Moses (2021 Remaster) [00:05:23]
+02. Bridge Over Troubled Water (2021 Remaster) [00:07:17]
+03. Sunday and Sister Jones (2021 Remaster) [00:05:01]
+04. See You Then (2021 Remaster) [00:03:44](   Читать дальше...   )Жанр: Soul, Funk, R&B
+Страна: United StatesПродолжительность: 3 CD, 02:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272868EB86EDF95B36678D54B1F1F26D99FD3EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482053   (1007839) от 06.07.2021
+
+Barbara Lewis - Don't Forget About Me: The Atlantic & Reprise Recordings (2020) 3CD [FLAC|Lossless|tracks + .cue] <Rhythm & Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Longest Night of the Year (Mono Single) (2:23)
+02. My Heart Went Do Dat Da (Mono Single) (2:22)
+03. My Mama Told Me (aka 'My Momma Told Me') (2:14)
+04. Gonna Love You Till the End of Time (2:16)(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 03:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F111F09EAEA8612F6C7B92B8C84DE03980A677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482199   (1007738) от 07.07.2021
+
+Dave Rudolf - Nostalgia (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backstreet Driver (3:52)
+02. Wayfaring Stranger (4:01)
+03. I Thought I Knew (3:54)
+04. Nostalgia (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF0D102690980CD2A0BF087128A93A7168040DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482205   (1007726) от 07.07.2021
+
+Sonic Blue - Last Train (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaving Trunk (4:50)
+02. Love with a Feeling (4:42)
+03. All Over Now (4:23)
+04. Last Train (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D282F3FE1EE4982868F6E8ECB3E52D6C0713B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482801   (1007266) от 10.07.2021
+
+Quinn Sullivan - Wide Awake (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Around The World [05:24]
+02. She's So Irresistible [02:57]
+03. How Many Tears [03:32]
+04. In A World Without You [03:56](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9470080694E57EC3C191AEEFBA043098C58493F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483084   (1006795) от 14.07.2021
+
+Sananda Maitreya - The Sphinx (2011) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul, R&B, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006795.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) The Sphinx
+2) Christine
+3) The Ballad of LeBron & Kobe
+4) I Saw Her(   Читать дальше...   )Жанр: Funk, Soul, R&B, RockПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7B73580EE6E60FEC15849C4B43145929317696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483090   (1006790) от 14.07.2021
+
+Sananda Maitreya - Pandora's PlayHouse (2021) [FLAC|Lossless|WEB-DLL|tracks] <Funk, Soul, R&B, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006790.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pandora's Plight
+02. Time Is On My Side
+03. Don't Break My Balls(   Читать дальше...   )Жанр: Funk, Soul, R&B, RockПродолжительность: 00:56:43+00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08264CF9AFAD7613B1F695B4A3FF91717FB20E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483893   (1006516) от 16.07.2021
+
+Ben Jud - Hope (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope (Intro) (1:36)
+02. Glad You Made It (3:43)
+03. In My Chest (3:48)
+04. Believe in Myself (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE390F5F5E4C562AA328AC7E9B1F8860F57751D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483906   (1006507) от 16.07.2021
+
+Chris King Robinson - Chris King Robinson (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Track You Down (3:31)
+02. Why Don't You Give Me Your Love? (4:41)
+03. Million Miles Away (4:21)
+04. Going My Own Way (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F0994829D0F46931BB3E71D19BA11E817A89AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483901   (1006501) от 16.07.2021
 
 Brian Walton - Still Got My Mojo (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -484,267 +746,6 @@ Keith Richards - Blues (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86ADF10722C6475A9826C23BFB6522043E838493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487252   (1003793) от 04.08.2021
-
-Willie Jackson - All in the Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Your Landlord (5:21)
-02. The Whole Book Is Wet (3:37)
-03. Come Here Junior (4:09)
-04. Beautiful Disease (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EBF289BFC45460DDB42DA6DBB6CEEE8BA53236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487245   (1003789) от 04.08.2021
-
-Robert J Hunter - Nothing but Rust (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suitcase Blues (2021 Remaster) (3:46)
-02. Good People (2021 Remaster) (3:30)
-03. Little Bit of Your Love (4:25)
-04. Easy Street (3:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C3D8CC856E4C80F3D4397CC6E059AA53993C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487248   (1003788) от 04.08.2021
-
-Tedi Brunetti - Queen of Pittsburgh (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eat, Sleep, Repeat (3:53)
-02. Evil Woman (3:31)
-03. When You're From Pittsburgh (2:43)
-04. Same Old Blues (4:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1AFB029A5A122720BF01A4998492A3E6C88738E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487246   (1003778) от 04.08.2021
-
-Justin Johnson - The Bootleg Series, Vol. 4: Delta Moon (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skinny Dippin’
-02. Worn out Shoes
-03. Hear My Train a Comin’
-04. Come on in My Kitchen(   Читать дальше...   )Жанр: Rock BluesПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B6C833470ADBCCD8B979EBA9FB5B78EC9679FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336254   (1003436) от 05.01.2020
-
-Tony Tucker - 3 albums [FLAC|Lossless|image + .cue] <Electric Blues, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тони Такера - американский блюзовый гитарист, композитор и певец. Его музыка навеивает направление блюза с плавной гитарой и вокалом с мягким мелодическим влиянием. На альбоме "Stone Blue Crazy" Тони отдает дань уважения Великому Гари Муру, как поклонник его стиля, намеренно погружая слушателя в музыкальный мир, возвращаясь к музыке Гэри. Свои сольные работы (   Читать дальше...   )Список альбомов:
-2017 | Stone Blue Crazy
-2018 | Down The Road Of Blues
-2019 | Liquid BluesЖанр: Electric Blues, Blues, Blues Rock |Продолжительность: 03:47:27 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC757A8AC9F5C446FFBBE3F8FFF376E830F927C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350352   (1003280) от 06.01.2020
-
-VA - Easy Soul 80s (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Benson - What's On Your Mind 4:05
-02. Womack & Womack - Baby I'm Scared Of You 5:38
-03. James Ingram - There's No Easy Way 3:51
-04. Howard Hewett - I'm For Real 4:46(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F6630AF7D675CFEDF5B4BAE5901553983C442C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487739   (1003047) от 07.08.2021
-
-Dana Gillespie - Deep Pockets (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Beat Of My Own Drum (00:05:47)
-02 - We Share The Same Sky (00:04:10)
-03 - The Truth About Lying (00:03:20)
-04 - Deep Pockets (00:03:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A2AE2C937F1C6CADA632F1B832E9C2DBE6F1D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351464   (1002096) от 10.01.2020
-
-VA - Luxury Soul 2020 [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, Disco>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cornell CC Carter - I See Love (Metlife Remix) (6:06)
-02. The Terri Green Project - It's You (The Terri Green Project) (4:52)
-03. Tyra Levone - Keep Steppin' (3:58)
-04. Rick Clarke - Friends (3:45)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 02:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35560A6641CDC3E5680090E56F45A5BA72FDE880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489077   (1001148) от 14.08.2021
-
-Shaw Davis & The Black Ties - Red Sun Rebellion (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Higher (4:49)
-02. Heart to Steal (3:29)
-03. Promised Land (4:00)
-04. If I Stay This Way (6:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14F4DF2BD45600BF3D5789C22B7ED0F36DC36C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

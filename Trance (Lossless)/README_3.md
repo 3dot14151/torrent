@@ -351,6 +351,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 347569   (639526) от 08.06.2011
+
+VA - In Search Of Sunrise 9: India (Mixed by Richard Durand) - 2011 /ПРЗ CD02379/ [FLAC|Lossless]<Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_639526.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011Жанр: TranceПродолжительность: 02:33:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143242   (634983) от 18.06.2017
 
 VA - Uplifting Trance 2017 Vol.2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance, Vocal Trance>
@@ -721,35 +747,6 @@ VA - Magic Island - Music For Balearic People Vol. 6 (Mixed by Roger Shah) (2015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:570D4613DD9A37329B2F27D29FDB979CEFBC3181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301273   (585269) от 11.05.2019
-
-Professor Trance & The Energisers - Shaman's Breath (2002) [FLAC|Lossless|image + .cue] <Tribal, Trance, House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585269.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Spirit Catcher (3:31)
-2. Kozuma (7:41)
-3. Xingu (7:29)
-4. Energise (6:29)(   Читать дальше...   )Жанр: Tribal, Trance, HouseПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC7D8FD4D78F2CAF155DC76DAD51619CFB5D1E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

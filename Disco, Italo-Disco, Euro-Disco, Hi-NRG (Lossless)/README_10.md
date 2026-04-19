@@ -1,3 +1,148 @@
+###  Публикация: 1539645   (656116) от 27.03.2022
+
+Scotch - Disco Collection (2003) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Band
+02. Take Me Up
+03. Mirage
+04. Money Runner(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C9CD34C302C4BDB418B96F76D47F63DC687863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540189   (654950) от 28.03.2022
+
+VA - Turbo Disco International - Vol. 1 (2004) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gibson Brothers - Cue Sera Mi Vida
+02. Jairo Pereira - Pais Tropical
+03. Supermax - African Blood
+04. Ricchi & Poveri - Acapulco(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCD33F6E0FAEDFCC450553A9AD6407647264F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226481   (654780) от 21.05.2018
+
+Tonschatz - DAO - Follow Your Heart (2018) [FLAC|Lossless|image + .cue] <Euro-Disco, Europop, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow Your Heart (Reset Your Life) (4:03)
+02. Midlife Dreams (3:26)
+03. Odyssey (You Can Change Your Life) (4:16)
+04. Columbus (3:26)(   Читать дальше...   )Жанр: Euro-Disco, Europop, Synth-popПродолжительность: 00:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651B76ABB8F6ABD91CAECA012FE0D95C084D0C6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540341   (653963) от 29.03.2022
+
+Fancy - Turbo Disco (2002) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Voice In The Dark
+02. Die For You
+03. Fools Cry
+04. Pretty Woman(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672103AB8450E6F55A14E6E332A8E12FC4C84B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141029   (653935) от 08.06.2017
+
+Munich Machine - Get On The Funk Train (1996) Remaster, 2011, Repertoire Records, Compilation [FLAC|Lossless|image + .cue] <Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get On The Funk Train (15:43)
+02. Love To Love You Baby (2:33)
+03. Trouble Maker (2:47)
+04. Try Me, I Know We Can Make It (3:31)(   Читать дальше...   )Жанр: Disco, ElectronicПродолжительность: 01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC5A3F0DD1C1831898B1939BDF9D677A45235C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540346   (653899) от 29.03.2022
 
 C.C. Catch - The Best Of C.C. Catch (2004) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
@@ -606,157 +751,6 @@ VA - Хиты 80-х в Новых Версиях (2012) [FLAC|Lossless] <Pop, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E70AB327ABF236F6B066A599C2F72C79BB6D57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294844   (625965) от 09.04.2019
-
-Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Old Are You (Radio Version) (4:05)
-02. The World Is You (Radio Version) (3:57)
-03. One Step To Heaven (Original Mix) (4:16)
-04. Two For Love (Original Edit Mix) (4:03)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E160B51DCF3DF6410736CCCF53FDDDCEBE5A303D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294861   (625794) от 09.04.2019
-
-Sabrina - Boys: The Best Of Sabrina (2013) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Boys (Summertime Love) (Maxi Version) (5:47)
-02 Hot Girl (New Version) (3:29)
-03 All Of Me (Maxi Version) (5:16)
-04 Afraid To Love (4:46)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E6EF7DBB80548C11BC813DD196CE7536E21212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144830   (625635) от 23.06.2017
-
-Bad Boys Blue - House Of Silence (1991) [FLAC|Lossless|image + .cue] <Disco, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Of Silence (3:57)
-02. Under The Boardwalk (3:34)
-03. Train At Midnight (3:30)
-04. Baby Blue (3:48)(   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D29BFA4E22183CF78AFD855F788A7EA96E9C11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521756   (624587) от 12.07.2012
-
-Savage - Tonight (2009) [FLAC|Lossless]<italo-disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Radio 6:02
-2 A Love Again 5:30
-3 Fugitive 4:56
-4 Tonight 3:40
-5 Only You 3:51
-6 Turn Around 3:54
-7 Don't Cry Tonight 3:58
-8 Computerized Love 3:38
-9 A Love Again (Remix) 6:34
-10 Fugitive (12" Version) 6:43(   Читать дальше...   )Жанр: italo-discoПродолжительность: 62:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294975   (623872) от 10.04.2019
-
-Belle Epoque - The Best Of (2015) DV Digital [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, 70s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Is Black (Mix) (13:34)
- 02. Bamalama (Mix) (11:25)
- 03. Miss Broadway (7:19)
- 04. Let Men Be (4:21)(   Читать дальше...   )Жанр: Disco, Funk, 70sПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFE43441437E6F57E30043BD7B6369627727D3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

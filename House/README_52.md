@@ -1,3 +1,183 @@
+###  Публикация: 557897   (417242) от 09.10.2012
+
+VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<House, Deep House, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulmagic - Someone Like You (Original)
+02. Rosie Gaines - Closer Than Close (Schwarz & Funk Classic House Mix)
+03. Angelina - Just Be Good to Me (feat. Angelina) (Robis Latin Breeze Mix)
+04. Erann - Is This Love (feat. Erann) (Deeper People Remix)
+05. Meshach Broderick - You (feat. Benjamin Broderick) (Benjamin Led & Rothmann Remix)
+06. Camille Jones - I AM (Jesse Funk's Lost in Space Dub)
+07. Clara Sofie - Flowing Over (feat. Clara Sofie) (Delicious Ibiza Remix)
+08. Deeper People - Missing (Matt Early Sunset Mix)
+09. ReUnited - Sing It Back (Sidelmann Funkelectric Mix)
+10. Sherell McKenzie - Any Love (feat. Sherell Mckenzie) (Scandall Sunset On Ibiza Remix)(   Читать дальше...   )Жанр: House, Deep House, Soulful HouseПродолжительность: 01:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31B30BAFB4A8CD216454937E6F8F8758A92587C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066109   (414947) от 25.10.2016
+
+VA - Jewels & Gems Vol.1: Selection Of Deep House (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pablo del Monte - Glide over Here - Julius Papp Remix
+02. Ricky Presta - Blind
+03. JP Chronic - It's Okay - DJ Vivona Remix
+04. Rockstar - The White Hole - Nikos Akrivos Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4147A38B348AAD92B0123890DD55D557D83F829C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066092   (414936) от 25.10.2016
+
+VA - Fashion Week Vol.3: Catwalk House & Beats (2016) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dani Corbalan - Dangerous
+02. The Renroc - Pure
+03. Bes & Meret - Morgenstund - Tom Leeland Radio Mix
+04. Jacky T - Le Malin 2(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0CF894638FB015A9E0D327D295351266B6F52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066113   (414931) от 25.10.2016
+
+VA - Deep Down Underground Vol.1 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philipp Preuss - Councilman - Kerem Tekinalp Remix
+02. Markos Rodriguez - Long Trip - Original Mix
+03. Koczinsky - For My Neighbours - Original Mix
+04. Neal Porter - In Time(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443AF440C866679CCE34E36F59D3C3F40ECA8279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066076   (414756) от 25.10.2016
+
+VA - Lucid Sounds, Vol. 21: A Fine and Deep Sonic Flow of Club House, Electro, Minimal and Techno (2016) [MP3|320 Kbps] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mrs Robot - Lucid Sounds Twenty One [01:09:33]
+02. Klartraum - Skyfall (Rishi K remix) [06:52]
+03. Paul Moore - Out Of Focus [08:44]
+04. D Diggler - Radium [08:30](   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 04:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92AE677AE3683CD07B9CF14893D73F8319373BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066106   (414754) от 25.10.2016
+
+VA - Treasure Cast Vol.1: Deep Sound Soul (2016) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Schaefer - Shine
+02. AKA AKA - True - Radio Edit
+03. Zusammenklang - Silverlake
+04. Jules & Moss - Bref(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513400CA7E61CD5C966E1E53CDCDEA88283E2080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065760   (414614) от 25.10.2016
 
 VA - Kontor Top Of The Clubs - The Biggest Hits Of The Year MMXVI (2016) [MP3|320 Kbps] <Electronic, House, Club>
@@ -613,192 +793,6 @@ VA - Best of: Ibiza Beach House 2007-2012 (2012) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C80802DC839B5E81B8A6F7002305B254E3F83CAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170836   (397770) от 03.10.2017
-
-DJ VoJo - Aloha (2017) [MP3|320 Kbps] <Tropical House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight
-02. Tropical Rain
-03. Adventure Island
-04. Lost in Sea(   Читать дальше...   )Жанр: Tropical HouseПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7988E463FAEA99D5AA8F5A390505A99324ECCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567679   (396148) от 30.10.2012
-
-VA - Halloween Nights (2012) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Calippo - Halloween - Original Mix (6:38)
-2. Dinka - Here I Am - Original Mix (6:36)
-3. Ad Brown - Good Feeling - Chris Reece Remix (6:06)
-4. George F. Zimmer - Progressive Nights - Original Mix (6:41)
-5. Johnson & Haske vs. Jerome Isma-Ae feat. Mo Morsy - Too Bad to Forgive - Original Mix (8:07)
-6. Leventina - Right or Wrong - Original Mix (6:22)
-7. Dave202 - Vintage - Original Mix (6:37)
-8. Helvetic Nerds - Herodes - Original Mix (6:06)
-9. Jidax - Thunder - Original Mix (5:53)
-10. Hailing Jordan - Rat - Original Mix (5:58)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C418E338B44248E0092814744884AAF041B313BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568174   (395085) от 31.10.2012
-
-VA - New York Disco House Grooves Vol.1: Manhattan Night Club Selection (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395085.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Maroon Bordeaux - You Show Me - Audio Organza Remix (6:30)
-2. Samuel Tegaro - Nature View (7:51)
-3. Barclay & Cream - Forget Me Nots - NY Radio Mix (3:14)
-4. Glam Sam And His Combo - Hot! (4:20)
-5. Ozgur Uzar - Snowland - Sparabrother Remix (6:57)
-6. Mario De Bellis - Backstage (6:15)
-7. Roger-M - Letting Go (Piano in the Dark) - Grande Vue Remix Radio (3:27)
-8. Samuel Tegaro - In Da Band (6:20)
-9. GLounge - Late Night Groove (6:25)
-10. Glam Sam And His Combo - The Last Days of Disco - Lemongrass First Kiss Remix (3:52)(   Читать дальше...   )Жанр: Deep House, DiscoПродолжительность: 02:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170BE223845835CB71CE20CDB6D6D92FFC72628E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172064   (394778) от 06.10.2017
-
-Yotto - North (EP) - 2017 [MP3|320 Kbps] <Tech House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Signal
-02. Off The Grid
-03. North
-04. Isolation(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 00:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA024E8ABBD958F8A8E2F0625C20DD1C9A98413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171827   (394715) от 06.10.2017
-
-VA - Tiesto Club Life Vol.5 China (2017) [MP3|320 Kbps] <House, Big Room, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tiesto & KSHMR feat. Talay Riley - Harder (Harder Mix)  3:50
-02.  Tiesto x Vassy - Faster Than A Bullet  3:58
-03.  Tiesto & John Christian - Scream  3:54
-04.  Tiesto feat. StarGate & Aloe Blacc - Carry You Home (Tiesto's Big Room Mix)  4:33(   Читать дальше...   )Жанр: House, Big Room, Electro HouseПродолжительность: 02:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE1C05A21186A1A74AF3128FC07A045D170A916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716378   (393963) от 29.10.2013
-
-VA - Art Of More (Mixed By Ismix) - 2013 [MP3|320 кб/с]<Tech House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En-dee - Very Deep - Original Mix
-02. The Other Comio - Circus Earth - Original Mix
-03. Kostya Run - On the Road - Original Mix
-04. Jaw - Pop - Jorg Murcus ''Flute'' Remix(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E219742099EE6373E4CC82752C2539E3E279224
 ```
 
 https://mybot314.ru/tekegram_catalog/

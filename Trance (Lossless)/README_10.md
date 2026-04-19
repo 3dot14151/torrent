@@ -1,3 +1,32 @@
+###  Публикация: 1662341   (188013) от 17.09.2023
+
+V.A. - A State of Trance, Ibiza 2023 (Mixed by Armin van Buuren) (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188013.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 – On The Beach:
+01. MaRLo & Mila Josef - You Are Not Alone
+02. Armin van Buuren - Motive (Jochem Hamerling Remix)
+03. Push vs Crashguard - I Want To Tell You(   Читать дальше...   )Жанр: Trance |Продолжительность: 02:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B44123D522728747DF0DA50C956B3BE0A54BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662601   (187740) от 18.09.2023
 
 VA - Black Hole Trance Music 07-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Tech Trance, Uplifting Trance>
@@ -704,35 +733,6 @@ Darude - Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99BECBC5C0F18C7916E5ECE30F264E12AF952308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675322   (160201) от 09.11.2023
-
-Roger Shah and Ambedo - Tribute To Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance, Chillout>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Shah & Ambedo - Tribute To Earth [6:34]
-02. Roger Shah & Ambedo - Sun And Moon [5:41]
-03. Roger Shah & Ambedo - Oceans [5:40]
-04. Roger Shah & Ambedo With Yelow & Capri - The Greatest Gift [6:20](   Читать дальше...   )Жанр: Uplifting Trance, ChilloutПродолжительность: 02:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FA391DF0577E9342651A450E8DF6B7A201DA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

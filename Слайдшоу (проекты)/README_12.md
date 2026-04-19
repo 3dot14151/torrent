@@ -1,3 +1,55 @@
+###  Публикация: 1098221   (910238) от 29.01.2017
+
+Проекты - VideoHive - Colorful Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Colorful Slideshow - красочное слайд-шоу. Придайте оригинальность своим снимкам.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460F7BE0773C76D433D32213CDE82F64EF22677C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368347   (910165) от 19.03.2020
+
+Проекты - VideoHive - Retro Vintage Opener - 25846073 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Retro Vintage Opener - это стильный шаблон After Effects со старыми шероховатыми текстурами, переходами на пленку и уникальной анимацией сцены.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE85D11BD9E2AFC06D0FA3D49D1FCF40902CA62B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098232   (910073) от 29.01.2017
 
 Проекты - VideoHive - Parallax Winter [AEP]
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9AFB9AAED2F9CB14182DD6B33D88C2F2CD9BC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369476   (903090) от 23.03.2020
-
-Проекты - VideoHive - Beauty Trends - 23310642 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903090.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Beauty Trends» - модный и современный шаблон After Effects. Легко настраивается и редактируется. Хорошо подходит для самых различных целей, таких как слайд-шоу, презентации, церемонии награждения, фотосессии и видеоролики о моде.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443A41489A3E948469B062664FC8E2AD2AE8AAC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099931   (903077) от 02.02.2017
-
-Проекты - Motion Array - Modern Slideshow - 21080 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания современного слайд-шоу. Этот шаблон отлично подходит для динамичных слайд-шоу, интро или любого другого мультимедийного проекта.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C65337CA2451CD0F08AE964E664A4610612FD16
 ```
 
 https://mybot314.ru/tekegram_catalog/

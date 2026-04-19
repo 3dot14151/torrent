@@ -1,3 +1,102 @@
+###  Публикация: 536187   (515361) от 17.08.2012
+
+Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515361.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:17:32
+
+01. Conquest Of Paradise
+02. Titles From Chariots Of Fire
+03. Blade Runner (End Titles)
+04. Pulstar
+05. Eternal Alexander
+06. Anthem - 2002 Fifa World Cup Official Anthem
+07. Line Open(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:35:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315205   (515015) от 18.07.2019
+
+Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Experimental, Indie, Post-Rock, Electronic, Noise>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DRUMS 1 (05:28)
+02. DRUMS 2 (05:08)
+03. DRUMS 3 (07:27)
+04. DRUMS 4 (12:52)Жанр: Experimental, Indie, Post-Rock, Electronic, NoiseПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2CAA724D576019D2DA60099E93942458619565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536792   (512278) от 20.08.2012
+
+Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, Darkwave, Alternative, Female vocalists>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fight Like A Girl (5:24)
+02.Time For Tea (4:02)
+03.4 O'Clock Reprise (1:21)
+04.What Will I Remember? (2:54)
+05.Take The Pill (5:17)
+06.Girls! Girls! Girls! (6:14)
+07.I Don't Understand (2:12)
+08.We Want Them Young (2:47)
+09.If I Burn (5:31)
+10.Scavenger (6:59)(   Читать дальше...   )Жанр: Dark Cabaret, Gothic, Darkwave, Alternative, Female vocalistsПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318702   (490757) от 08.08.2019
 
 Audiomachine - Life (2017) [FLAC|Lossless] <Soundtrack, Trailer music, Classical Crossover>
@@ -682,93 +781,6 @@ VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:547C7AEBA2ACC62F7A00D17EEABD9D4E00845626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960437   (303089) от 30.11.2015
-
-VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Soundtrack>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emmanuelle In The Mirror
-02. Bachelet, Pierre / Emmanuelle Song (French Vocal Version)
-03. Emmanuelle In Thailand
-04. Emmanuelle Steps Out(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E58A7A69521ABB59350F3F15EB7BEAFBF71D437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423585   (299651) от 13.11.2020
-
-Riccardo Cocciante - Notre Dame De Paris  (2000) English Version [FLAC|Lossless|tracks + .cue] <Musical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live for the One I Love - Céline Dion (4:02)
-02. The Age of the Cathedrals - Bruno Pelletier (3:24)
-03. The Refugees - Luck Mervil (3:36)
-04. The Bohemienne Song - Tina Arena (5:24)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8445BD0743EEDECCB9D8501F4DA1252AA5014FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423560   (299056) от 13.11.2020
-
-Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hugo (2001) Italian Version [FLAC|Lossless|image + .cue] <Musical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il tempo delle cattedrali (3:20)
-02. I clandestini (3:32)
-03. Zingara (5:22)
-04. Bella (4:36)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25BCFC8BA531DB90C5D22A84322B38469AF2167
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1774424   (30223) от 21.01.2025
+
+Фоны - Wedding Digital Backdrop Bundle [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромная коллекция фонов для свадебных или романтичных фотографий в хорошем качестве.Формат: JPGРазрешение файлов: 4928×3712
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7E8B8246875A2CF37F42F8AC309EEECBA7A44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775793   (29491) от 28.01.2025
 
 Текстуры - Master Collection - Fine Art Portrait Textures [JPG]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87228DE2AB7A9663A9E74507D834D2C60F0EC11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790861   (21744) от 11.04.2025
-
-Текстуры - Artnoy - Creative Fabrica - Digital Paper Glitter Iridescent Texture [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с блестящей радужной текстурой.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70832260465AACA7C913CC9593752DF68D035CA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

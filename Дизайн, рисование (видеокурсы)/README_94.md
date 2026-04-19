@@ -1,3 +1,30 @@
+###  Публикация: 1701976   (115948) от 24.02.2024
+
+Raffo VFX, Patreon | Уроки с сайта Patreon по VFX в Blender (2024) WEBRip [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка уроков от Raffo VFX с сайта Patreon по VFX в Blender.
+YouTube канал автора с примерами его работ и другими уроками: Raffo VFX.Производство: Raffo VFX, PatreonЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 50:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CB55FB6FBA39B00D5E3593F3F26F2B1E1D1F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702695   (115647) от 26.02.2024
 
 Stepik, Дмитрий Фокеев | Веб дизайн в Figma - с нуля до результата, основы UX - UI (2024) WEB-DL [AD] [RU]
@@ -679,35 +706,6 @@ Blender Fundamentals Vol. 3 - Texturing and Shading Fundamentals in Blender (4.0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D9DC38E51FDD65290785DB36512C642B9BF848E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712978   (60789) от 04.04.2024
-
-Udemy, Nikolay Naydenov | Arm and hand anatomy exercises course (2024) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итак, вы хотите рисовать и лепить красивых призматических инопланетян и думаете, что этот курс поможет вам достичь этого?
-
-Мне жаль разочаровывать вас, но этот курс предназначен не для красивых призматических инопланетян, а для рук.
-(   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 07:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3467AB3ECBA59AA264F5D3FE623E2DC5352E15C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

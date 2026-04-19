@@ -1,3 +1,90 @@
+###  Публикация: 1159063   (483810) от 20.08.2017
+
+VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sultan & Shepard - Bloom (Intro Mix)  4:05
+02.  K-System - Manana  3:31
+03.  Andy Moor - FaceOff  2:54
+04.  Rodrigo Deem - Tearsdrop  3:28(   Читать дальше...   )Жанр: TranceПродолжительность: 04:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65141CB72C9375E5CB31640686C6593A167C5B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159706   (482206) от 21.08.2017
+
+VA - Love Hits Vol.2 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ruslan Radriges present Mantra & Lucid Blue - Take Me Higher (Original Mix)  3:33
+02.  Roman Messer - For You (feat. Clare Stagg) (Original Mix)  4:30
+03.  Attila Syah & Cari - Dark Side Of The Moon (Radio Edit)  4:00
+04.  Moonlight Tunes - As Long As You With Me (Radio Edit)  3:11(   Читать дальше...   )Жанр: TranceПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A94205253FA0EAFBB378E15CEF19637A88C4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159682   (481945) от 21.08.2017
+
+Innersync - Fairies from the Magic Forest (2017) EP [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fairies from the Magic Forest (Original Mix) 09.40
+02. Finally There (Original Mix) 07.52
+03. Beach Breeze (Original Mix) 05.37
+04. Blue Reef (Original Mix) 07.47Жанр: Trance,Uplifting TranceПродолжительность: 00:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E170BE331520C3C91532BE622F666959467B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159885   (479939) от 22.08.2017
 
 VA - EPIC Ibiza - Trance Anthems Vol.2 (2017) [MP3|320 Kbps] <Trance>
@@ -655,93 +742,6 @@ VA - Dream Dance Vol 93 (2022) [MP3|320 Kbps] <Trance, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28F612373110A65832DB38791F299FC2F7BA51DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162397   (459148) от 01.09.2017
-
-Frainbreeze - A Year With Suanda (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer - For You (feat. Clare Stagg) (Frainbreeze Remix)  3:27
-02.  Frainbreeze - Signs Of Time (feat. Natune & Angel Falls) (Vadim Bonkrashkov Remix)  4:26
-03.  Frainbreeze & Vadim Bonkrashkov - Walhall (Radio Edit)  3:54
-04.  Frainbreeze & ThoBa - Border Lines (Radio Edit)  3:16(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C3A447120D69264B9FCA7AC11025898ADD098E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568821   (458047) от 10.08.2022
-
-VA - Uplifting Trance Essentials Vol. 6 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synthetic Fantasy - Valiente (Original Mix)
-02. Micro Out - Wake Up (Original Mix)
-03. Edplacid Patiño - The Phoenix (Extended Mix)
-04. Roman Sand - 7 Colors (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2758670A2BCFC0B6270BBA7A46C299D41ECD05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568824   (457936) от 10.08.2022
-
-VA - Gravitation Music Vol.2 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E-SET - Jupiter Reincarnation (Bloodfury Remix)
-02. W!SS - Goosebumps (Extended Mix)
-03. Anton By feat. Yevtya - Dark Side (Extended Mix)
-04. Katrin's World - Kaguya (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4393734CEDC4B32DC0A1724FC2CE4BBA8A230E
 ```
 
 https://mybot314.ru/tekegram_catalog/

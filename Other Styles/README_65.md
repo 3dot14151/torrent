@@ -1,3 +1,177 @@
+###  Публикация: 1026440   (703953) от 15.06.2016
+
+Anhidema - Conversation with the Cosmos (2014) [MP3|320 кб/с] <New Age, Ambient, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Words Do not Do and Say Nothing
+02. Encounters
+03. Welcome to Infinity Forever
+04. In the Center of Anhidema(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACACB98297AE60CD9F1BDB1D9576EF811D6610FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402115   (703678) от 13.08.2020
+
+VA - Mindful Meditative Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finest Pasas - Mystic Clouds (06:34)
+02. Spirit - Om Sat Guru (06:41)
+03. Power Shui - Harmonious Journey (03:47)
+04. Foundations - Peacefulness (07:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F1E62DED873FFD258C76948C907967E05F4731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286773   (703620) от 07.03.2019
+
+Tim McGraw - Not A Moment Too Soon (1994) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703620.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	It Doesn't Get Any Countrier Than This 	2:30
+2 	Give It To Me Strait 	2:46
+3 	Wouldn't Want It Any Other Way 	3:50
+4 	Down On The Farm 	2:55(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4BB6AED8D0F8B764664925AFCCF6F761D2D3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287006   (703619) от 07.03.2019
+
+Sawyer Brown - Greatest Hits (1990) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703619.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	Step That Step 	2:47
+2 	Heart Don't Fail Now 	3:21
+3 	Betty's Bein' Bad 	3:15
+4 	The Race Is On 	2:53(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A348B7453F2A55A80785F8F2B8CC412360F749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286758   (703618) от 07.03.2019
+
+Tim McGraw - Tim McGraw And The Dancehall Doctors (2002) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703618.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	Comfort Me 	5:24
+2 	Tickin' Away 	4:19
+3 	Home 	4:57
+4 	Red Ragtop 	4:42(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510A7312CF6310DF4927B5673E6F1693B9FAB52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286909   (703615) от 07.03.2019
+
+Wendy Stark - Child of Transference (1999) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animus Anima (4:21)
+02. Prelude (4:17)
+03. Child of Transference (4:33)
+04. Expectations (7:04)(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D21304C04C32300FD678206D627B8672E5A8CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 330984   (703486) от 02.05.2011
 
 Winifred Atwell - 4 альбома (1964 - 2009) [MP3|320 kbps]<Easy Listening>
@@ -571,186 +745,6 @@ Brian Tyler - Now You See Me / Иллюзия обмана (Complete Motion Pict
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F2C6EF32840B8A5E186C267AF0568D9687E4E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026692   (700207) от 17.06.2016
-
-Waterbone - (1997-2015) (5 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eastern Girl (Remix) (6:23)
-02. River Of Souls (Remix) (6:02)
-03. Tantra (Remix) (6:06)
-04. Song For The Mountain (Remix) (5:59)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 04:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E4FF6A8DC45E0A7A8A5C27D1803A2CCF326D15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026819   (700205) от 17.06.2016
-
-Yanni - Dare to Dream (1992) [FLAC|Lossless|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon a Time    03:54
-02. A Love for Life    05:10
-03. Nice to Meet You    05:38
-04. So Long My Friend    03:50(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9E62AD7D8CE3DEF50B7CB06B38F56CCFA548BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332369   (699539) от 04.05.2011
-
-Karunesh - Beyond Time Compilation 1 (2010) [MP3|320 kbps]<New Age, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sweet Dreams
-02 - Atlantis
-03 - Love Song
-04 - The Inner Temple
-05 - Japanese Spring
-06 - Sky's Beyond
-07 - The End of a Day
-08 - The Commune
-09 - Back Home
-10 - Indian Summer(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E92AA3597C7B0956E89D4A4893789769B3282C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132869   (698797) от 10.05.2017
-
-VA - Greatest Ever! Brazil (2012) [MP3|320 Kbps] <World Music, New Age, Brazil>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clara Moreno, OrlandrVo - Tamanco No Samba
-02. Nina Miranda, Zeep, Chris Franck - Keep an Eye On Love
-03. Banda Black Rio, Marcio Local - Quern Vem Li
-04. Marcos Valle - Parabens(   Читать дальше...   )Жанр: World Music, New Age, BrazilПродолжительность: 03:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADE4791EBD4F8A36961602DBABD665B766A0482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131802   (698789) от 10.05.2017
-
-Алан Менкен & VA - Beauty And The Beast / Красавица и Чудовище (Оригинальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алан Менкен - Увертюра (03:06)
-02. Алан Менкен - Пролог 1 (00:43)
-03. Екатерина Лёхина - Ария (01:03)
-04. Алан Менкен - Пролог 2 (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0C63465A6D99F4D6883678415A5E251E513A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131961   (698780) от 10.05.2017
-
-VA - Los 50 Grandes Éxitos del Tango Instrumentales (2014) [MP3|192 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florindo Sassone - Tierrita
-02. Los Astros del Tango - Derecho Viejo
-03. Mariano Mores - El Firulete
-04. Augusto P. Berto - De Pura Yerba(   Читать дальше...   )Жанр: TangoПродолжительность: 02:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE35695490F476D9982B0D9A94395B08D95B7A21
 ```
 
 https://mybot314.ru/tekegram_catalog/

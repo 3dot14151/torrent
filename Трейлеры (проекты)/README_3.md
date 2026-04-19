@@ -1,3 +1,29 @@
+###  Публикация: 1231423   (606536) от 17.06.2018
+
+Проекты - VideoHive - Legendary Epic Fantasy Intro - 21964523 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Legendary Epic Fantasy Intro - это кинематографический проект, выполенный в средневековом стиле, который вы можете использовать для представления своих фотографий, книжных трейлеров, трейлеров к историческим фильмам, или можно использовать его в качестве вступительного ролика для своего канала YouTube.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE55CC244DDE66B7549CBCE003D9B4B76F85D0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232172   (602702) от 22.06.2018
 
 Проекты - VideoHive - Fantasy Epic Battle Intro - 21950550 [AEP]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82995254A1F183DD97217BA184D68B57EB8143A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926062   (534930) от 09.08.2015
-
-Проекты - VideoHive - Urban Destruct #2 of the Cinematic series - 45644 [AEP]
-
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания превью к фильму. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A0DD9AC0E17D6DD3259E95E60797D2409232EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

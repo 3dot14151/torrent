@@ -1,3 +1,218 @@
+###  Публикация: 912712   (610490) от 26.06.2015
+
+Lorne Balfe - Terminator Genisys (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fate and Hope
+02. Better Days
+03. Work Camp
+04. Bus Ride(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352A50B777CB64B5CF21765E73AB44EEB08B10FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296536   (610254) от 18.04.2019
+
+VA - Now That's What I Call Country Vol 12 (2019) (2019) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kacey Musgraves - Space Cowboy
+02. Luke Bryan - What Makes You Country
+03. Luke Combs - She Got The Best Me
+04. Kane Brown - Lose It(   Читать дальше...   )Жанр: CountryПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E82DA767B8FBC513C040C653624BED60AF37505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037870   (610194) от 26.07.2016
+
+Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossless|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Connect [00:08:49]
+02. Floating to Forever [00:11:04]
+03. Letting Go [00:06:40]
+04. The Calm [00:13:20](   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036D0AE4D761985CB99DE541D8CFA8E33583D401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296657   (610130) от 18.04.2019
+
+Arnaud Rebotini - Curiosa (Bande originale du film) (2019) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curiosa
+02. Le miroir
+03. Noircissement direct
+04. Les egouts(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADACAF335D1A847BEFEEE1FD581D6EA5D4DEBB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296191   (610126) от 18.04.2019
+
+Faun - XV - Best Of (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pagan, Folk, Medieval>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Diese kalte Nacht (3:05)
+02.Federkleid (4:43)
+03.Feuer (4:39)
+04.FAUN feat. Micha Rhein - Buntes Volk (4:19)(   Читать дальше...   )Жанр: Pagan, Folk, MedievalПродолжительность: 02:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A480B5324D7CC711002FE2CF7E764CBEA211B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525096   (609888) от 20.07.2012
+
+Grupo Contraste - Native Voice (2004) [MP3|320 кб/с]<Native American, Ethno, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609888.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flying Condor (5:19)
+2. Buffalo Trail (5:32)
+3. Axtu Leman Sumix Sacred Mountain (5:17)
+4. Nothing Else Matters (5:18)
+5. Montezuma (4:45)
+6. The Return of Ringo (4:39)
+7. Precious Waters (5:54)
+8. Dawa (4:23)
+9. Spirit of the Flying Eagle (5:48)
+10. White Buffalo (5:34)(   Читать дальше...   )Жанр: Native American, Ethno, Ambient, New AgeПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95BB4968BA8780F05758578AF4E3D3E5C50D634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525132   (609711) от 20.07.2012
+
+Mesa Music Consort & Native Flute Ensemble - Wind Riders (2001) [MP3|320 кб/с]<Native American, New Age, Flute ,Ethnic,Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609711.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mesa Music Consort - Conferring Power 05:31
+2. Native Flute Ensemble - Deer Spirits Welcome the Dawn 02:08
+3. Mesa Music Consort - Wolf Woman Calls Hawk Spirit 04:17
+4. Native Flute Ensemble - Site of Great Mystery 03:08
+5. Mesa Music Consort - Council of the Flocks 05:35
+6. Native Flute Ensemble - Mustang Island 05:01
+7. Native Flute Ensemble - Spirit Seekers Ceremony 05:05
+8. Native Flute Ensemble - Dream Echoes 02:36
+9. Mesa Music Consort - Medicine Flute Dance 05:34
+10. Mesa Music Consort - Spirit of the Geese 03:54(   Читать дальше...   )Жанр: Native American, New Age, Flute ,Ethnic,FolkПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B547D63A94F08C394491D1925A04E66C942F1C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525304   (609703) от 20.07.2012
 
 Митя Кузнецов - Воображаемое путешествие в Китай (2006) [MP3|320 кб/с]<New Age, Ethnic Fusion>
@@ -554,209 +769,6 @@ Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F57F9F8DA85B09AC61A8FD1DD57E65790D7447C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066854   (603802) от 26.04.2022
-
-VA - Emmanuelle - Instrumental Collection (2004) [APE|Lossless|image + .cue] <Pop, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadows - Chattanooga Choo Choo
-02. P. Weekers - El Condor Pasa
-03. F. Papetti - Smoke Gets In Your Eyes
-04. F. Lay - Emmanuelle 2(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5A850108EC4CA5A77C0D2F758C8D7FF6C956F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148309   (603483) от 07.07.2017
-
-Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Thousand Star (8:16)
-02.Flow Of Time's Arrow (7:22)
-03.Belle E'Poque 3012 (8:16)
-04.The Visionary (9:05)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F5A0B05A4FC17596013746F81C5F9A93176754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148497   (603412) от 07.07.2017
-
-Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Funk, Soul>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. The Love I Lost
-02. Satisfaction Guaranteed (Or Take Your Love Back)
-03. Be For Real(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 03:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDD75659B38FC441E7ED8F25AA5584D42A85D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546870   (603350) от 27.04.2022
-
-VA - Borderlands 3 Original Game Soundtrack (2019) [FLAC|Lossless|tracks] <Game OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск 01
-01. Sanctuary 3 - Michael McCann (7 min 18 s)
-02. Landing on Athenas - Michael McCann (4 min 13 s)
-03. Liberating Athenas - Michael McCann (4 min 21 s)(   Читать дальше...   )Жанр: Game OSTПродолжительность: 05:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1B5783847552EB87C0E4693376FC380345A0E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231743   (603195) от 21.06.2018
-
-Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exile [03:31]
-02. Revolt [02:11]
-03. Cytokine Storm [01:59]
-04. Heart and Soul [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1AEC102A73C568A9EFF3EE5841C6FB7C6FEBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231744   (603182) от 21.06.2018
-
-Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromeda [03:09]
-02. Visitors from the Stars [02:38]
-03. Ancestors [03:08]
-04. A Million Years Journey [03:13](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B494F55DD309505B083D7F2EA2B1F635660AE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297649   (603095) от 24.04.2019
-
-Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603095.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jacaranda Street (5:33)
-2. The Lavender Lighter (3:32)
-3. My Love Waits For Me (4:06)
-4. Stepping On That Bridge (3:32)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DB87800156C61EB3CD70335C75D7A0FD23854A
 ```
 
 https://mybot314.ru/tekegram_catalog/

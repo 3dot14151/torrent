@@ -1,3 +1,61 @@
+###  Публикация: 1258661   (334600) от 31.10.2018
+
+VA - Hits From The Dancefloor (2018) [MP3|320 Kbps] <Funky, Vocal, Club, Nu Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Busiello - My Friend
+02. Alex Barattini - Abc
+03. Corti & Lamedica - I Rock I Sweat I Dance
+04. Nick Detti - I Do It For Money (Funky Bull Remix) (Feat. Francesca)(   Читать дальше...   )Жанр: Funky, Vocal, Club, Nu DiscoПродолжительность: 02:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0AE880AC5B4248EF284022BF03D8CC124CA6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259033   (333037) от 01.11.2018
+
+Dance Mission - Italo Disco Chapter 80ies (2018) [MP3|320 Kbps] <Euro-Pop, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TMY (3:21)
+02. Night After Night (4:10)
+03. Blinded by the Light (3:54)
+04. Deep in My Heart (3:52)(   Читать дальше...   )Жанр: Euro-Pop, Italo-DiscoПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33D6B24A9B3CC4F4483E97336D336CAEFA80D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259014   (332931) от 01.11.2018
 
 Army of Lovers - Massive Luxury Overdose (1992) U.S. Edition [MP3|320 Kbps] <Pop, Disco>
@@ -684,64 +742,6 @@ Sarah Brightman - Harem (2003) [OGG Vorbis|484 Kbps] <Electronic, Classical, Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C1E9F62EA8ABF110AF5944B182B0E1DC8E5014C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582094   (324587) от 08.10.2022
-
-Sarah Brightman - Classics (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria (New Recording)
-02. La Wally
-03. Winter Light (New Recording)
-04. Anytime, Anywhere(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47595C5B9CABB7A10882F2D15208E014A440405F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582197   (324586) от 08.10.2022
-
-Sarah Brightman - Symphony (2007) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gothica
-02. Fleurs Du Mal
-03. Symphony
-04. Canto Della Terra (Duet With Andrea Bocelli)(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7341D82EA3F41F260F6F3364196E66EEDFBCD03E
 ```
 
 https://mybot314.ru/tekegram_catalog/

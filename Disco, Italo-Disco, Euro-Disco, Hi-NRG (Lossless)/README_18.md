@@ -1,3 +1,151 @@
+###  Публикация: 950836   (362755) от 29.10.2015
+
+Video Kids - The Invasion Of The Spacepeckers (1995) Unofficial Release [FLAC|image + .cue]<Euro-Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do the rap (3:37)
+02. Cartoney tunes (4:24)
+03. La bamba (4:14)
+04. I'm A Rock'n'Roll Pecker (2:30)(   Читать дальше...   )Жанр: Euro-Disco, ElectronicПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F8AB092056A3EB14BF6C25FE0772F31D5B5E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071404   (361701) от 09.11.2016
+
+Cerrone - Red Lips (2016) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Therapy
+02. Move Me
+03. Illuminate Me
+04. Ain't No Party (Like Monday Night)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3803E1218A479251AFD52B91748DDC100074C27A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 407642   (360799) от 07.11.2011
+
+Collage - Raccolta Di Successi (1995) [FLAC|Lossless]<Italo-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Italo-popПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 407646   (360313) от 07.11.2011
+
+Al Bano & Romina Power - Vincerai (Their Greatest Hits) (1991) [FLAC|Lossless]<Italo-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vincerai
+02. Tu Soltanto Tu
+03. We'll Live It All Again
+04. Dialogo
+05. Ci Sara
+06. Makassar
+07. Sempre, Sempre
+08. Cara Terra Mia
+09. Il Poeta (Yunus Emre)
+10. Che Angelo Sei(   Читать дальше...   )Жанр: Italo-popПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328990   (359065) от 02.10.2019
+
+Mozzart - Devil's Randezvous: Greatest Hits & More (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money (Maxi Version)
+02. Jasmin China Girl (Maxi Version)
+03. Devil's Rendezvous (12" Version)
+04. Malice & Vice (12" Version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6376B51BDCC63B9EF1680C255DB895A0A0400238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577368   (356664) от 18.09.2022
 
 Savage - Tonight (Expanded Edition) (1984) 2022 Reissue, Remastered, Maschina Records [FLAC|Lossless|tracks + .cue] <Italo-Disco>
@@ -603,151 +751,6 @@ VA - Disco 80's Rare & Special Versions Vol. 2 (2016) Compilation [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37F93D564CD5960BE0094305123F19EC7E13FE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421319   (317475) от 05.11.2020
-
-VA - Rare80 Records - Rare80 Volume 1 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rare80 Volume 1 CD1
-01. Sign System - Man On The Run (Extended Version)
-02. One To One - There Was A Time (Dance-Mix)
-03. Style - Empty Bed (Full Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF887A78FFEC06EBC5BD274598FF37BD4A2D83A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421322   (317474) от 05.11.2020
-
-VA - Rare80 Records - Rare80 Volume 2 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rare80 Volume 2 CD1
-01. Shanghai - Ballerina (Club Mix)
-02. Andrea - Macho Man (Macho Man Version)
-03. Rewind - Rosalie (Pop & Go) (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFFF599D4AAD54D4B729FD873A96691D2AF8AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182216   (316947) от 10.11.2017
-
-VA - Sunlover Records Compilation Vol.1 - Italo Disco is Back! (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VHS Dreams - Space Race (5:34)
-02. RetroSynther - Technocity (6:05)
-03. Les Chic Voltage - Disco Gallo 84 (3:21)
-04. Apollo Zapp feat. Reo - Hula Hoop! (3:03)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4A0BAF55DA6C43348AA0C4E447B6AADFC6EA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422038   (313048) от 07.11.2020
-
-VA - Rare80 Records - Rare80 Volume 3 (2013) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rare80 Volume 3 CD1
-01. Tea Es - Captain Terra X (24 More Hours) (Extended Version)
-02. Les Montes - Night Life (Single Version)
-03. Rewind - Rosalie (Pop & Go!) (Dub Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063C4C27A44DFDC38B2902FAD9971A6D6B0FBA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332923   (308789) от 22.10.2019
-
-Blue System - Magic Symphonies (The Very Best Of Blue System) (2009) 3CD, BoxSet, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/14. Sorry Little Sarah (Long Version) (5:16)
-02/14. My Bed Is Too Big (No Longer Too Big Bed Mix) (5:27)
-03/14. Under My Skin (12'' Version) (5:16)
-04/14. Silent Water (Long Version) (4:51)(   Читать дальше...   )Жанр: Electronic, Euro-Disco, Synthpop |Продолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C395F5AACF544DD7C6093B410189784C503E17
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1382601   (819278) от 11.05.2020
+
+V.A. - Tales Of Wonder: A Jazz Celebration Of Stevie (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Works For Me - Send One Your Love
+02. Jon Davis - My Cherie Amour
+03. Theo Hill - Superwoman
+04. Idle Hands - You And I(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F40FDBBE08965D253A2A9610AA65B620F24D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117303   (819267) от 22.03.2017
 
 Miles Davis - Porgy & Bess / Miles: The New Miles Davis Quintet & Blue Haze (1955, 1956, 1958) 2CD, 2010, Not Now Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
@@ -716,35 +745,6 @@ Geri Allen - Maroons (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA47B896E9BB418ABC24084D01534583E8E5AE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197491   (815918) от 07.01.2018
-
-Jim Rotondi - Dark Blue (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Graz [06:13]
-02. BC [05:14]
-03. Biru Kirusai [05:27]
-04. Dark Blue [08:00](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC456B9BEC8B9BE354687A3F16B1901E03BB166
 ```
 
 https://mybot314.ru/tekegram_catalog/

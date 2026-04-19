@@ -1,3 +1,29 @@
+###  Публикация: 1357911   (971455) от 05.02.2020
+
+Slaughter 3: The Rebels (2019) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slaughter 3: The Rebels — это шутер от третьего лица с большим количеством оружия, веселья и черного юмора. Одиночная кампания предлагает мрачную историю, которая ведёт Рассела через множество уровней и миссий. Прорывайся сквозь врагов, уничтожая все, что движется!Тип издания: RepackРазработчик: VenomizedArtЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35027FCF8425EB65827ABDBDBE182B15101E422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 744422   (971122) от 11.01.2014
 
 Scarface: The World is Yours (2006) [En/Ru] (1.0) Repack R.G. Games
@@ -657,32 +683,6 @@ The Admin - совсем не динамичный шутер от третье�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DCC568BE85AA5821A65460E23F375DEE3F73FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093569   (933008) от 15.01.2017
-
-Disney Infinity Trilogy (2013-2016) [Ru/En] (20161216/dlc) Repack R.G. Механики [Gold Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disney Infinity 3.0 Edition - это аркадная песочница, посвященная героям различных франчайзов «Диснея». В третьей части Disney Infinity к героям «Пиратов Карибского моря», мультфильмов студии Pixar и супергеройской киновселенной Marvel впервые присоединятся персонажи «Звездных войн».Тип издания: RepackРазработчик: Avalanche Software, Ninja Theory, Sumo Digital, Studio Gobo и United Front GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1754D51C467F14D9B4CBBB9B81BC7B04EE81F53
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1400405   (718849) от 05.08.2020
+
+VA - Italo Disco 80 Legends, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Video - Somebody (Hey Girl) (Radio Version) (3:50)
+02. Jock Hattle - Crazy Family (Single Mix) (3:59)
+03. Visions - Everybody (Radio Version) (3:22)
+04. Anthony's games - Sunshine Love (Dance Edit) (4:25)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765C40CE6C780E3ABB22F7ED9C37AA7FA4E013DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024435   (717770) от 08.06.2016
+
+Scotch - Evolution (1985) Reissue, 2016, Deluxe CD Music [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primitive Man (4:19)
+02. Take Me Up (3:32)
+03. Man In The Man (4:07)
+04. Born To Kill (5:51)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE14B580D8E75FF3D7053C017CC8D40FDAF6753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286275   (713008) от 02.03.2019
+
+DiscoBonus - Nothing Is Forever (2017) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spend Your Money
+02. Do You Want To Live Forever?
+03. Love Me
+04. The Grand Illusion I: Share The Fantasy(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881737C0D412A8912F3860309F03ED78FC639999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286378   (712886) от 02.03.2019
+
+Donna Summer - Endless Summer (Donna Summers Greatest Hits) (1994) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melody of Love (Wanna Be Loved)
+02. Love To Love You Baby
+03. Could It Be Magic
+04. I Feel Love(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0BBEFCACC9415DB3C486D5118D0538298418D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131188   (710530) от 04.05.2017
+
+Mark Ashley - My Hit Collection (2000) [FLAC|Lossless|image + .cue] <EuroDisco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On A Sunday (Radio Version) (3:35)
+02. Mareen (Radio Version) (3:52)
+03. Lover Why (Radio Version) (3:59)
+04. Dream Of Great Emotion (Radio Version) (3:50)(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F0501100859657122D07EEC44ED9EDC88CCA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131533   (706466) от 06.05.2017
 
 Baccara - I Belong To Your Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Euro Disco>
@@ -605,151 +750,6 @@ VA - Turbo Disco - Лучшие Хиты Дискотек (2001) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:594C4E23183E8383C140C080F71861D54FA5CAE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539645   (656116) от 27.03.2022
-
-Scotch - Disco Collection (2003) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Band
-02. Take Me Up
-03. Mirage
-04. Money Runner(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C9CD34C302C4BDB418B96F76D47F63DC687863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540189   (654950) от 28.03.2022
-
-VA - Turbo Disco International - Vol. 1 (2004) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gibson Brothers - Cue Sera Mi Vida
-02. Jairo Pereira - Pais Tropical
-03. Supermax - African Blood
-04. Ricchi & Poveri - Acapulco(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCD33F6E0FAEDFCC450553A9AD6407647264F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226481   (654780) от 21.05.2018
-
-Tonschatz - DAO - Follow Your Heart (2018) [FLAC|Lossless|image + .cue] <Euro-Disco, Europop, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Your Heart (Reset Your Life) (4:03)
-02. Midlife Dreams (3:26)
-03. Odyssey (You Can Change Your Life) (4:16)
-04. Columbus (3:26)(   Читать дальше...   )Жанр: Euro-Disco, Europop, Synth-popПродолжительность: 00:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651B76ABB8F6ABD91CAECA012FE0D95C084D0C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540341   (653963) от 29.03.2022
-
-Fancy - Turbo Disco (2002) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Voice In The Dark
-02. Die For You
-03. Fools Cry
-04. Pretty Woman(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672103AB8450E6F55A14E6E332A8E12FC4C84B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141029   (653935) от 08.06.2017
-
-Munich Machine - Get On The Funk Train (1996) Remaster, 2011, Repertoire Records, Compilation [FLAC|Lossless|image + .cue] <Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get On The Funk Train (15:43)
-02. Love To Love You Baby (2:33)
-03. Trouble Maker (2:47)
-04. Try Me, I Know We Can Make It (3:31)(   Читать дальше...   )Жанр: Disco, ElectronicПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC5A3F0DD1C1831898B1939BDF9D677A45235C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1094725   (928769) от 18.01.2017
+
+Проекты - VideoHive - Epic Opener - 19161016 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания начального видео, промо-ролика или трейлера на эпическую тематику.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE35B814CCB86D8B43907594EC52F9ED8C8670A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987000   (928761) от 15.02.2016
+
+Проекты - Проект ProShow Producer - Rolling Effects [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский проект от grandpajanek. Рулоны разворачивающиеся и сворачивающиеся.
+Презентация очень проста в редактировании, обычная замена файлов. Всё оставлено в авторском исполнении.
+Превью (авторский ролик) и аудиотрек (извлечённый из ролика превью) - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E92A917CA251CF57C32282291AAFFA9BC8B6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094669   (928657) от 18.01.2017
 
 Проекты - VideoHive - Epic Parallax | Cinematic Slideshow - 18614010 [AEP]
@@ -630,59 +684,6 @@ Lovely Slideshow - это прекрасный проект для создан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D35508E8DEB0643CF9856D47AF7B9DFD0C8F8D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988694   (920397) от 20.02.2016
-
-Проекты - VideoHive - Clean Corporate Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526EA9E78AFB6FBD6B44B5AA620F232CD324F64A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096275   (920277) от 23.01.2017
-
-Проекты - VideoHive - Memory Book [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memory Book - проект для создания памятного фото-альбома.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E97C05583FA5D93AF8D202A89A6C8ACFC1E094
 ```
 
 https://mybot314.ru/tekegram_catalog/

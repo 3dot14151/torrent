@@ -1,3 +1,177 @@
+###  Публикация: 1349078   (140071) от 30.12.2019
+
+VA - House Fusion: Absolute EDM Sound (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alka - Drop The Boom (Original Mix)
+002. Abel Feat Shelley Chapman - Just Another Day
+003. Consilio - The Colours Of Love
+004. Matulu - Fumo(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 13:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A5DC8098E87A4EF9AB125875541A4C98DC833A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435987   (139668) от 30.12.2020
+
+VA - DNA Techno Mix (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139668.jpg" />
+</div>
+
+
+###  Подробнее
+
+За лаконичностью мелодий и однообразием музыкального ряда усматривается потаённый посыл к теме техно апокалипсиса. Вне всякого сомнения, поклонники техно и минимала с футуристическим оттенком, которые любят не только «чтобы рубило», будут не разочарованы данной подборкой.001. Dj Octopus - Quieora
+002. Scarper - Rhodopsin
+003. Mark Knight - Tonight
+004. Flaws - Gaiter(   Читать дальше...   )Жанр: Techno, Tech House, Electro, EDMПродолжительность: 12:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662567C61CA5D23993C285DD8CDA25FB6CFBA7F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435988   (139538) от 30.12.2020
+
+VA - Beatport Psy Trance: Electro Sound Pack #215 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда ты в стремлении воспарить над землей и охватить своими взором каждую точку горизонта. Таково настроение альбома в целом. Если в начале альбома имеет место быть динамика и порывистость треков, то к экватору релиза музыка парит как птица на воздушных потоках футуристики. Почти каждый трек содержит интригующие клавишные звуки и изящные синты, выдающие в их авторах (   Читать дальше...   )001. Mental Broadcast - The New Normal
+002. Sun69 - Stay Gold (Original Mix)
+003. Antidota - Koto Clrcus
+004. Helber Gun - Don Emilio (Original Mix)(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 11:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65990FC6D4B6E8B158D6D4009C75742C2E86BD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520927   (139454) от 30.12.2021
+
+VA - Beatport Trance: Sound Pack #386 (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно, кто-то в этом треклисте увидел своего любимого продюсера или диджея. Но музыка транса разнообразна и не заканчивается только этими музыкантами. За то мы и любим эту музыку - музыку прогрессии и обворожительных мелодий. А кто-то наоборот любит мощный басс и агрессивный ритм. Любой может найти в этом направлении электронной музыки что-то свое. Trance разнообразен, (   Читать дальше...   )001. Gayax - Bliss
+002. Mental Luke - I Will Fly
+003. Gianmarco Fabbretti - Together
+004. Micro Out - Tidal Wave(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 09:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5FA6CDCDB1C714251C5B738E48CCBFD5F8EBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088406   (139418) от 31.12.2016
+
+VA - Finding Around Happiness (Energy Tech Trance) 012 (2016) [MP3|320 Kbps] <Trance, Stadium Trance, Melodic, Energy, Tech-Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren - I Live for That Energy (ASOT 800 Anthem) (Extended Mix) 6:40
+02. DRYM & Abstract Vision - Shark (Original Mix) 5:07
+03. Feel & Natalie Gioia - Madwoman (Attila Syah Remix) 5:32
+04. Dennis Sheperd & Liuck Ft. Lady V - Glass House (Original Mix) 5:34(   Читать дальше...   )Жанр: Trance, Stadium Trance, Melodic, Energy, Tech-TranceПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BC3FC25B0F7C9CD946BC2E5376DE703192146F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088388   (139385) от 31.12.2016
+
+VA - Trance Elegance On This Year 005 (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UDM - Tornado (Original Mix) 6:37
+02. Lucid Blue - Eyes Wide Open (Saad Ayub Remix) 6:40
+03. Adam Lester - That Moment (Original Mix) 8:59
+04. Kukuzenko - Immortal (Original Mix) 6:44(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D898577BC38E1255383D5FF49D80E02F3A1CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088451   (139257) от 31.12.2016
 
 VA - Top 50 Uplifting Trance 2016  [MP3|320 Kbps] <Uplifting Trance>
@@ -598,216 +772,6 @@ VA - 70's Club Hits Reloaded, Vol. 4 (Best of Disco, House & Electro Remix Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DA8DA01BE5B227EF2C5A390F7028DBDED3DB7C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592863   (135722) от 22.12.2012
-
-VA - Trancern 2012.5 - Official Compilation (Best of 2012) (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
- 02. Gareth Emery - Concrete Angel (Original Mix)
- 03. Akira Kayosa & Bevan Miller feat. Carly Kling - Phase 3 (Original Mix)
- 04. Lange vs. Gareth Emery - Another You Another Me (Rafael Frost Remix)
- 05. Solarstone With Giuseppe Ottaviani - Falcons (John O'Callaghan Remix)
- 06. DubVision - All By Myself (David Jones Remix)
- 07. Delerium feat. Michael Logen - Days Turn Into Nights (Solarstone Pure Mix)
- 08. Andrew Rayel - Believe (Original Mix)
- 09. Andy Tau & Sean Truby - Rapture (Suncatcher Remix)
- 10. The Thrillseekers feat. Fisher - Angel (Eximinds Remix)(   Читать дальше...   )Жанр: Trance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822E91B81BF0AADE5C8F94111C059B1E77FC1051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592849   (135721) от 22.12.2012
-
-VA - Keri Gen - True Trance Nation (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epos - Polarized (Magic Island 200th Episode Theme) (Original Mix)
- 02. Armin van Buuren & Orjan Nilsen - Belter (Original Mix)
- 03. Moonbeam feat. Jacob A - Only You (Club Mix)
- 04. 2Players - Signet (Wellenrausch Remix)
- 05. KhoMha - Days Gone Bye
- 06. Aly & Fila vs. Ummet Ozcan - FSOE 200 Anthem (Keri Gen 2 in 1 Mashup)
- 07. Above & Beyond feat. Zoë Johnston - Alchemy (Myon & Shane 54 Redemption Mix)
- 08. Richard Durand vs. The World - Stand Again (Original Mix)
- 09. Alexandre Bergheau - Adduria (Original Mix)
- 10. Armin van Buuren feat. Jan Vayne - Serenity (Andrew Rayel Aether Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8528D18543B5A1A39328A7EFE1096370F21C1863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593334   (135451) от 23.12.2012
-
-VA - Dance Vibration Vol 2 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B-A-D-B-O-Y-Take Me Away (Vinylbreaker Remix) 05:41
- 02. Basewalker & Vyrus-Dancing Through the Night 06:12
- (DJ Locos Summer Remix)
- 03. Clark Owen-Melody 05:45
- (Wavepuntcher & Sexual Energy Remix)
- 04. Dittin & Jockiboi-VI Dricker Redbull Och Vodka 05:19
- (Saamen Van Aaren & Nrg-Boy Summer Remix)
- 05. DJ Darroo-Black Magic 08:34
- 06. DJ Equan-I'm Destination 06:47
- 07. Edvard Hunger-Close My Eyes 05:41(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79843F382DC8FB8D76DAF39134FDA516C495C35E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592072   (135410) от 23.12.2012
-
-VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal Step>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Asking Alexandria - A Lesson Never Learned
-2. Bassex - Tinnitus
-3. Butch Clancy - Xlam
-4. Butch Clancy- The Devil's Quid Pro Quo
-5. Cenob1te - Hyperion
-6. Deltron 3030 - Upgrade (Figure Remix)
-7. Demented Dimensions - I Swear to God
-8. Document One feat. Maksim - Kick Snares And Brehs
-9. Dubwoofer - Carol Of The Bass
-10. Eliminate - Devil Theory(   Читать дальше...   )Жанр: Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal StepПродолжительность: 02:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591856   (135372) от 23.12.2012
-
-VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Degrees Of Motion & North Base - Shine On (Dubstep Mix)
-02. Other Echoes feat. Julian Huggins - Free Running
-03. Delerium feat. Michael Logen - Days Turn Into Nights (Seven Lions Remix)
-04. Waverokr - Gravity Switch
-05. Dubba Jonny - Smack It!
-06. Molecule - Ghetto Superstar
-07. DKS - Can't Get Enough (Original Mix)
-08. Hardwell feat. Amba Shepherd - Apollo (3rd Prototype Bootleg)
-09. TS7 - Struggle (DJ Q Remix)
-10. Smooth feat. Tasha Baxter - Nowhere(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE01CE8DE485381BFF5BAC1C0EDFCA34F86E334C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591841   (135288) от 23.12.2012
-
-VA - DubStep Pro V.8 (2012) [MP3|320 кб/с]<DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koda - The Last Stand
-02. Kyson - Remi (Essay Remix)
-03. Trifonic - Santa Rosa (Original Mix)
-04. Leon Hayward - Me & You (Original Mix)
-05. Helios - The Obeisant Vine (Hammock Remix)
-06. Azedia - Precipitate (Original Mix)
-07. Bar9 - Before The Storm (Original Mix)
-08. Synchronice - Broken Record (Original Mix)
-09. Skullee ft Jose Feliciano - Feliz Navidad
-10. Cyberoptics & F3tch - Wormhole (Original Mix)(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F19C5C5C6283D79DFD697D24E0AC15B3E6797169
 ```
 
 https://mybot314.ru/tekegram_catalog/

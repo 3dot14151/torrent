@@ -1,3 +1,29 @@
+###  Публикация: 548753   (464861) от 19.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 75 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FBB19A74C390FD713FAF0F985CEB2212E157D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549179   (464694) от 19.09.2012
 
 VA - Инструментальная музыка (2012) vol. № 78 [MP3|320 кб/с]<Instrumental>
@@ -767,35 +793,6 @@ VA - Инструментальная музыка (2012) vol. № 88 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:793BA79B6CBEC51938585CD472AE9CDCA5A05626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944304   (440231) от 07.10.2015
-
-VA - Calming Piano Music The Best Relaxing Instrumental Songs Easy Listening Mellow Cafe and Jazz Piano Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxing Piano Music Ensemble - Calming Piano Music
-02. Relaxing Piano Jazz Music Ensemble - Piano Lounge (SPA Music)
-03. Sad Instrumental Piano Music Zone - Jazz Piano Music (Relaxing Jazz)
-04. Piano Jazz Calming Music Academy - Relaxing Music(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C60366C94B1B0017D2B1DA2AC93D51445090C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

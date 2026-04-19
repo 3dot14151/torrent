@@ -1,3 +1,38 @@
+###  Публикация: 508686   (668369) от 15.06.2012
+
+Сборник видеоклипов Millenium Dance 7 (2012) DVD5
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Elena Gheorghe - Midnight Sun
+02 Dina Gabri - Naughty Boy
+03 Corina feat.JJ - No Sleepin
+04 Juan Magan - Mariah
+05 September - Cry For You
+06 Ida Corr - What Goes Around Comes Around
+07 Taio Cruz - Break Your Heart
+08 Alexandra Stan - Lollipop
+09 Radio Killer - Lonely Heart
+10 Milk and Sugar vs Vaya Con Dios - Hey Nah Neh Nah(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1153B9CD1BB5E4A2F5109A2FA3F78736174A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 338933   (667137) от 20.05.2011
 
 Бригадун / Brigadoon (1954) DVD9
@@ -19,6 +54,33 @@
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CD9C8A2EACD141FB5512A5ABED4BF8DFBE10EB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342442   (659244) от 27.05.2011
+
+Madonna - The Confessions Tour (2007) DVD5
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_659244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта Мадонны, сделаная в Лондоне в рамках тура "Confessions".
+Выпустив свой триумфальный альбом "Confessions On A Dance Floor", Мадонна отправилась в мировое турне. Предыдущий тур певицы - Re-Invention Tour - наглядно продемонстрировал, что среди современных поп-певиц ей нет равных на сцене. Секрет успеха ее концертов в том, что помимо отличных песен (а репертуар Мадонны, как известно, постоянно пополняется новыми хитами) «королева поп-музыки» предлагает зрителям незабываемое шоу. Это не просто набор пиротехнических или лазерных эффектов, сопровождающих нехитрые «танцульки», а полноценное хореографическое-музыкальное действо - со сквозными темами, с единым концептуальным и идеологическим подходом. Так что наслаждаемся просмотром ее концерта в Лондоне!Жанр: КонцертПеревод: не требуетсяФормат: DVD VideoПродолжительность: 02:01:15
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,58 +706,6 @@ DEV - In The Dark / DEV - In The Dark (2011) HDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D125D0310CEEC0A20BF57C6BFA539D18AB22CFB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361015   (577206) от 10.07.2011
-
-Medina - Addiction (2011) HDRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый клип на песню Addiction-2011 в исполнении знаменитой датской певицы Медины (Medina), чилийского происхождения , которая в 2009 году одержала победу на премии «MTV Europe Music Awards 2009» в Берлине в номинации «Лучший датский исполнитель».Жанр: ВИДЕОКЛИПРежиссер: N/AАктеры: MedinaПеревод: ОтсутствуетПродолжительность: 00:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0B04764A63ADD8A73F4E927BE0C1CA8E7C5E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361313   (576939) от 10.07.2011
-
-David Guetta ft Nicki Minaj & FloRida – Where Them Girls At (2011) HDRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами премьера нового клипа David Guetta на его трек – “Where Them Girls At“, с участием Flo Rida и Nicki Minaj. Трек является первым синглом его грядущего альбома  - “Nothing But The Beat“, дата выхода которого назначена на 29 Августа 2011 года.Жанр: ВИДЕОКЛИПРежиссер: N/AАктеры: David Guetta ft Nicki Minaj & FloRidaПеревод: ОтсутствуетПродолжительность: 00:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499006106782AD024067052B31BDB21FA04749ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

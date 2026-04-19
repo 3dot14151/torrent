@@ -1,3 +1,177 @@
+###  Публикация: 1458751   (1023475) от 31.03.2021
+
+VA - More Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Brickman - Sing (2:56)
+02. Stan Whitmire - Hero (4:21)
+03. Jim Brickman - Love Me Like You Do - From Fifty Shades Of Grey (5:03)
+04. Pat Coil - The Old Songs (3:49)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 03:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B46301E934A8B23E864F9385EF0D2A3DAE54C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459059   (1023468) от 31.03.2021
+
+Corrado Carosio & Pierangelo Fornaro - Rocco Schiavone 1-4 (Colonna Sonora Originale Della Fiction TV) (2016-2021) Rai Com [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Soundtrac ...
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ugo In Love (02:07)
+ 02. Teatro Romano (02:48)
+ 03. Il Grande Ritorno (02:17)
+ 04. Amantidi (01:40)(   Читать дальше...   )Тип издания: WebЖанр: Modern Classical, Ambient, Soundtrack •Продолжительность: 02:44:48 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A554CB22C7870A2D617DE6ABDDF1F64D4A18BC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457771   (1023466) от 31.03.2021
+
+Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023466.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:29] 01. '84
+[04:39] 02. No Hero Is Born from Lies
+[05:09] 03. Apex Predator
+[06:50] 04. The Monkey Paw(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8973E0E51144EDCA2099EAD44AA244AD917366AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457715   (1023464) от 31.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023464.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:20] 01. Pensacola, Florida (Godzilla Theme)
+[07:26] 02. Skull Island (Kong Theme)
+[02:02] 03. Apex Cybernetics
+[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB15A744B58F72E42D5115BFDB70BABFBD932CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457977   (1023463) от 31.03.2021
+
+Oscar Lopez - Guitar Masters (2002) Compilation [MP3|320 Kbps] <Flamenco, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armando's Fire (3:26)
+02. Walking Through The Pyramid (3:53)
+03. Chile (3:28)
+04. Latino (4:28)(   Читать дальше...   )Жанр: Flamenco, GuitarПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9CBC2FEDE047D6126D6C2C2D2152812F9EB8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457766   (1023462) от 31.03.2021
+
+Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023462.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:52] 01. Themyscira
+[05:18] 02. Games
+[07:05] 03. 1984
+[04:56] 04. Black Gold(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6F9B061A998978472BB45B79C61637848BEE8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459161   (1023305) от 01.04.2021
 
 Анастасия Бардина - GRAN-d SURPRISE (2006) [MP3|320 Kbps] <Guitar, Acoustic>
@@ -571,182 +745,6 @@ Shanti People - Urban Mantras (2015) [MP3|320 Kbps] <New age, Folk, Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5818760EF3D62AE6812313E2540D8837871F3BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465723   (1018931) от 27.04.2021
-
-Medwyn Goodall - The Wolfstone (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Mother Rising
-02. Shield Maiden
-03. The River Folk
-04. The Fields of Summer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A38A72821D8AAEF1C6BB77A24463C774025539D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465873   (1018772) от 28.04.2021
-
-Tierra Negra - Discography (1997-2020) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic Guitar, Flamenco Nuevo>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rafaga De Luz (3:29)
-02. Boreal (3:40)
-03. Djobi Djoba (2:47)
-04. Tramontana (3:49)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar, Flamenco Nuevo |Продолжительность: 14:40:19 | Кодек: FLAC | Битрейт: Lossless|WEB-DL | Тип рипа: tracks
-
-Tierra Negra - немецкий гитарный дуэт Leo Henrichs and Raughi Ebert. Оба участника называют свой стиль музыки Mediterranean Guitar Lounge и Flamenco Nuevo. Кроме этого, они продают свою собственную фирменную модель гитары фламенко (для справки - Gipsy Kings играет только на гитарах марки Tierra (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87443B3532F8C2D27EAD5B4404FAA5228AAE7069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469518   (1016395) от 12.05.2021
-
-Kundalini Yoga Music - Autogenic Training Channel (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kundalini Yoga Music (4:01)
-02. Spa Relaxation - Rain Sounds (3:13)
-03. Spirituality (4:17)
-04. Nocturnal Relaxation (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D753A13A1294DA8F3F750A9B500533B5564FF812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469997   (1016129) от 14.05.2021
-
-Autogenic Training Channel - Daily Ritual Meditation (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daily Ritual Meditation (4:01)
-02. Happy to See You - Rain Sounds (3:13)
-03. Shimmer (4:17)
-04. Inner Peace (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CED711CDCBD8D646D974A4C8034056627E09D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469936   (1016099) от 14.05.2021
-
-Autogenic Training Channel - Self Hypnosis, Nature Music (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Hypnosis, Nature Music (4:01)
-02. Above the Clouds (with Rain Sound) (3:13)
-03. Beyond The Mind (4:17)
-04. No Space (Flute) (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240F00624F569B0B411873072CC049EB79D2B39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438579   (1015873) от 15.05.2021
-
-Era - 7 Albums (1996 - 2010) [FLAC|Lossless|tracks + .cue]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Paternum Deo + Pachelbel's Canon 4:05
-02. Madeus + Mozart's Requiem 4:14
-03. Abbey Road Blues + Albinoni's Adagio in G minor 4:37
-04. A Brand Bew Day + Bach's Cello Suite N°1 in G major 4:32(   Читать дальше...   )Жанр: New AgeПродолжительность: 04:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5DC4BA1418DBFB4CDB413F54B1A2D7EF5A7FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

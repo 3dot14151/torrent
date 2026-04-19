@@ -1,3 +1,234 @@
+###  Публикация: 1637074   (240274) от 02.06.2023
+
+Reba McEntire - Read My Mind (1994) [FLAC|Lossless|tracks + .cue] <Country Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything That You Want (4:23)
+02. Read My Mind (4:04)
+03. I Won't Stand In Line (4:02)
+04. I Wish That I Could Tell You (3:18)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00: 38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0790EB4AE9DB87BC829E0603F7B41E02A98407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634939   (240169) от 23.05.2023
+
+Tinariwen - Amatssou (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <World>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kek Alghalm (3:32)
+02. Tenere Den (3:32)
+03. Arajghiyine (3:59)
+04. Imzad (Interlude) (1:02)(   Читать дальше...   )Жанр: WorldПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F2982A383922D4525D9FFE15AD086DBBA199A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626131   (239826) от 19.04.2023
+
+Buddha Room - 2 + Hours of World Music (2018) [MP3|320 Kbps] <Ethnic, World Music, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Music [04:09]
+02. Stop Overthinking [06:47]
+03. Inner Silence [06:35]
+04. Tribal Atmosphere [06:41](   Читать дальше...   )Жанр: Ethnic, World Music, LoungeПродолжительность: 02:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D415C8F7F951BA715144245E807F74277CF1EFEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638212   (239421) от 07.06.2023
+
+Tanya Tucker - Sweet Western Sound (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanya (0:50)
+02. Kindness (3:21)
+03. Breakfast In Birmingham (3:30)
+04. Waltz Across A Moment (4:09)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2F30CDE7F8088FFFD7CE9476F3DC3DD4A5FDEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638190   (239401) от 07.06.2023
+
+Rufus Wainwright - Folkocracy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone (feat. Madison Cunningham) (3:14)
+02. Heading for Home (feat. John Legend) (4:22)
+03. Twelve-Thirty (Young Girls Are Coming To The Canyon)Жанр: FolkПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2F82C6BF42E5D99F2A191A15105FAF505231DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641607   (239286) от 25.04.2022
+
+ХОР "ДРАГОСЛАВ - Музыка старой Сербии (Песнопения XIV-XVIII веков) (1997) [MP3|192 кб/с]<Сербские Песнопения XIV-XVIII веков>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239286.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Хилендарский звон (1:03)
+2. Приидите вси земнороднии. Глас 1. Исаия Сербин (XV век) (1:16)
+3. Вкусите и видите. Глас 1. Кир Стефан Сербин (XV век) (2:04)
+4. Ныне Силы небесныя. Кир Стефан Сербин (XV век) (5:23)(   Читать дальше...   )Жанр: Сербские Песнопения XIV-XVIII вековПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7092F1063D6A9204CE758CD07CED6B35D783D555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640315   (239264) от 26.04.2022
+
+Мужской хор ИПК Валаам - Распевы Кирилло-Белозерского монастыря (1995) [FLAC|Lossless]<Церковные песнопения>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блажен муж
+02. Свете тихий
+03. Преподобне отче наш Кирилле
+04. Ныне отпущаеши(   Читать дальше...   )Жанр: Церковные песнопенияПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87194FB1425837043BD46B2794AEE7DA6BD2146B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634611   (239253) от 26.04.2022
+
+Мужской хор ИПК Валаам - Распевы Валаамского монастыря. Часть 2 (2002) [MP3|320 кб/с]<Церковные песнопения>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свете тихий
+02. Преобразуя Воскресение Твое Христе Боже
+03. Хвалите имя Господне
+04. Уст Твоих(   Читать дальше...   )Жанр: Церковные песнопенияПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5FD8349106D24D05B539BCF7BF5454946ABBE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627910   (238916) от 23.04.2023
 
 Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native American, World>
@@ -511,237 +742,6 @@ Mike Oldfield - Tubular Bells III (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1479B478154E2DE38B3069975A5091C8266A98D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582723   (230094) от 14.10.2022
-
-Kirtan Raga - Longing (2016) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maha Mantra raga Gunakri (Live)
-02. Om Namo Bhagavate Vasudevaya (Live)
-03. Maha Mantra raga Dhanashri (Live)
-04. He Govinda He Gopal (Live)Жанр: MantrasПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5747E5092ED7BB27006F32988D8365C90D7F800C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962959   (229967) от 12.12.2015
-
-Fausto Papetti - Isn't it Saxy? (1988) 2CD [FLAC|image + .cue]<Jazz, Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hill Street Blues (03:26)
-02. Sleepy Shores (02:56)
-03. Feelings (03:34)
-04. Ode To Billy Joe (02:49)(   Читать дальше...   )Жанр: Jazz, Easy Listening, InstrumentalПродолжительность: 01:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7FCB3A5D7C25492D0A08A4C2B28B99ABF9FB8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268005   (229768) от 09.12.2018
-
-OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moniker - Makutekahu [2:09]
- 02. Moniker - Ricky Runs [1:46]
- 03. Moniker - Cloak of the Sky [2:58]
- 04. Rima Te Wiata & Julian Dennison - Ricky Baker Birthday Song [0:51](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A38B1A2DC7F0128D5A707E14F7601B59756ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266859   (229679) от 09.12.2018
-
-Dolly Parton - Dumplin' (2018) Original Motion Picture Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here I Am (feat. Sia) (04:32)
-02. Holdin' On to You (feat. Elle King) (03:27)
-03. Girl in the Movies (04:34)
-04. Red Shoes (02:58)(   Читать дальше...   )Жанр: Blues, Country, FolkПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967414EE276D683EC90D15F7A1CC234CF87E7FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512622   (229245) от 26.11.2021
-
-Звонкий Янтарь - Коллекция (2019) 2альбома [MP3|320 Kbps] <Ethnic, Folk, Electronic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Связь
-02. Джунгли
-03. Индийский ОкеанЖанр: Ethnic, Folk, ElectronicПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFA5DF96BC51CB37964A0AD7BD84DCF3A10913B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424269   (228782) от 16.11.2020
-
-VA - The Best Christmas Album In The World...Ever! (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Thank God It's Christmas (2011 Remaster) 4:18
-02. Brenda Lee - Rockin' Around The Christmas Tree (Single Version) 2:05
-03. Justin Bieber - Mistletoe 3:02
-04. Katy Perry - Cozy Little Christmas 3:01(   Читать дальше...   )Жанр: Christmas MusicПродолжительность: 02:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6963576D16E96152F62B6923FE3D40A8FD03377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341800   (228780) от 29.11.2019
-
-White String Orchestra - Aktuelle Hits im modernen Streichersound Vol. 2 (1996) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover, Cover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me Softly (4:14)
-02. I Cant Help Myself (3:17)
-03. Where Do You Go (4:17)
-04. My Love (4:06)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, CoverПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2E3A66FA537C9433430E07B0658444A54EAADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341804   (228730) от 29.11.2019
-
-White String Orchestra - Traumhafte Balladen im modernen Streichersound - Vol.3 (1997) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Believe I Can Fly (4:18)
-02. Lonely (3:51)
-03. Time To Say Goodbye (4:05)
-04. When I Die (4:34)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2DE4D18573BEC545054E8B6888B149057DAA0F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1587238   (193086) от 29.10.2022
+
+Udemy, Art Studio | Modelling and Animating a Car in Blender (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193086.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе я пройду через процесс создания анимированной сцены в Blender с нуля.
+От первого полигона до финального рендеринга. В этом курсе мы будем использовать Blender 2.93. Вы узнаете все шаги, необходимые для воплощения в жизнь ваших собственных 3D-анимаций.Производство: UdemyЖанр: 3D моделирование, АнимацияЯзык озвучки: АнглийскийПродолжительность: 04:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735D87596CA19ED349FD14A725E8FD276F1F5DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587237   (193081) от 29.10.2022
 
 Udemy, Art Studio | Learn Modelling and Animating in Blender (2022) PCRec [EN]
@@ -678,32 +705,6 @@ Skillbox, Роберт Кубус | 3D-моделирование в ZBrush с �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65C6598B25E6A395EECA8C508BB2220E7A34736B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662739   (187586) от 18.09.2023
-
-Wingfox, Milad Kambari | Hard Surface Modeling Foundation Tutorial (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learning the basics of a job is one of the most important things to consider. In this course, you will master the principles of hard surface modeling, and in 2 complex and easy projects, you will learn how to use these principles. After seeing this tutorial, you need to practice to use these methods and techniques in various forms and models. Learn hard surface modeling (   Читать дальше...   )Производство: WingfoxЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 3:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DCC68369DCA99451ADD46E25D764AEE08DBBA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

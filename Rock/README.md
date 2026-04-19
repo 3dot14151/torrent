@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1862934   (1063709) от 
+###  Публикация: 1862934   (1063752) от 02.04.2026
 
 Suzi Quatro - Freedom (2026) [MP3|320 Kbps] <Rock>
 
@@ -7,7 +7,7 @@ Suzi Quatro - Freedom (2026) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063752.jpg" />
 </div>
 
 
@@ -28,7 +28,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861025   (1062643) от 
+###  Публикация: 1861025   (1062643) от 24.03.2026
 
 Zepparella - Zeppelin Forever (2025) [MP3|320 Kbps] <Rock>
 

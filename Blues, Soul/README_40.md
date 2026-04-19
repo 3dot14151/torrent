@@ -1,3 +1,32 @@
+###  Публикация: 1701497   (30780) от 16.01.2025
+
+Blues Beatles - Get Back To The Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can't Do That [04:06]
+02. Eleanor Rigby [04:01]
+03. Yesterday [07:13]
+04. Help [03:04](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9C6D15A46B3ECF63D428B98050237DE70CF3D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799008   (16827) от 26.05.2025
 
 Gary Moore - Gary Moore Live From Baloise Session (2025) [MP3|320 Kbps] <Blues, Blues Rock>

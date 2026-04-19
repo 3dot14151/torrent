@@ -1,3 +1,32 @@
+###  Публикация: 1184260   (301297) от 17.11.2017
+
+VA - Noomwalk The 5th Noom Compilation (1999) [FLAC|Lossless|tracks] <Hard House, Techno, Hard Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuclear Hyde - X-Tension (6:16)
+02. Commander Tom - Are Am Eye? (Silent Breed Remix) (6:40)
+03. Tom De Luxe Pres. Waterhouse - Burning (6:15)
+04. McKay - Phantoms (6:09)(   Читать дальше...   )Жанр: Hard House, Techno, Hard TranceПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3415C6662EEE6FE13FF09ACBE85C00C0939FC6A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261922   (296955) от 14.11.2018
 
 Estiva - Spectacle I (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
@@ -711,35 +740,6 @@ Gabriel & Dresden - The Only Road (2017) [FLAC|Lossless|tracks] <Trance,Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CCE007466220D6BDF35C44C25641C106DE9CCA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838029   (257743) от 20.11.2025
-
-VA - New Year Trance Rave 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Mactire - Irruption 07:28
-02. Andrew Modens - Dreaming 05:04
-03. Betelgeuze - Dissolution 06:49
-04. Chris Pryde - The Last Fight 05:37(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C3B848D0304450ACF52D83271A227D4FA4C26F
 ```
 
 https://mybot314.ru/tekegram_catalog/

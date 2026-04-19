@@ -1,3 +1,174 @@
+###  Публикация: 1370180   (898335) от 26.03.2020
+
+Влад Нежный - Стрём-частушки (2020) [MP3|320 Kbps] <Частушки>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898335.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Стрём-частушки, Часть 1
+2. Стрём-частушки, Часть 2
+3. Стрём-частушки, Часть 3
+4. Стрём-частушки, Часть 4Жанр: ЧастушкиПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9FABFA6C5ED42C021EA15E2EE58AE6F31FB787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595479   (898175) от 26.03.2020
+
+Lesiem - 5 альбомов (2000 - 2005) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2000 - Mystic · Spirit · Voices
+2001 - Chapter 2
+2003 - Illumination(   Читать дальше...   )Жанр: New AgeПродолжительность: 04:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD517EC0733C1D79F889DBA5F3990655183D80F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100890   (898009) от 05.02.2017
+
+Phaedrus - Gravity, Vol. 1 (2007) [MP3|192 Kbps] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jade (6:19)
+02. Gravity (4:25)
+03. Invisible Healing (7:18)
+04. Soul Meridian (4:52)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD3DAC269870187E0B0309219BD4CA832AEA28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 139809   (898003) от 26.03.2020
+
+Enigma - 7 Albums, 2 Compilations (1990 - 2008) [FLAС|Lossless|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1990 — MCMXC a.D. (The Limited Edition)
+1993 — The Cross of Changes
+1996 — Le Roi Est Mort, Vive Le Roi!(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 08:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878909B8A09DB1F1151C8DCD608360B2352587AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 638002   (897879) от 01.04.2013
+
+VA - 69 Must Have Chillout & Lounge Songs (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:56:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493137   (897557) от 02.09.2021
+
+Где-то Там - Дикий альбом (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Как залезло красное солнце
+02 - Гуси-гуси
+03 - Разлилась речка быстрая
+04 - Тонкая рябина(   Читать дальше...   )Жанр: Psychedelic FolkПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A500BE76D6E956477C13D91123BC88BD1A962510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 867235   (896269) от 12.02.2015
 
 Wikluh Sky - Сербский фильм / A Serbian Film (2010) [MP3|320 kbps] <Soundtrack>
@@ -576,177 +747,6 @@ Richard Laurence - A Busy Couple of Years (2016) [MP3|320 кб/с] <Classical, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F4D6AA5B019071EEEAC418C9C5240115F75F3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994376   (891577) от 07.03.2016
-
-Gomer Edwin Evans - Mystical Eastern Beauty (2016) [MP3|320 кб/с] <New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystical Istanbul
-02. The Golden Horn
-03. Evening Prayer
-04. Orange Sky(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA92468514816D0B6B410B9B032C5725E6168DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993009   (891529) от 07.03.2016
-
-Ветер Всем - Выдох (2015) [FLAC|tracks|Lossless]<Folk-Rock, Experimental Folk, Ambient Ethno>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891529.jpg" />
-</div>
-
-
-###  Подробнее
-
-[06:25] 01. Молодка
-[03:57] 02. Дороженька
-[02:42] 03. Калина
-[06:43] 04. По Морю(   Читать дальше...   )Жанр: Folk-Rock, Experimental Folk, Ambient EthnoПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F103713C1019B82535EEBEBECB6758EDA0EB9522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993555   (891498) от 07.03.2016
-
-OLIGARKH - Анатолий (2016) [MP3|320 кб/с] <Folk, Hip-Hop, Electronic, Break, BeatTrap>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аллилуйя
-02. На речке
-03. Все вместе
-04. Игорь(   Читать дальше...   )Жанр: Folk, Hip-Hop, Electronic, Break, BeatTrapПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617ABB2594A99B43D883AC540E20299711B626E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102522   (890612) от 09.02.2017
-
-Paul Mauriat - Tout Pour la Musique & Roma Dalla Finestra (1982) Compilation, Remastered, 2013, Vocalion [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tout Pour La Musique (1982)
-01. Souvenirs (Memory) (Lloyd Webber; Eliot; Nunn) (3:33)
-02. Tout pour la Musique (Berger) (2:55)
-03. Staccato (Mauriat; Gambus) (2:48)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB60695DD88369EF16A698390B52F063C184DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994650   (889827) от 08.03.2016
-
-VA - Ruhelounge Entspannungsraum (2016) [MP3|320 кб/с] <Chillout, Lounge, New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shara El Noras - Energy and Mood Booster
-02. Enrico Donner - Flower in the Desert (Original Mix)
-03. Hilmar Hajek & Andreas Seebeck
-04. Andrea Passarino & Roberto Alciati - Zed (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, New Age, InstrumentalПродолжительность: 03:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1008FB75798382675AFCBE853477B69C66DD21F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868815   (889650) от 16.02.2015
-
-VA - The Full Moon Archive Music Collection (2010) [MP3|~181 кб/с (V2)]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 01:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6C864A4F643FB92551373EE8738D2AB7DF7CDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

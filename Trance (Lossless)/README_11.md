@@ -1,3 +1,32 @@
+###  Публикация: 1675322   (160201) от 09.11.2023
+
+Roger Shah and Ambedo - Tribute To Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance, Chillout>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roger Shah & Ambedo - Tribute To Earth [6:34]
+02. Roger Shah & Ambedo - Sun And Moon [5:41]
+03. Roger Shah & Ambedo - Oceans [5:40]
+04. Roger Shah & Ambedo With Yelow & Capri - The Greatest Gift [6:20](   Читать дальше...   )Жанр: Uplifting Trance, ChilloutПродолжительность: 02:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29FA391DF0577E9342651A450E8DF6B7A201DA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433699   (156989) от 21.12.2020
 
 VA - Fatum Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
@@ -699,35 +728,6 @@ Bobina - Catchy! (20th Anniversary Edition) (2024) [FLAC|Lossless|tracks] <Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C78CA208AA1648E6E26CCC6AA451271077BDC8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723424   (109466) от 16.05.2024
-
-VA - Epifania Part I-II (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karassimeon - Nightmare Disco (5:55)
-02. Cyda - Machine (6:43)
-03. Kevrolet - Let's Drance (5:07)
-04. Tallac - Pulsar (6:58)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 01:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51670EAB3EF75A9D4B65A087924B9C71D67B7288
 ```
 
 https://mybot314.ru/tekegram_catalog/

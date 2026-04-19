@@ -1,3 +1,32 @@
+###  Публикация: 53000   (787743) от 23.11.2021
+
+Абсолютный пасьянс / Absolute Patience (2003) RU
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из 420 пасьянсов. Включает в себя популярные классические игры типа Klondike, Freecell, Spider, Yukon, Gaps, и множество оригинальных игр. В большинстве игр вы можете выбирать различные правила, что в сумме составляет 640 различных вариантов.
+Фотореалистичная графика карт трех размеров.
+Возможность изменения вида карт, стопок и игровой зоны.
+Высококачественный (   Читать дальше...   )Разработчик: Kamikaze Games DesignersЖанр: логические, карточные
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422CF0CD31B2083E74F750409121EC140869A68F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203789   (787483) от 03.02.2018
 
 AtmaSphere (2018) [En] (1.0/upd1) License PLAZA
@@ -642,32 +671,6 @@ MechoEcho, интерактивный конструктор-головолом�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9A5BD337CB32770A21E43355D358BDD2B2A34D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137225   (667567) от 26.05.2017
-
-Microsoft Classic Board Games (2000) [En] (1.0) Unofficial
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667567.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 классических настольных игр от компании Microsoft. В нашем случае имеются 12 развлечений: традиционные шахматы, шашки, нарды, реверси, домино и го, а также несколько менее известные Taipei, Chinese Checkers, Chinese Chess, 4-in-a-Line, Gomoku и Shogi.Тип издания: UnofficialРазработчик: Oxford SoftworksЖанр: Board, Puzzle, Logic (Casual)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F528147B82E698D4B6CEFAEDBC25FC380E9FB333
 ```
 
 https://mybot314.ru/tekegram_catalog/

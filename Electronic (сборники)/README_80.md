@@ -1,3 +1,66 @@
+###  Публикация: 327471   (719674) от 24.04.2011
+
+Сборник - 30 Best Trance (2011) [MP3|320 kbps]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719674.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adiva feat. Vicky Fee - How Does it Feel (Myon & Shane 54 Vocal Mix) (9:37)
+2. Akesson - Flavour Park (Original Mix) (8:27)
+3. Ashley Wallbridge - Solidaritet (Auryn Dreams Theme Tune) (8:38)
+4. Claudia Cazacu - Lekker (Original Mix) (7:52)
+5. Dakota - Sin City (Cosmic Gate Remix) (8:35)
+6. DJ Cosmo Feat. Ray Wilson - Show Me the Way (Original Mix) (9:15)
+7. DT8 Project - We Belong (Original Mix) (8:42)
+8. Frase - Solstice (Original Mix) (7:46)
+9. Gaia - Tuvan (Andy Blueman Remix) (9:20)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6976F105D4C8191B3E3A3BBE526845F0A5D8807E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400536   (719254) от 05.08.2020
+
+VA - Psy Core Trance Psychedelic (2020) [MP3|320 Kbps] <Goa, Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719254.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Saltic Sound Society - Closer To You
+002. Noa - Keypoint
+003. Ziwac - Magija
+004. Side Effects - Next Destination(   Читать дальше...   )Жанр: Goa, Psychedelic TranceПродолжительность: 11:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7972DED7F1208E592D052BEBF28B1AB7583F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284826   (718955) от 27.02.2019
 
 VA - Romantic Vocal House (2019) [MP3|320 Kbps] <Vocal House, Electro>
@@ -687,68 +750,6 @@ VA - Spencer Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:289D20A850D6F94DA1A38495F83D247B9B6ED7B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219296   (715843) от 13.04.2018
-
-VA - Melodious Chill Vol.1 (2018) [MP3|320 Kbps] <Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kate-Margret - Cool Me Down
-02. Flunk - Petrified (Original Mix)
-03. Diamans - Echo (Original Mix)
-04. Seven24 & Soty Feat. Maria Opale - Don't You Cry (S.A.T Remix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E034B5528B7E2A7EDF6BFDAD3C11513F0234CDC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 669408   (715790) от 19.06.2013
-
-DJ Vlad Kardash - The best (2013) [MP3|320 кб/с]<Dubstep, House, Club.Electro-House, Electro, Hardstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715790.jpg" />
-</div>
-
-
-###  Подробнее
-
-1)Electro House 2012 New Year Party(Demo)
-2)My name is Optimus Praime (Electro Ver.) (New)
-3)Bass fucker
-4)Ecstasy
-5)Electro House dream for sky
-6)My Name Is Optimus Prime(New)
-7)Выключай интернет
-8)+100500Жанр: Dubstep, House, Club.Electro-House, Electro, HardstepПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDC65870C1E211E70F628969D4F0F00151B66E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

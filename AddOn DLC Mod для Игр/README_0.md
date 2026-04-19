@@ -1,3 +1,29 @@
+###  Публикация: 1112754   (840872) от 09.03.2017
+
+Homefront: The Revolution - Beyond the Walls (2017) [Ru/Multi] (1.078.1055) License PLAZA [patch]
+
+>>Win Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая Американская революция подавлена КНА. Филадельфия скоро падет.В этот темный час откуда-то из-за стен приходит призыв о помощи от агента НАТО. Успеет ли Сопротивление добраться до агента раньше КНА и благодаря ему положить конец оккупации раз и навсегда? Используйте последний шанс освободить Америку, играя за Итана Брэди.Тип издания: License (patch)Разработчик: Dambuster StudiosЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEAB72E01B40EAA3F76FBF69AA35655DAEC4CA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113414   (837593) от 11.03.2017
 
 BERSERK and the Band of the Hawk - DLC Pack (2017) [En] (1.0.0.1/dlc) License HI2U [patch]
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_750515.jpg" />
 </div>
 
 
@@ -672,32 +698,6 @@ Football Manager 2015 Graphic Megapack (2014) [Multi] (6.3/3.0/5.3) Mod [Cut-Out
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68F60E5CAC9B5A887DF45C676AE2BCF4EBB7C84E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046283   (551628) от 27.08.2016
-
-Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV (2005) [Ru/En] (1.01/1.0) [Mod] Unofficial
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами продолжение великолепного экшена из серии "Star Wars Jedi Knight: Jedi Academy", в котором вам предлагается пройти 13 новых уровней, сразиться с новыми противниками и выполнить еще более увлекательную и интригующую миссию. Escape Yavin IV - одно из самых глобальных дополнении к популярной "Star Wars: Jedi Academy".Тип издания: UnofficialРазработчик: Raven SoftwareЖанр: Action, 3D, 3rd Person, 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01054CC65C2A4F989FA180912D8D17D8F1E75451
 ```
 
 https://mybot314.ru/tekegram_catalog/

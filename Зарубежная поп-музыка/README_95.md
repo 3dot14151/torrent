@@ -1,3 +1,61 @@
+###  Публикация: 1780778   (26985) от 20.02.2025
+
+a-ha - Greatest Hits - Japanese Singles Collection (2020) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Synth-pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me
+02. The Sun Always Shines On T.V. (Single Mix)
+03. Train Of Thought (Remix)
+04. Hunting High And Low (Remix)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, Synth-pop, Pop RockПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C17248CAF20A9DBD0B34CC1FC511786CDE2EA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782050   (26379) от 26.02.2025
+
+VA - Pop Gold 100 Greatest Hits Ever (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26379.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You - 03:54
+002. Madonna - Hung Up - 05:38
+003. Bruno Mars - Locked Out of Heaven - 03:54
+004. Dua Lipa - Dance The Night (From Barbie The Album) - 02:57(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BEA7E47AEFA3D187E1677AB4A612676A294A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782603   (26046) от 01.03.2025
 
 VA - Black '80 (2004) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Soul, Funk, Disco>
@@ -687,64 +745,6 @@ VA - 50s Best Hits (2025) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31979AEA2D822D14450325649FB25CB27588185A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801323   (15032) от 10.06.2025
-
-Shirley Bassey - The Singer: Classic and Undiscovered Gems 1962-79 (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I've Got a Song for You [00:02:39]
-02 - Shirley [00:02:12]
-03 - Never, Never, Never [00:03:42]
-04 - For All We Know [00:02:46](   Читать дальше...   )Жанр: PopПродолжительность: 03:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21F9301EE0905D014EDD6ADB750557B5CD05470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801391   (14925) от 11.06.2025
-
-VA - Classic Soul Music (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Solomon Burke - Everybody Needs Somebody to Love [00:02:44]
-02 - CHAKA KHAN - I’m Every Woman [00:04:07]
-03 - Sam & Dave - Soul Man [00:02:36]
-04 - Ben E. King - This Magic Moment [00:02:25](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 02:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F89F883075137BEDA6574A3A32E3B7236D1822
 ```
 
 https://mybot314.ru/tekegram_catalog/

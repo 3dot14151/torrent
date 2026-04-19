@@ -1,3 +1,166 @@
+###  Публикация: 806967   (594172) от 22.07.2014
+
+VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - Daddy Cool 3:28
+02. Precious Wilson - Hold On I'm Coming 3:33
+03. The Touch feat.Terence Trent D'Arby - I Want To Know (International Lady) 5:14
+04. La Bouche - Be My Lover 4:00
+05. No Mercy - Where Do You Go 4:31
+06. Far Corporation - Stairway To Heaven (Single Version) 3:59
+07. Meat Loaf - One More Kiss (Night Of The Soft Parade) 5:36
+08. Boney M. - No Woman No Cry 4:57
+09. Eruption - One Way Ticket 3:57
+10. La Bouche - Forget Me Nots 3:34(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232D7B8E6E71D10F7C0154EDE3275768EFB03E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806971   (594165) от 22.07.2014
+
+VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - You're My Heart, You're My Soul (3:22)
+02. Modern Talking - You Can Win If You Want (3:46)
+03. Bonnie Tyler - Bitterblue (3:48)
+04. Blue System feat. Dionne Warwick - It's All Over (3:54)
+05. Blue System - Sorry Little Sarah (3:29)
+06. Touche - This Goodbye Is Not Forever (3:36)
+07. Millane Fernandez - Boom Boom (3:29)
+08. Isabel - Will My Heart Survive (3:01)
+09. Deutschland Sucht Den Superstar - We Have A Dream (3:59)
+10. Modern Talking - TV Makes The Superstar (3:44)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4E2B1C06F5CF8327E40335EC6D95BC59823F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806466   (594158) от 22.07.2014
+
+Dschinghis Khan - The History of Dschinghis Khan & Millenium Mega Mixes (1999) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594158.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 The Story Of Dschinghis Khan Part 1 (Extended Version)
+2 The Story Of Dschinghis Khan Part 2 (Extended Version)
+3 Moskau '99 (Rap Version feat. LTC)
+4 Dschinghis Khan '99
+5 Der Verrater
+6 Machu Picchu
+7 Corrida
+8 Samurai
+9 Rome (English Version)
+10 Klabautermann(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5631A9FEC5060E0A2DA5C0F101B0EFB044D057C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549330   (593748) от 06.05.2022
+
+Pavel Panchenko - To the Stars (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Stars (3:31)
+02. Respite (3:40)
+03. The Sign (3:53)
+04. Project X (3:13)(   Читать дальше...   )Жанр: Disco, Nu-Disco, SynthpopПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F64BA264E01B9CA1C0FA7DB60BAE3FA59404DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549679   (593386) от 07.05.2022
+
+VA - Alexis Le-Tan & Jess Present Space Oddities (2008) [FLAC|Lossless|WEB-DL|tracks] <Disco, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roland Bocquet - Exotique (2:32)
+02. Jean-Pierre Decerf & Gerard Zajd - Reaching the Infinite (3:23)
+03. Alan Shearer - Sons of the Snake (5:24)
+04. Phil Davies & Ch. Ried - Muscle and Heat (4:01)(   Читать дальше...   )Жанр: Disco, Space-DiscoПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DD80C1C9EEAEA45A83F5BDE15BC549E348B8E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549676   (593346) от 07.05.2022
 
 VA - Italo Disco Tracks Vol. 1 (2005) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
@@ -650,181 +813,6 @@ Bad Boys Blue - You're A Woman 2015 (2015) [FLAC|tracks + .cue]<Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC1E2FB1B90D8F9276769185D6917B6425D29C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810974   (581548) от 07.08.2014
-
-Saphir - Perfect Combination (2006) Limited Edition [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Good (I Feel Fine) 4:51
-02. The Witch-Queen Of New-Orleans 3:31
-03. Little Rock 4:06
-04. Frough Your Eyes 4:07
-05. Shot In The Night 4:21
-06. Perfect Combination 3:12
-07. Never Give Up 4:00
-08. Storms Of Love 3:56
-09. Stand Up 3:47
-10. I Am Alive 4:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10645E60EB64E108BF19DAE0E9E6B4E735A5615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811132   (581544) от 07.08.2014
-
-Grant Miller - The Maxi-Singles Collection (2007) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder Than Ice 5:35
-02. Red For Love 5:28
-03. Doctor For My Heart 5:16
-04. I'm Alive Tonight 3:59
-05. Wings Of Love 5:15
-06. California Train 4:54
-07. (Find My) Tracks In The Snow 5:06
-08. Break Away 5:52
-09. Stranger In My Life 4:29
-10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B0F3FDD3294E18241CF0444A6E89DEF7CB861B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810986   (581492) от 07.08.2014
-
-Scotch - The Maxi-Singles Collection (2008) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penguins' Invasion (Original Version) 5:47
-02. Disco Band (Mach 2 Remix) 6:18
-03. Losing In Time 4:22
-04. Loving Is Easy (Frederick Ramel Rmx) 5:50
-05. Born To Kill (Bonus Version) 5:49
-06. Delirio Mind (Remix) 5:37
-07. Pictures (Tess Power Remix) 5:58
-08. Discolation 4:50
-09. Man To Man 4:50
-10. Amour Pour Victoria (Russian Version) 4:47(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA81B3C81FD371A6CE3791B78ADE8DD0D01271C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810990   (581481) от 07.08.2014
-
-Baby's Gang - Challenger (2008) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Challenger 5:16
-02. Jamin 5:56
-03. Happy Birthday (To My Mammy) 4:55
-04. Happy Song 5:35
-05. My Little Japanese Boy 4:22
-06. Step By Step 4:32
-07. America 4:26
-08. Challenger (Instrumental Mix) 3:04
-09. Disco Maniac 5:45
-10. Let's Dance In The Music 4:39(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93A1BDF3516928FC2EFFFE840B6D2E90420DD72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811052   (581456) от 07.08.2014
-
-Gilla - I Like Some Cool Rock 'N' Roll (2010) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Down Mainstreet 4:07
-02. Discothek 3:48
-03. The Heat Is On 3:44
-04. We Gotta Get Out Of This Place 4:41
-05. Queen Of The Night 3:21
-06. Cool Rock 'N' Roll 3:41
-07. Take Your Time 3:41
-08. Heartbreaker 3:41
-09. Tom Cat 3:58
-10. The Summerwind 3:51(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7160F6CABBAB3E36BDAA0BB1EB2BA374A2070E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1328720   (358172) от 02.10.2019
+
+VA - Essentials Dance House: October Select Mix (2019) [MP3|320 Kbps] <Dance House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358172.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Big Kid - When Love Takes Over
+002. U'moon - Jump Superman
+003. Simon Le Grec - Sambata (House Mix)
+004. Facundo Baigorria - Encounter (Original Mix)(   Читать дальше...   )Жанр: Dance House, ElectroПродолжительность: 11:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD2E135C8B920618C854604530099BA7D3CC97A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071524   (357348) от 11.11.2016
+
+VA - The Treasure Of Illumina: Vocal Trance (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance, Melodic, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357348.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stoneface & Terminal, Neev Kennedy - Lost (Radio Edit) 3:32
+002. Store N Forward & Elles De Graaf - Distant Hearts (Radio Edit) 4:16
+003. 4 Strings Vs Kaimo K & Sue Mclaren - The Treasure Of Illumina (Radio Edit) 3:23
+004. Audrey Gallagher & Reorder - Your Own Way (Radio Edit) 3:47(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Melodic, EnergyПродолжительность: 07:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A549B037D625A045793F1E627D6E9C481381A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071814   (357245) от 11.11.2016
+
+VA - Beatport Trance Pack 11.11 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Emotional, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357245.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Markus Schulz - The Lost Oracle (Transmission 2016 Theme) 7:45
+002. Allen & Envy ft. Mark W & Michele C - Going Under (Extended Mix) 6:39
+003. Kaimo K - Rise & Smile (Original Mix) 7:58
+004. A.R.D.I. - Invictus (Original Mix) 7:02(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Emotional, HarmonicПродолжительность: 09:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE83C8E72F6437E1D8E5DF18ABC554C48BDFB790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071650   (357232) от 11.11.2016
+
+VA - Record Super Chart #461 (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KSHMR & Tigerlily - Invisible Children (Extended Mix) 3:45
+02. Sia feat. Kendrick Lamar - The Greatest (Rocket Fun DKRAUS Remix) 3:45
+03. Calvin Harris - My Way (Audiorockers Vs Matt Raiden Remix) 3:43
+04. Sick Individuals vs. Holl & Rush - Helix (Extended Mix) 4:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2D773426EB1F2D8A132ABB3C9C45861A0A84E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071673   (356987) от 11.11.2016
+
+VA - Beatport Top 100 Deep House October (2016) [MP3|320 Kbps] <Deep House, House, Electronica>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356987.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Tube & Berger - RUCKUS Feat. Richard Judge (Club Edit) 5:36
+002.Julian Wassermann - Aurea (Original Mix) 7:32
+003.Human Machine - Africa (Original Mix) 7:52
+004.Serge Devant - This Moment (Original Mix) 7:46(   Читать дальше...   )Жанр: Deep House, House, ElectronicaПродолжительность: 12:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E787C9DDD2B5F49DD6EDEC3AD7F3CC7076B670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952374   (356334) от 01.11.2015
+
+VA - Trance Pure (2015) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brain Foo Long - Never Stop the Reverbe 03:43
+02. Philip Mayer vs. Ronald de Foe - Expression (Radio Edit) 03:22
+03. Aleeze - Cuts Like Ice (Tribune Remix Edit) 03:04
+04. Aesthetic Minds - Suncatchers (Steve Bengaln Radio Cut) 03:52(   Читать дальше...   )Жанр: TranceПродолжительность: 03:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A188D784E7061F9FCA5E080337214D803B3AD87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952548   (356211) от 01.11.2015
 
 VA - Chill Acoustic (2015) [MP3|320 кб/с]<Downtempo, Chillout, Acoustic>
@@ -585,177 +759,6 @@ VA - Parametric Tech House (2018) [MP3|320 Kbps] <Tech House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC539D5CEF855E939A226D8A62D9E2D1730C67EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178643   (353707) от 29.10.2017
-
-VA - Record Super Chart #509 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CamelPhat & Elderbrook - Cola (Denis First Remix) 2:30
-02.  Malaa - Notorious 3:58
-03.  Mari Ferrari feat. Miss Mary - Maria Maria 3:31
-04.  Hardwell & KSHMR - Power 4:33(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D69C2946CC0FF47069796E3C87FB363DE06404A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417625   (353671) от 22.10.2020
-
-VA - EDC Funky House (2020) [MP3|320 Kbps] <Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353671.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 1950 - Sushi Slide
-002. Softmal & Llolita - Dance Machine (Original Mix)
-003. Daniel Steinberg - Why Do You Hate Me
-004. Llolita - Say Say (Extended Mix)(   Читать дальше...   )Жанр: Disco, Funky HouseПродолжительность: 08:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB9F421724EF809A996DD63EB162AE29D54638C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952687   (353666) от 02.11.2015
-
-VA - Winter Xmas Deluxe Holiday Edition Smooth Lounge and selected Chillout Cafe Moods (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Anna of Bavaria - Holy Christmas Bells - German Christmas Market Romantic Mix
-02. Water on Mars - Biscaya - Realaxing Beach Moments remix
-03. Esteban Nouve - Cookies and Cream - Xmas Pearl Cafe House Mix
-04. Grag the Crack - Cool Down Moment - Pilates vs. Yoga Buddha Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6417C809A7FF89A2165B89B1437CC11FC2910D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952890   (353665) от 02.11.2015
-
-VA - Deep Chill Vol 1 Finest In Ambient Chill Out and Lounge for Best Relaxation (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Diver - Deeper than Deep - Pure Chill Mix
-02. Coastline - Adriatic Sea - DJ Lounge Del Mar vs. Milews Ambience Mix
-03. Lullaby Lounge - Chill De La Mer - Blank Guitar Cafe Relax Mix
-04. Terrace Chillerz - Breathing - Ibiza Beachclub Vocal Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4647E808D333EEC5A856F7D2689AA71DAC13D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952754   (353663) от 02.11.2015
-
-VA - Autumn Hits Vol.2 (2015) [MP3|320 кб/с]<Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Mercier, 1waytkt feat. Cassandra Kubinski - Oceans Away (Original Mix) (03:50)
-02. DJ Dnk - Sunday Morning (Radio Edit) (02:59)
-03. Hailee Steinfeld - Love myself (Kue remix) (06:13)
-04. Iio - Rapture (Different Guys & Dima Flash 2k15 Remix) (05:14)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA898533C1BBBEF6B7B2AD9F6999F70100995F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256584   (353571) от 22.10.2018
-
-Tears for Fears - Shout (2017) Remix [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353571.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shout ★ DJ SAVIN Remix ★ Radio VersionЖанр: Deep HouseПродолжительность: 00:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E093320320B51C6391CA314CEAA2966A131F98
 ```
 
 https://mybot314.ru/tekegram_catalog/

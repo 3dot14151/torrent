@@ -1,3 +1,235 @@
+###  Публикация: 1802786   (65998) от 19.06.2025
+
+Shujaat Khan - Call of the River (2008) 2024 Saregama India Ltd [FLAC|Lossless|WEB-DL|tracks] <World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utpatti(Creation) (9:08)
+02. Utsav(Celebration) (9:16)
+03. Ranjha(Colour Of Love) (9:25)
+04. Benares(Back To Life) (6:42)(   Читать дальше...   )Жанр: WorldПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974EB8073DE173C7986DEF7432F028A79A0C6B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802883   (65834) от 22.06.2025
+
+VA - Ultimate Broadway (1998) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Stage & Screen, Musical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barbra Streisand / People    [0:03:28.17]
+02. John Cullum / On a Clear Day (You Can See Forever)    [0:02:51.10]
+03. Richard Kiley / The Impossible Dream    [0:02:24.38]
+04. Charles Braswell & Company / Mame    [0:06:17.72](   Читать дальше...   )Жанр: Stage & Screen, MusicalПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EB27B0237F95F843416A5F4819EC390476868F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803192   (65832) от 22.06.2025
+
+Willie Nelson - Natural Renegade: Opus Collection (2007) CD, Compilation [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy    [0:02:52.08]
+02. Night Life    [0:02:32.34]
+03. Funny How Time Slips Away    [0:03:03.33]
+04. Waylon Jennings & Willie Nelson / Mammas Don’t Let Your Babies Grow Up to Be Cowboys    [0:03:27.68](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C876B0580DEED291F3236C11847AA8D251769BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803429   (65819) от 24.06.2025
+
+George Koller - Zen Tranquility (2011) CD, Album [FLAC|Lossless|tracks + .cue] <Meditative, Relax, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Waters    [0:06:03.60]
+02. Zen Tranquility    [0:02:55.42]
+03. Willow Breeze    [0:04:16.01]
+04. Bamboo Fields    [0:03:11.13](   Читать дальше...   )Жанр: Meditative, Relax, New AgeПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF594A5C1502347772390D246290CF6799253649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805807   (65423) от 09.07.2025
+
+You+Me - Rose Ave (2014) [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capsized    [0:03:35.40]
+02. From a Closet in Norway (Oslo Blues)    [0:03:16.67]
+03. Gently    [0:03:32.68]
+04. Love Gone Wrong    [0:04:21.58](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3774A34ADF55CF7A461C9AA127DD93D2A4FBAAA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805968   (65416) от 09.07.2025
+
+Trisha Yearwood - (Songbook) A Collection Of Hits (1997) CD, HDCD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Pop, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Do I Live    [0:04:03.25]
+02. The Song Remembers When    [0:03:55.37]
+03. The Wrong Side of Memphis    [0:02:48.05]
+04. Trisha Yearwood feat. Garth Brooks / In Another’s Eyes    [0:03:34.58](   Читать дальше...   )Жанр: Pop, World, & CountryПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CC03B97CB4137EBC291BE0F9ABEB49DE034E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806241   (65408) от 11.07.2025
+
+John Denver - Windsong (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Soft Rock, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Windsong    [0:04:01.65]
+02. Cowboy's Delight    [0:03:06.35]
+03. Spirit    [0:03:37.33]
+04. Looking For Space    [0:04:01.00](   Читать дальше...   )Жанр: Soft Rock, Folk, World, & CountryПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6763F1F6FA5B1017C0D882C902B80148135D6E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806289   (65373) от 13.07.2025
+
+Jo Dee Messina - A Joyful Noise (2002) CD, Album [FLAC|Lossless|tracks + .cue] <Folk, World, & Country, Holiday>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Wonderland    [0:03:01.05]
+02. I'll Be Home for Christmas    [0:04:04.22]
+03. Let It Snow! Let It Snow! Let It Snow!    [0:02:15.28]
+04. The Christmas Song    [0:04:23.12](   Читать дальше...   )Жанр: Folk, World, & Country, HolidayПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7479C94F1604B374F945F9B8FFCA2BA2BC8CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705795   (63393) от 10.03.2024
 
 Cesaria Evora - Cafe Atlantico (1999) [FLAC|Lossless|image + .cue] <Latin, Folk, World, & Country>
@@ -504,236 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:394F4AE4D12E9349592DE796A0FE185FCFF8BDCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707172   (55828) от 21.05.2024
-
-Иван Мережко | БЛЮЗ на МОТОРАДИО (2013-2023) [MP3, Иван Мережко]
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55828.jpg" />
-</div>
-
-
-###  Подробнее
-
-БЛЮЗ на МОТОРАДИО - серия авторских программ, посвященных блюзовому музыкальному формату. История возникновения и развития этого направления, яркие представители блюзовой культуры, новинки и "старинки" жанра.
-Автор и ведущий программы - музыкант Иван Мережко.Жанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 75:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1463030AA7BBBB7E9160443B77C8A1DCFCFA0BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724923   (55610) от 23.05.2024
-
-VA - Erotic Spa: Blissful Time (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julie Riviera - Sensual Bliss Spa (3:16)
-02. Erotic Massage Music Ensemble - Silk Touch Retreat (3:32)
-03. Tantric Sex Background Music Experts - Hot Oil Ecstasy (3:01)
-05. Erotic Massage Music Ensemble - Tantric Haven (3:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987FD914A8908C740B3E6F8E63301946BD5E03B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727159   (54677) от 01.06.2024
-
-Oriental Collection, Oriental Soundscapes Music Universe - Orient Music Adventure (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54677.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Through the East (2:17)
-2. Sands of the Sahara (2:17)
-3. Lost in the Himalayas (2:20)
-4. Arabian Nightfall (2:19)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1645B2E97CA227D0539B37B20E53A8217B41E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728694   (53963) от 08.06.2024
-
-Король и Шут - Официальный саундтрек. Часть 2 (2024) [FLAC|Lossless|image + .cue] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ели мясо мужики
-02. Лесник (инструментал)
-03. Иван Факов
-04. Девушка на время(   Читать дальше...   )Жанр: OSTПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157FECF20A117788224D95F9CA2310EBAC578796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732394   (52202) от 24.06.2024
-
-Lindsey Stirling - Duality (2024) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening, Electronic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрипачка Lindsey Stirling описывает свой последний альбом с метким названием Duality (Двойственность) как два альбома в одном. Идея этого названия заключается в том, что двенадцать треков Duality исходят, по словам американской артистки, из двух совершенно разных сторон ее самой. В результате получился самый разносторонний альбом Stirling за последние годы, в котором, (   Читать дальше...   )01. LEvil Twin (3:47)
-02. Eye of the Untold Her (3:40)
-03. Surrender (3:21)
-04. Serenity Found (4:23)(   Читать дальше...   )Жанр: Instrumental, Easy listening, ElectronicПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DFF88EDED7E711B9BD73699CDB28317234582DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821202   (52092) от 02.10.2025
-
-Gallows Bound - Gallows Bound (2014) [MP3|320 Kbps] <Americana, Bluegrass, Country, Folk punk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Widow Woman
-02. The Damaged
-03. Sink in the Soil
-04. Dominion Flowers(   Читать дальше...   )Жанр: Americana, Bluegrass, Country, Folk punkПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04D94860BEAD4A2ED2D7D69586C96C7CD220B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732453   (52029) от 25.06.2024
-
-Tom Holkenborg (Junkie XL) - Furiosa A Mad Max Saga OST (2024) OST [MP3|320 Kbps] <Techno,Ambient>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 the-pole-of-inaccessibility
-02 dementus
-03 the-promise
-04 you-are-awaited(   Читать дальше...   )Жанр: Techno,AmbientПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF75EF4CCB65EA72282792B8CCD09562D8DD63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731023   (51697) от 28.06.2024
-
-London Music Works - The Story of Wick: Music From the John Wick Movies (2024) OST [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Film Soundtracks, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Story of Wick (from "John Wick") [3:06]
-02 - The Red Circle (from "John Wick") [1:02]
-03 - Shots Fired (from "John Wick") [3:16]
-04 - On the Hunt (from "John Wick") [2:09](   Читать дальше...   )Жанр: Modern Classical, Film Soundtracks, SoundtrackПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A1BA7A4AE7369E73CE4A7CADC74ADC28492BA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

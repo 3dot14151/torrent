@@ -1,3 +1,32 @@
+###  Публикация: 137689   (271737) от 30.11.2018
+
+Потап и Настя Каменских - Плагиат (2009) [MP3|128-320]<R'n'B, PoP>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271737.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fabri fibra - Applausi per fibra (4:12) @192kbps CBR
+2. Потап и Настя Каменских - На раЁне (2:55) @128kbps CBR
+3. Jazzyfatnastees - Let It Go (4:18) @192kbps CBR
+4. Потап & Настя Каменских - Почему Молчишь (3:39) @320kbps CBR(   Читать дальше...   )Жанр: R'n'B, PoPПродолжительность: 02:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B3D3D7680ED17F68A444549CA09989A2C04CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189260   (271212) от 05.12.2017
 
 Валерия - К солнцу (2017) [MP3|320 Kbps] <Pop>
@@ -737,35 +766,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8875206BBC3036EF74BB23F086D26AD4A04DD3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541462   (242704) от 03.04.2022
-
-Mad Show Boys - Эпидемия добра (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эпидемия добра.mp3
-02. Зебра-альбинос.mp3
-03. Звёздный путь.mp3
-04. Хечословацкая сепня.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6650AA5DE27F8C588BF0FFE1F397E7B6E54E474F
 ```
 
 https://mybot314.ru/tekegram_catalog/

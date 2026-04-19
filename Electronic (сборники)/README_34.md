@@ -1,3 +1,61 @@
+###  Публикация: 993510   (894046) от 06.03.2016
+
+VA - Sports Megamix 2016.1 (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894046.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Mix - Sports Megamix 2016.1 - Pt.1.mp3
+002. DJ Mix - Sports Megamix 2016.1 - Pt.2.mp3
+003. DJ Mix - Sports Megamix 2016.1 - Pt.3.mp3
+004. Robin Schulz feat. J.U.D.G.E. - Show Me Love.mp3(   Читать дальше...   )Жанр: HouseПродолжительность: 12:22:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07F6D3A0C0D6A7DD49CFBE6AFFCFF942CA66969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493648   (894024) от 04.09.2021
+
+VA - Beatport Electro House: Sound Pack #339 (2021) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894024.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Moscrop - Dubeats
+002. Davide Neri - That's It
+003. Rsquared & Ben Cheel - Dance
+004. Dream Frequency - Take Me Away(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F006EAB968F6B9EDC1BB67F4A4CF28741C973960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493744   (893992) от 04.09.2021
 
 VA - NRW: Clubbing Tech House (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance, Tech House>
@@ -693,64 +751,6 @@ VA - The Best - In Music We Trust Vol.13 (2017) [MP3|320 Kbps] <House, Melbourne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35BA787584C596BD5BFDAA8111FF8A470FFE2266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101939   (889095) от 10.02.2017
-
-VA - Record Russian Mix Top 100 February 07.02.2017 [MP3|307-320 Kbps] <Club House, Pop-Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889095.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2Elements x Crew 7 - California Dreamin' (DJ Miller x DJ Alex Milano Booty Mix) 4:14
-002. 20 Fingers vs Vincent & Diaz - Short Dick Man (Markiza Mash Up) 3:49
-003. Alexias - I Need U (The Mankeys Edit) 3:18
-004. Alisha Pillay - Mayday (Pride & Kashtan Remix) 4:29(   Читать дальше...   )Жанр: Club House, Pop-Dance, Electro HouseПродолжительность: 07:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1555D63575E009953E90C192E709224BA32A6A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494290   (889017) от 07.09.2021
-
-VA - pure Melodic house 2 (2021) [MP3|320 Kbps] <Melodic House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889017.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vall, Loe - Somebody Like You (2:49)
-002. Zivert Feat. Баста - С Неба Ли (5:34)
-003. Zomando, Slenderino, Chloe Hetier - I Want Your Love (2:39)
-004. RUFUS DU SOL - Next to Me (5:14)(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 08:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F393D2A450B674D6C20E438465A0467F9774EB7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

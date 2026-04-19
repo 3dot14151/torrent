@@ -1,3 +1,61 @@
+###  Публикация: 1616063   (206192) от 28.02.2023
+
+VA - Romantic Collection. Volume 5 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mungo Jerry - In The Summertime
+02. Santana - Smooth feat. Rob Thomas
+03. Elton John - A Word In Spanish
+04. Duran Duran - Come Undone(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABDE7E5B2A966D3296D99AFC5FF6CEFF42B2BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615960   (206171) от 28.02.2023
+
+VA - Romantic Collection. Golden 70s (2000) [OGG Vorbis|480 Kbps] <Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Leave Me Now - Chicago
+02. How Deep Is Your Love - Bee Gees
+03. Stumblin In - Smokie
+04. I Do, I Do, I Do - Abba(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D806A0DA4B5822494FF11E84E44A6D236E28C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616238   (206124) от 01.03.2023
 
 VA - Romantic Collection Vol.7 (2001) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
@@ -689,64 +747,6 @@ Michael Jackson - Thriller 40 (1982) 2022, Epic/Legacy [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997957B30EEBC900F244824D0D3704C1009B3EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591609   (185214) от 20.11.2022
-
-Various - Greatest Hits Of The 90's (2004) 8 CD Box [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxi Priest - Close To You (3:59)
-02. Dignity - Talk To Me (4:27)
-03. Shara Nelson - Uptight (5:08)
-04. Carleen Anderson - Mama Said (4:06)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Reggae, PopПродолжительность: 08:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365CDDCA45DE567A3BB6616F792603E28E0E1EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426755   (185108) от 26.11.2020
-
-Caroline Vreeland - Notes On Sex & Wine (2020) [MP3|320 Kbps] <Pop, Jazz, Blues>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185108.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stay Drunk With Me (3:51)
-2. Madonna Whore (3:11)
-3. Love Is Here (4:00)
-4. Drinking For 2 (4:11)(   Читать дальше...   )Жанр: Pop, Jazz, BluesПродолжительность: 00:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CFA821C574BD18EF199D8B963AFDFBA39F2CB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

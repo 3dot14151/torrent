@@ -1,3 +1,177 @@
+###  Публикация: 1407494   (464122) от 08.09.2020
+
+VA - Beatport Electro House: Sound Pack #171 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464122.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Muui - Meeting Mia
+002. Tim Franklin - I Think I Saw The Sun
+003. Rockka - Jesuz
+004. Maraja - I Don't Know Why(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 13:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F4A8203A7A2E8068283EA30C42CEC351491ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568207   (464102) от 07.08.2022
+
+Kofie Anon & United Nations - Best Of In The Mix (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Underground hard trance.01. Kofie Anon - United Nations 3B (UNITED NATIONS,2003)
+02. Kofie Anon - United Nations 4A (UNITED NATIONS,2003)
+03. Kofie Anon - United Nations 4B (UNITED NATIONS,2003)
+04. Kofie Anon - United Nations 1A (UNITED NATIONS,2003)(   Читать дальше...   )Жанр: Hard TranceПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99122C8F4B5AE07967C9D5E35E417736AD874A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568381   (463958) от 07.08.2022
+
+VA - I'm Listening Now 2 (2022) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463958.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Little Niky - Я влюбилась, мам (XM Remix) (2:44)
+002. Мотель Венди, Techno Project, Geny Tur - Тик-так (Dance Mix) (3:07)
+003. Subbota - VVKV (Speed up) (2:43)
+004. SERPO - Мечта (2:41)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 08:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030C2C0D23811761374CAC9810FE71A3A66FBCC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941484   (463119) от 27.09.2015
+
+VA - Techno Cloud Top September 2015 (Compiled And Mixed By Deeper82) (2015) [MP3|320 кб/с]<Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulwerk - Spiritcatcher (Stas Drive Remix)
+02. Dj Tonio - Bigger Than Yours (Olivier Giacomotto Remix)
+03. Julian Jeweil - Shaka (Christian Smith Remix)
+04. Yousef, The Angel, Bontan - Believe (ANNA Remix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 01:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E13D4ED19CA979BF09055E8094B3CE4FEC5E3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941143   (463011) от 27.09.2015
+
+VA - Ultimate Sexy Beats Vol.3 (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Vantigo - Run From Love (Original Mix)
+ 02. Stereo Flight - Mirage (Original Mix)
+ 03. Irvim - Pistol Star (Original Mix)
+ 04. Dmpr - Dark Kitty (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CFEA2126C87F3C7FB55A68B01EFE10DF885A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941474   (463009) от 27.09.2015
+
+VA - Chill in Chill Out Sensual Lounge Music for Relaxation (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soleil Fisher - Where Is the Day Now - Vocal Mix
+02. Delliah - For You
+03. Massive Gold - Love Will Alway Win
+04. Merianda - No Deeper Feeling(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AE43EDAC3D431E4D35D2E22BA2598013611773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941367   (462995) от 27.09.2015
 
 Guilty by Innocence - Temple of Love feat Samira K [Erotic Vocal Pop Lounge and Oriental Chillout Cafe Sessions] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -589,180 +763,6 @@ VA - B-Side - Smash It Up Mix (2011) [MP3|192 кб/с]<Breaks, Ghetto Funk, Hip 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AADAB9E5587468C50AC028D82BDA9F5CB765880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408304   (458413) от 11.09.2020
-
-VA - Astral Dimension (2020) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458413.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ozymandias - Sea Emperor
-002. Makai - Are We Dreaming
-003. Sensifeel - Insane
-004. Volcano - What Is Life(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 11:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC8F943C0A86030F55B5040F5D34D7117BFE66F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408311   (458293) от 11.09.2020
-
-VA - My Sweet Side: Vocal Chillout (2020) [MP3|320 Kbps] <Chillout, Downtempo, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Soledrummer - Memories
-002. Zero 7 - The Space Between
-003. Luke Petruzzi - Wanted
-004. Ayia - Sparkle(   Читать дальше...   )Жанр: Chillout, Downtempo, VocalПродолжительность: 08:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2193780C51C172C8CC31D013CA7A38887802E61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941899   (458221) от 29.09.2015
-
-VA - Super Sauna Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cats Love Dogs - Sunpearls (Paradise Lounge) (05:42)
-02. Mario Pinosa Trio - La Fuente Funk (05:26)
-03. The Tonal - Eastern Sun (03:05)
-04. Rex Kramer - Feeling Great (05:02)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A74C5C00DE113BEAC22B305C07BB622A14A4999F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408308   (458171) от 11.09.2020
-
-VA - Beatport Bass House: Electro Sound Pack #172 (2020) [MP3|320 Kbps] <Bass House, D&B, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458171.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Le Moussoir - Sweet Jam
-002. Rex Hooligan Ft Pillerin - Anywhere
-003. Phonetic - Release Your Mind
-004. Arne - Cancelled Spring(   Читать дальше...   )Жанр: Bass House, D&B, JungleПродолжительность: 08:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7281B79658308A35A28D88960EBFC90BA812C75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408313   (458164) от 11.09.2020
-
-VA - Soulful Deep House Vibes (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458164.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Discoplex - Take Me Deeper
-002. Angel - Walf
-003. Lorenz Costa - Grand Love
-004. Adam 1st - That Special Look(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 07:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DE3B066A9555F6A82EDAD8A21BE943C235E53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408316   (458155) от 11.09.2020
-
-VA - Travel EDM: Cruise Party (2020) [MP3|320 Kbps] <Dance, House, Trance, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458155.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Joe - Afro House Beat 2k20
-002. Sweet Power - Happy Days
-003. Dufort - Indigo
-004. Djane Feline - What I'm Talking About(   Читать дальше...   )Жанр: Dance, House, Trance, EDMПродолжительность: 09:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF0B5849FF79EDCE8E693F208F83B24EDDCEC2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

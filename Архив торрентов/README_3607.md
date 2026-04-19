@@ -1,26 +1,23 @@
-###  Публикация: 491145   (246372) от 03.05.2012
+###  Публикация: 1536665   (250307) от 13.03.2022
 
-SAM DeCoDeR Pack 2012 Best & Player 4.20 [Русский]
+Macrium Reflect Free Edition 8.0.6635 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DeCoDeR включает декодеры/фильтры для проигрывания файлов
-CoDeC - декодеры и кодеки для упаковки/конвертации файлов
-Player-версия CoDeC включает также три медиапроигрывателя
-64-битные версии включают вместе 32-/64-битные компоненты
-Главное отличие пакета - максимальная поддержка форматов!Название программы: SAM DeCoDeR Pack 2012 Best & PlayerЯзык интерфейса: Русский
+Macrium Reflect Free обладает интуитивно понятным пользовательским интерфейсом, состоит из набора полезных утилит для резервного копирования и восстановления данных.
+Бесплатная утилита получила высокие оценки за выполнение задач резервного копирования. Она способна защитить ваши личные документы, фотографии, музыку, сообщения электронной почты от утери, просто нужно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7BF835ABB230D880BEC9741CFEDB283BDF85FE38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,34 +25,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491468   (246367) от 03.05.2012
+###  Публикация: 1536750   (250285) от 13.03.2022
 
-Kunz & Knobel - Die Suche (2011) [MP3|320 кб/с]<electro-pop, trip-hop, german>
+Windows 10 (v21h2) x64 HSL/PRO by KulHunter v4.1 (esd) [Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nihilisa
-02. Esoesther
-03. Al Bano & Romina
-04. Der Computer
-05. Der Idiot
-06. Medikamententester
-07. Der Spion
-08. Steve Zurcher
-09. Szenen Philipe
-(   Читать дальше...   )2011Жанр: electro-pop, trip-hop, germanПродолжительность: 00:49:20
+Сборка основана на официальном образе от MSDN: ru-ru_windows_10_consumer_editions_version_21h2
+_updated_feb_2022_x64_dvd_d6df2d69.iso.
+Отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:556B5B6CAEE39B6E63D6081DB7AD84020C9EF4E6
+magnet:?xt=urn:btih:19576C9A3003474767FE28887062D83A74BC97DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -63,25 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491748   (246366) от 03.05.2012
+###  Публикация: 1617521   (250284) от 07.03.2023
 
-Журнал | Купи авто №8 [май 2012] [PDF]
+RegCool 1.326 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гид, друг и помощник для тех, кто собрался купить автомобиль зарубежной марки. Мы оцениваем машины исключительно с точки зрения запросов потенциального покупателя. Особое внимание уделяется потребительским свойствам – таким, как выгодность покупки, стоимость содержания и эксплуатации, приспособленность к российским условиям, а также безопасность, индивидуальность, престиж, эмоциональные ощущения от вождения.май 2012Формат: PDF
+Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9037A30C72415F3EB20AC785B0B0076F65A02042
+magnet:?xt=urn:btih:AEE59C52C805BB74B108F5D0227697F9BF9A6AB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -89,25 +80,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491235   (246365) от 03.05.2012
+###  Публикация: 1617572   (250281) от 07.03.2023
 
-Алексей Ворон | "Блейдд" Серия из 2-х книг [2003-2004] [FB2]
+FBackup 9.8.734 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2003-2004Формат: FB2
+FBackup — это свободно распространяемое программное обеспечение для резервного копирования. Предназначена программа и для личного и для коммерческого использования. Она защищает важные данные, сохраняя их автоматически на любой USB / Firewire накопитель, локальную или сетевую папку. Резервное копирование данных может быть сжатым, при этом, используется стандарт сжатия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:620CE3846A3817EEE92F550E9050D598F4E367E5
+magnet:?xt=urn:btih:503CA771484373B02CA226A312EA361F385420A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -115,25 +106,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491404   (246347) от 03.05.2012
+###  Публикация: 1536762   (250270) от 13.03.2022
 
-Журнал | Лучший Автовыбор №18 [май 2012] [PDF]
+VMware Fusion Pro 12 v12.2.3 [Multi]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Лучший Автовыбор" - еженедельный автомобильный журнал-каталог. Более 2000 легковых и грузовых автомобилей любого класса, предлагаемых к продаже автосалонами. Публикуются новости и рекламные материалы автосалонов, тесты новых и подержанных автомобилей.май 2012Формат: PDF
+VMware Fusion - это удобная и мощная виртуальная машина для Mac.
+С помощью решения VMware Fusion пользователи Mac могут запускать ОС Windows и сотни других операционных систем одновременно с приложениями Mac без перезагрузки. Решение Fusion сочетает в себе удобство работы для домашних пользователей и широкие возможности для ИТ-специалистов, разработчиков и организаций. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2022Разработчик: © 2022 VMware, Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Французский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE1002E0BE3EF7DF38FA8CCD7981617B5958C51A
+magnet:?xt=urn:btih:541280981E23CF50474267959E6E3D32279D9535
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,25 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491705   (246333) от 03.05.2012
+###  Публикация: 1551695   (250252) от 11.07.2022
 
-Вечерний Ургант. Выпуск №11 (2012.05.03) SATRip
+Speedtest от Ookla 4.7.18 Mod by Balatan [Ru/Multi]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:29:23
+Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17.05.2022Разработчик: OoklaПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20FE703CD1A433E96FD970519323D84A8028B9F2
+magnet:?xt=urn:btih:2036DA1D4C94E4D35B8A2D80D7E44F7CE9475C09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,29 +159,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491651   (246314) от 03.05.2012
+###  Публикация: 1617611   (250250) от 07.03.2023
 
-[Wallpapers] Computer Desktop Wallpapers Pack 12
+4K Video Downloader 4.23.3.5250 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Computer Desktop Wallpapers Pack 12
-Название: Computer Desktop Wallpapers Pack 12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
+Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A61FDFA744869FDFE55D84EE80D3B45F461B2F6
+magnet:?xt=urn:btih:E4A1B8EF9BB71110CA7774391F6A809654286162
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,29 +186,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491631   (246312) от 03.05.2012
+###  Публикация: 1537097   (250227) от 14.03.2022
 
-[Wallpapers] Cars Desktop Wallpapers Pack 2
+EarthView 6.16.0 RePack (& Portable) by elchupacabra [Ru/En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Cars Desktop Wallpapers Pack 2
-Название: Cars Desktop Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0FAD56190A0E6F891082B1B30D8218695E413C3
+magnet:?xt=urn:btih:EF2E14EC2E1DE584DCC70A4D8F48D721BBC909A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,25 +212,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491427   (246309) от 03.05.2012
+###  Публикация: 1617800   (250217) от 08.03.2023
 
-Журнал | Мир садовода №9 [апрель 2012] [PDF]
+Hex Editor Neo Ultimate 7.25.03.8473 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Мир садовода» - дачные советы для садоводов и огородников. Издание для тех, кто желает вырастить прекрасный сад и получать богатый урожай овощей и фруктов! Очень много разнообразной, интересной и полезной информации, которую готовят известные специалисты огороднической тематике. Также своим опытом делятся читатели.апрель 2012Формат: PDF
+Hex Editor Neo - мощный Редактор Шестнадцатеричных и Бинарных Файлов под Windows. Программа имеет многооконный интерфейс, возможности по просмотру, поиску, замене и отладке данных.
+Вы можете широко использовать следующие основные функции: Type, Cut, Copy, Paste, Fill, Delete, Insert, Import и Export и др. Поддерживаются режимы перезаписи и вставки, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E233FA8DE0103B9221A52C99049B697B012945F
+magnet:?xt=urn:btih:8A081C66C22933A0C6CBDD1817ADEFDE99E456A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,25 +239,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491424   (246306) от 03.05.2012
+###  Публикация: 1537070   (250216) от 14.03.2022
 
-[Wallpapers]Nature Landcapes Full HD Wallpapers 2
+SIV (System Information Viewer) 5.63 Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+SIV (System Information Viewer) - мощнейшая утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3C0CFBCD031E7AC2D09C901B578F85357DD34AF
+magnet:?xt=urn:btih:63CEA68395219E0B124C2529BB17F420566D7C67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,25 +265,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491175   (246305) от 03.05.2012
+###  Публикация: 1617881   (250212) от 08.03.2023
 
-[Wallpapers] Best Impressive Full HD Wallpapers (03.05.12)
+R-Drive Image System Recovery Media Creator Technician 7.1 Build 7102 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+R-Drive Image — является эффективной утилитой для создания файлов образа диска и резервного копирования данных. Файл образа диска, содержащий точную, "байт в байт" копию жесткого диска, раздела или логического диска, может быть создан без перезагрузки компьютера и с различным уровнем сжатия данных. Созданный образ диска может быть сохранен на носителях (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4EE6F7121766E2B3F6040BDFA1ADF92AB9EF9EA
+magnet:?xt=urn:btih:4A027A7078C7C18293E8532C4B77ED2B14BAE7FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,29 +291,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491657   (246304) от 03.05.2012
+###  Публикация: 1617805   (250207) от 08.03.2023
 
-[Wallpapers] Abstraction Desktop Wallpapers Pack 2
+One Commander Pro 3.35.1.0 + Portable  [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250207.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Abstraction Desktop Wallpapers Pack 2
-Название: Abstraction Desktop Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 4000х2000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+One Commander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
+Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C382E74747DC978B606FC156C3CE370AD454219
+magnet:?xt=urn:btih:E4D06EA1CD5E2A1E28BECC5ECD87C8BC1D6A06D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,25 +318,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491518   (246294) от 03.05.2012
+###  Публикация: 1563056   (250206) от 12.07.2022
 
-[Wallpapers] Girls Desktop Wallpapers Pack 14
+Spotify 1.1.88.612 (Repack & Portable) by Elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250206.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 2560х1600
+Spotify - это бесплатный потоковый плеер музыки, который вобрал в себя массу онлайн возможностей.
+Spotify имеет громадный каталог музыки, поддерживаемый большинством музыкальных компаний, таких как EMI, Warner Music, Sony или Universal, и вы можете искать в каталоге при помощи встроенного хорошего поискового движка. Хотя, вы можете использовать Spotify и другим образом, (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFF4E1CB804CB8D2D57C91D5FD6835E274408357
+magnet:?xt=urn:btih:4ECE23038B6F388D16082493092932B2D0A2D090
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,25 +345,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491508   (246293) от 03.05.2012
+###  Публикация: 1536819   (250203) от 14.03.2022
 
-[Wallpapers] Girls Desktop Wallpapers Pack 13
+Windows 10 (v21h2) x64 PRO by KulHunter v4.1 (esd) [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1600х1200 - 2560х1600
+Сборка основана на официальном образе от MSDN: en-us_windows_10_consumer_editions_version_21h2
+_updated_feb_2022_x64_dvd_29a6f005.iso
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B1301ECDF6A881CCEBAED8E8C1ED3D3A9D24021
+magnet:?xt=urn:btih:FE32F8D109DF9083459812D25BAA74CCBD06CFB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,34 +374,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491014   (246292) от 03.05.2012
+###  Публикация: 1617732   (250202) от 08.03.2023
 
-VA - Клубные Новинки Vol.70 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+Microsoft PowerToys 0.68.1 [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Di Salvo & Piccolo - La Frutta Dell'amor (Original Mix)
-02. Ethillas - Mavien (Original Mix)
-03. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
-04. Ivan Mateluna Feat. Tiff Lacey - Where Is the Love (DJ Fellow & Nick Asoev Remix)
-05. Dandi & Ugo - Industrial Silence (Original Mix)
-06. Aleksey Yakovlev - Space Odyssey (Original Mix)
-07. Matan Caspi - Surprise Me feat Mykle Anthony (Original Mix)
-08. Cedric Gervais - Molly (Original Mix)
-09. Elay Lazutkin - It's Not Me (Original Mix)
-10. Guru Josh - Infinity 2012 (Robbie Rivera Juicy Remix)2012Жанр: Club, DanceПродолжительность: 04:20:36
+Microsoft PowerToys – это набор утилит, позволяющих опытным пользователям настраивать и оптимизировать работу оболочки Windows 10 для повышения производительности труда.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8BC6D616B4D475DC71010800FAF70A1D847384C
+magnet:?xt=urn:btih:A5C1872E69CA49E5A3E2D1D3222D54EAFB93A973
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,25 +400,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491519   (246290) от 03.05.2012
+###  Публикация: 1537046   (250199) от 14.03.2022
 
-[Wallpapers] Girls Desktop Wallpapers Pack 15
+Evorim Free Firewall 2.6.1 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1920x1200
+Evorim Free Firewall – бесплатный фаервол, альтернатива брандмауэру Windows. Позволяет контролировать и блокировать сетевую активность приложений и служб, предотвращает сбор данных и телеметрических значений.
+Контроль и блокировка установленных приложений и активных служб
+Данный персональный фаервол является альтернативой встроенному системному решению Windows и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B662E08211AC22AB445043DE01E3D78E86F7D2F8
+magnet:?xt=urn:btih:C1C55BFF48EE78ACD80CA014B0A4CE6D8AD8414D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,25 +428,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491177   (246289) от 03.05.2012
+###  Публикация: 1563118   (250198) от 12.07.2022
 
-[Wallpapers] Sexy Girls Pack Wallpapers (03.05.12)
+Яндекс.Браузер 22.7.0.1841 (x32) / 22.7.0.1842 (x64) Portable by Cento8 [Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1600
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFC88F54CC952C0C1D92F1D5F34FF9B2467E71C0
+magnet:?xt=urn:btih:8B90B573F8B3204324120184C54D2F374430C6ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,29 +454,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491513   (246288) от 03.05.2012
+###  Публикация: 1617743   (250197) от 08.03.2023
 
-[Wallpapers] Nature Desktop Wallpapers Pack 7
+Qalculate! 4.6.0 + portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Desktop Wallpapers Pack 7
-Название: Nature Desktop Wallpapers Pack 7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Qalculate! - это многоцелевой кросс-платформенный настольный калькулятор. Он прост в использовании, но обеспечивает мощность и универсальность, обычно предназначенные для сложных математических пакетов, а также полезные инструменты для повседневных нужд (такие как конвертация валюты и расчет процентов). Особенности включают в себя большую библиотеку настраиваемых (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAF273F597ED128A6AB17A6E3103C3F91F7B3520
+magnet:?xt=urn:btih:FA4A052B8BAE442566DA6B2A46F44C4639FE8E0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,25 +480,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491620   (246287) от 03.05.2012
+###  Публикация: 1617886   (250189) от 08.03.2023
 
-[Wallpapers] Girls Desktop Wallpapers Pack 16
+4K Downloader 5.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250189.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1920x1200
+4K Downloader - программа для загрузки видео с YouTube и других веб-сайтов для обмена видео в форматах 4K Ultra HD.
+Учитывая, что большинство смартфонов, телевизоров, компьютеров и планшетов поддерживают форматы высокой четкости, неудивительно, что все больше пользователей хотят наслаждаться качественным контентом на своих устройствах. 4K Downloader - это простое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5C875F562A6C9CE2C4C4AA78A608B09CACC6F05
+magnet:?xt=urn:btih:D4E631A5812A2A4C8EDD3C44F126A6AB8E40C54E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,34 +507,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491334   (246286) от 03.05.2012
+###  Публикация: 1563110   (250185) от 12.07.2022
 
-VA - May Club Party (2012) [MP3|192-256 кб/с]<Club>
+AIMP 5.03 build 2394 RePack (& Portable) by elchupacabra (11.07.2022) [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lika Star - Точка росы (Tone Project club mix)
-02. Аметист & Настенька Жигалова - Игра В Любовь
-03. Alex M.O.R.P.H. & Protoculture - Waking Up The Stars (Radio Edit)
-04. Gino Manzotti Feat. Damon - Save Me (Radio Edit)
-05. Алабама - Отпускаю
-06. DJ Dark & Shidance feat. Phelipe - Sexy Lady (Hey!) (Andeeno Damassy Remix)
-07. Andy Moor feat. Jessica Sweetman - In Your Arms (Original Mix Edit)
-08. Alexey Romeo Feat. Gerald G - This Is Your Life (Radio Edit)
-09. Frisco Disco feat. Ski - One Way Ticket (Radio Version)
-10. Gradusi - Zametaet (DJ HiTretz & Sergei Karpov Remix)2012Жанр: ClubПродолжительность: 08:09:07
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC1D532AF039025C875CE66AFFB41A0B93DE180A
+magnet:?xt=urn:btih:652D03A548AD398F731960C5B2D894B1238CBBB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,29 +533,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491649   (246285) от 03.05.2012
+###  Публикация: 1563130   (250183) от 12.07.2022
 
-[Wallpapers] Computer Desktop Wallpapers Pack 11
+TrackView Platinum Edition 3.7.51 Mod by ~Timozhai~ [Ru/Multi]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Computer Desktop Wallpapers Pack 11
-Название: Computer Desktop Wallpapers Pack 11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+TrackView - это приложение предназначенное для слежения и контроля за устройствами.
+Используя связь между вашими устройствами, вы сможете удаленно отслеживать, контролировать и "мониторить" ваши смартфоны и планшеты под управлением Android. Это приложение может заменить IP-Камеру, Видеоняню, GPS-Трекер и многое другое - Применений множество. Никаких проводов, (   Читать дальше...   )Тип издания: PlatinumРелиз состоялся: 18.06.2022Разработчик: TrackView TeamЯзык интерфейса: Русский, Английский, Шведский и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9204D0836456D55EFC266E1A9919C9F24CBC9603
+magnet:?xt=urn:btih:C3573A7B51FCDBA8BA0B833BF249880A4FAB9E60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,25 +560,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491180   (246282) от 03.05.2012
+###  Публикация: 1617772   (250178) от 08.03.2023
 
-[Wallpapers] Wallpapers Sexy Girls Pack (03.05.12)
+Duplicate Cleaner Pro 5.18.0 RePack (& Portable) by TryRooM [Ru/En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2756
+Duplicate Cleaner - мощный и профессиональный инструмент для поиска и удаления одинаковых и похожих файлов с компьютера. Инструмент для очистки локальных и сетевых дисков от дублирующихся файлов. Помогает находить и удалять различные файлы-дубликаты: музыку, фото, видео, документы Word, презентации PowerPoint и другие.Язык: английский/русский by TryRooMЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5632E6FE7A8ADAA5D7FB702AC7EFFF61BE90E824
+magnet:?xt=urn:btih:D22BC56AEBA5DDEF3127F591B2EA7C443BCCDCC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,25 +586,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491630   (246280) от 03.05.2012
+###  Публикация: 1618003   (250166) от 09.03.2023
 
-[Wallpapers] Girls Desktop Wallpapers Pack 18
+Wondershare PDFelement 9.4.4.2122 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1600х1200 - 2560х1600
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3BA6FF40B9157E6DE849627D11E1FFF90CFF9EB
+magnet:?xt=urn:btih:3B628B91806B7CDBFBEE4B25965408ED3C514854
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,25 +612,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491659   (246278) от 03.05.2012
+###  Публикация: 1537272   (250165) от 15.03.2022
 
-[Wallpapers] Girls Desktop Wallpapers Pack 20
+Adobe Acrobat Reader для PDF 22.2.0.21450 Mod by Apps Store [Ru/Multi]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1680х1050 - 2560х1600
+Работаете с документами вне офиса? Загрузите Adobe Acrobat Reader — надежный редактор документов и конвертер PDF. Более 635 миллионов установок! Храните в облаке и просматривайте файлы на любых устройствах в ведущем бесплатном PDF-редакторе. С помощью него вы сможете просмотреть, прокомментировать, добавить электронную подпись, предоставить доступ и сжать файл PDF.Тип издания: PremiumРелиз состоялся: 07.03.2022Разработчик: AdobeПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69B9FAD31C13894662D3EACECC5B422132390FF2
+magnet:?xt=urn:btih:E1DB621E437B4C0BD800536B2E8D8669996EA997
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,29 +638,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491629   (246276) от 03.05.2012
+###  Публикация: 1618044   (250164) от 09.03.2023
 
-[Wallpapers] Computer Desktop Wallpapers Pack 10
+NIUBI Partition Editor 9.3.8 Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Computer Desktop Wallpapers Pack 10
-Название: Computer Desktop Wallpapers Pack 10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
+В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:450FD07E19843FA9591485042F6E1456026417E5
+magnet:?xt=urn:btih:AE46BBA36669CA036864C0C67FA7FEEDBF3BB946
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,25 +665,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491178   (246274) от 03.05.2012
+###  Публикация: 1618001   (250159) от 09.03.2023
 
-[Wallpapers] Gilrs Wallpaper (03.05.12)
+Wise Care 365 Pro 6.5.2.624 Portable by FC Portables [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х2667
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5D5E594B299CEBA177788418F2E17ABD8CE73A4
+magnet:?xt=urn:btih:35620A6E74D829CFC270E04E87F1E70394714953
 ```
 
 https://mybot314.ru/tekegram_catalog/

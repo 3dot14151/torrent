@@ -1,3 +1,177 @@
+###  Публикация: 913733   (600356) от 01.07.2015
+
+VA - BC2 Summer 2015 (2015) [MP3|320 кб/с]<Progressive House, Deep House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luciano Scheffer - Alamo (Spacebeat Remix) [09:27]
+02. Phonic Scoupe - Portico Garden (Original Mix) [07:43]
+03. GabiM - Punc Munc (Travis MacDonald Remix) [08:32]
+04. Midinoize - Exposed (David R Maddocks Remix) [06:51](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 03:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECDBEEC84187828DE8E457ACB544E8696EE12E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232502   (600056) от 24.06.2018
+
+VA - Best Charts: Summer Of Dance (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Luke - Like This Like That (Born In 70s Mix) 8:10
+02. Max Gazeta - Koshka (Original Mix) 8:13
+03. Silver Disco - Detroit (Original Mix) 4:32
+04. Bonsugi - Good Time (Original Mix) 4:00(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E74C8A9C4AE07F112FE97A5B264680BFF311FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232513   (600053) от 24.06.2018
+
+VA - Ibiza Opening Party 2018 (Deluxe Version) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sounds Fine - Colours (Original Mix) 5:54
+02. MKVG - I Can Give (Original Mix) 5:47
+03. Mack Jack - Marimba (Original Mix) 3:38
+04. Martin Zoom - Above You (Extended Mix) 4:12(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129558B2B68B03ADB7E90FDC5C8698D9DB93BFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149870   (598636) от 12.07.2017
+
+VA - This Is My Church Vol 7 (The House Edition) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Cotton – Organ Sweep (Original Mix) 03:30
+02. Velvet & Merrill – Watermelons (Original Mix) 05:40
+03. Black Jag – I Just Can Stop (Original Mix) 03:28
+04. Victoria Stanton – Chasse Au Papillion (Original Mix) 05:43(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C222DE6D90486078638A69592CE97F4EFDE14241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149952   (598627) от 12.07.2017
+
+VA - South Beach Miami Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life – Love (Retro Edit)
+02. Nohc – Forgotten
+03. DJ Luciano – You Don’t Know (Pop Edit)
+04. Sunset Moments – Fall Into the Light(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E87C3769E3ADC87F7E3657C1701AA96492E5A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039421   (597626) от 31.07.2016
+
+Moby - The Remixes (Go, Porcelain, Natural Blues) (2016) [MP3|320 Kbps] <Progressive House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go (Hardwell Remix) (5:28)
+02. Porcelain (Sick Individuals Remix) (5:21)
+03. Natural Blues (Bali Bandits Remix) (3:46)
+04. Go (Hardwell Remix Edit) (4:28)(   Читать дальше...   )Производство: Revealed RecordingsЖанр: Progressive House, ElectronicПродолжительность: 00:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924C1261F67B5EA66ED0FBB69D7511D1C5797603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 117407   (596866) от 24.07.2012
 
 Deadmau5 - It Sounds Like (2009) [MP3|320kbps]<House / Progressive House / Tech House / Electro House>
@@ -585,177 +759,6 @@ VA - Latin Fitness Workout 2017 (Ideal For Cardio, Gym, Running & Aerobics) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41A9A983DF177269A66D7B3DE0717E85E317079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233497   (593019) от 30.06.2018
-
-VA - FG Top 10 June 2018 [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stan Kolev - Oblivion (Extended Mix) 07:21
-02. Max Freegrant - Drama King 06:49
-03. Orphyd - Replicant (Original Mix) 05:43
-04. AxelPolo - Mirage 06:36(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9235DE3AC25E2A7CCD246910FE19D970967A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549795   (592894) от 08.05.2022
-
-VA - Progressive House 100 - The Ultimate Selection (2022) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592894.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. SØNIN & Grigoré - Serpento (Original Mix) (8:50)
-002. Quivver - Brothers & Sisters (Cid Inc. Remix) (9:06)
-003. RUE - The Cult (Enamour’s Free Love Extended Mix) (7:01)
-004. All Living Things - Rave Culture (Jerome Isma-Ae Extended Remix) (7:38)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0831EEA4EF8AA3DABB1CC8D7D7D89A1D856472FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300663   (592811) от 07.05.2019
-
-VA - Nothing But... Dance Vol.14 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvirra Strayzi - Amorousness (Original Mix)
-02. Labibe - No Seu Olhar (Bruno Motta Remix)
-03. Freaky Djs - My Way (Original Mix)
-04. Labi Ramaj - What We Had (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22B26875F7A56710F5C423E3D25A8AEF49D488B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916264   (590942) от 08.07.2015
-
-VA - Festival Favorites 2015 - Armada Music (2015) [MP3|320 кб/с]<Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix - Don't You Want Me 2015 (Dimitri Vegas & Like Mike Radio Edit) (03:47)
-02. W&W - Rave After Rave (Radio Edit) (02:43)
-03. Bassjackers & Thomas Newson - Wave Your Hands (04:08)
-04. Dash Berlin feat. Emma Hewitt - Waiting (Dash Berlin Miami 2015 Radio Edit) (02:54)(   Читать дальше...   )Производство: Armada Music BundlesЖанр: Progressive House, Electro HouseПродолжительность: 02:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB89365C9289DE308AA8B65BB195CA4581B55F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917594   (589108) от 12.07.2015
-
-Popof - Love Somebody (2015) [MP3|320 кб/с]<House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Words Gone (feat. Arno Joey) (03:26)
-02. Lidl Girl (04:30)
-03. Your Eyes (05:04)
-04. pack N Rollin' (04:16)(   Читать дальше...   )Производство: Hot CreationsЖанр: House, Deep HouseПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BAE8C400F3C1CE01399B7A4F40E7598DAC5C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357933   (586282) от 02.07.2011
-
-VA - Record SUPERCHART #196 с DJ Feel (25.06.2011) [MP3|192-320 kbps]<House, Electro, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, Electro, TranceПродолжительность: 03:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A834AEE9481E635DB18A0D5FAA9B36DDB74D6967
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,9 +1,120 @@
+###  Публикация: 1857244   (1059564) от 05.03.2026
+
+Shantanu Baruah, N. Baruah | Generative AI for Full-Stack Development. AI Empowered Accelerated Coding. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gain cutting-edge skills in building a full-stack web application with AI assistance. This book will guide you in creating your own travel application using React and Node.js, with MongoDB as the database, while emphasizing the use of Gen AI platforms like Perplexity.ai and Claude for quicker development and more accurate debugging.
+
+The book’s step-by-step approach (   Читать дальше...   )Жанр: Software Development, Artificial Intelligence, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940810EEE3AE1B25AD1F95A82094361A4B3077D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857254   (1059562) от 05.03.2026
+
+Fottiniya | Промпт-инженер текстовых моделей ИИ. Говори с ИИ. От новичка до эксперта (2024) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс — не просто набор инструкций по составлению промптов. Промпт-инженерия — это больше, чем просто техническое умение. Это путешествие в мир, где грань между человеческим и искусственным интеллектом становится все более размытой.
+Что вы получите, пройдя курс?
+- Вы научитесь виртуозно жонглировать промптами, создавая идеальные команды для языковых моделей. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816480ACEE43803BD4B72CB1A64F49ED69BEA947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857252   (1059551) от 05.03.2026
+
+Анастасия Невзорова | Будущее Chat GPT. Тенденции и прогнозы (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059551.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном издании использованы изображения, сгенерированные системой DALL-E.
+В этой электронной книге вы найдете эксклюзивную информацию о будущем ChatGPT и его развитии. Узнайте о ключевых тенденциях и прогнозах, которые будут определять путь искусственного интеллекта в ближайшие годы. Эта книга предназначена для всех, кто интересуется новыми технологиями и стремится (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308780AA0A50544E00A8AA7A5A38638BEC804A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856333   (1059090) от 28.02.2026
+
+Андрей Столяров | Программирование введение в профессию. В 3-х томах + задачи и этюды. 2,91 издание [4 книги] (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том серии «Программирование: введение в профессию» включает две основные части.
+
+В первую часть книги вошли избранные сведения из истории вычислительной техники, обсуждение некоторых областей математики, непосредственно используемых программистами (таких как алгебра логики, комбинаторика, позиционные системы счисления), математических основ программирования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МАКС ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FEDDA9D56C479C9681607C1A4CF08EA9ED181A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856324   (1058953) от 27.02.2026
 
 Roberto Infante | AI Agents and Applications. With LangChain, LangGraph, and MCP (2026) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058953.jpg" />
@@ -31,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 Tilman M. Davies | The Book of R. A First Course in Programming and Statistics. 2nd Edition (2026) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058946.jpg" />
@@ -59,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 Mabrouk Mahdhi | Mastering ASP.NET Core 10. Web Applications Made Easy with the Biggest Update Yet. First Edition (2025) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058939.jpg" />
@@ -87,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 Audrey Roggenkamp, Ian Rutkowsky, Nita Rutkosky | Benchmark Series, Microsoft Excel 2019 Levels 1&2 (2020) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058656.jpg" />
@@ -113,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 Michael McDonald | 200+ Excel Formulas and Functions. The go-to-guide to master Microsoft Excel's many capabilities (English Edition) (2023) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058655.jpg" />
@@ -142,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 Ritu Arora | Mastering Advanced Excel - With ChatGPT Integration. Learn Formulas and Functions, Advance Pivot Tables, Macros, VBA Coding, ChatGPT Integration with exercises (English Edition) (2023) ...
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058654.jpg" />
@@ -171,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 Robinson Cortez | Microsoft Office 365 Bible 2024. Harness the Full Power of Office 365 for Seamless Workflows, Enhanced Collaboration, and Unparalleled Success (2023) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058653.jpg" />
@@ -199,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 Альберто Феррари, Марко Руссо | Анализ данных при помощи Microsoft Power BI и Power Pivot для Excel (2020) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058652.jpg" />
@@ -225,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 А.Е. Журавлев | Информатика. Практикум в среде Microsoft Office 2016/2019. Учебное пособие для СПО. 2-е издание (2021) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058651.jpg" />
@@ -251,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 Roshan Gavandi | Building Enterprise-Ready Azure Infrastructure. Learn Security, Scalability, and Reliability with IaC & DevOps (2025) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058650.jpg" />
@@ -277,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 Vaskaran Sarcar | Python Bootcamp. A Rapid Crash Course Featuring Q&A Sessions, Exercises, and Projects (2025) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058062.jpg" />
@@ -305,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 Artur Guja, Marlena Siwiak, Marian Siwiak | Starting Data Analytics with Generative AI and Python (2025) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058061.jpg" />
@@ -333,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 Мариан Сивяк, Артур Гуджа, Марлена Сивяк | Анализ данных с помощью GenAI и Python (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058060.jpg" />
@@ -359,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 Дэнис Ротман | RAG и генеративный ИИ. Создаем собственные RAG-пайплайны с помощью LlamaIndex, Deep Lake и Pinecon (2025) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058031.jpg" />
@@ -385,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 Benjamin Bennett Alexander | 50 Days of Data Analysis with Python: The Ultimate Challenges Book for Beginners. Hands-on Challenges with pandas, NumPy, Matplotlib, Sklearn and Seaborn (2023) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058030.jpg" />
@@ -414,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 Владимир Дронов | Python. Уроки для начинающих (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058024.jpg" />
@@ -441,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 Юрий Другач | Контролируемый взлом. Библия социальной инженерии. 3 изд (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058023.jpg" />
@@ -467,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 Юрген Эбнер | Этичный хакинг. Инструменты тестирования на взлом и обеспечение ИТ-безопасности (2025) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058022.jpg" />
@@ -493,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 Юлия Попова | Go: разработка приложений в микросервисной архитектуре с нуля (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058021.jpg" />
@@ -519,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 Роланд Хасс, Билджин Ибрам | Паттерны Kubernetes: Шаблоны разработки собственных облачных приложений (2026) [Второе издание] [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1057424.jpg" />
@@ -545,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 Грег Уилсон | Разработка программного обеспечения на примерах с помощью Python (2025) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057345.jpg" />
@@ -571,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 Greg Wilson | Software Design by Example. A Tool-Based Introduction with Python. 1st Edition (2024) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057343.jpg" />
@@ -585,110 +696,6 @@ The best way to learn design in any field is to study examples, and some of the 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B9034CB109732B83E3A8B3380A6D56825C3FCCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854227   (1057306) от 18.02.2026
-
-Ирина Хаустова | Изучаем Python. Заметки репетитора (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Python часто выбирают в качестве первого языка программирования. Он хорошо подходит как для обучения, так и для решения реальных практических задач. Эта книга предназначена для тех, кто хочет освоить основы программирования на Python. Она подойдёт школьникам, готовящимся к экзаменам, студентам и взрослым, которые начинают знакомство с программированием или изучают (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: СамиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9251A948DCACF47A8F8B543055BD61BC3A9632DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852983   (1056894) от 13.02.2026
-
-Виктор Шитов | Автоматизация рутины в Excel VBA. Лайфхаки для облегчения скучных рабочих задач (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто работаете с большим количеством данных? Знаете основные приемы в Excel, но еще не пробовали использовать язык Visual Basic? Тогда самое время разобраться в нем и перестать тратить время на операции, которые можно выполнить одним кликом. С помощью этого руководства вы научитесь правильно использовать синтаксис VBA, сделать тривиальные действия в Excel автоматическими, (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: ЭксмоФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4644F93FD7EB73705F2A165CE09D547E151BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852868   (1056564) от 12.02.2026
-
-Deepshikha Bhati, Fnu Neha, Angela Guercio и др. | A Beginner’s Guide to Generative AI. An Introductory Path to Diffusion Models, ChatGPT, and LLMs (Synthesis Lectures on Computer Science) (2025) [ ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056564.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book is the essential guide for anyone curious about AI’s creative power. In the rapidly evolving landscape of artificial intelligence, generative AI stands out as one of the most transformative technologies of our time. Designed for beginners and requiring no prior knowledge of AI, this book breaks down the fundamentals of generative AI, from text and image (   Читать дальше...   )Жанр: Speech & Audio Processing, Database Storage & Design, Artificial IntelligenceЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67DD246704934EA59A6B3604AE37FEB837FF8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852864   (1056563) от 12.02.2026
-
-В.М. Фомичев | Элементы теории информации в защите информации. Учебное пособие (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056563.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии систематически изложены основы математической теории информации, для ее разделов, относящихся к математическим моделям источников сообщений и к методам кодирования, подчеркивается связь с вопросами криптографической защиты информации. Для закрепления знаний в каждой главе даны задачи, упражнения и контрольные вопросы.Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E361F3EB857BE7F43E0A16096E15D881B519761
 ```
 
 https://mybot314.ru/tekegram_catalog/

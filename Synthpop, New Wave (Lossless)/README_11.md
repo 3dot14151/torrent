@@ -1,3 +1,90 @@
+###  Публикация: 1293697   (633738) от 05.04.2019
+
+VHS Dreams - The Bundle - Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body Heat (4:41)
+02. Bodywork (12'' Extended Mix) (5:46)
+03. Downtown (12'' Extended Mix) (5:56)
+04. Miami's Finest (12'' Extended Mix) (6:18)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAEE70677815EEED705978BF821F018895B4A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293768   (633628) от 05.04.2019
+
+Prins Thomas - Ambitions (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Funk, Nu-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreplay (03:27)
+02. XSB (05:31)
+03. Feel The Love (04:25)
+04. Ambitions (12:08)(   Читать дальше...   )Жанр: Techno, Funk, Nu-DiscoПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB6C6C6549EED4BC633301096B9261D686AABE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143751   (633271) от 19.06.2017
+
+Oscillian - Ad Astra (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633271.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ad Astra (4:00)
+2. Battle Angel (4:32)
+3. Slipstreaming (5:00)
+4. Stratosphere (3:46)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7610E2664098F7223F22DE2539A360B46450C68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144011   (631479) от 20.06.2017
 
 Com Truise - Iteration (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
@@ -659,93 +746,6 @@ Jay-Jay Johanson - Tattoo (1998) [FLAC|Lossless|tracks + .cue] <Electro, Trip Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEB5A9C74285427AA8A707121292E834815552B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296981   (606795) от 20.04.2019
-
-Japan - Exorcising Ghosts (1984) Anthology [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Methods Of Dance (06:50)
-02. Gentlemen Take Polaroids (07:04)
-03. Quiet Life (04:52)
-04. Nightporter (06:48)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E442422C552E03436745597CB8E9EDB4FDFFA41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296973   (606417) от 20.04.2019
-
-Kompromat - Traum und Existenz (2019) Clivage Music [FLAC|Lossless|WEB-DL|tracks] <Electro, Synth-pop, EBM, Techno>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Possession (03:40)
- 02. Traum und Existenz (04:36)
- 03. Niemand (04:04)
- 04. De mon âme à ton âme (feat Adèle Haenel) (04:26)(   Читать дальше...   )Жанр: Electro, Synth-pop, EBM, TechnoПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA05CA05A7832123DAC1900435E68787C5C50F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149162   (602503) от 09.07.2017
-
-Escape With Romeo - 5 Albums (2002-2015) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You`ll always be a stranger (4:26)
-02. Cold Future (3:56)
-03. After the party (3:35)
-04. Drugz (3:09)(   Читать дальше...   )Жанр: Synthpop, New Wave |Продолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0E9EA20E7CAA953D94997E77AD865AAF9192D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

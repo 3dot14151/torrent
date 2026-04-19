@@ -1,3 +1,229 @@
+###  Публикация: 933444   (505271) от 02.09.2015
+
+VA - Minions (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Minions - Universal Fanfare
+02. The Turtles - Happy Together
+03. The Spencer Davis Group - I’m a Man
+04. The Kinks - You Really Got Me(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13D0E6C15547318E3B6BCBB58C3BD98DA617D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538175   (504885) от 28.08.2012
+
+VA - Sacred Ground - A Tribute To Mother Earth (2005) [MP3|320 кб/с]<Native American, Ethno, New Age, Ambient, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504885.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sacred Ground - Bill Miller (6:21)
+2. Can You Hear The Call - Robert Mirabal (6:37)
+3. Mountain Song - Star Nayea And Primeaux & Mike (6:00)
+4. Spirit Wind - Bill MIller (5:05)
+5. Seeking Light - Joanne Shenandoah (6:13)
+6. Raven - Little Wolf Band (5:43)
+7. People Of Yesterday - Robert Mirabal (5:00)
+8. Prayers In The Wind - Little Wolf Band (4:07)
+9. Let Us Dance - Primeaux & Mike And David Carson (5:16)
+10. Mother Earth - Walela And Joanne Shenanadoah (4:50)Жанр: Native American, Ethno, New Age, Ambient, DowntempoПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA3F30A0A8C6B3D3A041E558DB36B1D33A3D960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539369   (504867) от 28.08.2012
+
+Mandala - 3 albums (2003-2009) [MP3|160-320 кб/с]<Relax, Meditative, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504867.jpg" />
+</div>
+
+
+###  Подробнее
+
+(30:03) 1. Raga Jhinjhoti
+(27:30) 2. Raga DarbariЖанр: Relax, Meditative, InstrumentalПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9AE7003FFBB5955B30AB2D377EFB9579781A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538375   (504856) от 28.08.2012
+
+Red Indian Chill - Shaman (2007) [MP3|~245 кб/с (V0)]<Native American, Ethno, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Medicine Power
+2. Wilderness
+3. Chief White Bears Trance Dance
+4. Red Indians Right To Live
+5. Wolfsong
+6. Choctaw Shadownese Song
+7. Medicine Energy PowWow
+8. Mother Earths Tartaruga Song
+9. Medicine Mans Other Room
+10. Hinayana Vision(   Читать дальше...   )Жанр: Native American, Ethno, Ambient, New AgeПродолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF78188E3092BF3BC1A6537B68EB49CE7B57820F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538006   (504839) от 28.08.2012
+
+Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In Pacific Ocean (Ethereal)
+02.Breath underwater (Ethereal)
+03.Flying in the deep blue (Ethereal)
+04.Across the Lagoon Nebula
+05.Son of the Sun
+06.Sailing the river Styx
+07.From the Beginning Till the End
+08.Touch of Blue light
+09.Ganymede
+10.K'ank'in(   Читать дальше...   )Жанр: New Age, Enigmatic, AmbientПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2622E9CA068BE2A2BAE908E3567827A0D89437C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540217   (504743) от 28.08.2012
+
+Marilyn Monroe - Marilyn Monroe Sings! (2CD) (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция из 33 самых знаменитых песен (1947-1962)1. Diamonds are a girl's best friend (3:31)
+ 2. When I fall in love (2:59)
+ 3. One silver dollar (2:02)
+ 4. Happy birthda Mr. President (2:01)
+ 5. Do it again (3:12)Жанр: OSTПродолжительность: 01:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEE3EFB60D7D3930D3961DCBFB4B8332E57042B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540338   (504740) от 28.08.2012
+
+Lingua Mystica - Magic Secrets (2007) [MP3|320 кб/с]<New Age,Celtic,World,Ethereal Voices>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (01:06)
+02. Gloria (03:25)
+03. The Magic Will Return (03:36)
+04. By Morning Dawn (03:17)
+05. Hallelujah (03:36)
+06. A Stone Will Tell (04:05)
+07. Gone to Earth (04:33)
+08. World of Fantasy (03:22)
+09. Call of Immortality (04:04)
+10. Turn the Key (03:25)(   Читать дальше...   )Жанр: New Age,Celtic,World,Ethereal VoicesПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8FF75E4A7C0F4876FAAD28F839CC36F6DCE057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933868   (504510) от 03.09.2015
 
 Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
@@ -575,221 +801,6 @@ DYATHON - Recollection (2019) [MP3|320 Kbps] <Instrumental, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AFBE6F8429567D4B7C104371487C6DD78CFF697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934819   (499455) от 08.09.2015
-
-The Soul Stirrers - Les Genies du Rock - Peace In The Valley (1995) [MP3|320 кб/с]<RnB, Soul, Gospel>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499455.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  My Loved Ones (2:37)
-2.  Striving (2:31)
-3.  Hello Sunshine (2:45)
-4.  That's Heaven To Me (2:16)(   Читать дальше...   )Жанр: RnB, Soul, GospelПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C2E36CE69D3653D5DFE83CE216FD7AEA6927A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540692   (499175) от 02.09.2012
-
-VA-New Age Style - Mystic Lounge (2012) [MP3|320 кб/с]<New Age, Tribal, PsyChill, Downtempo, Psy Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499175.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Жанр: New Age, Tribal, PsyChill, Downtempo, Psy AmbientПродолжительность: 04:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5D5426D2892AD9B090933DAD465388BCA0B699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541946   (499121) от 02.09.2012
-
-David Hicken - 3 albums (2007-2008) [MP3|192, 320 кб/с]<New age, Instrumental, Relax, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499121.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:07) 01. Faylinn
-(4:08) 02. Rhoslyn
-(4:31) 03. Titania
-(3:47) 04. Oberon
-(4:29) 05. Ellette
-(4:28) 06. Rusalka
-(3:49) 07. Donella
-(4:06) 08. Alberich
-(3:40) 09. Arethusa
-(3:43) 10. Lorelle(   Читать дальше...   )Жанр: New age, Instrumental, Relax, PianoПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629E9B7E0AC6830E04553DB96DEDAC9D0B265B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138501   (498763) от 04.09.2009
-
-Iasos - 9 albums (1975-2001) [MP3|256-320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New ageПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935765   (498441) от 09.09.2015
-
-Divine Matrix - Atmospheric Variations (2012) [MP3|320 кб/с]<Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1000 Light Years
-02. Jigokudani Springs
-03. Magnetic Disturbance
-04. Marine Forcast(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D1082088CFC1BCAD4B122B9DC5BE8186962DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540755   (498149) от 03.09.2012
-
-Shiva feat. Magdalena - Shivas Dance (1996) [MP3|320 кб/с]<New Age, Relax, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Ropes, Ribbons And A Ball
-02. Far Behind The Skies
-03. Fly Away
-04. Shiva's Dance
-05. White Flower, Blue Flower
-06. We'll Be With The Stars Tonight
-07. Brahmane's Prayer
-08. Miracle Of Love
-09. Take Me Higher
-10. Karma(   Читать дальше...   )Жанр: New Age, Relax, ElectronicПродолжительность: 00:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E78617A3E99144E58C9A0C04DF9B0B649AFB89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542568   (498148) от 03.09.2012
-
-VA - Music For Modern Yoga (2009) [MP3|320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498148.jpg" />
-</div>
-
-
-###  Подробнее
-
-(7:37) 01. Chinmaya Dunster - Moonsong
-(8:00) 02. Terry Oldfield & Soraya - Om Shanti
-(5:23) 03. Cybertribe - Across The Magic Mountains
-(8:18) 04. Terry Oldfield - Earth And Sky
-(6:48) 05. Chinmaya Dunster & Niladri Kumar - Innergy
-(7:12) 06. Terry Oldfield - Aum
-(7:32) 07. Rasa - He Krishna
-(8:16) 08. Rasa - Jaya Radha
-(6:33) 09. Chinmaya Dunster & Niladri Kumar - Arunavachana (Promise of the Dawn)
-(7:59) 10. Rasa - Gayatri Mantra(   Читать дальше...   )Жанр: New ageПродолжительность: 01:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AE69FF159AACF83E31669AAE9387E7BB50B1CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

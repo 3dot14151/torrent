@@ -1,22 +1,22 @@
-###  Публикация: 504202   (260172) от 01.06.2012
+###  Публикация: 1340628   (263540) от 24.11.2019
 
-[Wallpapers 16+] Sexy Girls Pack Wallpapers (01.06.12)
+Игорь Осипов | Охотники на попаданцев (2019) [MP3]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+Попаданцы. Потеряшки между мирами. Зачастую они тысячами гибнут от голода, холода, болезней, от клыков хищников, на кострах дикарей и в рабстве кровожадных пиратов, а вместе с ними теряются бесценные знания, артефакты и приборы. Но есть мир, отстающий от нашего на одно столетие. Он похож на наш, но чуточку другой, и в нём осознают всю пользу от таких пришлых, и там (   Читать дальше...   )Жанр: Городское фэнтези, Попаданцы, СтимпанкПродолжительность: 14:28:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6A3335BED7D7C908E31F7BD97F44C5215836A39
+magnet:?xt=urn:btih:95453C564956E376EEC3A889C30E7110F5CE23CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,34 +24,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504235   (260166) от 01.06.2012
+###  Публикация: 1340683   (263539) от 24.11.2019
 
-VA - Клубные Новинки Vol.85 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+Час очищения / The Cleansing Hour (2019) BDRip [H.264/720p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друзья Дрю и Макс проводят веб-трансляции ритуала экзорцизма в реальном времени, но на самом деле каждое шоу - тщательно продуманная мистификация. На одной такой веб-трансляции им не везет, и они сталкиваются с действительно реальным демоном.Производство: США / SkubalonЖанр: УжасыРежиссер: Дэмиен ЛеВекАктеры: Райан Гузман, Кайл Галлнер, Тара Карсиан, Джоэнна Дэвид, Эмма Холцер, Аликс Анджелис, Крис Лью Кум Хой, Джулия Намани, Мэтт Раймо, Дэниэл Хоффман-ГиллПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:31:16Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C550AC64D40568312796AE5E22786724039625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192079   (263538) от 16.12.2017
+
+Lionel Hampton - Hamp's Blues & Flying Home (1969, 1974) 2CD, 1992, Lester Recording Catalog [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263538.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Hamp's Blues:
+01. Air Mail Special [06:48]
+02. E.G. [08:44]
+03. Psychedelic Sally [06:20](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340FB57A90D83041930EC9A377B872E182DF2D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191833   (263537) от 16.12.2017
+
+VA - Inspectrum Recordings Best Of (Mixed by DJ Chris) (2017) [MP3|320 Kbps] <Uplifting Trance, Orchestral Trance, Emotional>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Chris  -  Inspectrum (Intro Mix)  2:11
+02.  Carl Daylim  -  Remember My Name (Original Mix)  8:44
+03.  O.B.M Notion  -  Special Reflections (Original Mix)  6:51
+04.  Junior & Ash K feat. Karim Farouk  -  Destiny (Original Mix)  8:07(   Читать дальше...   )Жанр: Uplifting Trance, Orchestral Trance, EmotionalПродолжительность: 03:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC87D3252BC7303FB1D637F8F85A70C735518AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191918   (263536) от 16.12.2017
+
+Earl Hines - Here Comes Earl 'Fatha' Hines & Spontaneous Explorations (1964, 1966) 2CD, 1993, Red Baron [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263536.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Here Comes Earl 'Fatha' Hines:
+01. Save It, Pretty Mama [03:24]
+02. Bye, Bye, Baby [03:46]
+03. Smoke Rings [02:55](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0A4CB3CEE65C02A086FDF7D68D0FFF4FBCFA41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191993   (263535) от 16.12.2017
+
+Benjamin Herman featuring Daniel von Piekartz - Trouble (2014) Dox Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Slow Hot Wind [04:27]
+02. Smoke Dreams of You [03:12]
+03. Blue Velvet [04:11]
+04. You Got Me On So Bad [03:58](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2BFE2D534398C7FF9AD1140C9F389B32241817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192119   (263534) от 16.12.2017
+
+File Cabinet Pro 5.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263534.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Cabinet Pro  - менеджер документов из строки меню
+Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. File Cabinet Pro является универсальным и очень простым в использовании приложением.
+
+Приложение File Cabinet Pro поставляется со встроенным текстовым редактором, вьювером изображений и PDF файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2017Разработчик: Writes for All Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A376FC79A8CF0F6A378246321BACC60EA32D9D05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192010   (263533) от 16.12.2017
+
+VA - Enhanced Progressive - Best of 2017 (Mixed by Marcus Santoro) (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deadmau5 feat. Chris James - The Veldt (8 Minute Edit)
-02. Liquid Soul - Devotion (Protoculture remix)
-03. Colombo - Folding (Original Mix)
-04. Cromby - Feed Those Hoes (Original Mix)
-05. Chris Schweizer - When Love Is Not Enough (Original Mix)
-06. Tommy Vee & Miss Patty - Press Play (Federico Scavo Remix)
-07. ATB - Apollo Road (ATB with Dash Berlin)
-08. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)
-09. Orjan Nilsen feat. Kate Louise Smith - The Thunder (Album Mix)
-10. Solarstone feat. Clare Stagg - Jewel (Original Mix)2012Жанр: Club, DanceПродолжительность: 05:01:44
+01. Axis – Over You (Original Mix)
+02. Steve Brian – Kyoto (Original Mix)
+03. East & Atlas – Casablanca (Original Mix)
+04. Marcus Santoro – Flashpoint (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19B98A0D22A2105098B74B872C92DDC964A95604
+magnet:?xt=urn:btih:BCE3A7A908478B17F34A76DD189A2362E8F6D6DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -59,60 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504231   (260165) от 01.06.2012
+###  Публикация: 1191951   (263532) от 16.12.2017
 
-VA - Зарубежные Новинки Vol.53 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.o.B feat. Morgan Freeman - Bombs Away
-02. Jennifer Lopez feat. Flo Rida - Goin' In
-03. Far East Movement feat. Bill Kaulitz - If I Die Tomorrow
-04. Ellise - Follow My Dreams (Dance Version)
-05. 3OH!3 - Do Or Die
-06. Karmin - Brokenhearted (Mixin' Marc & Tony Svejda Radio Edit)
-07. Andrea feat. Gabriel Davi - Only You (Radio Edit)
-08. Adam Lambert - Chokehold
-09. Coldplay feat. Rihanna - Princess Of China (Invisible Man Remix)
-10. Daniele ft. David Ferrari & Yazz - Tunnel Of Time.2012Жанр: PopПродолжительность: 02:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64AF37504BD9A97BC6B3C83024C521282675F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504198   (260164) от 01.06.2012
-
-[Wallpapers] Interior Wallpapers (01.06.12)
+Junichi Akagawa - Consistency Test (2017) Hz-records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Glitch, IDM, Minimal, Techno, Ambient>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263532.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Flip In It (04:55)
+ 02. Array Drift (05:11)
+ 03. A Thing Not Mild (05:17)
+ 04. New Field (03:13)(   Читать дальше...   )Жанр: Experimental, Glitch, IDM, Minimal, Abstract, Techno, AmbientПродолжительность: 00:49:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8BB249E9F6AD1170B812DDD2B13DF2C9AF1CB3D
+magnet:?xt=urn:btih:2206A930AB5EAA6736CE30CCB32C872B6D95517B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -120,34 +253,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502831   (260162) от 01.06.2012
+###  Публикация: 1192141   (263531) от 16.12.2017
 
-Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
+Art Farmer with Joe Henderson - Yama (1979) 2017, King Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dulzura [04:14]
+02. Stop (I Think Again) [06:50]
+03. Young And Fine [06:47]
+04. Lotus Blossom [08:26](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7943AE3F5C8593D1D4D8D1E77B8EB10812843C32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192130   (263530) от 16.12.2017
+
+VA - Empire Records - Vanilla Sky (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Bengaln - Broken Heart Phase 2 (Radio Cut)
+02. Nivaya & Pillow - White Pegasus (Mike Shivers Catching Sun Radio Cut)
+03. Izzy Meusen Presents 12.24 - Utopia Come Home (Radio Cut)
+04. Mark Lovett - Who's Turn (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ABC6A74B8B02F64D6EDF97E4D71A2722CA94070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192220   (263529) от 16.12.2017
+
+VA - Best of Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The-Thirst For-Flight - Seven Seconds of Happiness
+02. 2D project - Gladiator
+03. James Fiby feat. Anna Miracles - History Love (Vocal Mix)
+04. DJ Grand Defence - First Contact(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3833623630A0F2039C7F2482993642C13A1B54A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192072   (263528) от 16.12.2017
+
+Vintage Reserve - Vintage Reserve (2017) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Colder
- 02. Learn To Love The Dark
- 03. Wasted Heart
- 04. Vultures
- 05. Not Coming Back
- 06. No Love Song
- 07. I Got Nothing
- 08. Standing Still
- 09. St Jude
- 10. Our Lost History(   Читать дальше...   )2012Жанр: Indie RockПродолжительность: 00:38:21
+01. Love divine (02:56)
+02. Addicted to you (04:27)
+03. Frisco nights (03:34)
+04. Something good (03:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E081DF319FDFA31C7C926CF1B7A30DCAEA2857B
+magnet:?xt=urn:btih:F6FAEDE49F6887AA3786ECAB69FBB3C474863A7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,25 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504173   (260158) от 01.06.2012
+###  Публикация: 1191882   (263527) от 16.12.2017
 
-[Wallpapers 16+] Sexy Girls Pack Wallpapers (31.05.12)
+Vexovoid - Call Of The Starforger (2017) [MP3|320 Kbps] <Progressive Thrash Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+1. Omega Virus
+2. Infinite Collector
+3. Quantic Rupture
+4. Waking Mars(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:47:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46AE974E79E9854EBD34B48511CABA75CA25202F
+magnet:?xt=urn:btih:BA83FB9773FF8167E1AF889EE98671FCC12CBD0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,26 +398,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503835   (260156) от 31.05.2012
+###  Публикация: 1192055   (263526) от 16.12.2017
 
-Патрик Макнейл | Веб-дизайн. Идеи. Секреты. Советы [2012] [PDF]
+Журнал | Всему свету по совету №1 (252) (январь 2018) [PDF]
 
->>След.
->>Архив Книг и обучающих материалов
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263526.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Интернет - динамично развивающаяся среда, работая в которой дизайнеры должны следить за новейшими тенденциями. Патрик Макнейл, создатель популярного блога для веб-дизайнеров designmeltdown.com, собрал и упорядочил тысячи примеров сайтов, самые лучшие из которых попали в данную книгу.
-В издании объясняются базовые принципы веб-дизайна, подробно рассматриваются типы сайтов, элементы дизайна, стили и темы, структурные стили и структурные элементы сайтов. Книга включает более 650 примеров веб-сайтов, упорядоченных тематически, благодаря чему вы сможете легко отыскать креативные образцы для использования в своей работе.2012Формат: PDF
+Журнал "Всему свету по совету" - содержит информацию познавательного характера, а также практические советы как редакции, так и читателей в области здоровья, красоты, кулинарии, домоводства, садоводства. В каждом номере – актуальная тема сезона: будь то встреча Нового года или празднование Пасхи, защита от простудных заболеваний, секреты высадки рассады (   Читать дальше...   )Жанр: Сад, огород, домоводствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9A17E60D6D33C49DB9753B81EE6C1D3AF9732AB
+magnet:?xt=urn:btih:2282B1DFE110A45F3D505B88A3CF65E5F07BF595
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,25 +424,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503909   (260152) от 31.05.2012
+###  Публикация: 1192097   (263525) от 16.12.2017
 
-Железное небо / Iron Sky (2012) [1080p] BDRip
+VA - Trance Nation: Cyber Party (2017) [MP3|320 Kbps] <Progressive, Uplifting, Vocal Trance>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа ученых под руководством офицера СС Ханса Каммлера добилась серьезных успехов по части антигравитации. Когда исход Второй Мировой войны стал очевиден, с антарктической базы гитлеровцы запустили несколько космических кораблей, чтобы их экипаж на темной стороне Луны основал секретную военную базу Schwarze Sonne (Черное Солнце). План Германии состоял в возведении мощной армады для решающего удара по Земле с последующим завоеванием планеты. И в 2018 году Четвертый Рейх перешел в наступление.Жанр: Фантастика, Боевик, КомедияРежиссер: Тимо ВуоренсолаАктеры: Юлия Дитце, Удо Кир, Пета Сержант, Ким Джексон, Гёц Отто, Стефани Пол, Кристофер Кирби, Моника Госсманн, Джим Нобелок, Юки ИвамотоПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:32:33
+001. Armin van Buuren - My Symphony
+002. Mike Meade - Silvermoon (Club Mix)
+003. ATB & Andrew Rayel - Connected
+004. Apollo 94 - Regalia (Original Mix)(   Читать дальше...   )Жанр: Progressive, Uplifting, Vocal TranceПродолжительность: 07:26:41
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:315B66788A3CCA64969880700F1D0A7AAE1CAB46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,25 +453,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503915   (260150) от 31.05.2012
+###  Публикация: 1192045   (263524) от 16.12.2017
 
-Железное небо / Iron Sky (2012) [1080p] BDRemux
+My Vitriol - 2 Albums (2001-2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Shoegaze>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа ученых под руководством офицера СС Ханса Каммлера добилась серьезных успехов по части антигравитации. Когда исход Второй Мировой войны стал очевиден, с антарктической базы гитлеровцы запустили несколько космических кораблей, чтобы их экипаж на темной стороне Луны основал секретную военную базу Schwarze Sonne (Черное Солнце). План Германии состоял в возведении мощной армады для решающего удара по Земле с последующим завоеванием планеты. И в 2018 году Четвертый Рейх перешел в наступление.Жанр: Фантастика, Боевик, КомедияРежиссер: Тимо ВуоренсолаАктеры: Юлия Дитце, Удо Кир, Пета Сержант, Ким Джексон, Гёц Отто, Стефани Пол, Кристофер Кирби, Моника Госсманн, Джим Нобелок, Юки ИвамотоПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:32:33
+01. We've Lost Our Way (4:52)
+02. It's So Damn Easy (4:16)
+03. If Only... (God Only Knows) (3:44)
+04. (All these) Days (3:00)(   Читать дальше...   )Жанр: Alternative Rock, Shoegaze |Продолжительность: 00:45:14
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FDCAB63582FFEF5CEC6239648E0D56BD16FDCD90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -260,33 +482,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503800   (260148) от 31.05.2012
+###  Публикация: 1192104   (263523) от 16.12.2017
 
-No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, Art Rock, Abstract, Experimental>
+VA - Techno Disco (2017) [MP3|320 Kbps] <House, Electro, Techno>
 
->>Other Styles
->>Other (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263523.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Revange on Seattle (06:02)
-02. Time Travel in Texas (04:50)
-03. All the Blue Changes (06:10)
-04. Pretty Genius (03:58)
-05. Lighthouse (08:15)
-06. Beaten by Love (03:57)
-07. Wherever There Is Light (05:08)
-08. Mixtaped (09:27)
-09. Things Change (08:24)Жанр: Progressive Rock, Ambient, Art Rock, Abstract, ExperimentalПродолжительность: 00:56:14
+01. Paul Weekend - That On
+02. Roger Mills - U and I
+03. Mooqee, Beatvandals - Player (Original Mix)
+04. Mutehead - Bee(   Читать дальше...   )Жанр: House, Electro, TechnoПродолжительность: 06:17:54
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C3C17D2D78F2A6867799ECCB716DD8884ACAFB3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,25 +511,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503791   (260147) от 31.05.2012
+###  Публикация: 1192050   (263522) от 16.12.2017
 
-Железное небо / Iron Sky (2012) HDRip [ЛО]
+Газета | АиФ. На даче №23 (495) (декабрь 2017) [PDF]
 
->>След.
->>Архив Видео. Кино, Театра
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа ученых под руководством офицера СС Ханса Каммлера добилась серьезных успехов по части антигравитации. Когда исход Второй Мировой войны стал очевиден, с антарктической базы гитлеровцы запустили несколько космических кораблей, чтобы их экипаж на темной стороне Луны основал секретную военную базу Schwarze Sonne (Черное Солнце). План Германии состоял в возведении мощной армады для решающего удара по Земле с последующим завоеванием планеты. И в 2018 году Четвертый Рейх перешел в наступление.Жанр: Фантастика, Боевик, ВестернРежиссер: Тимо ВуоренсолаПродюсер: Юлия Дитце, Удо Кир, Пета Сержант, Ким Джексон, Гёц Отто, Стефани Пол, Кристофер Кирби, Моника Госсманн, Джим Нобелок, Юки ИвамотоПеревод: Одноголосый закадровый, любительскийЯзык субтитров: АнглийскийПродолжительность: 01:32:33
+"Аиф. На Даче" — Популярное издание по “дачной” тематике для владельцев огородов, садовых участков, совхозов, питомников, дач и усадеб, а также для тех, кто только собирается ими стать.Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5452C62A11EA5943D6CB2734CCCAF6B0B4C4194
+magnet:?xt=urn:btih:D52F0EE83B51B0E1CBBC1D68B05212CEF230A944
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,32 +537,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 495305   (260146) от 31.05.2012
+###  Публикация: 1192146   (263521) от 16.12.2017
 
-Multiboot flash gnom26rus edition [эксклюзивно для NNM-club] [Ru,Eng]
+Herbie Hancock - Dancin' Grooves (1999) SME Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
 
->>След.
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263521.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мультизагрузочная флешка созданная для диагностики железа , работы с жесткими дисками и для удаления вирусов , баннеров и т.д.
-В сборке две программы для удаления баннеров. Одна это известный всем AntiWinLocker LiveCD который запускается с Minixp.
-Другая это модуль Kaspersky Rescue Disk 10 , который работает через терминал.
-Для его активации надо набрать в терминале windowsunlocker .
-После каждого удачного обновления удаляйте содержимое папки Kaspersky Rescue Disk 10.0\data_rd\Updater\ на флешке , для экономии места.
-
-Список того что внутри и краткое описание сделанной работы для v2.5:
-Для обновления нужно форматировать флешку.Язык интерфейса: Русский,Английский
+01. Chameleon [02:52]
+02. Watermelon Man [02:56]
+03. Sly [02:46]
+04. Butterfly [03:07](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:56:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8738817939E0A8208A48FDA63B386A628E13F0D
+magnet:?xt=urn:btih:F1F443BE7A1135BD7279279D02F28EC9A8795E14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -353,27 +566,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502071   (260144) от 31.05.2012
+###  Публикация: 1192054   (263520) от 16.12.2017
 
-Red Orchestra 2: Heroes of Stalingrad [Ru] (RePack) 2011 | R.G. Catalyst
+Журнал | Домашние цветы №12 (123) (декабрь 2017) [PDF]
 
->>Win Игры
->>Action (FPS)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение знаменитой игры Red Orchestra: Ostfront 41-45 — одного из лучших тактических многопользовательских шутеров о Второй мировой.
-Игра посвящена важнейшему сражению, которое стало поворотным моментом в великой войне, — Сталинградской битве, а также связанным с ней боевым операциям, проводившимся как советскими, так и германскими войсками с июля 1942 года по февраль 1943 года.
-Проект создан на графическом движке Unreal Engine 3. Современные технологии позволили не только воплотить на новом уровне геймплей, представленный еще в Red Orchestra: Ostfront 41-45, но и сделать его гораздо разнообразнее. Преображенный игровой интерфейс позволит новичкам без труда освоить управление. А пристальное внимание к историческим и техническим деталям обеспечивает невероятный реализм сражений.(   Читать дальше...   )Тип издания: RePackРазработчик: Tripwire InteractiveЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+Журнал для настоящих любителей комнатных цветов. На страницах издания вы узнаете как добиться более быстрого и пышного цветения, защитить любимые растения от болезней и вредителей, размножить наиболее простым и эффективным способом. Своим личным опытом выращивания и ухода за цветами делятся цветоводы-любители и профессионалы — кандидаты и доктора биологических наук.Жанр: ЦветоводствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D71EA4CF8F9DAA5B59A7C052F5C9754A696FA94A
+magnet:?xt=urn:btih:F60D1588489B1870C0C8220DDF4BEC62BC70BC38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -381,28 +592,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502789   (260137) от 31.05.2012
+###  Публикация: 1192077   (263519) от 16.12.2017
 
-Очередное достижение: 1000 релизов от AlexDN! 3000 релизов от FedExe! 1000 релизов от  walter54! Фрилич! [Обновлено 30 мая]
+The Chi Factory - Red Lantern At The Kallikatsou (2017) Astral Industries [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Techno Ambient>
 
->>3
->>31
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263519.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Друзья!
-Очередной повод для фрилича нам дал Модератор Графики и Футажей, релизер и верный сид AlexDN!
-На сегодняшний день он уже перешагнул рубеж в тысячу релизов на нашем трекере, пополнив ряды релизеров-тысячников и продолжая делиться с нами все новыми и новыми вещами.Выражаем ему искреннюю благодарность и признательность за кропотливый труд и предлагаем всем поздравить его с этим достижением :)
-(   Читать дальше...   )
+01. Part One (feat. Hanyo van Oosterom) (21:01)
+ 02. Part Two (feat. Hanyo van Oosterom) (21:01)Жанр: Ambient, Experimental, Techno AmbientПродолжительность: 00:42:02
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:101180212BC0D7DA68F3CB30E4AA5D56C3EFB903
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -410,25 +619,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503891   (260133) от 31.05.2012
+###  Публикация: 1340614   (263518) от 24.11.2019
 
-Chicken Rush Deluxe / Куриная месть. Снова в деле (P) [Ru] 2012
+VideoHive - Winter Photo Gallery - 10340369 [AEP]
 
->>Win Игры
->>Action/Arcade/Platformer (Casual)
+>>Проекты
+>>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Курица Паула снова в опасности! В этой игре про курицу голодные дикари никак не оставят бедную несушку в покое. Вооружившись вилами, папуасы настырно атакуют курятник. Более того, некоторые нападающие особо агрессивны, быстры и сильны. Жизнь Паулы висит на волоске, и только твои проворство и меткость могут спасти ее.(   Читать дальше...   )Тип издания: ПираткаЖанр: Аркада, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
+Winter Photo Gallery - красивый проект AE. Дает вам возможность создавать совершенно потрясающий видеоклип с вашими фотографиями, видеофайлами и текстами.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1C3563D620A2D95959A54C27881806BFA8D0E55
+magnet:?xt=urn:btih:2A94F32B1BD3C4C5C8AE57F9020B94C655685C0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,25 +645,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503917   (260132) от 31.05.2012
+###  Публикация: 1340739   (263517) от 24.11.2019
 
-Призрачный гонщик 2 / Ghost Rider: Spirit of Vengeance (2011) DVD5 [BD -> DVD]
+Спасти или погибнуть / Sauver ou perir (2018) HDRip [MVO] [AD]
 
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие разворачивается на задворках Восточной Европы, где главный герой Джонни Блэйз безуспешно пытается справиться со своим проклятием. Его принимает на работу некая секта, которая пытается заполучить дьявола в тот момент, когда он пытается вселиться в тело его смертного сына на дне рождения мальчика.Жанр: Фэнтези, Боевик, ТриллерРежиссер: Марк Невелдайн, Брайан ТейлорПродюсер: Ашок Амритрадж, Стивен Пол, Ари АрадАктеры: Николас Кейдж, Кристофер Ламберт, Кьяран Хайндс, Виоланте Плачидо, Джонни Витуорт, Идрис Эльба, Фергус Риордан, Спенсер Уидлинг, Сорин Тофан, Яцек КоманПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:31:37
+Франк — обычный парижский пожарный и счастливый семьянин, отец близнецов. Во время очередного вызова он жертвует собой ради спасения людей. Очнувшись в больнице, Франк узнает, что его лицо изуродовано пламенем. Теперь ему предстоит согласиться на свое спасение и заново научиться жить.
+Основано на реальных событиях.Производство: Франция / Single Man Productions, Mars Films, France 3 CinémaЖанр: ДрамаРежиссер: Фредерик ТелльеАктеры: Пьер Нинэ, Анаис Демустье, Венсан Ротье, Хлоя Стефани, Сами Буажила, Элизабет Коммелен, Amélie Bénady, Mostepha Bouabane, Calypso Buijtenhuijs, Ясин УишаПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:56:33Реклама: Присутствует баннер.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E81A4F502A2CE2FE56347D37E14067BB8D524A21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,26 +672,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503763   (260130) от 31.05.2012
+###  Публикация: 1340592   (263516) от 24.11.2019
 
-Дети сексу не помеха / Friends with Kids (2011) HDRip
+VideoHive - Christmas Memories Album - 25131654 [AEP]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Проекты
+>>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Есть ли секс после свадьбы? Все знают: в медовый месяц — страстный, через пару лет — уже не очень. Но выход есть.
- Джейсон и Джули решают завести ребенка, но при этом остаться только друзьями. Десять минут, девять месяцев — малыш готов. И уже Джейсон приударяет за шикарной брюнеткой, а Джули встречается с брутальным немцем. Но правда ли, что дети сексу не помеха?…Производство: США, Locomotive, Points West Pictures, Red Granite PicturesЖанр: КомедияРежиссер: Дженнифер УэстфелдАктеры: Кристен Уиг, Меган Фокс, Майя Рудольф, Эдвард Бёрнс, Криc О’Дауд, Джон Хэмм, Адам Скотт, Дженнифер Уэстфелд, Брайан Д’Арси Джеймс, Саманта БиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:48:30
+Проект Christmas Memories Album отлично подойдет для Рождества, Нового года, любого вступления или слайд-шоу.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3E29CEC7F138381F1417300DE7F42FE455E91CF
+magnet:?xt=urn:btih:A824941903FD314957DCA0002D58FF0D3DE58310
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,239 +698,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503865   (260126) от 31.05.2012
+###  Публикация: 1340558   (263515) от 24.11.2019
 
-Призрачный гонщик 2 / Ghost Rider: Spirit of Vengeance (2011) [1080p] BDRip [Горизонтальная анаморфная стереопара 3D]
+Хорошая жена (2018) HDTVRip (сезон 1, серии 1-20 из 20)
 
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
+>>Отечественные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие разворачивается на задворках Восточной Европы, где главный герой Джонни Блэйз безуспешно пытается справиться со своим проклятием. Его принимает на работу некая секта, которая пытается заполучить дьявола в тот момент, когда он пытается вселиться в тело его смертного сына на дне рождения мальчика.Производство: СШАЖанр: Фэнтези, Боевик, ТриллерРежиссер: Марк Невелдайн, Брайан ТейлорАктеры: Николас Кейдж, Кьяран Хайндс, Виоланте Плачидо, Джонни Витуорт, Кристофер Ламберт, Идрис Эльба, Фергус Риордан, Спенсер Уидлинг, Сорин Тофан, Яцек КоманПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:35:29
+В течение одного дня жизнь Алисы меняется. Её муж, прокурор ленинградской области, Пётр Филиппов становится героем сразу нескольких громких скандалов. Репутация, которую он так долго выстраивал оказалась разрушена. Алиса с детьми переезжает в простую, но просторную квартиру свекрови в центре Питера.Производство: Россия / "Sony Pictures Television Russia", Team FilmsЖанр: драмаРежиссер: Станислав ЛибинАктеры: Александра Урсуляк, Александр Домогаров, Дмитрий Миллер, Марина Зудина, Сабина Ахмедова, Наиль Абдрахманов, Сергей Погосян, Алексей Барабаш, Арсений Гусев, Елизавета Зарубина и др.Продолжительность: ~00:50:00 серия
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502649   (260123) от 31.05.2012
-
-Red Orchestra 2: Heroes of Stalingrad Game of the Year Edition [En] (L) 2011 | HI2U
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Tripwire Interactive выпустила GOTY издания тактического шутера Red Orchestra 2: Heroes of Stalingrad. Помимо оригинальной игры, издание содержит новую карту "Мамаев Курган", новые игровые режимы, массу усовершенствований и новых возможностей.
- Игрокам, которые уже приобрели игру, дополнительное содержимое GOTY издания достанется бесплатно.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Tripwire InteractiveЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E19A0331373F6BFCA2303813732E22BDC9BC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503756   (260121) от 31.05.2012
-
-3D модели - Evermotion - Archmodels Vol. 095 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник высокодетализированных 3d моделей оборудования для частных домов: спутниковых тарелок, всевозможной аппаратуры для систем безопасности, домофонов, камер видеонаблюдения, сигнализаций, а так же много конструкций  погодных станций,  ставень, защитных ролет, козырьков, маркиз, навесов и почтовых ящиков.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDFD4AC3C4619478C4F8321312D0C0D276C6C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504159   (260119) от 31.05.2012
-
-Alien Skin Photo Bundle 2012 [Eng]
-
->>След.
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Bundle collection - cборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop. Данные фильтры будут полезны как новичкам так и профессиональным пользователям Photoshop. С ними вы cможете легко и качественно обработать или украсить ваши изображения..Язык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503777   (260118) от 31.05.2012
-
-Няньки (2012) [H.264] BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валентина — жесткая, хладнокровная владелица крупной туристической фирмы, которой предстоит решение сложной задачи в стране, где женщину, независимо от профессионализма, не может ждать успех в бизнесе — Турции. На помощь она вызывает работников своего уральского филиала Диму и Мишу — безынициативных лодырей, по несчастливой случайности оказавшихся единственными сотрудниками (   Читать дальше...   )Производство: Россия, Enjoy MoviesЖанр: КомедияРежиссер: Ашот КещянАктеры: Николай Наумов, Арарат Кещян, Людмила Артемьева, Аглая Шиловская, Лина Добророднова, Илья Костюков, Глеб Сердюков, Олеся Железняк, Дитер Брандекер, Майкл Бэрал, Михаил Павлик, Дмитрий Цыганов, Мария Зарринг, Алексей КортневПеревод: Оригинал (русский)Субтитры: ОтсутствуютПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEEF5C47E81652EB4B6AA2617DB9E49922B879D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503717   (260112) от 31.05.2012
-
-Книжная серия "Золотая библиотека исторического романа" (32 книги) [2001-2005] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260112.jpg" />
-</div>
-
-
-###  Подробнее
-
-В серию вошли книги, посвященные различным деятелям русской и мировой истории. Тут и царь Петр, и любвеобильная Мессалина, Владимир Мономах и Богдан Хмельницкий.
-Все, что вы знали и то, о чем нет - в этих книгах серии Золотая библиотека исторического романа.
-Книги переиздавались и в других сериях.2001-2005Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B28E4C0BD8D1AFB16D6F58B6C11DBEF87D7E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503708   (260109) от 31.05.2012
-
-Проект X: Дорвались / Project X (2012) DVDRip [Goblin / maksciganov]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет вращается вокруг троих одноклассников, решивших устроить крутую вечеринку и прославиться на всю округу — правда, удержать события под контролем у них не получилось.Жанр: КомедияРежиссер: Нима НуризадеПродюсер: Тодд Филлипс, Скотт Будник, Марти П. ЮингАктеры: Томас Манн, Оливер Купер, Джонатан Даниэль Браун, Дакс Флэйм, Кирби Блисс БлэнтонПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: maksciganov по переводуПродолжительность: 01:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF583F1C3A41FD01C26A7594D270B0777114FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473487   (260108) от 31.05.2012
-
-В Филадельфии всегда солнечно (6 сезон 1-8 серии) / It's Always Sunny in Philadelphia [LostFilm]
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедийный сериал Роба МакЭлхенни повествует о четырех молодых друзьях - владельцах ирландского паба в депрессивном районе Филадельфии. Бизнес у ребят идет не слишком успешно, но это не мешает им регулярно находить приключения на отдельные части своего тела.
-Главные герои ситкома - Мак, Чарли, Деннис и Ди - аморальны, беспринципны, неполиткорректны и готовы врать (   Читать дальше...   )Жанр: Комедия (ситком)Режиссер: Randall EinhornАктеры: Charlie Day, Glenn Howerton, Rob McElhenney, Kaitlin Olson и др.
-Одну из главных ролей в сериале исполнил Денни ДеВитоПеревод: Многолосый закадровыйПродолжительность: 8 ~ 00:21:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503737   (260106) от 31.05.2012
-
-Эрнест Хемингуэй | В серии "Книга на все времена"  | 14 томов [2010-2011] [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собрание сочинений великого классика Эрнеста Хемингуэя в рамках серии Книга на все времена.
-В собрание включены все самые значительные произведения писателя.2010-2011Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB82214C19518536A7DD289F915004338D58D4C3
+magnet:?xt=urn:btih:3E834CD5430D71A523BFCABC36D3AE151716075E
 ```
 
 https://mybot314.ru/tekegram_catalog/

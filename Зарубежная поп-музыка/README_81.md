@@ -1,3 +1,61 @@
+###  Публикация: 1194924   (144260) от 28.12.2017
+
+Wincent Weiss - Irgendwas gegen die Stille (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musik sein [3:14]
+02. Feuerwerk [3:29]
+03. Ein Jahr [3:32]
+04. Frische Luft [3:18](   Читать дальше...   )Жанр: PopПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97A0BBF96DB66669723F6AA7F2C450502E4E5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194928   (144045) от 28.12.2017
+
+Dalida - 50 De Succese Disco (1978) LP [MP3|320 Kbps] <Pop, Funk-Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярные в СССР исполнительница и её пластинка.01. Monday Tuesday - Laissez Moi Danser (3:50)
+02. J'Attendrai (4:14)
+03. Besame Mucho (2:53)
+04. Generation 78 (6:50)(   Читать дальше...   )Жанр: Pop, Funk-Soul, DiscoПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CC4DFDC3DD605F2D746C1BD4AF564601D5FA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348623   (143349) от 28.12.2019
 
 VA - 100 Greatest 00s The Best Songs from the Decade (2019) [MP3|320 Kbps] <Pop>
@@ -700,64 +758,6 @@ VA - M6 Hits 2024 (2023) [MP3|320 Kbps] <Pop, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:676DC2CBBAC03776D835E0437F5243BE21CFCE8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685964   (126897) от 20.12.2023
-
-VA - The Best Of Hit News (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.J. Bobo - Let The Dream Come True
-02. Activate - Let The Rhythm Take Control
-03. Mo-Do - Eins, Zwei, Polizei
-04. 2 Brothers On The 4th Floor - Never Alone(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9EA26F6DA055DFEE275DF1B9D52B90CDB9F081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685813   (126877) от 20.12.2023
-
-TV Girl - French Exit (2014) Digital Album [MP3|320 Kbps] <Hypnotic Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pantyhose (02:56)
-02.Birds Dont Sing (03:29)
-03.Louise (03:14)
-04.Hate Yourself (03:34)(   Читать дальше...   )Жанр: Hypnotic PopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5195E8950A7958002B4FE2AE13A19D34B98A34EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

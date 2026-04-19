@@ -1,3 +1,235 @@
+###  Публикация: 1194522   (154104) от 26.12.2017
+
+Pistol Annies - Hell on Heels (2011) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hell on Heels (3:14)
+02 - Lemon Drop (2:43)
+03 - Beige (3:24)
+04 - Bad Example (2:52)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB01DB08C00D97D9D3251FB508119F524FB1BC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346985   (154081) от 22.12.2019
+
+Гангстер. История любви / Gangster. A Love Story (Original Motion Picture Soundtrack) (2006) [MP3|320 Kbps] <OST, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.K. - Tu hi meri shab hai
+02. James - Bheegi Bheegi
+03. Abhijeet - Lamha Lamha
+04. Kavita Seth - Mujhe mat roko(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20079987102DFCBC73B1036596297338D389F7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270662   (154031) от 21.12.2018
+
+Оркестр КУШ - Второе издание (2018) [MP3|320 Kbps] <New Russian Music, Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время (Ч.1)
+02. Время (Ч.2)
+03. Время (Ч.3)
+04. Испанские страдания(   Читать дальше...   )Жанр: New Russian Music, Instrumental, Easy ListeningПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A0183D8E3EEC5C3B5376C49FBB78F1574B61B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270700   (154009) от 21.12.2018
+
+Оркестръ КУШ (Оркестр КУШ) - Первое издание (2013) Reissue, 2016 [MP3|320 Kbps] <New Russian Music, Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление (Intro, Вальс, Майский жук)
+02. Каприз
+03. Огни Баку
+04. Советская(   Читать дальше...   )Жанр: New Russian Music, Instrumental, Easy ListeningПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1861A5EE1639532D5823C1E30AC0F49EF05A3FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086001   (153878) от 23.12.2016
+
+Paul Haslinger - Resident Evil: The Final Chapter / Обитель зла: Последняя глава (Original Motion Picture Soundtrack) (2016) Japanese Release [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is My Story (02:18)
+02. A Force so Evil (02:12)
+03. Return to the Hive (02:54)
+04. The Turbine Sequence (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D9DB4A6F6CB3133C5437B1EC467CD562C5826F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194450   (153877) от 26.12.2017
+
+Gilead - Medieval Groove (2017) [FLAC|Lossless|image + .cue] <Medieval folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (3:01)
+02. Medieval Groove (3:52)
+03. Unda (5:12)
+04. Omnia Sol Temperat (3:46)(   Читать дальше...   )Жанр: Medieval folkПродолжительность: 01:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2B2186F14CB1C220B2211CB848A0C1C5A7B0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968338   (153264) от 24.12.2015
+
+Kenio Fuke - Spirit Of Nature (2012) [FLAC|image + .cue|WEB-DL] <New Age, Piano, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Shine
+ 02. Secrets of Life
+ 03. Dolphin Island
+ 04. Paradise Calling(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556C2878445144FA34A5EDFEC0DE405D006B29E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086222   (152861) от 24.12.2016
+
+Dario Marianelli - Kubo and the Two Strings / Кубо. Легенда о самурае (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Impossible Waves (2:37)
+02. Kubo Goes to Town (1:25)
+03. Story Time (2:10)
+04. Ancestors (2:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190DC2D800233909211B36EF1B594E5E8FD45B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271242   (152362) от 22.12.2018
 
 Бурановские бабушки - Внучка (2018) [MP3|320 Kbps] <Folk, Pop>
@@ -516,238 +748,6 @@ David Thomas - Ani Yun Wiya, Vol. 2 (2016) [MP3|320 Kbps] <Native American, Worl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80F811A506E505CBA90EFA6AB3747CCB8F23164B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085630   (148199) от 26.12.2016
-
-VA - Country Christmas Greatest Hits (2016) [MP3|320 Kbps] <Country, Pop, Soul, Jazz>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brenda Lee - Rockin' Around The Christmas Tree 2:05
-02. George Strait - Christmas Cookies 3:15
-03. Luke Bryan - Run Run Rudolph 2:51
-04. Darius Rucker - White Christmas 3:38(   Читать дальше...   )Жанр: Country, Pop, Soul, JazzПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C0066260EB736FA739DFB757104A08CBFF1D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086165   (148136) от 26.12.2016
-
-She & Him - Christmas Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Indie Pop, Folk Pop, Adult Alternative>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Want For Christmas Is You (4:20)
-02. Let It Snow (2:12)
-03. Must Be Santa (2:16)
-04. Happy Holiday (2:12)(   Читать дальше...   )Жанр: Holiday, Christmas, Indie Pop, Folk Pop, Adult Alternative, Alternative Country, Jazz, CoversПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73614BA41D10B0C42A5256DC942B854FDC26AD15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086537   (148126) от 26.12.2016
-
-Theodore Shapiro - Collateral Beauty / Призрачная красота (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introducing Howard Inlet (01:04)
-02. The Dream and the Letters (02:36)
-03. Oncoming Traffic (00:32)
-04. Whit Follows Amy (01:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1AF2EB33438120057D89D827519AB28D7ADEB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086534   (148106) от 26.12.2016
-
-Theodore Shapiro - Collateral Beauty / Призрачная красота (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introducing Howard Inlet (01:04)
-02. The Dream and the Letters (02:36)
-03. Oncoming Traffic (00:32)
-04. Whit Follows Amy (01:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17227A17FD07762BF82A4299492E0E97866A997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969707   (147570) от 27.12.2015
-
-VA - A New You (2015) 3CD [MP3|320 кб/с] <Relax, Pop, Nu Jazz, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alt J - Arrival In Nara
-02. United Peace Voices - Tara Prayer
-03. Mystic East - Destination Sunset
-04. Fragile State - Every Day A Story(   Читать дальше...   )Жанр: Relax, Pop, Nu Jazz, Easy Listening |Продолжительность: 03:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989787B1F8CCFB21381FD680EBFE67C0180CBC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271752   (147471) от 25.12.2018
-
-Concrescence - Obscured By The Dark Years (2006) [FLAC|Lossless|image + .cue] <Neofolk, Darkwave>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leszerazz' Galliard
-02. Birds of Passage
-03. Catholic Dark
-04. Herz(   Читать дальше...   )Жанр: Neofolk, DarkwaveПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AED1F9054504420FD7387055E04458A5C0CB227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271783   (147407) от 25.12.2018
-
-Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Lossless|image + .cue] <Gothic, Dark, Acoustic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gespenster-Revue im Theater Obszön (03:47)
-02. Ein Requiem in Sepia (04:24)
-03. Menschliche Trauer (03:47)
-04. Kali Yuga (03:29)(   Читать дальше...   )Жанр: Gothic, Dark, AcousticПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88B666813EA91FC658F0E45BC33A4EB7F7B0B84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433148   (147210) от 26.12.2020
-
-VA - Cyberpunk 2077- Radio, Vol. 1-3 (2020) OST [MP3|320 Kbps] <Films-Games, Film-Scores>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147210.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Киберпанк 2077» - мультиплатформенная компьютерная игра в жанре Action/RPG, является продолжением настольной игры «Киберпанк 2020», действия происходят спустя 57 лет в большом городе Найт-Сити, расположенном в штате Калифорния.01. Suicide (feat. Zeale) [00:03:50]
-02. RATATATA [00:02:52]
-03. Likewise [00:02:13]
-04. Muévelo [00:02:40](   Читать дальше...   )Жанр: Films-Games, Film-ScoresПродолжительность: 3 CD, 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A82FA092A506A5BE1FB46C29F572B9583DD780
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1068062   (382478) от 31.10.2016
+
+VA - NRJ 300% Hits 2016 (2016) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382478.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Coldplay - Adventure of a Lifetime
+02. Feder feat. Emmi - Blind
+03. Kendji Girac - Les yeux de la mama(   Читать дальше...   )Жанр: PopПродолжительность: 03:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F031ECA7DA5FE5E84CD3AE9C73812871EE709FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253373   (381698) от 10.10.2018
+
+Chi-Chi Favelas And The Black And White Band - Rock Solid (1978) LP [MP3|320 Kbps] <Electronic, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Solid (10:14)
+02. Cocaine Part One, Discocaine, Cocaine Part Two (7:48)
+03. Give It To Me (7:21)
+04. Voodoo Lady (7:48)Жанр: Electronic, Rock, DiscoПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D54409FD4328F2FE2B6EE8F4A385B63C73950416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253555   (381612) от 10.10.2018
 
 VA - 101 Hits Jukebox Classics (5CD) (2018) [MP3|320 Kbps] <Pop, Rock, Disco, Soul, Funk>
@@ -700,70 +758,6 @@ Ricchi E Poveri - The Best Dance Remixes (2015) [MP3|320 кб/с]<Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A6C3BC973C8BB8741708BE3F86DAC9A414E8196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176345   (372174) от 21.10.2017
-
-Bat & Ryyd - Ehtaa Tavaraa (1989) Reissue CD, Snap Records, 2000 [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ehtaa Tavaraa (4:15)
-02. Stadissa (Osa 1) (4:37)
-03. Ryyd Rap (3:47)
-04. Stadissa (Osa 2) (2:14)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805B1E389D46C25FEDF57F27134B162274ECCAE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574979   (370897) от 14.11.2012
-
-Eros Ramazzotti - Noi (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noi
- 02. Un Angelo Disteso Al Sole
- 03. Questa Nostra Stagione
- 04. Io Sono Te (feat. Giancarlo Giannini)
- 05. Fino All'Estasi (feat. Nicole Scherzinger)
- 06. Abbracciami
- 07. Balla Solo La Tua Musica
- 08. Infinitamente
- 09. Polaroid
- 10. Sotto Lo Stesso Cielo(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5EE60573323584F509A31D72846F3CA1E0B4AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

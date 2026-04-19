@@ -1,3 +1,32 @@
+###  Публикация: 1106777   (871805) от 20.02.2017
+
+The Slide Hampton Octet - Somethin' Sanctified (1960) Remaster, 2013, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.On The Street Where You Live [05:03]
+ 02.The Thrill Is Gone [06:25]
+ 03.Ow [05:56]
+ 04.Milestone [05:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7660C865C1C49C74F17B6C28C68B6E2C6C9D6228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106144   (871675) от 20.02.2017
 
 Angie Wells & Raphael Lemonnier - Love And Mischief (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -714,35 +743,6 @@ Kenny Barron Trio - Book Of Intuition (2016) Universal[FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85484E5547AA3A3430D8BF90A034C0BA42635AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873582   (868547) от 28.02.2015
-
-Smooth Jazz Cafe - Smooth Jazz Cafe (2014) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zoot Suit (ft. Chuck Loeb)
-02. Peg (ft. Chuck Loeb)
-03. Swift Kick (ft. Chuck Loeb)
-04. Yorkville (ft. Chuck Loeb)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CBEFDD559731704A40755291A219D5ED3FABA6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

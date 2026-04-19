@@ -1,3 +1,90 @@
+###  Публикация: 1354808   (986975) от 23.01.2020
+
+Pet Shop Boys - Hotspot (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will-o-the-wisp
+02. You are the one
+03. Happy people
+04. Dreamland (feat. Years & Years)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F289E7D50E4A9F2AA00FA0B36ACD1D8763EFB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740903   (985891) от 01.01.2014
+
+Depeche Mode - Happiest Boys (1999) [#BRONS 376, Unofficial Remix Compilation] [FLAC|Lossless]<Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World in my Eyes (Dub '99) (8:15)
+ 02. It's no Good (Shuffle Mix) (6:33)
+ 03. Walking in my Shoes (Moonlight Mix) (6:45)
+ 04. Happiest Girl (Pump Up The Beat Mix) (8:34)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0425DA166925F8FB9B83425CCBCD1A21C4D06692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355173   (984744) от 25.01.2020
+
+Pet Shop Boys - Hotspot (2020) 2CD Special Edition [FLAC|Lossless|tracks + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Will-o-the-wisp
+02. You are the one
+03. Happy people(   Читать дальше...   )Жанр: Synthpop |Продолжительность: 01:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D216F7121C249B88E1843E2AB1A8A903BC239D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 730370   (984390) от 25.01.2020
 
 Dvar - Roah (2003)  [FLAC|Lossless|image + .cue] <Darkwave>
@@ -657,93 +744,6 @@ Syntec - Collection 2 Releases (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93F1D1C7C42C27883FBB1D29CE6C9735C6F97176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979737   (953020) от 31.01.2016
-
-Northern Lite - Letters & Signs (Part Two) (2010) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Japan [6:00]
- 02. Wicked Mess [4:36]
- 03. Run (feat. Chapeau Claque) [3:15]
- 04. Home [4:06](   Читать дальше...   )Жанр: Synthpop, Rock, ElectronicПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C58A1804E760CC2094E7B69CC824594F5A2542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361784   (951994) от 21.02.2020
-
-Depeche Mode - Mode (2020) 18 СD, Box Set, Compilation, Limited Edition, Numbered [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life (03:46)
-02. I Sometimes Wish I Was Dead (02:18)
-03. Puppets (03:57)
-04. Boys Say Go! (03:08)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 15:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50758C4FFA5A104A75812028B3969F1033222F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090493   (947468) от 06.01.2017
-
-Krisma - Cathode Mamma (Remastered) (1980) 2007, Polydor [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947468.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cathode Mamma (Neue Version)
-2. Many Kisses
-3. Peggy Guggenheim
-4. Rrock(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66A63D43595CB1198378A2B398259C95FD3CC2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

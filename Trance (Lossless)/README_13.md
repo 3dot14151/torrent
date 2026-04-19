@@ -1,3 +1,30 @@
+###  Публикация: 1718055   (58766) от 23.04.2024
+
+CJ Stone & Quiz ft. Jenny - Surrender (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro Trance, Dance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CJ Stone and Quiz ft. Jenny – Surrender (2:26)
+02. CJ Stone and Quiz ft. Jenny – Surrender (extended mix) (3:56)Жанр: Euro Trance, DanceПродолжительность: 00:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4CFB6AA3A22742C2306C49699FAD513D0E29F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718049   (58764) от 23.04.2024
 
 Jamie B and Nova Scotia - Because Of You (2018) [FLAC|Lossless|WEB-DL|tracks] <Scouse House, Pop Trance, Synth-Pop>
@@ -698,35 +725,6 @@ DJ Jean - Lift Me Up (2001) [FLAC|Lossless|WEB-DL|tracks] <Trance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC1DD12FEC4D7BD58656B5E9F647DC4B90F9EE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817435   (3313) от 11.09.2025
-
-VA - A State Of Trance, Ibiza 2025 (Mixed by Armin van Buuren) (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. JAI RYU - Let It Be For Love (Mixed) [4:38]
-02. Armin van Buuren feat. Malou - Everything I Wanted (Mixed) [3:57]
-03. Laura van Dam - Deep Shadow (Mixed) [1:46]
-04. DIM3NSION & Kadett - Turning (Mixed) [2:30](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7ECE678A5A52AD6306C1ECC0FA399C8AB106C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

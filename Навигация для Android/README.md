@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1860509   (1061919) от 
+###  Публикация: 1860509   (1061919) от 21.03.2026
 
 Gaia GPS (Topo Maps) v2026.2 Mod by Balatan [Ru/Multi]
 

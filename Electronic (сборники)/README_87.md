@@ -1,3 +1,61 @@
+###  Публикация: 1133949   (691553) от 14.05.2017
+
+VA - Cosmotronica Vol.1 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dub House, Dub Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691553.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klartraum - Flight To Berlin (Feat Thalstroem - Vynyard Dub Mix) 11:21
+002. Vadim Lankov - Peky Park 25 8:17
+003. Paul Moore - Hollow Inside (Feat Little Mouse) 7:09
+004. Nikosf. - Our Road Home 7:42(   Читать дальше...   )Жанр: Dub House, Dub TechnoПродолжительность: 02:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5988111E4EAFF67172F01421A81C2E89ACD803EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133935   (691539) от 14.05.2017
+
+VA - Deep & Dark Dubstep Vol.17 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691539.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Unicorn Fukr, Quickie Mart & Werd2jah - Dem Man (Truth Remix) 4:38
+002. C-side & Talabun Mc - Last Of Us 4:31
+003. Olie Bassweight - Primal Feat. Mc Messinan 6:10
+004. Resonata - Returned To Dust (Phelian Remix) 5:34(   Читать дальше...   )Жанр: DubstepПродолжительность: 03:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6D925ACF3CE0A1F21E516D3756808700A3CA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221679   (691457) от 26.04.2018
 
 VA - Best Vocal Trance 2018 vol.3 [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -687,64 +745,6 @@ VA - Under The Influence New Trance Music (2017) [MP3|320 Kbps] <Vocal, Upliftin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:455457A0F678282C0A857BC260B651676E3CA90D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134622   (687434) от 16.05.2017
-
-VA - Synthetic vol.4 - Futurepop Edition (2017) [MP3|320 Kbps] <Futurepop, Synthpop, EBM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruderschaft - Falling (04:49)
-02. Solitary Experiments - I Am (04:20)
-03. Angels and Agony - Omen (04:32)
-04. Arian 1 - Alma (04:17)(   Читать дальше...   )Жанр: Futurepop, Synthpop, EBMПродолжительность: 01:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2007ACE30D1304DFD897E0F1BED7BB819556D10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028950   (686906) от 24.06.2016
-
-VA - Space Trance Vol.2 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novan -  Quasar (Alexander Turok Remix) 5:23
-02. Alter Future -  Ukraine (Dan Dobson Remix) 6:44
-03. Andrew Stets -  The Prayer (Kenneth Thomas Remix) 6:39
-04. Make One -  Full Of Life (Feat. Amy Kirkpatrick) (Danny Chen Remix) 5:14(   Читать дальше...   )Жанр: TranceПродолжительность: 01:24:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4890451BB2394D48A06D5EA77FDC9FB439A010
 ```
 
 https://mybot314.ru/tekegram_catalog/

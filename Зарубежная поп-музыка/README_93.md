@@ -1,3 +1,61 @@
+###  Публикация: 1750940   (42711) от 22.09.2024
+
+VA - 90s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spice Girls - Wannabe
+02. Shania Twain - Man! I Feel Like A Woman!
+03. M.C. Hammer - U Can't Touch This
+04. Lenny Kravitz - Fly Away(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 05:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568A68681B84F335610EB3B605894563C73B2DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751560   (42433) от 25.09.2024
+
+VA - Fantastic 80s! (2022) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Jazz, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kim Wilde - Kids In America
+02. Adam & The Ants - Prince Charming
+03. Blondie - Atomic
+04. The Human League - (Keep Feeling) Fascination(   Читать дальше...   )Жанр: Electronic, Jazz, Rock, PopПродолжительность: 04:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B12BB2E6A40B9743C285D5AFF935F6BAE2DA43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751706   (42324) от 26.09.2024
 
 Lady Gaga - Harlequin (2024) [MP3|320 Kbps] <Pop>
@@ -684,64 +742,6 @@ VA - Sex Music 2024 [MP3|320 Kbps] <Pop, RnB, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B991134DAD4EE75A0DFFC828F9789C4DD10AAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761484   (36703) от 20.11.2024
-
-Bee Gees - 3 Albums (2020-2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Radio Sessions 1967-1969 + Digital Booklet
-Melbourne 1971
-Live On Air 1967 - 1968Жанр: PopПродолжительность: 3 CD, 03:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E916B9FCD279F28A2DA78E122A88BA09FE7B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646376   (35807) от 29.11.2024
-
-Адриано Челентано - Избранное. Коллекция от Ридерз Дайджест (3CD) (2012) [MP3|320 кб/с]<pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Soli. (4:03)
-02 - People. (5:23)
-03 - Pay Pay Pay. (4:18)
-04 - Io E Te. (5:13)(   Читать дальше...   )Жанр: popПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB643D0A66FE59162F855175A09CD051C99B79A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

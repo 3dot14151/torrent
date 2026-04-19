@@ -1,3 +1,31 @@
+###  Публикация: 1730959   (52875) от 18.06.2024
+
+Lingo Mastery | Spanish Short Stories for Beginners (2018) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52875.jpg" />
+</div>
+
+
+###  Подробнее
+
+In this book we have compiled 20 easy-to-read, compelling and fun stories that will allow you to expand your vocabulary and give you the tools to improve your grasp of the wonderful Spanish tongue.
+How Spanish Short Stories for Beginners works:
+Each story will involve an important lesson of the tools in the Spanish language (Verbs, Adjectives, Past Tense, Giving (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Lingo MasteryФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6252F69363A7C7CCAA75A583AFA0961FA77FEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731141   (52805) от 19.06.2024
 
 Angela Wilkes (editor) | Polish-English Bilingual Visual Dictionary (2018) [PDF] [EN]
@@ -655,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7644E3889BA23D444664658A69FCCB353CA530F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785631   (24462) от 16.03.2025
-
-Георгий Георгиевич Почепцов | Язык и юмор. Language and Humour (1974) [PDF, DJVU] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24462.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собрано более тысячи шуток на английском языке. Чтобы помочь читателю лучше понять языковую основу шуток, составитель предпослал сборнику теоретическую статью о природе языкового юмора и снабдил небольшой объяснительной статьей каждую часть сборника. Для удобства пользования книгой в конце ее даны тематический указатель и указатель слов и выражений. Книга (   Читать дальше...   )Жанр: Монография. Английский язык. Англоязычный юморЯзык: АнглийскийИздательство: Высшая школаФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B328BED42DFD4910C54C9131D9D540EE3BC7E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

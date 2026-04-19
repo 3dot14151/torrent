@@ -1,3 +1,29 @@
+###  Публикация: 642595   (583894) от 12.05.2019
+
+VA - The Best Of LoungeLegends (7CD) (2013) [MP3|192-320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:857BC4F494952B2BA44647C85512CC030297B96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041686   (581465) от 10.08.2016
 
 VA - Smooth Romance: Love Notes by the Piano (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
@@ -736,41 +762,6 @@ VA - Ambient Area: Selected Downtempo Works (2017) [MP3|320 Kbps] <Downtempo, Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3E9673D936EF0034C6598AE2501CE0D33A0CE53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534480   (519849) от 13.08.2012
-
-VA-Танцуют все! - Популярные танцы народов мира (1996) [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. РОК-Н-РОЛЛ 00:01:48
-2. ТВИСТ 00:01:53
-3. КУКАРАЧА 00:03:00
-4. ВАЛЬС ПОД НЕБОМ ПАРИЖА (Ю.ЖИРО) 00:02:20
-5. ТАНГО КОМПАРСИТО (РОДРИГЕС) 00:03:13
-6. СЕМЬ СОРОК 00:03:15
-7. СИРТАКИ 00:05:00
-8. КАНТРИ 00:02:55
-9. ЦЫГАНОЧКА 00:04:20
-10. БЕСА МЭ, МУЧО 00:03:12(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12097147EBE8F370D0CAED7D3F5F1B503BB916DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

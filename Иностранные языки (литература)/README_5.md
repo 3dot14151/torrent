@@ -1,3 +1,29 @@
+###  Публикация: 1849227   (1053440) от 21.01.2026
+
+Brandon Smith | Illustrated Dictionary of Computer Science. 3Ed Edition (2024) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Covers a wide range of entries in computer science, providing a thorough introduction to the field for students and professionals alike. The book includes detailed explanations of key concepts such as algorithms, data structures, programming languages, operating systems, and artificial intelligence. Third edition of this dictionary incorporates many new definitions (   Читать дальше...   )Жанр: Словари, Английский язык, КомпьютерыЯзык: АнглийскийИздательство: 3G E-learningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ACB49DB37FEE36F4EF39843009E75F48B39BA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849211   (1053430) от 21.01.2026
 
 Canan Cengiz | Illustrated Dictionary of Science. 3rd Edition (2024) [PDF] [EN]
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51AD1E5FBA387A1FEADD0991ACD4548EC444BAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464664   (1019574) от 23.04.2021
-
-Владимир Струговщиков | 10000 слов, одинаковых на русском и английском языках (2020) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит 10000 слов одинаковых на русском и английском языках. Она создана для упрощения жизни и для экономии времени при пополнении своего словарного запаса английскими словами. Вы обязательно узнаете для себя что-то новое. Книга представляет собой сборник ранее опубликованных частей серии.Жанр: Иностранные языкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD99A8ABE821EB42401C8E49D31C9D1C75355F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

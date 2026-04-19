@@ -1,3 +1,263 @@
+###  Публикация: 926939   (529387) от 12.08.2015
+
+Аркадий Кобяков - Сборник видеоклипов (2014) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё позади
+02. Мерцание звёзд
+03. Некуда бежать
+04. Я не забуду(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыПеревод: ОтсутствуетПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CBAC3391EA7D4B5538CED796F8AEF514E40B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367842   (527353) от 29.07.2011
+
+Slipknot - Клипография [1999-2010, Nu Metal, DVDRip-AVC]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Nu  MetalПродолжительность: 01:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C4499E47F07E1215569BB127DD54E5EA30670F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927654   (523972) от 14.08.2015
+
+VA - Летний марафон № 182 / (Задорный Country Хит) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (13.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Amy Wilcox - Summer in Slow Motion (Official Video) (00:03:29)
+2. BlackByrd - Better In The Morning (Official Video) (00:03:23)
+3. Enrico Nigiotti - Libera Nel Mondo (Official Video) (00:04:37)
+4. Heather Ballentine - Kiss Me (Official Video) (00:03:19)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7ED72BF7C8115614AA1B0755D09FD008A0DD855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241278   (520958) от 16.08.2018
+
+Сборник клипов - Promo Only Hair Bands from ALEXnROCK 2 (2006) WEBRip [H.264/720p-LQ] [hand made 'реставрация']
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520958.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошел самый добротный хард рок 80х. Это единственный лицензионный сборник выпущенный на двд, достойного содержания в котором почти ничего не нужно менять. Сборник состоит из 4х частей. Это 2я. Сделал легкий ремастеринг видео, звук не трогал. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00 Intro
+01 Ozzy Osbourne - Crazy Train
+02 Motley Crue - Smokin' In The Boys Room
+03 Judas Priest - Living After Midnight(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673272A393D00013BE3C126C0C1EBB5A870816BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534408   (520341) от 13.08.2012
+
+Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DDBA8BEC8C9E36634F4B7FC1F38417AC0E0356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928502   (519492) от 19.08.2015
+
+VA - Летний марафон № 183 / (Зарубежная Дискотека) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (15.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alli Simpson ft. Jack & Jack - Roll Em Up (Official Video) (00:02:56)
+2. Ardit Cuni - Let's Go (Official Video) (00:03:52)
+3. Christopher - Tulips (Official Video) (00:03:35)
+4. EDX - Breathin (Official Video) (00:03:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, ReggaetonПродолжительность: 01:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847FC997A84CDABD74E3667D5FA089BC0FF48BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930296   (516146) от 22.08.2015
+
+VA - Летний марафон № 184 / (Марафон Русских Хитов) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (22.08.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. ART KEY (Артем Качарян) - Энергия Солнца (ПРЕМЬЕРА!) (00:03:53)
+2. Artik & Asti - Кто я тебе ! (при уч. Dj Loyza & The Kidd) (ПРЕМЬЕРА!) (00:03:31)
+3. Julia Parshuta - Most Wanted (ПРЕМЬЕРА!) (00:03:17)
+4. Lui Muzon – Селфи Палка (Лайки Там) (ПРЕМЬЕРА!) (00:04:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51EA48A886D049BC1037A36AC291DBC5167278B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535801   (515569) от 17.08.2012
+
+DJ Rhiannon - Nasty Bitch (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R'n'b, HouseПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A54036EE3BAE89BDEA7EF3AD53A7ABA2863866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536222   (515495) от 17.08.2012
+
+Сборник видеоклипов Millenium Romantic 6 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для тех, кто влюблён, любил или ещё только будет любить.
+ Лучшая музыка со всего света. Клипы, к котором приложили руку талантливейшие режиссёры.
+ Коллекция Millenium Romantic - это музыка для души.01 Lara Fabian - Je T'aime
+02 Sarah Engels Pietro Lombardi - I Miss You
+03 Amel Bent - Ma Philosophie
+04 Sandra - Heaven Can Wait
+05 Mike Oldfield feat. Maggie Reilly - Moonlight shadow
+06 Desireless - Voyage Voyage
+07 Chris Norman - Some Hearts Are Diamonds
+08 Status Quo - In The Army Now
+09 Nelly Furtado — All Good Things
+10 Natasha Bedingfield - Unwritten(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1398019630BD57B071E208F9250E6AC1CF59B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930517   (515080) от 23.08.2015
 
 Ирина Круг – Лучшие концертные выступления (2012) DVD5
@@ -454,256 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A24B680FCE62837142A3887003DE8AF9D4EA8B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541603   (499513) от 02.09.2012
-
-Hi-Jakkers ft Tenny Ten, JP Tronik & Rodrigues - VIP (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D859BDAC18A73B9D349E7A5BFA14801DCFBCEFED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541602   (499122) от 02.09.2012
-
-IKA - Москва Слезам Не Верит (DJ Sergey Fisun version) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7436B610D80EA4F52A9F74A64ECAD2EA561E55AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936464   (495788) от 11.09.2015
-
-VA - Осенний марафон № 188 / Видеоклипы (Зарубежный Парад Новинок ) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (11.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alex Adair - Heaven (Official Video) (00:03:07)
-2. Andreea Banica - Supererou (Official Video) (Famous Production) (00:03:50)
-3. Bobina ft. Natalie Gioia - Addicted (Official Video) (00:02:53)
-4. Bryan Adams - Brand New Day (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Indie, RockПродолжительность: 01:27:40 + 00:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AD1A3F8790C51EA58A15B0FCF6BE00EEBD27D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820427   (494349) от 11.09.2014
-
-I Like a Beautiful Dream 2 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OMNIA - Earth Warrior
-02. Indian Passion
-03. Life Nature You
-04. Black Kat(   Читать дальше...   )Жанр: Ambient, Chillout, New Age, Pop, InstrumentalПродолжительность: 02:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C670211842D1A48827DCB2F7552B2573CE6E79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543553   (493594) от 06.09.2012
-
-Parazitii feat. Dan Lazar - Toate-s La Fel (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-HopПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6A68FDE13A31754E1AB2D21624A065F06CDDD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544462   (490738) от 07.09.2012
-
-Клип на фильмы новинки 2012: Мстители, Люди в чёрном 3, Прометей (2012) [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клип на фильмы новинки 2012:
-007: Координаты «Скайфолл»
-Американский пирог: Все в сборе
-Белоснежка и охотник(   Читать дальше...   )Жанр: ЭкшнПеревод: ОтсутствуетФормат: AVIПродолжительность: 00:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E0D23DBE84060728527BD0B24927E8F6CD4EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158712   (489615) от 17.08.2017
-
-Сборник клипов - Philizz "Back To The 90s" (episode 5) (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Пятая часть серии видеомиксов популярных клипов легендарных 90-х. Полное погружение в мир танцевальной музыки в стиле Eurodance, Hip-Hop и EDM (электронная музыка)! Вспоминаем и наслаждаемся музыкой 90-х!
-- Разбивка по трекам отсутствует.Queen ft. David Bowie – Under Pressure (Rah Mix)
-Mousse T. ft. Hot ‘n’ Juicy – Horny ‘98
-Army Of Lovers – Crucified
-New Kids on the Block - Step By Step(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6217677E2711FD20FFCA3EE75AF82F01FF23B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937141   (489563) от 14.09.2015
-
-VA - Осенний марафон № 189 / Видеоклипы (Самые Танцевальные Зарубежные Хиты) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (13.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alexi Blue - Royalty (Official Video) (00:03:55)
-2. Amure - Horses (Official Video) (00:05:15)
-3. Bankrupt - Bipolar Bear (Official Video) (00:02:47)
-4. Betty Blue - Acolo sus (Official Video) (00:03:17)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Indie, RockПродолжительность: 01:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0053B4741D028DE2E55F1AE607F7C220F753A5F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544820   (487700) от 09.09.2012
-
-MDS - Gold (Puro Oro) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9D772DD47C3F25018C44E522CAB826AB56A1E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

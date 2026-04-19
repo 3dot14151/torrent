@@ -1,3 +1,203 @@
+###  Публикация: 1336449   (280676) от 06.11.2019
+
+VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (Unofficial Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. YUNGBLUD - Time In A Bottle (04:36)
+02. The Heavy - Better as One (02:56)
+03. Logic feat. Wale Folarin (as Wale) & John Lindahl - 100 Miles and Running (05:54)
+04. The Who - Won't Get Fooled Again (03:40)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1AD5024070C344223326D1F344F4E00EF49FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336448   (280671) от 06.11.2019
+
+Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (Original Score + Original Soundtrack) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Score, Soundtrack •Продолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D3EE24F746A570E01C82B280D430B8AB5CF436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336302   (280668) от 06.11.2019
+
+Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music from the HBO Series) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HOW THE WEST WAS REALLY WON (03:45)
+02. ORPHANS OF KRYPTON (01:57)
+03. GARRYOWEN (01:18)
+04. NUN WITH A MOTHERF*&*ING GUN (03:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA9D19C1A49CB5523FCE180766BF186B944953E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187487   (280601) от 28.11.2017
+
+Maryada Ram - Eternal Tibet (2017) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Invocation (4:06)
+02.  Mindful Chant (3:51)
+03.  Healing Tibet Bowls (3:20)
+04.  Offering (3:21)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4636FF080523E5117B6BF11C01E2CED769CC59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187382   (280435) от 28.11.2017
+
+Gregorian - Holy Chants (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Celebrate Christmas (2:32)
+02.  Walking In The Air (3:56)
+03.  You'll See The Snow (4:09)
+04.  Ding Dong (2:14)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CB72C9786BEC614DEE8F696213A646CF582F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336303   (280327) от 06.11.2019
+
+Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music from the HBO Series) (2019) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HOW THE WEST WAS REALLY WON (03:45)
+02. ORPHANS OF KRYPTON (01:57)
+03. GARRYOWEN (01:18)
+04. NUN WITH A MOTHERF*&*ING GUN (03:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3695523D041A087498B1F8BB93F29F2411C67D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336423   (280324) от 06.11.2019
+
+Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Late (02:24)
+02. We Will Break That Record (02:33)
+03. Anything Can Happen In This Weather (02:08)
+04. You'll Get Your Chance (01:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3729055B62B4545545B728C907A99F019C8A82B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187250   (280312) от 28.11.2017
 
 VA - Fitness Latino Party 2018,  3CD (2017)   [MP3|320 Kbps] <Reggaeton, Latin Pop, Samba>
@@ -532,209 +732,6 @@ Goran Bregovic - Discography (1989..2008) [MP3|320 kbps]<Balkan Ethno, World Mus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:249B7FD2ED0003BD3C953234B57C6EE9D92675A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849635   (277615) от 15.12.2014
-
-James Last - The Classic Touch (1988) 5CD [FLAC|Lossless]<Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277615.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Easy-Listening Favourites
-1. Air On The G String
-2. Adagio From 'New World Symphony'
-3. Marche Slave(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1AC035F746A1BCD86CFED1EC7ADDCE2C75F2D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 673034   (277574) от 25.11.2018
-
-Gipsy Kings - 16 альбомов (1982-2006) [MP3|320 кб/с]<Rumba - Flamenco>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-1982 - Allegria (переиздан 1990)
-1983 - Luna De Fuego (переиздан 1990)
-1988 - Gipsy Kings(   Читать дальше...   )Жанр: Rumba - FlamencoПродолжительность: 01:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8E111045CA3ABB411E79F581A52CBDC5AF82A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336782   (277528) от 08.11.2019
-
-Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freaks (02:08)
-02. I'm Eleanor Reed (02:40)
-03. Time Bubble (01:34)
-04. She Looks Like an Angel (01:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0DEAE5A4E6F8E1BC723DB5F1C54BA93788BAEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336783   (277526) от 08.11.2019
-
-Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freaks (02:08)
-02. I'm Eleanor Reed (02:40)
-03. Time Bubble (01:34)
-04. She Looks Like an Angel (01:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45824C50A00A5DC1E9A30187576167C658BF026C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 170341   (277404) от 25.11.2018
-
-Зодиак - 7 альбомов (1980-2008) [MP3|320 kbps]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зодиак - 05:24
-02. Рок на льду - 02:50
-03. Пасифик - 04:02
-04. Мираж - 04:12(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B654C0122E9F57DEF12EE4515762B7F07B0FECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081748   (277375) от 13.12.2016
-
-Francois Jolin - Alice VR  (original soundtrack) (2016) [MP3|320 Kbps] <OST, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From the Void
-02. Engine Malfunction
-03. The Red Queen
-04. Sea of Tears(   Читать дальше...   )Жанр: OST, ScoreПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1500DB8E94E6E9EB5999677480BF8F8280C059A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187622   (277295) от 30.11.2017
-
-Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Story (04:08)
- 02. Season Romance (04:53)
- 03. Life Journey (03:48)
- 04. Cherish (04:19)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D69E3EC0775DE2F2252236925B93367CCFA155
 ```
 
 https://mybot314.ru/tekegram_catalog/

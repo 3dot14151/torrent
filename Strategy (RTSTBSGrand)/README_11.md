@@ -1,3 +1,29 @@
+###  Публикация: 1067064   (388416) от 28.10.2016
+
+Mordheim: City of the Damned (2015) [Ru/Multi] (1.4.4.1/dlc) License RELOADED
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mordheim: City of the Damned – это первая видеоигра, сделанная на основе культовой классической настольной игры Mordheim от Games Workshop. Действие Mordheim: City of the Damned разворачивается в опустошенном имперском городе вселенной Warhammer.Тип издания: LicenseРазработчик: Rogue FactorЖанр: Strategy (Turn-based, Tactical), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12B547F04106B826C3D5E90D4D7D2B208885041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231778   (386913) от 07.10.2018
 
 Battlevoid: Harbinger (2016) [Ru/Multi] (2.0.6) License GOG
@@ -646,32 +672,6 @@ Conqueror A.D. 1086 (1995) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91D0693EF8502909F11B19D791732507903DA2A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421876   (305729) от 10.11.2020
-
-Tale of Imerion (2002) [Multi] (1.0.3) License
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в землях под названием Unauen - классическом фэнтезийно-средневековом мире с магией и четырьмя разумными расами (людьми, эльфами, гномами и орками), каждая из которых не слишком любит остальные и стремится завоевать как можно больше территорий. Однажды в этот мир, и так раздираемый войнами, приходит армия Тёмного Лорда - но последнее вовсе (   Читать дальше...   )Тип издания: LicenseРазработчик: Master CreatingЖанр: Turn-Based StrategyЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D045925FFB408E2503F8CCFB2E8781FBB03F676
 ```
 
 https://mybot314.ru/tekegram_catalog/

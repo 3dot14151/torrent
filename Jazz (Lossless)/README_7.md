@@ -1,3 +1,32 @@
+###  Публикация: 1617059   (1035621) от 05.03.2023
+
+Dinah Shore - Fascination: The Encore Collection (1950-e) 1997, BMG Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fascination [2:59]
+02. I Could Have Danced All Night [2:29]
+03. Deep Purple [2:51]
+04. I'll Walk Alone [2:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F6CF7ECB9731EA51A8BC2C4112DE724FCBCC6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617058   (1035584) от 05.03.2023
 
 Quincy Jones - Milestones Of A Legend (1953 - 1962) 10CD, 2022, The Intense Media [FLAC|Lossless|tracks + .cue] <Bop, Cool, Big Band>
@@ -716,35 +745,6 @@ Sun Ra - The Complete Remastered Recordings On Black Saint & Soul Note (1986 - 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A74DF46032D7F5EE807B2D429710AD350B3F85E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618405   (1034175) от 11.03.2023
-
-Dinah Washington - Mad About the Boy: 25 Classics (2000) Delta Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Letters [2:06]
-02. I Could Have Told You [3:14]
-03. I Won't Cry Anymore [3:21]
-04. Baby Get Lost [2:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A206F712B006264D209927E8A32A9F8692CDB2A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

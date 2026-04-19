@@ -1,3 +1,32 @@
+###  Публикация: 996386   (880734) от 13.03.2016
+
+AnyMP4 iPhone Data Recovery for Mac 7.3.10 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880734.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 iPhone Data Recovery for Mac - Восстановление содержимого iPhone.
+Позволяет восстановить удаленные фотографии, ролики с камеры, SMS сообщения, контакты, историю звонков, заметки, календари, закладки и другое.
+
+Поддержка всех iOS устройств, в том числе: iPhone, iPad, iPod. Возможно сохранение и восстановление файлов с iTunes. AnyMP4 iPhone Data Recovery for (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 марта 2016Разработчик: AnyMP4 StudioПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFDD93645F23442797D74907BC79EEDA360296D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373303   (880340) от 06.04.2020
 
 Squash — Web Image Compression 2.0.4 [En]
@@ -688,32 +717,6 @@ NepTunes - Простой в использовании, но мощный му�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51C2C03A7F480197D5145AFEFCE87783C5869584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374950   (868994) от 12.04.2020
-
-Chikoo 1.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chikoo это органайзер файловТип издания: macOS SoftwareРелиз состоялся: 14.03.2015Разработчик: Coding TurtleПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FC6B488615BEB65C663DD5C49665D0E4DCB6B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,23 +1,22 @@
-###  Публикация: 1446065   (1033311) от 07.02.2021
+###  Публикация: 1443937   (1035227) от 30.01.2021
 
-XYLIO Future DJ Pro 1.8.4 [En]
+DoubleTake 2.6.5 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Future DJ Pro - флагманский продукт от компании XYLIO, упакованный новейшими профессиональными DJ функциями, которые отвечают потребностям как профессиональных, так и начинающих ди-джеев.
-Future DJ Pro - диджейское приложение для профессионального микширования треков. Приложение может микшировать музыку в режиме реального времени как в ручном так и в автоматическом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2021Разработчик: XYLIO INFO SRLПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+DoubleTake - приложение предназначено тем пользователям, которым нравятся компактные фотокамеры, но которые мечтают о широкоугольном объективе. DoubleTake позволяет одним перетаскиванием решить эту проблему и получить снимок не хуже, а в некоторых случаях и лучше, чем снятый широкоугольной камерой.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2021Разработчик: © 2016 Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:264B1CAB74193D180DC27694A1B9E5697A8674FE
+magnet:?xt=urn:btih:D9D7F820974C3BD144E231DDEFFF5762FDEECCE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +24,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445869   (1033310) от 07.02.2021
+###  Публикация: 1443771   (1035226) от 30.01.2021
 
-VA - The Magic Of The Yellow Day (2021) [MP3|320 Kbps] <Ambient, New Age>
+Hype 4 Pro v4.1.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hype - приложение, которое открывает для пользователей возможность создавать красивые, интерактивные и анимированные веб сайты c использованием WYSIWYG-редактора, основной фишкой которого является автоматическая кодировка в HTML5 при экспорте готового материала.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2021Разработчик: Tumult Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98021FFE9FB28B42C7F3711D272343A1A702A8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443656   (1035225) от 30.01.2021
+
+VA - Beatport Tech House: Electro Sound Pack # 233 (2021) [MP3|320 Kbps] <Tech House, Club, Electro>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Музыкальный микс "The Magic Of The Yellow Day" встретит Вас умиротворенной атмосферой с совершенным медитативным саундом. Хорошая подборка композиций для отдыха и приятного времяпрепровождения наедине с близким человеком.01. Monoder - None Multiplied By Many
-02. Substak - Vita Brevis
-03. Marco Monteverde - Cosmos Meditation
-04. Sami Sivananda - Pure Relaxation(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 07:05:06
+Микс-сборник 233-го релиза с площадки Beatport сумеет заинтересовать своих слушателей своей "танцевальностью" и в полной мере качественным музыкальным материалом. Релиз можно слушать буквально с любого трека, интерес к лонгплею от этого не уменьшиться. Он отлично прийдётся и для угарной праздничной вечеринки, и для наполнения тишины в собственном авто.001. Traudel At Work - Was Weiss Ich
+002. Traudel At Work - Perfektlos Song
+003. Flash - What You Think
+004. Techno House - Try Disco (Original Mix)(   Читать дальше...   )Жанр: Tech House, Club, ElectroПродолжительность: 08:30:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF6677FB4D58BE755ED59FE16847F7F78324DB63
+magnet:?xt=urn:btih:21DF2219CB58675FCD113509FC4C547249DE5F98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,27 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446096   (1033309) от 07.02.2021
+###  Публикация: 1443869   (1035224) от 30.01.2021
 
-Александр Тихонов | Энциклопедия малыша. Первая энциклопедия для самых маленьких (2017) [PDF]
+Жозеп Бадаль | Истории Дядюшки Дуба. Сердце (2021) [EPUB]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге "Первая энциклопедия для самых маленьких" собраны простые и интересные даже самым маленьким рассказы о животных, о нашей планете, о смене времен года, о динозаврах и о многом другом. Малыши, которые уже научились читать, смогут сами прочитать текст, данный крупным шрифтом. Запомнить прочитанное помогут замечательные яркие рисунки.
-
-Для старшей группы (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+Чтобы вылечить дедушку Друса, нужна помощь дракона. И новое сердце. Майя и Тау отправились в мир Дядюшки Дуба, где их ждут друзья – Мальчик Йогурт, Ванильная Девочка, медведи Марти и Умбертус и мисс Дикинсон, и новые удивительные встречи.Жанр: Фэнтези, Приключения для детей, СказкиПеревод: Надежда БеленькаяФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48765755E057E0D507AA66A3868708A5CFEC63DD
+magnet:?xt=urn:btih:F8CCD48BFE12606606B665D2B967988A341EEA0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,15 +105,271 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446031   (1033308) от 07.02.2021
+###  Публикация: 1443824   (1035223) от 30.01.2021
 
-Своя игра (07.02.2021) WEBRip [H.264/1080p-LQ]
+SoundSource 5.3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035223.jpg" />
+</div>
+
+
+###  Подробнее
+
+SounceSource позволяет настроить прямо из строки меню входные, выходные данные и звуковые эффекты устройства и настройки громкости в считанные минуты. С SoundSource, вы получаете быстрый доступ к наиболее важным настройкам звука вашего Mac.
+Мгновенное переключение аудио-устройств - c помощью всего двух щелчков мыши, вы можете переключить аудио устройство вашего Mac, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2021Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C610E05B1588DBD94504AC4EFCDA88A718EFC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443798   (1035222) от 30.01.2021
+
+The Cancel - Jungle (2016) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Apaches (feat Moth Equals) (03:29)
+02. Tunnel (02:40)
+03. Rush (feat Moth Equals) (04:00)
+04. Up In The Clouds (03:03)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB7DFC972915B63132874E9E1D8A62D247F99BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443796   (1035221) от 30.01.2021
+
+The Cancel - No Way To Stay (2015) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Way (03:24)
+02. Because (02:56)
+03. My Soul (03:31)
+04. I Believe (02:55)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D67095D115C7E172B30A92268BB35C4EE5AAD59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443791   (1035220) от 30.01.2021
+
+The Cancel - Daybreak (2013) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apollo (02:08)
+02. I Need You (02:13)
+03. Evening (02:08)
+04. Keep Me (02:40)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08422944D88610C425867AC40314F1E172AA478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443790   (1035219) от 30.01.2021
+
+Сто к одному (30.01.2021) WEBRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8255B9C235CA6EF594BFC1C514D0955740AA61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443795   (1035218) от 30.01.2021
+
+The Cancel - Criminal (2014) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghetto (02:36)
+02. Time (02:24)
+03. Hood (02:32)
+04. Street Life (02:35)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A103112229F0045289A34D668734B4965EE62D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443752   (1035217) от 30.01.2021
+
+The Romantics - Strictly Personal (1981) [WavPack|Lossless|image + .cue] <Power Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Nighttime
+02. Look At Her
+03. No One Like You
+04. Bop(   Читать дальше...   )Жанр: Power PopПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6A27CBAA1FCE3AD6D2F8ABF482BD0F45207B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443809   (1035216) от 30.01.2021
+
+The Cancel & Dj Shon - Movement (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Again (03:12)
+02. Return to the Classic (02:06)
+03. Invasion (02:17)
+04. Let's See (02:26)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8A24B1ACD7C2009BA2AE006469FE11191CF880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443712   (1035215) от 30.01.2021
+
+Birizdo I Am - eRETROshock (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:58)
+02. Cannot Buy Happiness (5:54)
+03. Senorita (4:15)
+04. Diamond of My Heart (5:38)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FEE11E7D52E327DA4255CAB4A1166AB24D9B3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443911   (1035214) от 30.01.2021
+
+Своя игра (23.01.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035214.jpg" />
 </div>
 
 
@@ -100,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EE8849FF1FD71DBA69FD89342662E8BAFED6EDC
+magnet:?xt=urn:btih:8AF62F55A29C01492346D02E050AFE074B80B7D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,81 +387,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445881   (1033307) от 07.02.2021
+###  Публикация: 1443906   (1035213) от 30.01.2021
 
-VA - Event Of The Week: Progressive Trance Mix (2021) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это красивая музыка души, это новая гениальная симфония современного мира. Энергичный стиль музыки, который пробирает своим звучанием до глубины души, тела и мозга, это психическое состояние, при котором сознание человека воспринимает лишь малую долю того, что творится вокруг него. Под транс хочется танцевать, его хочется слушать вновь и вновь, он разрушает границы (   Читать дальше...   )001. Allen Watts - High Voltage
-002. Tim Besamusca - Lunaris
-003. Ram - Clockwork Orange
-004. Eldream & Mark Wild - Aura(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 12:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E80DA6BE649DB6A3E6C840BEDBBEDE53EFAA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445849   (1033306) от 07.02.2021
-
-Templates for Pages – DesiGN 7.1  [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткий взгляд на резюме - это все, что нужно потенциальному работодателю для формирования мнения! Шаблоны Resume Lab for Pages от компании Jumsoft предоставляют множество видов резюме, чтобы вы могли представить себя с профессиональным, привлекающим внимание и запоминающимся резюме, для привлечения внимания вашего потенциального работодателя.
-Разнообразие стилей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: JumsoftПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767443C69F87842E0A1268DB85695C75D0D0BF59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445911   (1033305) от 07.02.2021
-
-Первая передача на НТВ. Автомобильная передача (07.02.2020) SATRip
+Своя игра (16.01.2021) WEBRip [H.264/1080p-LQ]
 
 >>Документалистика и Телепередачи
->>За рулем
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:02
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: ОтсутствуютПродолжительность: 00:41:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CC61A868C3D2BBF6217969D48B45C7AC3EFBD3D
+magnet:?xt=urn:btih:D3AAA9D911E1A16B0409F2812B2B657BC61BBB54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,28 +413,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445834   (1033304) от 07.02.2021
+###  Публикация: 1443910   (1035212) от 30.01.2021
 
-Angelus Apatrida - Angelus Apatrida (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Своя игра (17.01.2021) WEBRip [H.264/1080p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Indoctrinate
-02. Bleed The Crown
-03. The Age Of Disinformation
-04. Rise or Fall(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:35
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: ОтсутствуютПродолжительность: 00:41:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C459DB35423981DC6E7F320FAE0A49F101D73689
+magnet:?xt=urn:btih:6E5A1A40385770FF9C605AF5280FA5BB0DF28CBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,28 +439,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445960   (1033303) от 07.02.2021
+###  Публикация: 1443806   (1035211) от 30.01.2021
 
-VA - Minimal Jam: Techno Clubbing Set (2021) [MP3|320 Kbps] <Minimal, Techno, Tech House>
+The Cancel - Autumn (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отличная подборка клубного электро техно от известных ди-джеев европы. Лонгплей наверняка будет интересен поклонникам жанра и просто слушателям, которые находятся в постоянном поиске чего-нибудь нового из мира электронной музыки.001. Jks - Emergence
-002. Lorenzo Colombini - Pasec
-003. Melt - Centrum Beats
-004. Pure Infinity - Pulse(   Читать дальше...   )Жанр: Minimal, Techno, Tech HouseПродолжительность: 11:40:03
+01. Luv (02:20)
+02. Early (02:25)
+03. Floating (02:12)
+04. Vocation (02:15)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:22:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5C2BB69DF0827DD0C7862B338FC208E1A1F2F2F
+magnet:?xt=urn:btih:D99478671F8C5ADD4C35E3A2E74614D48790E205
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,28 +468,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445908   (1033302) от 07.02.2021
+###  Публикация: 1443815   (1035210) от 30.01.2021
 
-Miles Davis - Three Classic Albums Plus (1956 - 1961) 2019, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+The Cancel & Dj Shon - The All Boom (2016) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035210.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. 'Round Midnight [5:58]
-02. Ah-Leu-Cha [5:54]
-03. All Of You [7:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:37:06
+01. Hello (02:01)
+02. Proof (02:00)
+03. Act like u want it (02:14)
+04. Drop (02:08)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:41:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CED3EE8BC4DCCBF1630A1D7CAD560385E39B66EC
+magnet:?xt=urn:btih:FF2F7E8460D495E2712E975804A14621F4418B0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,28 +497,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445880   (1033301) от 07.02.2021
+###  Публикация: 1443802   (1035209) от 30.01.2021
 
-VA - Flash Dance Hit: Set Electro House (2021) [MP3|320 Kbps] <Electro House>
+The Cancel Band - Case (2017) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Неиссякаемое число звуковых инструментальных проигрышей, легкое и не утомляющее звучание глубоких басов и чувственный вокал, которому на альбоме предоставляется не последняя роль. Музыкальный микс "Flash Dance Hit" затронет струны души слушателя своей "танцевальностью" и позитивным настроем.001. Urban Life - Love City
-002. Bart B More And Tai - Night Bus
-003. Superfitness - Only You
-004. Albert Breaker - Birdo(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 09:49:23
+01. Run (03:35)
+02. Uncotroll (04:13)
+03. Half (03:47)
+04. Mr.Orpheus (04:06)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:35:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:222E137E82DC4918EB63615F2A54FDEE7B22EDDA
+magnet:?xt=urn:btih:4288EEAF611D4D06E3F75263FC7523F383EEE79A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,28 +526,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445889   (1033300) от 07.02.2021
+###  Публикация: 1443713   (1035208) от 30.01.2021
 
-The 5th Galaxy Orchestra - From Venus to Mars (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Nu-Disco>
+Birizdo I Am - Sound of Yesteryear (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035208.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ciel Ouvert (5:22)
-02. Approaching Arizona (3:51)
-03. Crystal Teardrops (4:14)
-04. The Fire of Love (5:10)(   Читать дальше...   )Жанр: Balearic, Chillout, Nu-DiscoПродолжительность: 01:18:27
+01. When I Say I Love You (Maybe Baby 2) (4:38)
+02. Indiana Jones (6:13)
+03. Sound of Yesteryear (5:46)
+04. If I Could... (7:00)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CA19BB564F404076C259BB2DAEB685ECDF67184
+magnet:?xt=urn:btih:16FF36635BD7C09FC5A2DFFE7442A815F802A139
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,169 +555,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445842   (1033299) от 07.02.2021
+###  Публикация: 1443878   (1035207) от 30.01.2021
 
-WaiFu2‪x 2.10 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033299.jpg" />
-</div>
-
-
-###  Подробнее
-
-WaiFu2‪x это -  приложение для конвертирования изображения с высоким разрешением, для искусства в стиле аниме, с использованием нейронных сетей.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2021Разработчик: Beijing IncaseDo Education Technology Co., Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED29C249A7778661E30B27D797C7978725BAFBA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445891   (1033298) от 07.02.2021
-
-The 5th Galaxy Orchestra - The Return to Planet Nostalgia (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Earth (3:01)
-02. Life Is so Wonderful as You (5:01)
-03. First Call Memories (3:45)
-04. Isabella's Dream (5:41)(   Читать дальше...   )Жанр: Balearic, Chillout, LoungeПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E8C13EE68803C18C472174BCD450092C69D1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445879   (1033297) от 07.02.2021
-
-VA - Funky House: Crazy Disco Party (2021) [MP3|320 Kbps] <Funky House, Disco House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свежий музыкальный симбиоз танцевальных стилей Disco и Electro House в танцевальном сборнике "Crazy Disco Party" начинает будоражить разум своего слушателя уже с начала первого трека. Музыкальные композиции, вошедшие в микс прекрасно сбалансированы, а также крайне легки для слуха. Саунд микса получился не менее насыщенным и необычайным, чем само содержание (   Читать дальше...   )001. Avrupts & Llolita - Funky Fever
-002. Bass Station - Funky World
-003. Namy F - Bright Eyes
-004. Laser King - Burning Up(   Читать дальше...   )Жанр: Funky House, Disco House, DanceПродолжительность: 08:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3819002B1D16CD94FD9E5129B28E2AD6F0416BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445819   (1033296) от 07.02.2021
-
-MNEKiNG - White After Black (2020) [FLAC|Lossless|WEB-DL|image + .cue] <Acid, Electronic, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denk mit deinem Kopf / Думай головой
-02. Dispute / Спор
-03. Busy night crossroads / Оживленный, ночной перекресток
-04. Flashing half-stations / Мелькание полустанков(   Читать дальше...   )Жанр: Acid, Electronic, Experimental, IndustrialПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4D8F851FADC1DD6AFEF2EC91D7F6822FC9D272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445886   (1033295) от 07.02.2021
-
-VA - Pure Retrowave, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phaserland & Nikki Dodds - Hot Stunner (Original Mix) (3:26)
-02. Freeweights - Lightweight (Original Mix) (4:32)
-03. Lghtnng - Sharks (Original Mix) (4:01)
-04. Adal & Freja - Fire To You (Original Mix) (3:19)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D86FC804E54C9CA3364C1D5EE9221572EA4C4EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446058   (1033294) от 07.02.2021
-
-OmmWriter 1.66 [En]
+Pixelmator Pro 2.0.4 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035207.jpg" />
 </div>
 
 
 ###  Подробнее
 
-OmmWriter - скромная попытка вернуть себе то, что технология вырвала у нас сегодня: наша способность концентрироваться.
-OmmWriter - это инструмент, который позволяет снова писать в удовольствие, позволяя пользователям оставаться наедине со своими мыслями; Сконцентрироваться и писать без отвлечения. OmlWriter - это нечто большее, чем текстовый процессор.
-Секрет OmmWriter (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: Herraiz Soto & Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
+Много неразрушающих про-инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2021Разработчик: Pixelmator TeamПоддерживаемая ОС: macOS 10.14.4Язык интерфейса: Русский, английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82D52F476E236037454FD1753AE70DB26F699284
+magnet:?xt=urn:btih:16F28B7B92D63E2B2E2BD9944E4EC69FC6ECD00B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,25 +582,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445896   (1033293) от 07.02.2021
+###  Публикация: 1443915   (1035206) от 30.01.2021
 
-Tim Schaufert - Haunted (2018)  [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Chillstep>
+Своя игра (24.01.2021) WEBRip [H.264/1080p-LQ]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035206.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Haunted (03:34)Жанр: Ambient, ChillstepПродолжительность: 00:03:34
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: ОтсутствуютПродолжительность: 00:40:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EDC866BF89A87ACB31AE1F9E346CCC2684BDDA4
+magnet:?xt=urn:btih:30418A8849F7C10E51F2884C8299E4D7C0C57FF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,28 +608,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445893   (1033292) от 07.02.2021
+###  Публикация: 1443784   (1035205) от 30.01.2021
 
-The 5th Galaxy Orchestra - Searching for Atlantis (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Dream Pop>
+VA - Markus Schulz - Global DJ Broadcast - Escape to Fisher Towers (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aqua (3:27)
-02. My Love (3:44)
-03. San Francisco Bay (6:17)
-04. Octopus (4:13)(   Читать дальше...   )Жанр: Balearic, Chillout, Dream PopПродолжительность: 00:58:50
+Markus Schulz – Escape to Fisher Towers
+01. Mike EFEX – Shadow & Flame
+02. Paul Thomas & White-Akre – Vyote
+03. Giuseppe Ottaviani – Ozone (Markus Schulz Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FFF0A69E30D595A870561ABA8487DF64E285C03
+magnet:?xt=urn:btih:AFE76F129CFFEA731DCB59F2960FD36A2FEA9BEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,27 +637,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446102   (1033291) от 07.02.2021
+###  Публикация: 1443868   (1035204) от 30.01.2021
 
-Любовь Вайткене | Копилка секретов. Копилка опытов, экспериментов и полезных знаний (2016) [PDF]
+Ираида Тихомирова | Добру откроем сердце. Секреты семейного чтения (2020) [EPUB]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ни для кого не секрет, что знания, полученные на практике, усваиваются гораздо быстрее и лучше. Хотите проверить? Тогда поскорее загляните в удивительную книгу «Копилка опытов, экспериментов и полезных знаний», ведь это настоящая копилка интереснейших опытов и экспериментов, которые позволят узнать много нового.
+Книга одного из лучших специалистов по чтению в нашей стране И.И. Тихомировой раскрывает новый аспект темы чтения.
+Издание представляет собой своеобразный обучающий курс по нравственному воспитанию детей младшего и среднего школьного возраста на материале чтения и обсуждения литературных произведений. Созданное в рамках проекта РШБА «Читающая мама – читающая Россия», (   Читать дальше...   )Жанр: Педагогика, Воспитание детей, Методические пособияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8D97BB7D7E99A0A35AE6BFC294D4BAD99FA712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443885   (1035203) от 30.01.2021
+
+Людмила Доманская | Хорошие девочки всегда говорят спасибо (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтение хороших книг - один из способов вырастить хорошего ребёнка. Представляем вам одну из них "Хорошие девочки всегда говорят спасибо", которая, надеемся, поможет привить вашей девочке не только хорошие манеры и правила поведения, но и разбудит в ней доброту и отзывчивость.
 
-Все задания можно провести дома, ведь для этого понадобятся (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+Сравнительные ситуации поведения - дома, в гостях, на улице, со сверстниками (   Читать дальше...   )Жанр: Познавательная литература/Воспитание и развитие детейФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ED2F23447B7CBDBA2880E05E043F9673F79C644
+magnet:?xt=urn:btih:1606B8AB8147848B8AC36E3A474FFF5F39E2FA8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,138 +692,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442070   (1033290) от 07.02.2021
+###  Публикация: 1443810   (1035202) от 30.01.2021
 
-The Dead Daisies - Holy Ground (2021) [FLAC 2.0|24/96|tracks + .cue|WEB-DL] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Ground (Shake the Memory) [00:04:49]
-02. Like No Other (Bassline) [00:03:39]
-03. Come Alive [00:03:50]
-04. Bustle and Flow [00:03:40](   Читать дальше...   )Жанр: Hard RockФормат: PCMПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47E9B2843F878AF89ADE2F8E575B34501268BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445933   (1033289) от 07.02.2021
-
-JRiver Media Center 27.0.61 RePack (& Portable) by elchupacabra [Multi/Ru]
+Prism 9 v9.0.1 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-JRiver Media Center - мультимедийный центр. Воспроизводит практически все популярные аудио- и видеоформаты, в том числе MP3, аудио-CD и DVD, способен преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты, а также создавать аудио-CD, причем для выполнения этих задач программа содержит множество настраиваемых параметров. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Prism - это мощная комбинация биостатистики, подбора кривой (нелинейная регрессия) и научного построения графиков в одной комплексной программе. Легко организовывать, анализировать и графически повторять эксперименты; выбрать соответствующие статистические тесты и интерпретировать результаты.
+Prism представляет новые способы организации, анализа и графического представления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2021Разработчик: GraphPad SoftwarПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4A51731EA885E7B3EA0C10625EDB375E115D8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445876   (1033288) от 07.02.2021
-
-VA - Organic Sound (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка, волшебные звуки которой создадут внутреннею гармонию и душевное равновесие. Предлагается к прослушиванию для создания медитативного настроения в свободное время. Облака на небе, шелест листвы и чашка с ароматным кофем станут Вашими лучшими соратниками в этом предприятии.001. Gamma Orionis - The Real Purpose
-002. Maroulé - 808 In A Zoo
-003. Schwartz & Funk - Jeunesse
-004. Coolmix - Heaven(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8648295BE9E054828136F6B64DFE2EB017CA44A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445910   (1033287) от 07.02.2021
-
-Tim Schaufert & Shwin - Sublime - (2017)  [FLAC 2.0|24/44.1|tracks|WEB-DL] <Ambient, Chillstep>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Schaufert, Shwin - Sublime (03:55)Жанр: Ambient, ChillstepПродолжительность: 00:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73E03916E6E0982A8E048265142FFEBDDC40568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442060   (1033286) от 07.02.2021
-
-Wig Wam - Never Say Die (2021) [FLAC 2.0|44.1/24|tracks + .cue|WEB-DL] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Second Crusade [00:00:54]
-02. Never Say Die [00:04:04]
-03. Hypnotized [00:03:56]
-04. Shadows of Eternity [00:03:33](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDF838C2B3BD9BA3D627D63AE06AFDF6D6E59BB
+magnet:?xt=urn:btih:C3A4F0B472F0A7E88BB1EABC7D442A8B40AF7D2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

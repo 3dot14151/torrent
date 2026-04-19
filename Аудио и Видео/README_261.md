@@ -1,3 +1,195 @@
+###  Публикация: 1516299   (166991) от 10.12.2021
+
+VA - FROZEN Yellow (2021) [AAC|~300 Kbps] <Dub Techno, Deep House, Deep Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignacio Tardieu - BASIC002 (6:48)
+02. Kyrro - Regeneration (7:08)
+03. Lotech/Hijack - further out (7:49)
+04. Ajnkana - Monoject (Hypno Dub Edit) (7:34)(   Читать дальше...   )Жанр: Dub Techno, Deep House, Deep TechnoПродолжительность: 02:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8055969E7F4CF861CB495699C25B19828BB8178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516314   (166981) от 10.12.2021
+
+Alicia Keys - KEYS (2021) [AAC|~298 Kbps] <Soul, R&B, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166981.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Alicia Keys, Pusha T - Plentiful (Originals) (3:09)
+1.02. Skydive (Originals) (3:04)
+1.03. Best Of Me (Originals) (3:59)
+1.04. Dead End Road (Originals) (3:32)(   Читать дальше...   )Жанр: Soul, R&B, PopПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94EFABD0879F5BA81E9C127E585C3D385147CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345228   (166970) от 14.12.2019
+
+Шестеро вне закона / 6 Underground (2019) WEBRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть миллиардеров фальсифицируют собственные смерти и создают отряд мстителей, чтобы самостоятельно вершить правосудие.Производство: США / Bay Films, Skydance MediaЖанр: Боевик, триллерРежиссер: Майкл БэйАктеры: Райан Рейнольдс, Мелани Лоран, Мануэль Рульфо, Бен Харди, Адриа Архона, Дэйв Франко, Кори Хоукинс, Лайор Раз, Пейман Моаади, Юрий КолокольниковПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB60A6D6D9A2FE31BEACD31B2AD1CE472C7BAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516247   (166891) от 10.12.2021
+
+Галлиполи / Gallipoli (1981) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166891.jpg" />
+</div>
+
+
+###  Подробнее
+
+1915 год. Два романтически настроенных молодых человека вступают в ряды австралийских вооруженных сил. После ускоренной подготовки в «учебке», затерянной в песках близ древнеегипетских пирамид, приятелей отправляют в полк, который ведет боевые действия против турецкой армии.
+Друзья еще не знают, что им предстоит принять участие в битве при Галлиполи - одном из самых (   Читать дальше...   )Производство: Австралия / R & R Films, The Australian Film CommissionЖанр: драма, приключения, военный, историяРежиссер: Питер УирАктеры: Мэл Гибсон, Марк Ли, Билл Керр, Харольд Хопкинс, Чарльз Латалу Юнипингу, Хит Харрис, Рон Грэхэм, Герда Николсон, Роберт Грубб, Тим МакКензиПеревод: Профессиональный двухголосыйСубтитры: русские, английскиеПродолжительность: 01:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29FBE3185CACDF2152F7CCB97261E4D7417E24A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516253   (166792) от 10.12.2021
+
+Венецианский купец / The Merchant of Venice (2004) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в Венеции. Жизнерадостные, беспечные, щедрые венецианцы недолюбливают и высмеивают угрюмого иноверца Шейлока, алчного ростовщика, считающего каждую копейку. Шейлок отвечает им лютой ненавистью. Конфликт обостряется, кровопролитие кажется неминуемым. Но тут вмешивается созидающая сила женской любви.Производство: Великобритания, Люксембург, Италия / 39 McLaren St. Sydney, Avenue Pictures, Dania Film, Delux Productions, Film Fund LuxembourgЖанр: драма, мелодрамаРежиссер: Майкл РэдфордАктеры: Аль Пачино, Джереми Айронс, Джозеф Файнс, Линн Коллинс, Зулейха Робинсон, Крис Маршалл, Чарли Кокс, Хезер Голденхерш, Макензи Крук, Джон СешнсПеревод: Профессиональный двухголосыйСубтитры: русские, английскиеПродолжительность: 02:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C75BE9429285931C5C6EFCA256C81EC713CBD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516217   (166515) от 10.12.2021
+
+Королевская игра / Schachnovelle (2021) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вена, 1938 год. Юрист Йозеф Барток вместе с женой собирается покинуть оккупированную нацистами Австрию, но его арестовывает гестапо. От Бартока требуют выдать конфиденциальную информацию о клиентах, а после отказа помещают в одиночное заключение и полностью лишают связи с внешним миром. Но однажды Йозефу удается украсть у своих тюремщиков книгу о шахматах. Она становится (   Читать дальше...   )Производство: Германия, Австрия / Walker Worm Film, ARD Degeto Film, Bayerischer Rundfunk (BR)Жанр: драма, триллерРежиссер: Филипп ШтёльцльАктеры: Оливер Мазуччи, Альбрехт Шух, Биргит Минихмайр, Рольф Лассгор, Андреас Луст, Самуэль Финци, Лукас Мико, Клеменс Берндорфф, Герхард Фледль, Луиза-Селин ГаффронПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02A2C6B1F17560B609955017749BE5BB37A38B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516388   (166276) от 11.12.2021
+
+VA - Mystical Frequencies (2021) [AAC|~328 Kbps] <Psy-Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twelve Sessions - Reborn (Original Mix) (6:42)
+02. Lunatica, Hypatia - Brain Sequences (Original Mix) (7:40)
+03. Zephirus Kane - Synchronicity (Original Mix) (7:17)
+04. Redrosid - Energetic State (Original Mix) (7:38)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9AA5805516709F616270359A737B2A6264F034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516390   (166267) от 11.12.2021
 
 VA - Chill Out Perfection, Vol. 2 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
@@ -536,203 +728,6 @@ VA - Erotica, Vol. 6 (2021) [AAC|~322 Kbps] <Electronic, Chill Out, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F90F0A24C6F87826356B5C7B7573E00B04A28E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516607   (165240) от 12.12.2021
-
-The Baylor Project - Generations (2021) [AAC|~343 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Baylor Project, Kenny Garrett - Strivin' (5:13)
-02. A Love Story (Interlude) (1:46)
-03. Happy To Be With You (6:13)
-04. Love Makes Me Sing (5:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B498BC07D11D8EB19512630947CA5190095746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345997   (164962) от 17.12.2019
-
-Код 8 / Code 8 (2019) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164962.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF544FF0500A6D11A2B5CDFA692619C2CA14E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345995   (164895) от 17.12.2019
-
-Код 8 / Code 8 (2019) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164895.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0280730D31377872325F3C8B965B82854ADAC1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516862   (164559) от 13.12.2021
-
-VA - Chillout King Ibiza: Aperitivo Del Mar (2018) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinematic - Memories (Red Carpet Mix) (6:00)
-02. Retro Rider - Fantaisie Sur La Cote (The Del Mar Dub) (6:59)
-03. Adriatic Grooves - Simsalaboom (Blue Sky Cut) (6:31)
-04. The Ocean Piano - Breath of the Sea (Piano Dream Mix) (5:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282071EE390D6CF0374814BC5B06371626BB652A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516861   (164546) от 13.12.2021
-
-VA - Chillout King Ibiza: Chill Around the World (2017) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pascal Dubois - Costa del Mar (Silent Sea Mix) (4:25)
-02. The Smooth Commander - Beauty Secrets (Bluestar Mix) (5:05)
-03. Sky Sergeant - Holograms (Electric Slide Mix) (5:51)
-04. Chillwalker - Balearic Angels (True Waves Mix) (4:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBF95A82F2A20C6435AAC4F714A597AA1EB5E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516859   (164530) от 13.12.2021
-
-VA - Chillout King Ibiza: The Relax Smoothie (2016) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillwalker - A Dream Comes True (Red Horizon Mix) (5:12)
-02. DJ Maretimo - Sun Addicted (Pure Beach Cut) (4:54)
-03. Sean Hayman - Relax @ the Beach (Tranquility Conga Cut) (5:29)
-04. Cafe Americaine - Caribbean Cream Cake (Tropical Mix) (6:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3ED6C828BCC4003C69C7303C1C9AE49EE1A285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516858   (164518) от 13.12.2021
-
-VA - Chillout King Ibiza: Club Del Mar (2015) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laid Back Avenue - Slow Motion Ballade (Quiet Earth Mix) (4:28)
-02. Orange Music, Mirjam - Take Me 2 the Sea (Floating Voice Mix) (6:56)
-03. The Man Behind C. - Como Aire Cristalino (Latin Mix) (6:25)
-04. Jazzy James Jr. - Jill & Jazz (Vocal Mix) (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734DAABD3DC2AFA87BE6D88ACF9126D0B489D5E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1087903   (142692) от 29.12.2016
+
+VA - Acoustic 90's (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alanis Morissette - Uninvited - Live Unplugged Version
+02. Tasmin Archer - Sleeping Satellite
+03. Rod Stewart - Maggie May - Live Unplugged Version
+04. Elvis Costello - I Thought I'd Write to Juliet(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B589A9A6C3AE16C4CB99A635886959B3A734EBB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970399   (141517) от 30.12.2015
 
 VA - Christmas piano collection (2015) [MP3|320 кб/с] <Piano, Instrumental>
@@ -722,32 +751,6 @@ VA - Hare Krishna Каждый день - Твой день! (2024) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0D4C3E8A9C338F4616F9C7B780C83F3F1A264DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488369   (90856) от 26.04.2012
-
-VA - Инструментальная музыка (2012) vol. № 25 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A6172B88BE5F3148D4456C25D3EDC120DAF54C
 ```
 
 https://mybot314.ru/tekegram_catalog/

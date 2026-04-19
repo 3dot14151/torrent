@@ -1,3 +1,55 @@
+###  Публикация: 1314161   (521018) от 12.07.2019
+
+Проекты - VideoHive - Quotes Photo Slideshow - 24069780 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quotes Photo Slideshow - проект для создания слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAEB613BA2F6E95F600182E3E569A34077EC90B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928907   (520538) от 18.08.2015
+
+Проекты - Motion Array - Contact Sheet [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот энергичный шаблон включает в себя 20 заполнителей для ваших изображений или видео, и лишь 14 из медиа-контента предстанут в фокусе кадра. Проект также включает в себя 13 различных заполнителей для вашего пользовательского текста.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBDEC2DE0DE3A566680259C350585E48CEB9579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928896   (520488) от 18.08.2015
 
 Проекты - VideoHive - Simple Slideshow [AEP]
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11B693F62ECD87ED0B57C1BE935983C6BE94CB3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931553   (511745) от 26.08.2015
-
-Проекты - VideoHive - Photo Postcards [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE. Музыкальный трек с звуковыми эффектами включен в раздачу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA91BD224ADDF7912E899E3823BC2BB5F1240072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931628   (511689) от 26.08.2015
-
-Проекты - VideoHive - Bench Photo Gallery [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346AB7179CBBC0A73B2085BE4C79315F4DECD828
 ```
 
 https://mybot314.ru/tekegram_catalog/

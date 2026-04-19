@@ -1,3 +1,38 @@
+###  Публикация: 483506   (88662) от 15.04.2012
+
+Yehudi Menuhin - Vivaldi - Violin Concertos (2003) 2CD [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (04:33) Concerto for 2 Violins, RV 529 B-dur I Allegro
+  02. (03:11) Concerto for 2 Violins, RV 529 B-dur II Largo
+  03. (03:24) Concerto for 2 Violins, RV 529 B-dur III Allegro2
+  04. (03:07) Concerto for 2 Violins, Op.3 No.5, RV 519 A-dur I Allegro
+  05. (01:56) Concerto for 2 Violins, Op.3 No.5, RV 519 A-dur II Largo
+  06. (03:01) Concerto for 2 Violins, Op.3 No.5, RV 519 A-dur III Allegro2
+  07. (03:59) Concerto for Violin and Cello, RV 547 B-dur I Allegro
+  08. (01:56) Concerto for Violin and Cello, RV 547 B-dur II Andante
+  09. (03:03) Concerto for Violin and Cello, RV 547 B-dur III Allegro molto
+  10. (03:38) Concerto for Violin and Cello, RV 546 A-dur I Allegro(   Читать дальше...   )2003Жанр: ClassicalПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEB7868DD35945FC899B3EFBE1381D947FC790B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482215   (88211) от 13.04.2012
 
 C. H. Graun, J. A. Hasse, G. F. Handel, J. Mattheson – Cleopatra, soprano Isabel Bayrakdarian, VA,(2004), Tafelmusik Baroque Orchestra, conductor Jeanne Lamon /2004/[ FLAC |Lossless]<Classical>
@@ -798,41 +833,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B141A29E295432F3BA03E959197383B957D5F53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467879   (82113) от 14.03.2012
-
-Jon Schmidt & Steven Sharp Nelson - The PianoGuys: Hits Volume I (2012) [MP3|320 кб/с]<Piano, Cello, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Meets Mozart (5:17)
-02. Moonlight (3:27)
-03. Without You (3:37)
-04. The Cello Song (3:17)
-05. Rolling In The Deep (3:52)
-06. Cello Wars (Radio Edit) (3:09)
-07. O Fortuna (Carmina Burana) (3:20)
-08. Bring Him Home (Les Miserables) (4:16)
-09. Charlie Brown Medley (3:01)
-10. Rock Meets Rachmaninoff (3:20)(   Читать дальше...   )Жанр: Piano, Cello, InstrumentalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227A174307500D1D72FDBC2CC982FC589DA35F3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,212 @@
+###  Публикация: 1179941   (344235) от 02.11.2017
+
+Masayoshi Takanaka - Saudade (1982) 1995, Kitty Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Fair Wind [04:33]
+02. Saudade [03:43]
+03. Eona [05:38]
+04. Breakin' Loose [04:51](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E895CA5B098FC18AFFBADA837AF8F8D1F76D7AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330223   (342830) от 09.10.2019
+
+Babymetal - Metal Galaxy (2019) Japanese Edition [MP3|320 Kbps] <Heavy Metal, J-Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Metal
+02. Da Da Dance (feat. Tak Matsumoto)
+03. Elevator Girl (English Version)
+04. Shanti Shanti Shanti(   Читать дальше...   )Жанр: Heavy Metal, J-MetalПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE120A16AF0109AD6D7AE15C49BC72A153742455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180240   (341959) от 03.11.2017
+
+Masayoshi Takanaka - Ukulele Seychelles (2011) Lagoon Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh! Tengo Suerte [04:44]
+02. Tokyo Legie [03:58]
+03. Shinkirou no Shima E [04:28]
+04. Akogare no Seychelles Shotou [05:33](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5546470D62A054FE240B0FF7167BA6EFB790C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954384   (341793) от 07.11.2015
+
+Akisai - Images (2015) [OGG| 466-546 кб/с]<Electronic, Instrumental, Ambient, Relax>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cycle
+02. Bless
+03. Sicilienne
+04. Euphoria(   Читать дальше...   )Жанр: Electronic, Instrumental, Ambient, RelaxПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BCFA1E61B26AE9FD40C17C9DAE56A56E089916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954432   (341678) от 07.11.2015
+
+Akisai - Colors (2014) [OGG| 432-502 кб/с]<Electronic, Instrumental, Ambient, Relax>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Line
+02. Idearythmical
+03. Synchrotonica
+04. Theory(   Читать дальше...   )Жанр: Electronic, Instrumental, Ambient, RelaxПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983539BD1A4B3DE075E03552DAF9501A6FECD5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074049   (340082) от 18.11.2016
+
+SYU - You Play Hard (2016) [MP3|320 Kbps] <Instrumental Neoclassical Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spearhead 05:42
+02. Hold Your Tongue 04:11
+03. Civamallosso 03:50
+04. Blind Obedience 04:00(   Читать дальше...   )Жанр: Instrumental Neoclassical Power MetalПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71589036C0020051A5801DB7BB785D19BB41D337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580708   (337919) от 27.11.2012
+
+VA - Lovely String (1999) [MP3|320 кб/с]<Instrumental, Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337919.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:07) 01. Yu Die
+(4:25) 02. Ren Xiao Yao
+(4:57) 03. Tie Chuang
+(4:30) 04. Peng You
+(4:36) 05. My Heart Will Go On
+(3:39) 06. Nu Ren Hua
+(4:29) 07. Wo Bu Xiang Shuo
+(4:07) 08. Mei Hua San Nong
+(5:08) 09. Ming Ming Zhi Dao Xiang Si Ku
+(4:25) 10. Shang Xin Tai Ping YangЖанр: Instrumental, EthnicПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59E5D1F77E1A753C1C3D93B7B8040DFDB1D2419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581148   (337437) от 27.11.2012
 
 Meisa Kuroki - 4 альбома, 8 синглов (2008-2012) [MP3|320 кб/с]<J-Pop>
@@ -551,210 +760,6 @@ Acousphere - 2 albums (2010, 2011) [MP3|160-320 кб/с]<Instrumental, New age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D45B61957DC8BDEA9DFF5294720F0609F6CAEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843615   (313842) от 27.11.2014
-
-Kokuyasou - 6 альбомов (2007-2011) Touhou Instrumental, Vocal /Doujin/ [FLAC|Lossless] <Melodic Death Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2007.08.17 (KKYS-0001) Gothic (C72)
-2007.12.31 (KKYS-0002) ∵Ga(Я)deN∵ (C73)
-2008.05.25 (KKYS-0003) ∞UroboroS∞ (Reitaisai 5)
-2009.08.15 (KKYS-0004) Catharsis (C76)
-2010.03.14 (KKYS-0005) APOCALYPSE -Mundus vult decipi, ergo decipiatur- (Reitaisai 7)
-2011.08.13 (KKYS-0006) Shinku no Kenzoku wa Enkansuru Rasen wo Tanzuru (C80)Тип издания: DoujinЖанр: Melodic Death MetalФормат: Touhou Instrumental, VocalПродолжительность: 00:03:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC5941B8759890081AD31AB580BB97ABB898EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960084   (310096) от 27.11.2015
-
-P∴Rhythmatiq - 24 альбома (2008-2014) Vocaloid /Doujin/ [FLAC|tracks] <Electronic, J-Pop, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2012.12.15 (PRTQ-0023) BALLAD COLLECTION
-2013.12.30 (PRTQ-0024) FolQ-Lore (C85)
-2014.11.15 (PRTQ-0025) P∴Rhythmatiq act：11Тип издания: DoujinЖанр: Electronic, J-Pop, J-RockФормат: VocaloidПродолжительность: 00:14:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1452A034FBDF4CA6BA3AEF5D61DCD17FC56F7BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182268   (309905) от 03.12.2012
-
-Wu Judy Chin-tai - 3 albums (1999-2001) [MP3|320 kbps]<New age, Nature sounds>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_309905.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:27) 01. Night Falling
-(5:38) 02. Country Wind
-(6:40) 03. Silver River
-(5:21) 04. Gentle Slope
-(7:29) 05. Dreams of Night SpiritsЖанр: New age, Nature soundsПродолжительность: 00:29:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960083   (307571) от 28.11.2015
-
-HARDCORE TANO*C - 31 альбом (2004-2015) /Doujin/ [FLAC|tracks] <Hardcore, Techno, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2014.12.30 (TCPLUS-0014) SPEED BALL EVOLUTION (C87)
-2015.04.26 (TCPLUS-0015) Irregular Nation (M3-35)
-2015.08.16 (TANOCD-0019) HARDCORE SYNDROME 9 (C88)Тип издания: DoujinЖанр: Hardcore, Techno, ElectronicПродолжительность: 01:14:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28626BF34A43053AC693673964E9F194E46F2CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960495   (307560) от 28.11.2015
-
-Yonin Bayashi - Ishoku-Sokuhatsu (1974) Reissue, Unofficial Release, 2009, Erebus [FLAC|image + .cue]<Rock, Prog Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamaebeth (0:47)
-02. Sora To Kumo (5:24)
-03. Omatsuri (11:21)
-04. Ishoku-Sokuhatsu (12:23)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1B3A8AEC543EC8B3634FF7784AB36E8AE1AA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524900   (306635) от 28.11.2015
-
-EXIT TRANCE PRESENTS (EXIT TUNES) - 442 альбома (2003-2015) [MP3|128-320 кб/с]<J-Pop, Ost, J-Trance, Vocaloid>
-
->>East Asian Music
->>Doujin Music
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: J-Pop, Ost, J-Trance, VocaloidПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6DB7E1C3DE4AADC251AAD743EB78491D47F28E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961360   (300798) от 01.12.2015
-
-PSY - The 7th Album (2015) [MP3|320 кб/с]<K-Pop, Dance, Hip-Hop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Jockey
- 02. I Remember You (feat. Zion.T)
- 03. Napal Baji
- 04. Daddy (feat. CL)(   Читать дальше...   )Жанр: K-Pop, Dance, Hip-HopПродолжительность: 00:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFA75361A7C1006CEAC3D78CB68C07DEED9A0ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

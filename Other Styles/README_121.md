@@ -1,3 +1,213 @@
+###  Публикация: 574336   (375539) от 12.11.2012
+
+V.A. - Bappi Lahiri - Disco Dancer, Kasam Paida Karne Wale Ki, Tarzan (2000) [FLAC (tracks+cue)|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disco Dancer (1982)
+01. Vijay Benedict - I Am A Disco Dancer
+02. Parvati Khan - Jimmy Jimmy Jimmy Aaja
+03. Usha Uthup, Bappi Lahiri - Auva Auva Koi Yahan Nache
+04. Bappi Lahiri - Yaad Aa Raha Hai
+05. Nandu Bhende - Krishna Dharti Pe Aaja Tu
+06. Kishore Kumar - Ae Oh Aa Zara Mudke
+07. Suresh Wadkar - Goron Ki Na Kalon Ki
+Kasam Paida Karne Wale Ki (1985)
+08. Salma Agha - Dance Dance(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574330   (375454) от 12.11.2012
+
+Howard Drossin & RZA - Человек с железными кулаками (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Keys / RZA - The Baddest Man Alive
+  02. Ghostface Killah / M.O.P. / Pharoahe Monch - Black Out
+  03. Kanye West - White Dress
+  04. The Revelations feat. Tre Williams - I Forgot To Be Your Lover
+  05. Idle WarshipЖанр: SoundtrackПродолжительность: 04:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630D6AEC9C03854774F04D90A42AB668CAACFBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 33144   (375013) от 12.11.2012
+
+Music of the Shamans (Музыка шаманов)
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Shamanic Way (Путь шамана) 18:50
+02 Forest Spirit (Дух леса) 12:27
+03 La Bruja de la Cura 11:31
+04 Rain Dance (Танец дождя) 9:38Жанр: Музыка шамановПродолжительность: 52:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254365   (374945) от 13.10.2018
+
+Armik - Cafe Romantico (2004) [MP3|320 Kbps] <Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovers Moon (5:04)
+02. Cafe Romantico (5:16)
+03. Rain Drops (5:03)
+04. Sweet Dreams (4:59)(   Читать дальше...   )Жанр: FlamencoПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D9665BB4195D2A8FB80C52D0DF1C71B8CA920E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947844   (374863) от 24.10.2015
+
+Kike Fernandez - 100 Tangos Inolvidables (2010) [MP3|192 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374863.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Adios Pampa Mia
+002 - El Choclo
+003 - Mi Buenos Aires Querido
+004 - Malevaje(   Читать дальше...   )Жанр: TangoПродолжительность: 04:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409BC030AC25D6C836116275267E7CA604D09B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175890   (374343) от 20.10.2017
+
+VA - Astral Dreams. Insomnia Help Sleeping Music (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble Sleeping Music Universe - Astral Dreams
+02. Calm Music Masters Relaxation - Bath Before Bedtime
+03. Buddhist Meditation Music Set - Meaning of Motivation
+04. Zen Natural Sounds - Mind & Body(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A70FEE2344AE818D5A0A24572DB8B58C2BDB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069434   (373682) от 04.11.2016
+
+James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles - Fantastic Beasts and Where to Find Them (02:55)
+02. There Are Witches Among Us / The Bank / The Niffler (06:54)
+03. Tina Takes Newt In / Macusa Headquarters (01:57)
+04. Pie or Strudel / Escaping Queenie and Tina’s Place (03:06)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC783B8217B130F3EC14A8A9C8429B36FEB1B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069433   (373679) от 04.11.2016
 
 Sarah Schachner - Call of Duty: Infinite Warfare (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -536,215 +746,6 @@ The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ADEF5E69A8BA163B7E38D410770AC51389486A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255339   (366052) от 17.10.2018
-
-VA - Lady Bird (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Bird - Prayer of St. Francis (From St. Francis Hymn) (00:21)
-02. Alanis Morissette - Hand in My Pocket (03:38)
-03. HAIM - Little of Your Love (03:33)
-04. Adolf Fredrik Girls Choir - Panis Angelicus (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2603EC4694D1F20603B26A24653C0C82B440E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328097   (366029) от 29.09.2019
-
-Andrey Klimkovsky (Андрей Климковский) - Star Triangle (2001) [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Space>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triangular Navigation (9:01)
-02. We Continue the Search (7:42)
-03. Andromeda (5:59)
-04. Comets Went Forever (4:54)(   Читать дальше...   )Жанр: Electronic, New Age, SpaceПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58EE38E581DCE4FE3A7C76762D8855343AE6CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327099   (366028) от 29.09.2019
-
-VA - Modern Sound Orchestras - Another Day In Paradise (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Day In Paradise - Phil Collins  (3:46)
-02. Right Here Waiting – Richard Marx (3:22)
-03. Hey Jude - McCartney / Lennon  (3:43)
-04. I Just Died In Your Arms Tonight – Nicolas Eede (3:15)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2400F6EDE728C6238291D7E117A1DCF239BE8EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 153436   (365816) от 21.11.2009
-
-VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (1993 - 2004) [FLAC|lossless]<New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New age, Meditative, RelaxПродолжительность: 00:50:56
-
-01. Fragrance of Water
-02. Fine Tea Is Like a Beauty(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327209   (365543) от 29.09.2019
-
-Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target Edition / Japan [FLAC|Lossless|tracks + .cue] <Rock, Pop, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taron Egerton, Rachel Muldoon - Don't Go Breaking My Heart (Interlude) [01:34]
-02. Taron Egerton, Richard Madden (2) - Honky Cat [02:34]
-03. Taron Egerton - Pinball Wizard (Interlude) [02:02]
-04. Taron Egerton - Rocket Man [04:31](   Читать дальше...   )Жанр: Rock, Pop, Stage & ScreenПродолжительность: 01:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFE4B52B67F5ED9486A5F31DDD219B2EFAE9FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951101   (365490) от 28.10.2015
-
-Jean Michel Jarre - Waiting For Cousteau (1990) Remastered / 2015, Sony Music / [FLAC|tracks + .cue]<Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calypso [8:23]
-02. Calypso Part 2 [7:11]
-03. Calypso Part 3 [6:23]
-04. En Attendant Cousteau [46:46]Жанр: ElectronicПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C82A06414613A081F9BE6C25EF1AEBE733570A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576245   (365268) от 16.11.2012
-
-VA - Арабские ночи (Инструментальная музыка 2 CD) 2000 г.[FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Blame Me
-02. Every Beat Of My Heart
-03. Why Let Me Love You
-04. Trisky Love
-05. Love In The Summer
-06. I Waut You
-07. Dare To Love
-08. Always In My Heart
-09. Egypt
-10. Miramar(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

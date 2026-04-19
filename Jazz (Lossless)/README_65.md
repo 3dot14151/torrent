@@ -1,3 +1,32 @@
+###  Публикация: 1119220   (809131) от 27.03.2017
+
+Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riviera Life
+02. Dr. Wanna Do
+03. A Night Like This
+04. Just One Dance(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BA50CB1B076E9CAEE1555D7E92F7443E8697E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119235   (809127) от 27.03.2017
 
 Caro Emerald - Emerald Island (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Neo-swing, Vocal Jazz, Pop Jazz>
@@ -716,35 +745,6 @@ Sadao Watanabe - Go Straight Ahead 'n Make A Left (1997) Verve Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41CB40FB7889B470DD3EF8259F8865EB60CD468B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505426   (804559) от 27.10.2021
-
-Dado Moroni & Tom Harrell - Humanity (2007) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [0:56]
-02. The Nearness of You [8:51]
-03. Lover [8:18]
-04. I Hear a Rhapsody [6:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B922ED060C419E4CDDE248D64FAAF85E7B72DEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

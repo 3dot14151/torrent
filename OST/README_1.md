@@ -1,3 +1,32 @@
+###  Публикация: 1360238   (961887) от 14.02.2020
+
+Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961887.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:41| 01. Mombasa Mission
+|02:36| 02. Martin Axe
+|02:02| 03. Wake Up
+|02:37| 04. Second Chance(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C0918D3102684527877FAE0559CB626A2BAF27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360048   (961885) от 14.02.2020
 
 Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -722,35 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362584   (948416) от 24.02.2020
-
-Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack) (2013) [MP3|320 кб/с]<Soundtrack, Synthwawe>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948416.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:47| 01. Doll
-|03:41| 02. Haunted
-|01:02| 03. Double Trouble
-|02:46| 04. Bells(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaweПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3A587138523EE9C7AAADD119377D3D05C51F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

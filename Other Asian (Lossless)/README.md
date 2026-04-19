@@ -66,7 +66,7 @@ Maki Goto - 4 albums + 3 Eps (2003-2011) [FLAC|Lossless]<JPop,dance,hello projec
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_832102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_832102.jpg" />
 </div>
 
 

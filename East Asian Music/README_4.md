@@ -124,7 +124,7 @@ Boom Boom Satellites - To The Loveless (2010) [MP3|320 kbps]<JRock/Electronic, B
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_727264.jpg" />
 </div>
 
 
@@ -733,6 +733,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339051   (667334) от 20.05.2011
+
+Butterfly Girls Band - Dancing Skirts in Flying Flowers (2009) [APE|Lossless]<Chinese Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instrumental Ensemble Happy Song (4:52)
+02. Sheng Solo Ding Ding Dang (5:59)
+03. Dance Accompaned by Music Small Rainbow Skirt (9:15)
+04. Pipa Solo Lv Yao (6:49)
+05. Alto Fiddle Solo Song of Regions of Rivers and Lakes (4:46)
+06. Bamboo Fluet and Band Three, Five and Seven (4:23)
+07. Pipa and Guzheng Embroidering Girls (5:10)
+08. Chines String Quintet Soaring Dragon (7:15)
+09. Chines String Quintet Pamper Imagination (6:57)
+10. Guzheng Solo Spring Dawn in a Village of She Nationality (4:25)(   Читать дальше...)Жанр: Chinese EthnicПродолжительность: 1:13:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 339506   (666125) от 21.05.2011
 
 Chen Lei - The Song of King Yao (2009) [FLAC|Lossless]<Chinese Traditional Music, Guqin, Qin>
@@ -759,41 +794,6 @@ Chen Lei - The Song of King Yao (2009) [FLAC|Lossless]<Chinese Traditional Music
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514014   (659115) от 23.06.2012
-
-VA - Band Dream Garden I-III (2009) [MP3|320 кб/с]<Instrumental, Ethnic, New age>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659115.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:00) 01. Hua hao yue yuan ye
-(4:53) 02. I Believe
-(4:13) 03. Chun guang mei
-(5:05) 04. Dong feng po
-(3:36) 05. Ning Xia
-(3:29) 06. tian ye jing qiao qiao
-(4:10) 07. Bo li bei
-(3:43) 08. Shu bo te yao lan qu
-(3:51) 09. Feng shou ge
-(4:12) 10. Shan liang de ri zi(   Читать дальше...   )2009Жанр: Instrumental, Ethnic, New ageПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3942710AD0A082A551514B504AE8E0AB7C436A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1377019   (854588) от 20.04.2020
+
+Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Metal, Electro>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854588.jpg" />
+</div>
+
+
+###  Подробнее
+
+|05:02| 01. Mick Gordon, Chad Mossholder - Hell On Earth
+|05:33| 02. Mick Gordon - Cultist Base
+|03:37| 03. Mick Gordon, Chad Mossholder - Blood Harvesting
+|07:51| 04. Mick Gordon, Chad Mossholder - Soul Extraction(   Читать дальше...   )Жанр: Soundtrack, Score, Industrial Metal, Electro-Industrial, Dark AmbientПродолжительность: 04:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A2B25F2D9BEF4B8559464E2D6A8DFED6AF8299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498519   (853994) от 28.09.2021
+
+2Cellos - Dedicated (2021) [FLAC|Lossless|image + .cue] <Instrumental Pop, Instrumental Soft Rock, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853994.jpg" />
+</div>
+
+
+###  Подробнее
+
+2CELLOS - всемирно известный хорватский дуэт виолончелистов, который составляют Luka Šulić и Stjepan Hauser. Музыканты исполняют инструментальные аранжировки известных поп- и рок-песен, а также классическую музыку и музыку из фильмов. Собрав более 1,3 миллиарда просмотров на YouTube, миллиарда audio streams, бесчисленные аншлаговые концерты и миллионы поклонников (   Читать дальше...   )1. Wherewer I Go (3:23)
+2. Bad Guy (2:38)
+3. Sweet Child O' Mine (4:01)
+4. Halo (4:22)(   Читать дальше...   )Жанр: Instrumental Pop, Instrumental Soft Rock, ClassicalПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54987459F48F25C33AE0CF649CBDE9B4506034F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110292   (853735) от 02.03.2017
+
+Isgaard - Whiteout (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Сrossover, Pop-art, Progressive>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (3:28)
+02. No Man's Land (5:48)
+03. Shine On (4:54)
+04. You Didn't Fall (4:35)(   Читать дальше...   )Жанр: New-Age, Сrossover, Pop-art, ProgressiveПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A2A12073CF45008A0D13901609D0B9AD10B9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110197   (853606) от 02.03.2017
+
+VA - The Best of Instrumental Music (2004) Compilation [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Mauriat Orchestra - El Bimbo (2:30)
+02. Candy Dulfer & Dave Steward - Lily Was Here (4:18)
+03. The Ventures - Vibrations (2:53)
+04. Mario Cavallero - La Cumparsita (2:32)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B31042B9D4421B70FFADBA128FD2A5B35651C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 191324   (853020) от 11.04.2010
+
+Various - Полонезы И Вальсы Русских Композиторов (1990) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Waltz From The Ballet Raymonda
+02 - Waltz From The Ballet Lady Soubrette
+03 - Waltz From Ballet Suite Op.52
+04 - Waltz Capriccio
+05 - Waltz From The Opera Eugene Onegin
+06 - Polanaise From The Opera Christmas Eve
+07 - Polonaise From The Opera Pan Voyevoda
+08 - Introduction And Polonaise From The Opera Boris Godunov
+09 - Polonaise From Ballet Suite Op. 52
+10 - Polanaise From The Opera Cherevichki(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000891   (852107) от 29.03.2016
+
+John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Work Is Done
+02. Now the Day Is Over
+03. Dream Dance
+04. Goldberg Sleeps(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8BF03158A5037520E18CE51D23A2AC4DB8C0CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110628   (852095) от 03.03.2017
 
 Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, World, Ambient, Hang>
@@ -568,180 +748,6 @@ VA - Somewhere My Love: Romantic Guitar  (1995) [FLAC|Lossless|image + .cue] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07C9DA02FA91367EA57CA98109DC5772C1C569BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378594   (846538) от 25.04.2020
-
-Atom Music Audio - Dystopia (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Dimension [02:31]
-02. Dystopia [02:16]
-03. Portal [02:41]
-04. Blackhole [03:28](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624976A3B62CA56E191E9FF75BA768AD3BA8C110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378596   (846537) от 25.04.2020
-
-Atom Music Audio - Heroes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. United [02:53]
-02. Fly Like a Bird [02:58]
-03. Just a Man in a Suit [02:46]
-04. Not a Hero [02:52](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32EB5F31833D7490478FC89A5ECE28C8CA099E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002407   (846509) от 01.04.2016
-
-VA - Одинокий пастух (2001) 2 альбома, Compilation [FLAC|Lossless|tracks] <Pop, Classic, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.Clayderman - Gemini    03:10
-02. Caravelli ORC. - Flash bach    03:09
-03. G.Zamfir - Ave maria    04:43
-04. Space - Just blue    04:30(   Читать дальше...   )Жанр: Pop, Classic, Instrumental |Продолжительность: 02:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80328B946D38F40F7173F589EA1ECE762BEB695D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110827   (846311) от 06.03.2017
-
-The Legend of Zelda 30th Anniversary Concert (2017) 2CD+DVD, Limited Edition [FLAC|Lossless|image + .cue] <Soundtrack, Symphonic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846311.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD#01
-01. Hyrule Castle (2:29)
-02. Zelda's Theme (3:02)
-03. The Wind Waker Medley (11:23)(   Читать дальше...   )Тип издания: Commercial, Limited EditionПроизводство: NIPPON COLUMBIAЖанр: SymphonicПродолжительность: 02:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9849B0855787EFF2D79A2ACF9F063478B734BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003044   (845099) от 02.04.2016
-
-Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [FLAC|Lossless|tracks + .cue] <Score / Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malaguena - Brian Setzer
-02. Traeme Paz - Patricia Vonne
-03. Eye Patch - Alex Ruiz
-04. Yo Te Quiero - Marcos Loya(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73BBFE8A32773A4A937F8EB80D6871FB8C7ADE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111938   (845052) от 07.03.2017
-
-Bruce Becvar - Floating Home (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Heart [00:04:17]
-02. Unspeakable Love [00:06:44]
-03. Sunshine Mind [00:04:36]
-04. March 5th [00:06:09](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D6DDEDA18C01900885184C9B0CB1EDDB240A3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

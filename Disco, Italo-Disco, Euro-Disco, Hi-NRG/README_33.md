@@ -1,3 +1,61 @@
+###  Публикация: 1329347   (354589) от 04.10.2019
+
+Easy Going - Fear (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Strip You (8:25)
+02. Fear (7:55)
+03. To Simonetti (10:06)
+04. Put Me In The Deal (7:56)Жанр: Electronic, DiscoПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E535DC6A6563246428E74DF578EE6B2BF5F9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329379   (354588) от 04.10.2019
+
+Stratavarious - Stratavarious (1976) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes It Is (4:21)
+02. Let Me Be Your Lady Tonight (9:32)
+03. I Got Your Love (8:10)
+04. Nightfall (8:29)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEAA4A79D0AACC5E9AE8A341DA6283D2A032C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071980   (354538) от 12.11.2016
 
 Paul Parker - Too Much To Dream (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
@@ -684,64 +742,6 @@ Sabrina - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F4A6C9DA0E76B1BB3FE1084D550B5C7699AE268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954666   (339594) от 08.11.2015
-
-Gazebo - Reset (2015) [MP3|~245 кб/с (V0)]<Italo Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evil [03:33]
-02. Reverie [05:37]
-03. M Like huMan [04:29]
-04. Blindness [04:09](   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B60BA42DD80A031A27FF2BE2A5C5B00F2B1924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954677   (339466) от 08.11.2015
-
-Secret Service - Disco Collection (2001) [MP3|320 кб/с]<Synthpop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Susie (03:37)
-02. Cry Softly (Time Is Mourning) (03:31)
-03. Ten O'Clock Postman (03:38)
-04. Let Us Dance Just A Little Bit More (04:25)(   Читать дальше...   )Жанр: Synthpop, DiscoПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2658F0F0542E8C03AC950AEC9B2F533AFF14A836
 ```
 
 https://mybot314.ru/tekegram_catalog/

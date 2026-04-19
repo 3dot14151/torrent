@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1860524   (1061954) от 
+###  Публикация: 1865112   (1065309) от 14.04.2026
+
+VA - Sonic Space, Vol. II (2026) [FLAC|Lossless|WEB-DL|tracks] <Space Music, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angelo Taylor - Ice Planet II (4:06)
+02. Олег Гуртовой и группа Vega - Симфоника (4:13)
+03. LX imaginary band & filipz - Paranormal (3:37)
+04. iNDEX - To Be Alone with the Space (5:11)(   Читать дальше...   )Жанр: Space Music, SynthpopПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86EBCDCA4FD4BD999F3FA7457EF3A5E67FB6471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864957   (1064950) от 12.04.2026
+
+VA - 12.04, Vol. 6 (2026) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олег Гуртовой и группа Vega - Старт в бесконечность (4:04)
+02. Angelo Taylor - Nostromo (4:07)
+03. Heartbeat 145 - All Night (3:50)
+04. Ex-plosion, Fergie & Sadrian - Black Gold (3:08)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, SynthwaveПродолжительность: 01:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D06E4A1AE52F4DBAF84657FAFF45624964E1C29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860524   (1061954) от 21.03.2026
 
 VA - Pure Female Synthwave, Vol 1 (2026) [FLAC|Lossless|WEB-DL|tracks] <Female Vocals Synthwave>
 
@@ -688,64 +746,6 @@ Techni-ka - Contamination (2020) DJ Remix [FLAC|Lossless|WEB-DL|tracks] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A52C98A822DB3EADF94FC41945BDD63EFDD3670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610393   (1042358) от 07.02.2023
-
-Danny Day - The Copper Kid (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave, 80s>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow, Today [00:04:03]
-02. Innocent Way [00:04:27]
-03. Drive [00:04:34]
-04. Stargazer [00:04:55](   Читать дальше...   )Жанр: Retrowave, Synthwave, 80sПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153786D6A412C31F34F0F0B1A7A77A6138F96805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437567   (1042060) от 05.01.2021
-
-ARGH - Night In The City (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Ride (3:57)
-02. Without Me (4:02)
-03. Point Of No Return (3:21)
-04. Absence (3:43)(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A84BB78321195E032C5683267E64A8ADC638C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

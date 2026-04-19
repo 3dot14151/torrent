@@ -1,3 +1,241 @@
+###  Публикация: 1269515   (219577) от 15.12.2018
+
+Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skylar Grey - Everything I Need (Film Version) (03:16)
+02. Rupert Gregson-Williams - Arthur (04:41)
+03. Rupert Gregson-Williams - Kingdom of Atlantis (03:26)
+04. Rupert Gregson-Williams - It Wasn't Meant to Be (03:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07341E9A24B3A72CB0F63BC8C9851B2F46241D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587873   (219534) от 11.12.2012
+
+Two Steps From Hell - Two Steps From Heaven/SkyWorld (2012) /WEB/ [FLAC (tracks)|Lossless]<Trailer Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Is Hell That Ends Well
+02. Titan Dream
+02-1. Titan Dream (No Solo Voice)
+02-2. Titan Dream (No Choir)
+03. Skyworld
+04. El Dorado
+05. The End Is The Beginning
+05-1. The End Is The Beginning (No Choir)
+06. All The Kings Horses
+07. Realm Of Power(   Читать дальше...   )Жанр: Trailer MusicПродолжительность: 02:26:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652021   (219500) от 09.08.2023
+
+Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acoustic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drang
+02. Unruhe
+03. Jagd
+04. Freitanz(   Читать дальше...   )Жанр: Dark Acoustic FolkПродолжительность: 02:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCAD725236867EB21D91CD25D4999DF74069CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514173   (219468) от 02.12.2021
+
+Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse 2CD Box Set (2004) Original Motion Picture Soundtrack [FLAC|Lossless|image + .cue] <Classical, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный саундтрек к фильму Жерара Корбьо "Король танцует" ("Le Roi Danse")01. Te Deum Motet a deux choeurs (02:16)
+02. La Bocanne primitive (01:43)
+03. La Bocanne compliquee (01:06)
+04. Troupe d'Astree dansante (00:46)(   Читать дальше...   )Жанр: Classical, Stage & ScreenПродолжительность: 01:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3969704C73E3E3337C64D94539103E46EA194F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268541   (219420) от 15.12.2018
+
+Danheim - Runagaldr (2018) [MP3|320 Kbps] <Nordic Folk, Dark Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danheim & Sigurbodi - Runatal 6:05
+02. Egilsson 5:49
+03. Feikinstafir 3:55
+04. Fella 3:12(   Читать дальше...   )Жанр: Nordic Folk, Dark FolkПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D17C9A9B3E2402088F84AC1E8B7BECDCECE552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966376   (218822) от 18.12.2015
+
+Tom Barabas - Piano Impressions (1994) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impressions (5:28)
+02. Awakening (8:16)
+03. Circle of Friends (5:40)
+04. Traces of Time (5:44)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:60:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2BAC9C4A76A2A9CBD2FDD84EBC0131B50119C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966680   (218815) от 18.12.2015
+
+Tom Barabas - Magic In December (1991) [FLAC|tracks + cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic In December (4:27)
+02. Silent Night (5:03)
+03. Inner Joy (6:29)
+04. What Child is This (5:03)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5C2485CACA82541991F093475A57DCD5BF75EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966454   (218798) от 18.12.2015
+
+Tom Barabas - It s A New Life (1998) Remaster, 2004, ТМЕ/Правительство Звука [FLAC|image + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. It's A New Life
+ 2. Love Is Here
+ 3. Stacia
+ 4. Rhapsody For Peace(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BAEF2416E7AE10BA09B408DF14B7B8E1FD5482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652015   (218761) от 10.08.2023
 
 Die Schnitter - Saat und Ernte (2000) [FLAC|Lossless|image + .cue] <Folk Punk>
@@ -514,239 +752,6 @@ VA - Christmas Cafe (2016) [FLAC|Lossless|tracks] <Pop, Soul, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9481DE3B44914BD429C5C34819616492352E0170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343528   (216159) от 07.12.2019
-
-Enya - Christmas Secrets (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic, Christmas>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oíche Chiúin (Silent Night)
-02. We Wish You a Merry Christmas
-03. White Is in the Winter Night
-04. Adeste, Fideles(   Читать дальше...   )Жанр: New Age, Celtic, ChristmasПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73A138A92482CB3ABA0520DBA8D7186D6D749A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343285   (216135) от 07.12.2019
-
-Shinnobu - The Enigma VIII (What Once It Was) (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216135.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Only by Love 10:34
-2. Hypnotic Eyes 08:55
-3. Stay with Me 10:14
-4. For Ever and Ever 06:41(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7EBBF650DF9947762DA382DA0579A154D08AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270128   (215888) от 17.12.2018
-
-Opycham - Kudesa (2018) [MP3|320 Kbps] <New Age, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215888.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Кудеса» завершает цикл из 4 альбомов проекта под названием OPYCHAM, который придумал и записал барабанщик тувинской группы Ят-Ха / Yat-Kha Евгений Ткачёв. Название OPYCHAM (читается как «опычам») на самом деле открывает слушателю имя автора, полученное им от тувинских шаманов - Орус Хам, что означает "русский шаман".
-Название альбома так же имеет глубокие (   Читать дальше...   )1. The Road (feat. Bolot Bairyshev)
-2. Meeting (feat. Alena Minulina)
-3. Kudesa
-4. Time of Joy (Spiritual Poetry)Жанр: New Age, FolkПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2796C2E6EB6C28E8A9F39A260DF7F32C3C010B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270080   (215684) от 17.12.2018
-
-Сергей Безруков & группа Крёстный папа - Заповедник (2018) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Соло #1
-02. Твои письма
-03. «А вы Пушкина любите?»/Заповедник
-04. Онегин(   Читать дальше...   )Жанр: OSTПродолжительность: 00:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8C618721ADBDEB6BB607CC1BEF9681F3D3110C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514700   (215556) от 04.12.2021
-
-Peter Kater - How the West Was Lost (2011) 2CD [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Kater, R. Carlos Nakai - How the West Was Lost (Overture)
-02. Peter Kater, R. Carlos Nakai - How the West Was Lost (Seminole)
-03. Peter Kater, R. Carlos Nakai - Themes for the Cherokee
-04. Peter Kater, R. Carlos Nakai - Hand in Hand(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 02:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98C79F0D01C0775FFD8A46CACEFD3F174AD6170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514651   (215359) от 04.12.2021
-
-VA - Гармонь России 1-2 (2005-2006) 2CD [MP3|320 Kbps] <Фольклор, Русские народные песни>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Митрофановна - Никто тебя не любит так, как я (3:19)
-02. Митрофановна - Все татары, кроме я (2:08)
-03. Валентина Гуряшина - Одуванчик (2:23)
-04. Валентина Гуряшина - Ягода-смородина (3:23)(   Читать дальше...   )Жанр: Фольклор, Русские народные песниПродолжительность: 01:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47699D4B16874EB033267D4B2A8DE735DA26BBB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514750   (215325) от 04.12.2021
-
-Blackmore's Night - Nature's Light (2021) 2CD, Mediabook [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215325.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Once Upon December
-2. Four Winds
-3. Feather In The Wind
-4. Darker Shade Of Black(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AB36B46CA504B6DAC1EEF6EB13ECC8B0B5F58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084298   (215217) от 20.12.2016
-
-VA - Бременские Музыканты. По следам Бременских Музыкантов (2001) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бременские музыканты
-
-01. Вступление - 01:01
-02. Песенка друзей - 02:27(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD31F5964FD69DFCFE42B08876B154858B152B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

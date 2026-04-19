@@ -1,3 +1,61 @@
+###  Публикация: 1685964   (126897) от 20.12.2023
+
+VA - The Best Of Hit News (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.J. Bobo - Let The Dream Come True
+02. Activate - Let The Rhythm Take Control
+03. Mo-Do - Eins, Zwei, Polizei
+04. 2 Brothers On The 4th Floor - Never Alone(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9EA26F6DA055DFEE275DF1B9D52B90CDB9F081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685813   (126877) от 20.12.2023
+
+TV Girl - French Exit (2014) Digital Album [MP3|320 Kbps] <Hypnotic Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Pantyhose (02:56)
+02.Birds Dont Sing (03:29)
+03.Louise (03:14)
+04.Hate Yourself (03:34)(   Читать дальше...   )Жанр: Hypnotic PopПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5195E8950A7958002B4FE2AE13A19D34B98A34EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686326   (126587) от 22.12.2023
 
 VA - The Best Of Hit News Vol.2 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
@@ -687,64 +745,6 @@ VA - Bravo Hits 107 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F66A25C1D08313ACB325226BDB4412227B47A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694848   (120653) от 27.01.2024
-
-VA - Bravo Hits 30 (2000) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Funk / Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bon Jovi - It's My Life
-02.  Sonique - It Feels So Good
-03.  Anastacia - I'm Outta Love
-04.  Jennifer Lopez - Let's Get Loud(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Funk / SoulПродолжительность: 02:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FCC9807AA727B3778FFF63375BA4CCB04C1806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696751   (119373) от 04.02.2024
-
-VA - 100 Hits Number 1s (2018) 5 CD [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Britney Spears - ...Baby One More Time
-02.  Justin Timberlake Feat. Timbaland - SexyBack
-03.  Shakira Feat. Wyclef Jean - Hips Don't Lie
-04.  Ricky Martin - Livin' La Vida Loca(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4A9E51B16829FF303719F4D17AAD27AAE157BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

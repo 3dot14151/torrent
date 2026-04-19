@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1862069   (1063058) от 
+###  Публикация: 1865147   (1065408) от 13.04.2026
+
+VA - Chillout Lounge Sensual Moments (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sweetadelic - Sunset Love (03:12)
+ 02.  Azeotrop - Floating In (03:12)
+ 03.  The Sura Quintet - When the Room Gets Warm (03:58)
+ 04.  Premasara Council - Quiet Awakening (05:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:25:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3016465C0ED9F5648379260EB471689980E69CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865305   (1065298) от 14.04.2026
+
+VA - Chillout Music in Bloom (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sweetadelic - Sunset Love (03:12)
+ 02.  The Sura Quintet - When the Room Gets Warm (03:58)
+ 03.  Lichterloh - The Rhythm Of The Sea (03:52)
+ 04.  Sigrun II - Shades of Orange Hue (03:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D87FC487FFEC958155207560151F41EB434998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862069   (1064383) от 28.03.2026
 
 VA - Golden Hour Cafe: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
@@ -7,7 +65,7 @@ VA - Golden Hour Cafe: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064383.jpg" />
 </div>
 
 
@@ -28,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861779   (1062865) от 
+###  Публикация: 1861779   (1062865) от 27.03.2026
 
 VA - The Orient Collective: Sun Rituals (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
@@ -57,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860407   (1061833) от 
+###  Публикация: 1860407   (1061833) от 20.03.2026
 
 VA - The Orient Collective: Roots of the South (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
@@ -86,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859330   (1061099) от 
+###  Публикация: 1859330   (1061099) от 15.03.2026
 
 VA - The Orient Collective: Sand & Smoke (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
@@ -688,64 +746,6 @@ GARRISON (Игорь Савосин) - Sounds and Images (2024) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26248F895433B3E6C965D9038BC0B40390EE14E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850794   (1054690) от 30.01.2026
-
-GARRISON (Игорь Савосин) - Sound Vibrations (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World of Light (4:57)
-02. Stratosphere (3:37)
-03. Valhalla (3:59)
-04. A Journey into the World of Dreams (6:00)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E662AC5021A9CEA96E8139F4B6D573788B1DB3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850789   (1054689) от 30.01.2026
-
-GARRISON (Игорь Савосин) - The Best (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World of Light (4:57)
-02. Ice and Flame (5:38)
-03. Electronic Positive (4:32)
-04. Atmosphere (5:00)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DBD016F72EB70F8AC0408D751855BA45A17209
 ```
 
 https://mybot314.ru/tekegram_catalog/

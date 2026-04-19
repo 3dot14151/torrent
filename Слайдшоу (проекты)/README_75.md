@@ -1,3 +1,56 @@
+###  Публикация: 1249993   (428230) от 26.09.2018
+
+Проекты - VideoHive - 80s Retro Titles VHS Effect - 6563134 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428230.jpg" />
+</div>
+
+
+###  Подробнее
+
+80s Retro Titles VHS Effect - это динамический ретро шаблон, который хорошо подходит для: слайдшоу, трейлера, тизера, динамических презентаций и многое другое.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E3E38001A086818E5A47932449E1E1D8B4148B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324362   (427266) от 08.09.2019
+
+Motion Array - History Slideshow - 282446 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потрясающий шаблон After Effects с элегантным дизайном.
+Прост в использовании, хорошо организован и полностью настраиваемый... Дерзайте!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30450E2D02C39DC5656A5FCBFDF93A2D4677093E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946419   (426816) от 13.10.2015
 
 Проекты - VideoHive - The Videohivers [AEP]
@@ -628,59 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C554995C52064C22A65734CA6B9969A6E7F564C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947287   (419896) от 16.10.2015
-
-Проекты - VideoHive - Glass Slides 3D [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд-шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C8D2939046E5D4E7874D8C8A5683941FA16B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324944   (418665) от 12.09.2019
-
-Motion Array - Colorful Memories - 283079 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон AE с привлекательным дизайном, текстовой анимацией и плавными переходами... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193CB59FF193434E4D53B9A1ABC336317A9287D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

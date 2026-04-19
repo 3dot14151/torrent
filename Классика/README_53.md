@@ -1,3 +1,32 @@
+###  Публикация: 1728332   (54154) от 06.06.2024
+
+VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:37)
+02. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
+03. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryu (4:38)
+04. Sergey Bryukhno - Sonnet in C Major (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEF7036112792DE82F8C0453008E94729E12FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 124481   (53595) от 12.06.2024
 
 Robert Schumann - The Complete Piano Works (13 CD Set) (1989) [APE]<Classical>
@@ -713,35 +742,6 @@ VA - Classical Piano Masters (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DFEB8DC50EF5182C643B6D1871507A7A0ECA9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752915   (41700) от 02.10.2024
-
-VA - The 50 Most Essential Autumn Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alun Francis - The Four Seasons, Violin Concerto No. 3 in F Major, RV 293 Autumn II. Adagio molto (2:36)
-02. Alun Francis - The Four Seasons, Violin Concerto No. 3 in F Major, RV 293 Autumn I. Allegro (5:06)
-03. Alun Francis - The Four Seasons, Violin Concerto No. 3 in F Major, RV 293 Autumn III. Allegro (3:14)
-04. David Parry - Pavane, Op. 50 (5:07)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2C445A8093D5FF46417E474E505E1C96CE18AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

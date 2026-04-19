@@ -1,3 +1,231 @@
+###  Публикация: 1657194   (192137) от 05.09.2023
+
+Hans Zimmer, Lebo M, Elton John - Король Лев / The Lion King (2017-2019) Walt Disney Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный сборник содержит в себе два музыкальных альбома с музыкой из мультфильма Король лев: версия ремейка The Lion King 2019 года, а так же Score сборник The Lion King Legacy Collection. Данные альбомы были выпущены в частичном HD (Hi-Res) формате 24bit/44,1khz на онлайн цифровых площадках.Жанр: Soundtrack, scoreПродолжительность: 03:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C71CCD83D0F5C23B0777A11F91DC21361D200C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657652   (192009) от 05.09.2023
+
+VA - Nature's Magic The Voyage of the Whale (1996) [FLAC|Lossless|image + .cue] <Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cavatina
+02. In Too Deep
+03. Theme From Love Story
+04. Hymne(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06002A6E98EA672B1706D40316D0C20BCF84E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586489   (191601) от 04.11.2022
+
+The Monks of Sherab Ling Monastery - Sacred Tibetan Chant (2003) [FLAC|Lossless|tracks + .cue] <Non-Music, Mantras, Tibetan Buddhism>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mahamudra Lineage Prayer & Meditation
+02. Mahakala Puja (Yeshe Gonpo) - Invocation and Offering to Mahakala
+03. Mahakala Puja (Yeshe Gonpo) - Receiving Blessings and Dedicating the Merit to World Peace and HarmonyЖанр: ReligiousПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614CDD87C2DFF684A7E996135C0129F015CC9EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657967   (191532) от 07.09.2023
+
+Anuvida & Nik Tyndall - 3CD (1995-2005) [FLAC|Lossless|tracks +.cue] <New Age, Meditative, Reiki>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred Mountains
+02. Wonderous Secrets
+03. A Dream in the Sky
+04. Healing Essence(   Читать дальше...   )Жанр: New Age, Meditative, ReikiПродолжительность: 02:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F21BECA983230409AA300718D9144176120E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657611   (191432) от 07.09.2023
+
+VA - Atomic Heart, Vol. 3 (Original Game Soundtrack) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191432.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Particles/кошечка/Atomic Heart - Prekrasnoe Dalyoko
+2. ScaryON/BassnPanda/Atomic Heart - BEA-D Theme
+3. Geoffplaysguitar/Atomic Heart - Colossus BEA-D
+4. ScaryON/BassnPanda/Atomic Heart - Electronica IM02(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116DDB3353491E7E849328DCDBDF8E39DACCAAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588642   (191063) от 06.11.2022
+
+VA - Knockin' on Heaven's Door (1997) [FLAC|Lossless|image + .cue] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gedanken Ьber Das Meer (0:45)
+02. Knockin' on Heaven's Door (4:02)
+03. Love And Rockets (3:24)
+04. Silver Whale (Single Version) (3:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43F4DF302B64818B4141733306852335C9B1785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588749   (191061) от 06.11.2022
+
+VA - Ambient for Relaxation & Meditation Vol. 2 (2022) [MP3|320 Kbps] < Meditation, Relaxing, Spa Music, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skifi - Rainbow Catchers
+02. Yu Nothing - Gathering on the Island  (Day Dream Mix by Masa)
+03. Inerflaya - Osti Reisen
+04. Chris Hauer - Sweet Sun(   Читать дальше...   )Жанр: Meditation, Relaxing, Spa Music, New AgeПродолжительность: 03:45:26 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85235082E5D274F0ED26F89021D386E9EC64EACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588100   (191048) от 06.11.2022
+
+James Last - Ocean Drive (Easy Living) (2001) [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crocketts Theme
+02. Ocean Drive
+03. Wo die Sonne scheint
+04. Orange Blossom Special(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3172019C98896181DCB48F576BED5D1A4CC76596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658550   (190893) от 09.09.2023
 
 Крематорий - Грезы скотного двора (Barnyard Dreams, ballet) (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
@@ -513,238 +741,6 @@ John S. Weekley - Dread Templar (Original Game Soundtrack) (2023) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00182F68AB71EC7C5D988B2946E9A49059484C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592237   (184275) от 21.11.2022
-
-V.A. - Yoga Music Session, Vol. 4:  Relaxation & Meditation (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour – Calm Before the Storm
-02. Sami Sivananda – Tao Tunes (Original Mix)
-03. La Estación Del Mar – Bajo Un Sombrero De Paja
-04. Filalete – Sakura(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8C570DFA2E0B66904996BE82F74A0B9A2DA407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664944   (182996) от 29.09.2023
-
-Richard Clayderman - When a Man Loves a Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Lounge>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Always Love You (4:09)
-02. When A Man Loves A Woman (2:56)
-03. Goodnight Girl (3:31)
-04. Streets of Philadelphia (3:29)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, LoungeПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D092CD1ABE8B939A554D4FB14AE4240351BF78D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427804   (181460) от 30.11.2020
-
-North Americans - Roped In (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memory of Lunch
-02. Rivers That You Cannot See
-03. Furniture In The Valley
-04. American Dipper(   Читать дальше...   )Жанр: FolkПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E2F253288A8E5BE31BE03AACBC368BB8A4B3C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592648   (181024) от 26.11.2022
-
-Bjarla - Bifröst (Bifrost) (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient folk, Pagan folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Arrows [00:03:17]
-02. Óðinn feat. Fuimadane [00:04:12]
-03. Sjaund [00:06:13]
-04. Medieval [00:03:49](   Читать дальше...   )Жанр: Ambient folk, Pagan folkПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F893F08FAD8373DFFB327C800C2620F1FFBCD671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 808001   (180650) от 26.11.2022
-
-Daft Punk - Трон: Наследие / TRON: Legacy (Original Motion Picture Score) (Recording Sessions) (2010) [FLAC|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legacy Open (1:40)
-02. Bedtime Story (1:33)
-03. Creation of Tron (by Jeff Bridges) (0:05)
-04. News Report (1:42)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603149A2D82FF324BC65320C6BE2B8E90EC8F133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665612   (180169) от 03.10.2023
-
-VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EASTERN WIZARD - The Mystic Lady (Mikhail Catan Remix) (6:56)
-02. Michael Simon - Umami (6:45)
-03. Michael Simon - Canzul (6:28)
-04. Mikhail Catan - Solace (OneRec Remix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638D67D18CE40A7F2589E0DDCE17300908839C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666184   (180151) от 03.10.2023
-
-VA - The Orient Collective: Vimana (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hansonic - Streets of Khartoum (6:40)
-02. Ibrahim Babayev - Summer Memories (4:32)
-03. DaDa Sound Project - Obuada (6:55)
-04. 2 Sides Of Soul - Oriental Coffee (7:42)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF685A32DF8AA8E5105DCABEFB069D79EE72DC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666235   (180112) от 03.10.2023
-
-VA - The Orient Collective: Ethereal Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FIN Project - Vision (JosSync Remix) (6:15)
-02. Ali Termos - Qartaba (5:38)
-03. Tamer ElDerini - Fagr (5:42)
-04. Kakura - Savannah (7:25)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCD4FB9AC4E8D48B4ACA98A7AD6C4A6766E99FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

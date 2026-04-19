@@ -1,74 +1,18 @@
-###  Публикация: 821341   (490241) от 13.09.2014
+###  Публикация: 1404348   (494709) от 24.08.2020
 
-VideoHive - Picture Slideshow [AEP]
+Winstep Xtreme 19.2 [Multi/Ru]
 
->>Проекты
->>Слайдшоу (проекты)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_494709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отличная анимация для показа фотографий или видео. Подходит к свадьбам, юбилеям, семейному отдыху и другим воспоминаниям.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD62FAD3489A7CE7CF390D6478561DA35EB7C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821331   (490236) от 13.09.2014
-
-Конн Иггульден | Империя серебра (2014) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертый роман цикла «Чингисхан».
-Уже три года как умер Чингисхан, но наследие его живо. Ханское знамя приял в свои руки сын великого завоевателя Угэдэй. В знак своего могущества он выстроил белый город Каракорум – столицу новой империи. Огромное серебряное древо – символ процветания и мощи — установил Угэдэй у входа в свой дворец. Но непривычно его лихим воинам (   Читать дальше...   )Жанр: Историческая прозаПеревод: А. ШабринФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586B9ADA2AF129458072BB86189209EA83640BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243454   (490232) от 28.08.2018
-
-Skeets Tolbert - 1931 - 1940 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wabash Blues [3:30]
-02. Everybody Loves My Baby [2:51]
-03. Skin 'Em Back [2:44]
-04. Get Up [2:52](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 00:58:37
+Winstep Xtreme - это универсальная программа, которая поможет вам кардинально изменить внешний вид рабочего стола операционной системы Windows. Кроме изменения внешнего вида, Winstep Xtreme добавляют новые функциональные возможности окнам приложений. Winstep Xtreme содержит в себе четыре утилиты: WorkShelf, NextSTART, NeXuS и FontBrowser. К примеру модуль NextSTART (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -80,79 +24,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243479   (490231) от 28.08.2018
+###  Публикация: 1404271   (494708) от 24.08.2020
 
-MarsEdit 4.1.3 [En]
+Роман Круглов | Рисунок карандашом 2.0 (2020) HDTVRip
 
->>Архив торрентов
->>Архив 4Apple
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_494708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 25.08.2018Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D548446F0C24175F67174AADB22922376DDA150C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243658   (490230) от 28.08.2018
-
-VA - Suanda Spring Vol.5 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Christina Novelli - Fireflies (Original Mix)
-02. Feel & Ruslan Radriges - Revival (Extended Mix)
-03. Mivase - Hypnotised (Extended Mix)
-04. Ahmed Helmy & Mhammed El Alami - Helena (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E7CAD4AA3A34A000858BF61EC6579D77328FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243577   (490229) от 28.08.2018
-
-Disincarnate - Dreams of the Carrion Kind (1993) [FLAC|Lossless|image + .cue] reissue 2006 <Death Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Profundus
-02. Stench Of Paradise Burning
-03. In Sufferance
-04. Beyond The Flesh(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:02:36
+Большой курс по академическому рисунку, разработанный на базе программ ведущих художественных ВУЗов России: теория и практика. Освойте азбуку любого художника - академический рисунок карандашом.Жанр: РисованиеПродолжительность: 22:48:15
 
 ## Скачать торент
 ```bash
@@ -164,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243600   (490228) от 28.08.2018
+###  Публикация: 1404201   (494707) от 24.08.2020
 
-VA - RU.Electronic Two (2003) Lo Recordings [FLAC|Lossless|tracks+.cue] <Leftfield, IDM, Experimental, Ambient>
+Сборник - Вспоминая СССР. Любимые песни 4 (1980-1989) MP3 от DON Music, 2020 [MP3|320 Kbps] <Ретро>
 
->>Архив торрентов
->>Архив Музыки
+>>След.
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lonyx - Evening (04:06)
- 02. Alexandroid - 000 BlueSky (05:45)
- 03. SCSI-9 - Alectra (08:01)
- 04. PCP - River (08:29)(   Читать дальше...   )Жанр: Leftfield, IDM, Experimental, AmbientПродолжительность: 01:11:48
+001. Машина времени - Поворот (1980)
+002. Алла Пугачева - Звездное лето (1980)
+003. Тынис Мяги - Олимпиада-80 (1980)
+004. Верасы - Белый парус (1980)(   Читать дальше...   )Жанр: РетроПродолжительность: 56:35:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A933DA34B9D9AEE8054BF4E716E575C29AD4EFC1
+magnet:?xt=urn:btih:BAB3DED570B79D540F3B83C9233463C6CA7E69F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,28 +79,114 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243643   (490227) от 28.08.2018
+###  Публикация: 1404239   (494706) от 24.08.2020
 
-VA - Big Room Sessions, Vol. 3 (2018) [MP3|320 Kbps] <Club, Funky, Progressive, Groove, Tribal>
+OkayFreedom VPN Premium 1.8.8.12566 (Акция COMSS - на 1 год бесплатно) [Multi]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не можете попасть на любимый интернет-ресурс или воспроизвести нужное онлайн-видео? С помощью VPN-службы OkayFreedom вы можете посетить веб-сайт с ограничением посещения по странам. OkayFreedom VPN также позволяет не оставлять следов в Интернете.
+
+OkayFreedom VPN распознает, является ли содержание веб-ресурса, видео или целый интернет-сайт ограниченным в вашей стране (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E17E5298E85D1315066841C6A0C65C1EE8C170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318565   (494705) от 06.08.2019
+
+Elliott Smith - XO (1998) 50th Birthday Deluxe Edition, 2019, UMG Recordings [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_494705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Adeline (03:15)
+02. Tomorrow Tomorrow (03:07)
+03. Waltz #2 (XO) (04:39)
+04. Baby Britain (03:13)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318411   (494704) от 06.08.2019
+
+VA - The Juice R&B (2019) [MP3|320 Kbps] <RnB, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494704.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Usher - Birthday
+002. Dosii - Half Clear
+003. High Høøps - Dreaming
+004. Kayla Ashlee - Ain't Gotta Worry(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 09:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D82C16CD13F2D9ACFC61292CD795382B212FF1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318491   (494703) от 06.08.2019
+
+Berlin - Transcendance (2019) [MP3|320 Kbps] <Pop, Electronic>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Disfunktion - Wokkasaki (Rocking J Remix)
-02. Peter Brown, Ann Bailey - Let Me Go (Instrumental Mix)
-03. Reza, Nicole Tyler - Take Me Home (Original Mix)
-04. Jay Ronko, Josh Newson - Push (Original Mix)(   Читать дальше...   )Жанр: Club, Funky, Progressive, Groove, TribalПродолжительность: 05:28:50
+01. I Want You [3:39]
+ 02. Show Me Tonight [3:02]
+ 03. Transcendance [3:37]
+ 04. Lust [3:06](   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7702707C06532B91CCC4B7DE99835F8C8F864100
+magnet:?xt=urn:btih:2535A88822287BD252AE7406D4329129D19C8E3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,28 +194,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243608   (490226) от 28.08.2018
+###  Публикация: 1318485   (494702) от 06.08.2019
 
-VA - Trance Revolution 8 (2018) [MP3|320 Kbps] <Trance>
+Е. Некрасова | Популярная грамматика английского языка (1999) [PDF]
 
->>Electronic
->>Trance
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Arcania - This Means War (Radio Edit)
-02. Brent Rix - Hyper Drive (Radio Edit)
-03. Sven E - Horizons (Radio Edit)
-04. Skysound - Project X (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:19
+В книге даются простые и четкие объяснения, представлены основные и самые частотные явления современного английского языка, отражены как британский, так и американский варианты английского языка, соединяются российская и западная грамматические традиции, даются ответы на вопросы, возникающие, именно у русскоязычной аудитории. Эта книга в максимально доступной форме (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0657F88E77FE13FD30BED8412BEB00124DAA1A16
+magnet:?xt=urn:btih:AEE3C158F123971C603F8812A63E50AB368C6EDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,28 +220,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243609   (490225) от 28.08.2018
+###  Публикация: 1318465   (494701) от 06.08.2019
 
-VA - Trance Anthems 7 (2018) [MP3|320 Kbps] <Trance>
+Chromium 76.0.3809.87 + Portable [Multi/Ru]
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494701.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Delta - Back In My Life (DJ Osip Radio Edit)
-02. Brent Rix - Solar Flare (Radio Edit)
-03. Martin Soundriver & Skysound - Project X (Radio Edit)
-04. Arcania - This Means War (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:54
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92D1073AB98FE2B513451F4F263B0B469AEAA640
+magnet:?xt=urn:btih:D4359640FB9CC78E2C9CBDE0CB996BFBA9C11A44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,28 +246,134 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243450   (490224) от 28.08.2018
+###  Публикация: 1318501   (494700) от 06.08.2019
 
-VA - Dystopia: Minimal Techno Mix (2018) [MP3|320 Kbps] <Techno>
+YouTube By Click Premium 2.2.109 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494700.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube By Click - отличный и удобный в использовании загрузчик видео роликов из популярнейшего портала YouTube. Кроме этого хостингового ресурса, поддерживается также скачивание файлов из Facebook, Vimeo, Dailymotion и других сайтов. Разработчики постарались сделать это приложение максимально комфортным в работе. Для того, чтобы скачать интересующий Вас ролик, нужно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670B361DE156CCC616503216F74BD8DB9C4A42C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318400   (494699) от 06.08.2019
+
+Вальтер Моэрс | Мастер ужасок (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самостоятельный роман из цикла «Цамония» (Замония)
+
+В Следвайе, самом нездоровом городе Цамонии, высокоодаренный царапка (очень умный говорящий цамонийский кот) по имени Эхо после смерти своей хозяйки попадает в невероятно затруднительные ситуации. Он вынужден заключить роковой контракт с мастером ужасок и темным магом Суккубиусом Айспином. Контракт дает Айспину (   Читать дальше...   )Жанр: Фэнтези, Городское фэнтези, Любовное фэнтези, Юмористическая фантастикаПеревод: Татьяна СадовниковаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FAD66820675F68A67C921EB7D8CD7BC38A9866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318388   (494698) от 06.08.2019
+
+А.В. Путкова | 1500 необходимых французских слов (2012) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494698.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге даны 1500 наиболее употребительных слов, которыми вы можете воспользоваться во время зарубежной поездки. Словарь будет хорошим дополнением к вашему русско-французскому разговорнику. Издание предназначено для тех, кто изучает французский язык.Жанр: СловарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4482472494CC5DB416CC7BEEBF02785EF8523758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318444   (494697) от 06.08.2019
+
+MediBang Paint Pro 24.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_494697.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediBang Paint Pro - удобная программа для редактирования изображений и цифрового рисования. Это почти полный аналог известного редактора FireAlpaca, но обладающий расширенным функционалом и возможностью использования облачного сервиса.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318463   (494696) от 06.08.2019
+
+VA - Лучшие Trance треки Ver.6 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dominik Schwarz - Destruction (Original Mix)
-002. Endymion & MYST - Waiting For Treason
-003. Christian Tibor - Klimaton
-004. Emanton - Sacred B (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:54:44
+01. Cold Blue - Another Life (Original Mix) 7:31
+02. Maria Healy - Bay Breeze (Extended Mix) 6:41
+03. Fast Distance - Divine (Extended Mix) 5:13
+04. Ferry Tayle feat. Betsie Larkin - Live For Tomorrow (Extended Mix) 8:42(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 05:34:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B7CA876E6B309358444756B101B905D879F9899
+magnet:?xt=urn:btih:6C925D345F22D31A09F94E703D9C0CAACE42F156
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,28 +381,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243701   (490223) от 28.08.2018
+###  Публикация: 1318393   (494695) от 06.08.2019
 
-Deepest Blue - 7 Releases (2003-2008) [FLAC|Lossless|image + .cue] <House, Trance, Electro, Downtempo>
+Александра Никифорова (сост.) | Святой Стилиан. Молитвы о детях (2013) [PDF, DJVU]
 
->>
->>
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deepest Blue (Radio Edit) (3:28)
-02. Deepest Blue (Original) (7:35)
-03. Deepest Blue (E.Boutique Dub) (8:10)
-04. Deepest Blue (E.Boutique Vox) (8:41)(   Читать дальше...   )Жанр: House, Trance, Electro, DowntempoПродолжительность: 03:24:39
+«Однажды я проходил мимо церкви святого Стилиана в восточной части Афин. Это было в день памяти святого Стилиана. С удивлением я заметил, как, несмотря на сильный холод, туда стекались сотни родителей с маленькими детьми из близлежащих и отдалённых районов Афин. Я поинтересовался, почему так много детей. Мне ответили: “Святой Стилиан — покровитель детей. Такую благодать (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:70161A2AF24F0E716494A0992F3F4638B29563BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,26 +407,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243563   (490222) от 28.08.2018
+###  Публикация: 1318439   (494694) от 06.08.2019
 
-Contact Lost & Turrican - End Of Days / End Of Days (Synkro Remix) (2018) Eternia Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Techno>
+Дуглас Коупленд | Рабы Microsoft (2019) [MP3]
 
->>
->>
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. End Of Days (06:07)
-02. End Of Days (Synkro Remix) (06:42)Жанр: Ambient, IDM, TechnoПродолжительность: 00:12:49
+"""Компьютерные"" мальчики и девочки. Зануды-""яппи"", внезапно решившие покинуть безопасность ""родной корпорации"" и стать свободными.
+Но... что такое свобода?
+Есть ли она вообще?
+Есть ли она для ""рабов ""Майкрософта""?(   Читать дальше...   )Жанр: Современная прозаПродолжительность: 13:37:40
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1D4EDF5F8CC55D09FA81CE7AB5EF1072D797A61B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,28 +436,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243597   (490221) от 28.08.2018
+###  Публикация: 1318482   (494693) от 06.08.2019
 
-Eguana - A Decennary Of Eguana (2018) Plexus Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psybient, Downtempo>
+VA - Лучшие Trance треки Ver.8 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
 
->>Архив торрентов
->>Архив Музыки
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In The Sky (08:32)
-02. When We Have Met (05:00)
-03. Slides Of Recollections (03:14)
-04. The Elbowrooms of Cosmos (09:16)(   Читать дальше...   )Жанр: Ambient, Psybient, DowntempoПродолжительность: 01:35:50
+01. Mike Saint-Jules - Parachuting (Vast Vision Remix) 7:23
+02. Jericho Frequency feat. Jennifer Rene - Holy Ground (Extended Mix) 8:20
+03. Talla 2XLC - Sensei (Original Mix) 6:00
+04. Chris SX - Fallin Under (Extended Mix) 8:21(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 05:33:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FD8924BA90BAE56EB071F99AE99933F9E922102
+magnet:?xt=urn:btih:45F3D78A25296BB45B5FE80E70B5B02055F6DF65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,28 +465,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243567   (490220) от 28.08.2018
+###  Публикация: 1318467   (494692) от 06.08.2019
 
-Chad Elliott & The Redemptions - Rest Heavy (2018) [MP3|320 Kbps] <Blues>
+VA - Лучшие Trance треки Ver.7 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
 
->>
->>
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rest Heavy (03:12)
-02. Shy of Shameless (05:23)
-03. Hills of Tennessee (03:29)
-04. Shining Stars (04:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:30
+01. A.R.D.I. - Lost In The Dark (Extended Mix) 7:15
+02. Jody 6 - Coming Down (Extended Mix) 5:39
+03. Jak Aggas - The New World (Extended Mix) 6:39
+04. Aly & Fila - It's All About The Melody (Extended Mix) 8:59(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 04:45:30
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4E195DD6533ECD1603F86BF65E0559A18E67A8FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,248 +494,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243674   (490219) от 28.08.2018
+###  Публикация: 1318425   (494691) от 06.08.2019
 
-FileZilla 3.36.0 + Portable [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490219.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileZilla — это свободный многоязычный FTP-клиент с открытым исходным кодом для Microsoft Windows, Mac OS X и Linux. Он поддерживает FTP, SFTP, и FTPS (FTP через SSL/TLS) и имеет настраиваемый интерфейс с поддержкой смены тем оформления. Оснащен возможностью перетаскивания объектов, синхронизацией директории и поиском на удаленном сервере. Поддерживает многопоточную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243629   (490218) от 28.08.2018
-
-Jono - 4 Albums (2006-2017) [FLAC|Lossless|image + .cue] <Progressive Rock, Crossover Prog, Melodic Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа JONO состоит из пяти шведских музыкантов, живущих на острове Готланд. JONO фактически начал в качестве сольного проекта вокалиста Йохана Norrby (отсюда название JОNО - JОhan NОrrby). Запись была сделана и выпущена в 2006 году, с участием некоторых членов группы из настоящего состава. Все участники JONO с большим опытом работы в других знаменитых коллективах. (   Читать дальше...   )Список альбомов:
-2006 | JoNo
-2013 | Requiem
-2015 | Silence(   Читать дальше...   )Жанр: Progressive Rock, Crossover Prog, Melodic Rock |Продолжительность: 03:00:30 |
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243632   (490217) от 28.08.2018
-
-Trans Atlantic Crush - Remember | Sea of Dreams (2011, 2018) [MP3|320 Kbps] <Synth-pop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember (4:15)
-02. Waiting On A Girl (4:23)
-03. Try (3:39)
-04. You Want A Friend (3:27)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243621   (490216) от 28.08.2018
-
-VA - Paradise Lounge V. 5 - 60 Fantastic Summer Tunes (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganga, Nikolaj Grandjean - Carry You Home 4:44
-02. Gábor Deutsch, N'dea Davenport - Love With Desire 3:44
-03. Channel Two, Joy Jones - S'posed To Be (Deja-Move's Handsome Remix) 3:20
-04. Chris Le Blanc, Liz June - Enjoy Your Life 4:12(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:54:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243602   (490215) от 28.08.2018
-
-Святитель Симеон Солунский | Толкование на Символ веры (2017) [FB2, PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Символ веры всем нам хорошо знаком хотя бы потому, что мы постоянно слышим его пение в храме во время каждой литургии. Он нам привычен, и мы порой не задумываясь поём его вместе со всеми. Однако Символ веры — это прежде всего древний богословский текст, в котором содержатся все догматы и раскрывается сущность христианской веры и упования. Поэтому так важно понимать (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055029   (490214) от 21.09.2016
-
-СМЕТАНА band - В основном о женщинах (2016) [MP3|320 Kbps] <Comedy Rock, Alt. Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490214.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Молодая мамочка
-2. Когда моя девушка курит
-3. Не бери трубку
-4. Клей и воровство(   Читать дальше...   )Жанр: Comedy Rock, Alt. RockПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054021   (490213) от 21.09.2016
-
-Р. Декарт | Правила для руководства ума (1936) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490213.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Правила для руководства ума» — одно из самых ранних произведений Декарта, в котором он дал первый очерк своей рационалистической теории познания. В особенности отчетливо Декарт развил в «Правилах» свое учение об интуиции, дедукции и индукции. «Правила» являются весьма важным материалом при изучении философии Декарта.Жанр: История, философия, науковедениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF0BDCACD697A5C65824089157A2D2A00CCCA26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055049   (490212) от 21.09.2016
-
-Журнал | Автомир. Тест-драйв №20 (сентябрь 2016) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490212.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тест-Драйв» — это современный журнал большого формата, с новым взглядом на автомобильную тему. Главное преимущество издания — большое количество тестов, а также гаджеты, светская хроника, путешествия, интервью и многое другое.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1907EF92F33377E95FE6CCE9F7826E32BF806ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055026   (490211) от 21.09.2016
-
-Йорш - Держитесь (2016) [MP3|320 Kbps] <Punk Rock, Alternative>
+Workout Music Tv - 40 Ultimate High Octane Tracks to Motivate the Lazy (2018) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Музыка сильных
-02. Гражданин Мира
-03. Граффити
-04. Насилие(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 00:42:03
+1.Iron Heart (3:19)
+2.Step by Step (3:15)
+3.Rock Your Jock (3:06)
+4.Tears of Sweat (5:38)(   Читать дальше...   )Жанр: RockПродолжительность: 02:24:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FD8A26D54CA53B602C8CB928E30A2C1E01D8944
+magnet:?xt=urn:btih:52BF7F9CC1389FF8639DEAFD02BE2BCDD174E907
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,25 +523,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054968   (490210) от 21.09.2016
+###  Публикация: 1318553   (494690) от 06.08.2019
 
-Вениамин Колыхалов | Пурга (2016) [FB2]
+Обои - Desktop Wallpapers Full HD. Part (488) [JPG]
 
->>Художественная литература
->>Историческая проза, Мифы и Легенды, Фольклор
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Есть на Оби небольшое сельцо под названием Нарым. Когда-то, в самом конце XVI века, Нарымский острог был одним из первых форпостов русских поселенцев в Сибири. Но быстро потерял свое значение и с XIX века стал местом политической ссылки. Урманы да болота окружают село. Трудна и сурова здесь жизнь. А уж в лихую годину, когда грянула Великая Отечественная война, стало (   Читать дальше...   )Жанр: Книги о войне, Великая Отечественная войнаФормат: FB2
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C86CB04DFECE58A629DA579D87AE0B2981270790
+magnet:?xt=urn:btih:CA1D26B4AB89BC6607C5FB1B32DCA3ADEB2ECAE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,28 +549,162 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054710   (490209) от 21.09.2016
+###  Публикация: 1318443   (494689) от 06.08.2019
 
-Фанки - 3 альбома (2000-2005) [WavPack|Lossless|image + .cue] <Pop>
+Acme CAD Converter 2019 8.9.8.1500 RePack (& Portable) by TryRooM [Multi/Ru]
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Только тебе
-02 - Игрушка
-03 - Птицы
-04 - Планета(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:40
+Acme CAD Converter — новая версия популярной и достаточно востребованной программы, которая позволят просмотреть файлы в формате DXF, DWF, DWG и конвертировать их в BMP, WMF, GIF, JPEG, PCX, TIFF, PNG, TGA, DXF, DWG, SVG, SVGZ, CGM, EPS, PDF, HPGL( PLT, HGL) и многие другие форматы, а также позволяет конвертировать версии DXF и DWG файлов ( R2.5-R2013). Преимущества (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:588DB0985CC6243093E553AFCCC4445E469DB690
+magnet:?xt=urn:btih:346B0EE6105836FE1F24FD64CB0AEB67051A7977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318358   (494688) от 06.08.2019
+
+Роберт Хендриксон | Хитрее человека. Исчерпывающая история крысы и человеческая цивилизация (2004) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494688.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге американского автора рассказывается о роли крыс в человеческой истории — о нашествиях этих животных, чумных эпидемиях и влиянии этих событий на экономику и культуру, а также об особенностях биологии крыс и их поразительной приспособленности к сосуществованию с человеком.
+Книга написана живым, доступным языком.Жанр: Биология, биофизика, биохимия , Научная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63646E7207F735756756A475BD502434E24366A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318555   (494687) от 06.08.2019
+
+Обои - Desktop Wallpapers Full HD. Part (489) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF2CCFD886C64A3441E194D077B8E77DA074CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318487   (494686) от 06.08.2019
+
+Л.А. Соколова и др. | Грамматические трудности перевода с английского языка на русский (2008) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494686.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассмотрены грамматические явления, представляющие трудности при переводе, и приведены предложения для практического перевода, заимствованные из британской и американской прессы, кинофильмов, радиопередач Би-Би-Си и "Голоса Америки".Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6521F028C9595A8283A8B3F1C723248800C0B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052689   (494685) от 19.09.2016
+
+Хоккей. КХЛ 2016-2017. Нефтехимик - Локомотив (14.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_494685.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 сентября 2016, среда. 19:30 МСК
+
+Стадион: Нефтехим-Арена (Нижнекамск, Россия) , вместимость: 6000
+Главный судья: Рафаэль Кадыров (Уфа, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Олег Власов, Кирилл Корнилов)Продолжительность: 02:11:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052346   (494684) от 19.09.2016
+
+Хоккей. КХЛ 2016-2017. Сибирь - Югра (11.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494684.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 сентября 2016, воскресенье. 13:30 МСК
+
+Стадион: Сибирь (Новосибирск, Россия) , 7 400 зрителей (100 % при вместимости 7 400)
+Главный судья: Сергей Беляев (Воскресенск, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Мосалёв, Фомичёв)Продолжительность: 02:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0E628CEA9C6CE507A3F4A02BC07CC27CC26C04
 ```
 
 https://mybot314.ru/tekegram_catalog/

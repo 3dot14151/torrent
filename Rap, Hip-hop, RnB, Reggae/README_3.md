@@ -1,3 +1,32 @@
+###  Публикация: 1467883   (1017562) от 05.05.2021
+
+Snoop Dogg - From Tha Streets 2 Tha Suites (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CEO (3:25)
+02. Roaches In My Ashtray (feat. ProHoeZak) (3:32)
+03. Gang Signs (feat. Mozzy) (4:54)
+04. Talk Dat Shit To Me (feat. Kokane) (3:29)(   Читать дальше...   )Производство: Doggy Style RecordsЖанр: Hip-HopПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2074FD7D8168A47B2C42511227A890660BB27519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467913   (1017413) от 06.05.2021
 
 Ka - Descendants of Cain (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract Hop>
@@ -714,35 +743,6 @@ VA - Black Tracks (2000) [FLAC|Lossless|tracks + .cue] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:185A5E6309553A9E0E01FD82D69B6591BC4D51EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978063   (964458) от 22.01.2016
-
-VA - Старая пластинка: Ритм-н-Блюз (2013) [MP3|256 кб/с] <R'n'B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent George (unknown) Myra Johnson
-02. So Good To My Baby (Kirkland/McCoy) Big Maybelle
-03. Wild Wild Young Men (Ahmet Ertegun) Ruth Brown
-04. Hey Little Boy (Albinia Jones) Albinia Jones(   Читать дальше...   )Жанр: R'n'BПродолжительность: 02:22:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6319AA1736F01AF66E56317A2B46800CCC353C89
 ```
 
 https://mybot314.ru/tekegram_catalog/

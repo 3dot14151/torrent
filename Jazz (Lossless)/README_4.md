@@ -1,3 +1,32 @@
+###  Публикация: 1438088   (1041496) от 07.01.2021
+
+VA - Jazz On Broadway: The Greatest Musicals (1956 - 1962) 10CD, 2019, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041496.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - Miles Davis-Porgy And Bess:
+01. Miles Davis - Buzzard Song [4:09]
+02. Miles Davis - Bess, You Is My Woman Now [5:13]
+03. Miles Davis - Gone [3:40](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, CoolПродолжительность: 11:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27E4B145A49BE31D38CDD1883377BABAD23560F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611426   (1041423) от 11.02.2023
 
 Konstantin Klashtorni - Kool&Klean (Volume X) (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
@@ -715,35 +744,6 @@ Bobby Watson - Advance (1984) 1997, Enja [FLAC|Lossless|tracks + .cue] <Hard Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D54D0D255E2165991E8586B86DD2963F3EA9AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440419   (1038855) от 17.01.2021
-
-Nat King Cole - Just One Of Those Things (1957) 2011, Analogue Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Your Lover Has Gone (stereo) [2:32]
-02. A Cottage for Sale (stereo) [2:59]
-03. Who's Sorry Now? (stereo) [2:59]
-04. Once in a While (stereo) [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADDB8B211C330F2B4286DB3854D4FCF8BB357890
 ```
 
 https://mybot314.ru/tekegram_catalog/

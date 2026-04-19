@@ -1,3 +1,29 @@
+###  Публикация: 1567554   (472381) от 03.08.2022
+
+Private Contact 3.6.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Private Contact - это приложение для управления на Mac зашифрованной адресной книгой, чтобы ваши контакты были действительно конфиденциальными.Тип издания: macOS SoftwareРелиз состоялся: 02.08.2021Разработчик: Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AF4FF66872D27A45A6DDD9CC056E727971D529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567521   (472363) от 03.08.2022
 
 Eon Timer 2.9.1 U2B [Multi/Ru]
@@ -664,35 +690,6 @@ Monity - продвинутая система мониторинга - видж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1C99FB376B600E20CAB34FCD40BA376943FE716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162420   (459067) от 01.09.2017
-
-Video Uploader for YouTube 3.0.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря функции расширения Share Apple, Video Uploader позволяет напрямую загружать видео с Photos, Finder и Desktop на YouTube.
-
-Вы просто нажимаете кнопку мыши, прежде чем делиться любимыми видео на YouTube.
-Перетащите столько видео, сколько захотите, и Video Uploader для YouTube загрузит все для вас.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.08.2017Разработчик: CodeCraft Technologies Private LimitedПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAC62EAE8A13A2D303D86C301B0803C11AA61B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,710 +1,22 @@
-###  Публикация: 1033121   (641564) от 09.07.2016
+###  Публикация: 906260   (645525) от 08.06.2015
 
-КВН-2016. Премьер лига. Игра 1 (2016.07.09) HDTVRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB41A49E9753F4F24C17DE652499F945E4D5DA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702505   (641563) от 09.07.2016
-
-Египет / Egypt (2013) BDRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цивилизация Древнего Египта насчитывает более 3000 лет. Дошедшие до наших дней уникальные памятники этой удивительной культуры полны тайн и загадок. Величественные пирамиды, обелиски, храмовые комплексы, украшенные сфинксами, барельефами и настенными росписями потрясают воображение. Гробницы фараонов, мумии, и другие исторические артефакты позволят ощутить дыхание (   Читать дальше...   )Жанр: Документальный, познавательный, путешествие, туризмПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 01:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A778F2B0D63B4FCE23A8C86BF66A4C8DD17B690A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 347176   (641557) от 07.06.2011
-
-DJ Silence - Driving Relax (2010) [FLAC|Lossless]<Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: AmbientПродолжительность: 01:19:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 347359   (641543) от 07.06.2011
-
-Ганс Христиан Андерсен | Русалочка [Аудиоспектакль] [2006] [MP3, Борис Плотников и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиоспектакль «Русалочка» по мотивам сказки Ганса Христиана Андерсена — это прекрасная и трагическая история любви Русалочки к Принцу, которого она однажды спасла от гибели в морской пучине. Эта трогательная сказка волнует и завораживает нас, заставляя переживать вместе с героями, радоваться и грустить вместе с ними.
-Автор сценария Игорь Жуков, режиссёр Виктор Трухан (   Читать дальше...   )Жанр: СказкаИздательство: 1С-Паблишинг, VOX records
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48918A4CA2AA81D5171391D721D24A3240968682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518763   (641542) от 04.07.2012
-
-[Wallpapers 16+] Wallpapers Sexy Girls Pack (03.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x3022
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B9C19AA8E67624114F055678C509ECC2492A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518762   (641541) от 04.07.2012
-
-[Wallpapers 16+] Sexy Girls Pack Wallpapers (03.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4719x3543
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEEBDCFB35C227A9D804516E771EB440E28BBBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518386   (641540) от 04.07.2012
-
-Arty - Together We Are 002 (2012) [MP3|320 кб/с]<House / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arty, BT feat. Nadia Ali – Must Be the Love (Original Mix)
-02. Kris Menace – Eglecy (Original mix)
-03. Dark Matters feat. Denise Rivera – Take Me Home (Sir Adrian Jibberdee Remix)
-04. Celauro – Soundwaves (Original Mix)
-05. Lana Del Ray – Blue Jeans (Kris Menace Remix)
-06. Shinedown – Unity (Matisse & Sadko Remix)
-07. Adrian Lux feat. Dante – Burning (Extended Mix)
-08. Chris Lake & John Dahlback – I Saw This Before (Original Mix)
-09. The M Machine – Faces (Original Mix)
-10. Deadmau5 feat. Chris James – The Veldt (8 Minute Edit)(   Читать дальше...   )Жанр: House / ProgressiveПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CA57AE403BA3DEED3039EDBD79A0A642302F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518519   (641538) от 04.07.2012
-
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №87 (2012.07.03) (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641538.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0288963E7F732771F4D34D18624CD4770D2EAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518028   (641536) от 04.07.2012
-
-Textures - 4 альбома (2003-2011) [MP3|320 kbps] <Progressive Death Metal / Groove Metal / Math Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Года выпуска: 2003-2011Жанр: Progressive Death Metal / Groove Metal / Math MetalПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48D8F898AF0297524FF9CDEB11EE4A86FBBBCE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518772   (641535) от 04.07.2012
-
-[Wallpapers 16+] Wallpapers Sexy Girls Pack (04.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3565x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8892B608559202985905B6B649151B9EEF16E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518486   (641534) от 04.07.2012
-
-VA - In Da Club: Euphoric Trance Volume 1 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641534.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2nd Phase - Lesson Learned (Garry Heaney Remix)
-002. Alex M.O.R.P.H. & Protoculture - Waking Up The Stars (Original Mix)
-003. Andy Duguid feat. Shannon Hurley - I Want To Believe (Original Mix)
-004. Bartlett Bros., Matt Loki & Tiff Lacey - Sweet Child (Fabio XB Rework)
-005. Betsie Larkin & Sied Van Riel - The Offering (Save The Robot Remix)
-006. Cathy Burton & Omnia - Hearts Connected (Original Mix)
-007. Dennis Sheperd & Talla 2XLC - Two Worlds (Original Mix)Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED7CAE66147D211AE7258C896EEDC975FF7AB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518764   (641533) от 04.07.2012
-
-Evil Masquerade - Pentagram (2012) [FLAC|Lossless]<Melodic Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pentagram (04:13)
-02. A Silhouette (03:54)
-03. Perfect Disgrace (03:28)
-04. The Spirits Of The Dead (04:15)
-05. Moonlight Fantasy (03:04)
-06. Unholy Water (03:54)
-07. Pray For Mercy On Our Souls (03:33)
-08. Soul Taker (04:38)
-09. On A Bed Of Thorns (04:21)
-10. Strangers Might Fool Ya' (02:11)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518720   (641530) от 04.07.2012
-
-Little Feat - Rooster Rag (2012) [FLAC|Lossless]<Southern-Rock / Blues-Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candy Man Blues - 3:05
-02. Rooster Rag - 4:36
-03. Church Falling Down - 5:22
-04. Salome - 6:32
-05. One Breath at a Time - 5:17
-06. Just a Fever - 4:24
-07. Rag Top Down - 5:26
-08. Way Down Under - 4:06
-09. Jamaica Will Break Your Heart - 4:25
-10. Tattooed Girl - 4:54(   Читать дальше...   )Жанр: Southern-Rock / Blues-RockПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518853   (641529) от 04.07.2012
-
-VA - Whisper of Consciousness Volume 22 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641529.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)
-002. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix)
-003. Temple One feat. Hannah Ray - Autumn Leaves (Estiva Remix)
-004. Simon Patterson & Greg Downey feat. Bo Bruce - Come To Me
-005. Roger Shah feat. Inger Hansen - Dance With Me
-006. Vincent De Jager feat. Emma Lock - Dive (Original Mix)
-007. Physical Phase feat. Loreen Chimenti - Donne Moi Ton Corps (Vincent Licata Remix)
-008. Vada - Fire In The Sky (Stoneface & Terminal Remix)Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAE60D961CEA527E1A1709C4A9A2F8E6C0F129A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518789   (641528) от 04.07.2012
-
-Heaven Rain - Second Sun (2012) [FLAC|Lossless]<Symphonic Progressive / Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close To Dawn (1:35)
-02. Heaven Rain (3:42)
-03. Dreamless (4:06)
-04. My Only One (4:02)
-05. Second Sun (3:39)
-06. Face Of Misery (4:19)
-07. Nowhere (4:47)
-08. Raven In Heart (4:03)
-09. When Day Fades To Dark (3:58)
-10. At The End Of Time (3:48)(   Читать дальше...   )Жанр: Symphonic Progressive / Power MetalПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518742   (641527) от 04.07.2012
-
-Картинки - Indian Dolls (Индейские куколки) [JPEG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моё собрание куколок и это ведь красиво и занимательно. (Может кому пригодится.)Разрешение файлов: разные от 450х659 до 1247Х499Формат: jpeg
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921C8F0BD47681024E747732853A9B548C3DFC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518773   (641526) от 04.07.2012
-
-2:54 - 2:54 (2012) [FLAC|Lossless]<Indie-Rock, Dream-Pop, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolving
-02. You’re Early
-03. Easy Undercover
-04. A Salute
-05. Scarlet
-06. Sugar
-07. Circuitry
-08. Watcher
-09. Ride
-10. CreepingЖанр: Indie-Rock, Dream-Pop, ShoegazeПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518586   (641525) от 04.07.2012
-
-VA - Ferry Corsten Presents Corsten's Countdown June (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641525.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Ferry Corsten Presents Corsten's Countdown June (2012)
-
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:04:51Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТреклист:
-01. Festen - Wassup Vegas (5:37)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC749834B73ADC3022BB616F2709CECD1A0A8AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518401   (641524) от 04.07.2012
-
-VA - Hospitality Drum & Bass 2011 (30.01.2011) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Elektricity - Just One Second (Apex VIP)
-02. Blokhe4d - The Way Life Used To Be
-03. Sigma Featuring Logistics - Dreams To Reality
-04. Fred V - Simple Beginnings
-05. Danny Byrd Featuring Netsky - Tonight
-06. Camo+Krooked - Reincarnation
-07. Receptor - Ass
-08. Danny Byrd Featuring I-Kay - Ill Behaviour
-09. Die + Interface Featuring William Cartwright - Bright Lights (Netsky Remix)
-10. Joe Syntax - Fire Engine(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1D4F6A14739D823F2F29FFEDA1D995F5593473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518394   (641523) от 04.07.2012
-
-Mad M!nd - Bass 2 Face v2.0 (2012) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matrix & Futurebound ft Luke Bingham - All I Know (Matrix & Futurebound Smash and Grab Mix)
-02. Albin Myers - Hells Bells (Drumstep Mix)
-03. 2DB - Amiga Man (Original Mix)
-04. Triage - Brawl (Triage Drumstep Remix)
-05. Modestep - Show Me A Sign (Camo & Krooked remix)
-06. Dose - Caffeine Dream (Original Mix)
-07. DJ Fresh - Hot Right Now (Ferv Pitch Remix)
-08. Kairo Kingdom - One Two (Original Mix)
-09. Triage - Radium (SPL Remix)
-10. Rihanna - Birthday Cake (Proper Villains Remix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F225B77DD898D24A88668CB891984BBA4845C0FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907051   (641522) от 10.06.2015
-
-Фрэнсис Бэкон и др. | Новая Атлантида [сборник] (2014) [PDF, DOCX, EPUB]
-
->>Художественная литература
->>Классическая поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утопия – это жанр художественной литературы, описывающий модель идеального общества. Впервые само слова «утопия» употребил английский мыслитель XV века Томас Мор. Книга, которую Вы держите в руках, содержит три величайших в истории литературы утопии.
-«Новая Атлантида» – утопическое произведение ученого и философа, основоположника эмпиризма Ф. Бэкона
-«Государства (   Читать дальше...   )Жанр: УтопияФормат: PDF, DOCX, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3325A0898E829E819BA1FF4C3C277475E444E662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906865   (641521) от 10.06.2015
-
-Сергей Сушинский | Лоббирование от "А" до "Я" (2015) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди, желающие улучшить жизнь в своей стране, поделились на три группы: первые опускают руки, чувствуя своё бессилие, вторые входят в радикальные объединения, а третьи строят гражданское общество.
-Формирование гражданского общества прежде всего молодым поколением – цель, значение которой невозможно переоценить. Это понимает и власть и общество. Но готова ли власть (   Читать дальше...   )Жанр: Обществознание, СоциологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFA7FB9293A088A59BDE3A960F99F848861A9F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905846   (641520) от 10.06.2015
-
-Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delilah
-02. Help Yourself
-03. She's A Lady
-04. What's New Pussycat(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F6BAAF62C249BD93E450365DE54E004D516E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907032   (641519) от 10.06.2015
-
-NVIDIA GeForce Experience 2.4.5.44 [Multi/Ru]
+VueScan Pro 9.5.14 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NVIDIA GeForce Experience - это новое приложение от NVIDIA, которое оптимизирует ваш ПК двумя основными способами. Во-первых, GeForce Experience автоматически уведомляет вас о новых выпусках драйверов от NVIDIA и скачивает их для вас. NVIDIA постоянно работает над улучшением драйверов. Новые драйверы улучшают производительность игр, добавляют новые возможности и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5FD3475388A47542877629A750526CCF655A2D1
+magnet:?xt=urn:btih:459D842F08B08D4EEDC56C1663CA197629D34199
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906578   (641518) от 10.06.2015
+###  Публикация: 906292   (645524) от 08.06.2015
 
-Роман Заря - Небом венчаны (2015) [MP3|320 кб/с]<Шансон>
+Зоя Шлапай, Любовь Шлапай | Путь к мужчине (2015) [FB2, EPUB]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Небом венчаны
-02. Виноваты
-03. Хрустальный замок
-04. Река любви(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:59:55
+Привет! Нас зовут Зоя и Любовь. Мы хотим показать Тебе путь к отношениям твоей мечты. В основе этой книги лежит реальный опыт женщин, которые встретили спутника жизни. За 35 дней и Ты так же, как и они, найдешь свою любовь. Каждое слово в этой книге, каждое упражнение и задание были продуманы до мелочей и имеют в своей основе не только реальные истории, но и научное (   Читать дальше...   )Жанр: Личностный рост, Секс и семейная психологияФормат: FB2, EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFDC9363E8471227B1AE9E1288E65C3CB5519215
+magnet:?xt=urn:btih:9FB40AC8EEBA1BC5271175EA2EE43E85BB09BB96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -741,25 +50,676 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906306   (641517) от 10.06.2015
+###  Публикация: 906506   (645523) от 08.06.2015
 
-100 Locked Doors 2 1.0.2 [En]
+Vivaldi 1.0.196.2 Technical Preview [Multi/Ru]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645523.jpg" />
 </div>
 
 
 ###  Подробнее
 
-100 Locked Doors 2 - продолжение известной головоломки «100 Doors». Как и в других играх этого жанра вам необходимо найти способ открыть все двери, которые станут у вас на пути. Изначально все двери заперты, для того, чтобы их открыть вам понадобится проявить себя и постараться решить ребус. Отгадать загадку или решить головоломку. Каждая следующая дверь будет открываться (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 4 июня 2015 г.Разработчик: Protey AppsПоддерживаемая ОС: Android 2.3 +Жанр: PuzzleЯзык интерфейса: Английский
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto. Внешний вид (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1BAFB74CC6232C5655CE6661CE506A2B1A0A98E
+magnet:?xt=urn:btih:BD18FC7AC7E0F5ABCC87E04B5CC25645C14540E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906457   (645521) от 08.06.2015
+
+The Rolling Stones - Sticky Fingers (1971) Remastered /2015, Polydor/ 2CD Deluxe Edition [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brown Sugar (with Eric Clapton)
+02. Wild Horses (Acoustic)
+03. Can't You Hear Me Knocking (Alternate Version)
+04. Bitch (Extended Version)(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75BAF4DFD72D17CB62E43B77F67CBCED4DB9CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906403   (645519) от 08.06.2015
+
+Екатерина Михайлова | Пустяки психологии. Пристрастные записки Феи-крестной (2004) [PDF, DOC]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга относится к редкому жанру популярной психологической литературы, не предлагающей готовых рецептов. Более того, ставящей под сомнение саму их возможность. Автор, психолог-практик с многолетним и весьма разнообразным опытом работы, выступает здесь как проницательный наблюдатель, ироничный аналитик и остроумный собеседник. Предмет же анализа – проза жизни: (   Читать дальше...   )Жанр: психологияФормат: PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4339F2DBDD793D7D1080DED973E104AC4F431DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346218   (645512) от 05.06.2011
+
+Спасибо, Дживс! / Thank You, Jeeves! (1936) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказывается, Пэлема Вудхауса небезуспешно экранизировали еще в тридцатые годы. В 1935 году студия "Двадцатый век Фокс"предложила в будущем весьма известному комику Дэвиду Нивену ("Розовая пантера", "Казино Рояль" и еще сотня наименований) роль по бестселлеру Пэлема Вудхауса, короля черного юмора.
+В результате партнер Нивена - безвестный (   Читать дальше...   )Жанр: КомедияРежиссер: ртур Гревилл КоллинзАктеры: Артур Тричер, Вирджиния Филд, Дэвид Нивен, Лестер Мэтьюз, Колин Тэпли, Джон Грэхэм, Спейси, Эрни Стэнтон, Джин Рейнольдс, Дуглас Уолтон, Уилли Бест ...Перевод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515A3E27AFDB6071E5C250954BE177C314E0319F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346141   (645508) от 05.06.2011
+
+SunnyLand Bluesband - 4 альбома (1997-2002) [MP3|320 kbps]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_645508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues-RockПродолжительность: 03:48:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346748   (645506) от 05.06.2011
+
+Юрий Андреев | Книга 14 Скрижалей [The Book of 14 Tables] [1 издание] [2011] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645506.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Книга 14 Скрижалей" - содержит все наиболее важные этические утверждения из главной книги автора – «МетаНомикон» - в самостоятельной систематизации и с измененной формой изложения ряда формулировок.
+Книга содержит 14 основных глав - "Скрижалей", а также небольшие вступительную и заключительную главы ("Вступление" и "Итог"). Жанр книги - преимущественно этическая философия, с уклоном в метафизику и с ярко выраженным религиозно-мистическим оттенком. В книге есть даже полностью религиозная глава ("Скрижаль Культа") - не связанная напрямую с ее основным содержанием, содержащая текст написанный задолго до начала создания самой этой книги, но включенная в книгу автром ввиду исключительной важности и уникальности содержания этой главы (текст этой главы, кстати, не обнародовался автором около 14 лет).
+Философия книги строится вокруг тех же двух Идей, вокруг которых строится главная книга автора - "МетаНомикон" - т.е. вокруг Идеи примата Этического начала во (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E770DFCF2A8BCC06BA0F0DB843D0CFB551826F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679801   (645499) от 15.07.2013
+
+Проекты - VideoHive - Wild Nature Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон проекта для демонстрации логотипа или слогана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39862BC93C7FC9316A5338BCC2D6638FAD692043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518023   (645475) от 02.07.2012
+
+[Wallpapers]Sunset Full HD Wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B441FE277732318A9BD21A436609534C6AE44E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517965   (645474) от 02.07.2012
+
+VA - Летний Кураж Европы Плюс (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Cher - Strong Enough (Dj Ozeroff & Dj Sky Feat. Lebedev Radio Remix)
+02 София Ротару И Николай Басков - Я Найду Свою Любовь
+03 Michel Telo - Ai Se Eu Te Pego (Slayback Remix)
+04 Таисия Повалий - Я Помолюсь За Тебя
+05 Vanessa & Marcko - Oh Lala (Radio Edit)
+06 T-Killah Feat. Виктория Дайнеко - Mirror Mirror
+07 Nicki Minaj - Marilyn Monroe
+08 Братья Грим - Парашюты (Aksioma Project Remix)
+09 Angelika Vee - Tokio Love ( Radio Edit )
+10 Саша Зверева (Feat Sasha Dith)Жанр: PopПродолжительность: 05:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161F2775A4B6FFD9A643DE5161E38A48CBF189C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517531   (645472) от 02.07.2012
+
+[Wallpapers]Superior Quality HD Pack Wallpapers 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F5FA992A61F8FF92AFF67D948E874970E23664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518106   (645468) от 02.07.2012
+
+Алексей Фомин |  Возвращение великого воеводы [2012] [FB2][TXT][JAVA (jar+jad)]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645468.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-я книга из серии "Время московское"Формат: FB2,TXT,JAVA (jar+jad).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D715E2EB2A8AAEF4C8E9E45AD126B30B5E272988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517820   (645464) от 02.07.2012
+
+VA - Прилив хитов русский (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645464.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+001. А.Р.М.И.Я Feat. Dj Mendez - Сладкий Плен
+002. Филипп Киркоров - Дискобой
+003. Турбомода - Маленький Секрет
+004. Слава - Люди Любят
+005. Нюша - Выбирать Чудо
+006. Митя Фомин И Кристина Орса - Не Манекен
+007. Маша Собко - Гроза
+008. Вирус - Просто Рядом Иди (Электроники Club Mix 2011 Radio Edit)
+009. Арина И Размер Project - My Moscow Love(   Читать дальше...   )Жанр: PopПродолжительность: 12:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FEE756DD475AFA92D0854361FE1546DF02A8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517516   (645463) от 02.07.2012
+
+[Графика] Художница Ira Tsantekidou
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художница Ira Tsantekidou
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BA778747B2E26E0C13390BAAC5D05A42EB6F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518049   (645462) от 02.07.2012
+
+Rainmeter 2.3.2 Final [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rainmeter - программа для мониторинга ресурсов компьютера. Данная утилита позволяет отображать: график загрузки центрального процессора, количество свободной и занятой памяти компьютера (оперативной, виртуальной и дисковой). Кроме того, эта программа показывает сетевую информацию, а именно: IP-адрес, DNS-адрес, трафик, скорость использования канала отдельно по каждому из направлений. Также следует отметить такую возможность Rainmeter, как загрузка новостных лент и прогноза погоды. Данное программное обеспечение обладает информативным и приятным пользовательским интерфейсом, который с легкостью вписывается в окружение рабочего стола.Название программы: RainmeterЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517938   (645461) от 02.07.2012
+
+VA - The Tipping Point (2012) [MP3|320 кб/с]<Psychedelic / Full-On, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645461.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Feel - New Age (6:32)
+2. Reactant - Next Time (7:52)
+3. Mechanical Species - Where Is The Surface (9:35)
+4. Minimal Criminal - All Hail The Mountain King! (6:52)
+5. Connected Visions - Lift Off (8:05)
+6. TAC - Tipping Point (9:23)
+7. TJP - Roundabout (10:04)
+8. Bes & Pepz - Jingle Smells (8:08)
+9. Messy Mass - Beasts Of The Jungle (7:04)Жанр: Psychedelic / Full-On, ProgressiveПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4D40ED5F6FB26BDBEDE42CA6B9F7EB3AF504EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031865   (645459) от 07.07.2016
+
+The Doobie Brothers - Live at Wolf Trap (2013) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645459.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Doobie Brothers американская музыкальная группа, которая начиная с 1970 года играла калифорнийский поп-рок в духе The Beach Boys. К концу 1970-х годов, когда вышли их наиболее популярные записи во главе с бестселлером «What a Fool Believes» (премия «Грэмми» за лучшую песню 1979 года), от рок-музыки в их записях не осталось и следа. The Doobie Brothers продолжали (   Читать дальше...   )01. Rockin’ Down The Highway
+02. Jesus Is Just Alright
+03. Dangerous
+04. Another Park, Another Sunday(   Читать дальше...   )Жанр: Rock, Country Rock, Pop RockПеревод: Отсутствует / Не требуетсяПродолжительность: 02:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BF992E4CEB75145521A5F9D341997023FC842E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518151   (645458) от 02.07.2012
+
+Василий Водовозов | Практическая славянская грамматика с примерами и упражнениями [1885] [PDF]
+
+>>Разное (категория книг)
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть книги начинается чтением и объяснением отрывков из Остромирова евангелия, представляющего образцы древнеславянского языка, наиболее близкого к летописному и наиболее правильного в своих формах. Далее при объяснении всякий раз необходимо обращаться к отрывку, чтобы помнить связь речи, а не довольствоваться примерами, представленными в объяснении; где примеры собраны из многих, прежде прочитанных отрывков, там учащийся точно также проверяет эти примеры по отрывкам, или, что еще лучше, сам их отыскивает. Словом, - здесь необходимо как можно более самостоятельной работы. Вторая часть книги изложена исключительно по синтетическому методу. Упражнения, приложения к каждой статье, здесь состоят большей частью из отдельных фраз, который учащийся дополняет, вставляя слово в соответственной форме. Приведены некоторые новые подробности в статьях о наречии, о предлоге и союзе и по синтаксису.Жанр: Раритеты, учебная литература, грамматикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39804855CBD1B71500F53A68479C7A6DBD975A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032331   (645457) от 07.07.2016
+
+MinstreliX - Memoirs (2007) [FLAC|Lossless|tracks + .cue] <Neoclassical Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amiel 02:42
+02. Whispers in the Wind 04:52
+03. Moon Sickness 06:03
+04. To Immortality 04:58(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 1:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96DAFD4431CF371CAD9D2BAC747A80FD4CD7383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032366   (645455) от 07.07.2016
+
+Шпион / Spy (2015) HDRip [Unrated Cut] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сьюзан Купер всю свою жизнь мечтала стать секретным агентом и даже устроилась работать в ЦРУ. Однако, дальше сотрудника самой низкой ступени ей так и не удалось продвинуться. Понимая, что осуществить свою мечту практически невозможно, она все-таки продолжает надеяться на лучшее и с нетерпением ожидает своего шанса. И вскоре судьба дарит ей такую возможность. Лучший (   Читать дальше...   )Производство: США / Chernin Entertainment, Feigco Entertainment, Twentieth Century FoxЖанр: Боевик, Комедия, КриминалРежиссер: Пол ФигАктеры: Мелисса МакКарти, Джейсон Стэйтем, Джуд Лоу, Роуз Бирн, Миранда Харт, Бобби Каннавале, Морена Баккарин, Раад Рави, Джессика Чаффин, Сэм РичардсонПеревод: Авторский А.ГавриловПродолжительность: 02:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC66BCBCE1D02B472F87ECD088EA02CFB2DC3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517975   (645454) от 02.07.2012
+
+Henry Mancini - Trail Of The Pink Panther / След Розовой Пантеры (2011) [MP3|320 кб/с]<Score, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Main Title (5:03)
+ 2. The Easy Life In Paris – Long Version (2:56)
+ 3. Salute To Balls (3:17)
+ 4. The Bagman (2:19)
+ 5. Scotland Yard (0:29)
+ 6. In A Mist (2:16)
+ 7. The Message (1:34)
+ 8. One On One (1:21)
+ 9. The Easy Life In Paris No. 1 (1:29)
+ 10. Bruno’s Tune (1:19)(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA18428E0F1D0C97D60BBD46F0B77F3865B9710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032190   (645453) от 07.07.2016
+
+[ВАЗ 2010 -2111 -2112] (1986-2000) Электронное руководство по тюнингу
+
+>>Автомобили
+>>Автомобильные мультимедийные материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электронное руководство по тюнингу автомобилей ВАЗ десятого семейства: двигатель, трансмиссия, подвеска и др. Запустить через run.exeФормат: EXE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E8D9DF347F6AA220514BF8B2604CB1F6067D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032339   (645451) от 07.07.2016
+
+VA - Radio 538 Hitzone 78 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
+01. Justin Timberlake - Can't Stop The Feeling!  (3:58)
+02. Kungs vs. Cookin' On 3 Burners - This Girl  (3:17)
+03. Enrique Iglesias feat. Wisin - Duele El Corazon  (3:22)(   Читать дальше...   )Тип издания: Box Set, 2CDПроизводство: Sony Music B.V. - 88985332742Жанр: Top 40, Pop, RockПродолжительность: 02:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FACFAF88DCD12A784ADFA1FAE10A57ACB3CBE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032470   (645450) от 07.07.2016
+
+AutoRuns 13.61 Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645450.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoRuns - утилита для контроля автозагрузки программ. Она позволяет увидеть, какие программы настроены на запуск в процессе загрузки или входа в систему, причем эти программы отображаются именно в том порядке, в каком система Windows обрабатывает их. Это относится к программам, находящимся в папке автозагрузки или прописанным в разделах реестра Run, RunOnce и других. (   Читать дальше...   )Язык интерфейса: Русский (druc), Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28056DBB71027F54D7151D8CDD166353A6FF2011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032327   (645449) от 07.07.2016
+
+Vaya Con Dios - Live 2005 & 2006 (2016) TVRip>DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из двух концертов Vaya Con Dios 2005-2006 гг.AVO Session (Live 03.11.2005)
+01. Take Heed
+02. La Llorona
+03. Je L'ame Je L'ame(   Читать дальше...   )Жанр: Jazz/BluesРежиссер: Roli BaerlocherАктеры: Vaya Con DiosПеревод: ОтсутствуетПродолжительность: 01:53:45 (01:06:05 + 00:47:40)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8146ABB9467694250EC2A71E7DFBADD7AD16FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

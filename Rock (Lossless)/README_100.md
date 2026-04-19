@@ -1,3 +1,61 @@
+###  Публикация: 1413567   (408543) от 04.10.2020
+
+Timelight - Selah! (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selah! 12:33
+02. Taken 10:00
+03. Saphira 11:10
+04. The Goddess Liberty 10:58(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907D15FD96CFA551CEE781A6E301BC5E19C48581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413500   (408538) от 04.10.2020
+
+Сlерsуdrа - Тhе Gар (2019) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Bells Started Ringing
+02. You
+03. The Story Teller
+04. The Spell(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469090EC38D0B7712C38E47050D484CBDEA0C0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413548   (408207) от 04.10.2020
 
 VA - I Love Rock'n'Roll! (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -699,63 +757,6 @@ Belinda Carlisle - Icon (2013) [FLAC|Lossless] <Pop Rock, Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B25FA7E34948193FEC8BC3348428F18C62823697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574278   (388042) от 04.09.2022
-
-Hydra - Point Break (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop The Madness (4:31)
-02. Bringing Down The Moon (4:10)
-03. No Lullaby (4:58)
-04. Stay A While (3:59)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8237AFB7182A3D45485F199888B30FD6C5B841C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574329   (385788) от 05.09.2022
-
-Blind Scryer - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drude Awakening [00:05:01]
-02. Laid Bare [00:05:52]
-03. Controlled Burn [00:09:23]Жанр: Heavy Rock, Stoner, DoomПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C382174E3EE88C372F8CFD984A07AFB821CD99F
 ```
 
 https://mybot314.ru/tekegram_catalog/

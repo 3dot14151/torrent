@@ -1,3 +1,177 @@
+###  Публикация: 991722   (904238) от 29.02.2016
+
+Russill Paul - P.M. Yoga Chants (2001) [FLAC|Lossless|tracks + .cue] <World Music, Mantras, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By The Stream (10:55)
+02. PM Dance (8:30)
+03. Dream the Dark (10:02)
+04. The Beloved (11:05)(   Читать дальше...   )Жанр: World Music, Mantras, HealingПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B8939EA4EBE677FC8A2EB9DA7C5A308473031F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369290   (903803) от 23.03.2020
+
+Gaetir The Mountainkeeper - Vetrarljós (Vetrarljos) (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Atmospheric Folk, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norðanátt (6:24)
+02. Eilífðina á Veturna (7:29)
+03. Jökulvíðerni (3:43)
+04. Maðr af Manni (7:10)(   Читать дальше...   )Жанр: Ambient, Atmospheric Folk, Dark Folk, Dark Ambient, NeofolkПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA20F4613F5A2710A21C899E2F1B16E811709A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368871   (903649) от 23.03.2020
+
+Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soundtracks) (2014) [MP3|320 Kbps] <Native American, World, Film Scores>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return to Innocence (From "Man of the House")
+02. The Last of the Mohicans (From "The Last of the Mohicans")
+03. Hinayana Vision (From "Pocahontas")
+04. Dances with Wolves (From "Dances with Wolves")(   Читать дальше...   )Жанр: Native American, World, Film ScoresПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892B23A912194E5BCC41B404B41C062D161DD6AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369204   (903547) от 23.03.2020
+
+Guenter Haas - Tales of a Broken Planet (2013) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Downtempo>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tales of a Broken Planet (4:32)
+02. Cayo Coco (6:18)
+03. The Choice (4:35)
+04. 1st Floor Lobby (4:08)(   Читать дальше...   )Жанр: Instrumental, Chillout, DowntempoПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D01A4BC0C7BB49CCF4C16ED322C991354A3F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368661   (903513) от 23.03.2020
+
+Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction
+02. May You Walk In Sunshine
+03. Enchantment
+04. A-La-Ke(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36DA4BA965D80B1CE66E3DEFAA77481F1CA36B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369396   (903401) от 23.03.2020
+
+Nazca & Wayra Rodriguez - Traditional Indian (2010) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nazca & Wayra Rodriguez - Ancient spirit
+02. Nazca & Wayra Rodriguez - Ceremony
+03. Nazca & Wayra Rodriguez - Vision
+04. Nazca & Wayra Rodriguez - Dream catcher(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A3496CBFB8D1486DEAF068DFD64E11CE9AC7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099659   (903399) от 02.02.2017
 
 Andreas - Music for Pregnant Women (2013) [MP3|320 Kbps] <New Age>
@@ -565,177 +739,6 @@ Maurizio Filardo - Perfetti sconosciuti (Colonna sonora originale del film) (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A90EE06A23E405EEFDC5CAACC0DBF1ACAFAD595C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370180   (898335) от 26.03.2020
-
-Влад Нежный - Стрём-частушки (2020) [MP3|320 Kbps] <Частушки>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898335.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Стрём-частушки, Часть 1
-2. Стрём-частушки, Часть 2
-3. Стрём-частушки, Часть 3
-4. Стрём-частушки, Часть 4Жанр: ЧастушкиПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B9FABFA6C5ED42C021EA15E2EE58AE6F31FB787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595479   (898175) от 26.03.2020
-
-Lesiem - 5 альбомов (2000 - 2005) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2000 - Mystic · Spirit · Voices
-2001 - Chapter 2
-2003 - Illumination(   Читать дальше...   )Жанр: New AgeПродолжительность: 04:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD517EC0733C1D79F889DBA5F3990655183D80F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100890   (898009) от 05.02.2017
-
-Phaedrus - Gravity, Vol. 1 (2007) [MP3|192 Kbps] <New Age, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jade (6:19)
-02. Gravity (4:25)
-03. Invisible Healing (7:18)
-04. Soul Meridian (4:52)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD3DAC269870187E0B0309219BD4CA832AEA28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 139809   (898003) от 26.03.2020
-
-Enigma - 7 Albums, 2 Compilations (1990 - 2008) [FLAС|Lossless|tracks] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1990 — MCMXC a.D. (The Limited Edition)
-1993 — The Cross of Changes
-1996 — Le Roi Est Mort, Vive Le Roi!(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 08:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878909B8A09DB1F1151C8DCD608360B2352587AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638002   (897879) от 01.04.2013
-
-VA - 69 Must Have Chillout & Lounge Songs (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:56:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493137   (897557) от 02.09.2021
-
-Где-то Там - Дикий альбом (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Как залезло красное солнце
-02 - Гуси-гуси
-03 - Разлилась речка быстрая
-04 - Тонкая рябина(   Читать дальше...   )Жанр: Psychedelic FolkПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A500BE76D6E956477C13D91123BC88BD1A962510
 ```
 
 https://mybot314.ru/tekegram_catalog/

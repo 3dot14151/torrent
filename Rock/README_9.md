@@ -1,3 +1,32 @@
+###  Публикация: 1353225   (992695) от 17.01.2020
+
+Yes - Topographic Drama: Live Across America (2017) Live [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992695.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Machine Messiah (Live) [11:17]
+ 2 - White Car (Live) [1:25]
+ 3 - Does It Really Happen? (Live) [7:22]
+ 4 - Into The Lens (Live) [9:03](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF1F321D8C49FE1D4C96D660D55910A01C60421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353467   (991969) от 18.01.2020
 
 Jack Green - The Party At The End Of The World (2020) [MP3|320 Kbps] <Blues Rock>
@@ -351,7 +380,7 @@ Shivaree - Дискография (8 CDs) (1999-2007) [FLAC|Lossless]<Indie, Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_982660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982660.jpg" />
 </div>
 
 
@@ -746,35 +775,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:310C89AEE18C088C8B9403D92026F9ABC7CDBF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978764   (962046) от 24.01.2016
-
-VA - Covered In Blues (2014) [MP3|320 кб/с] <Blues, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Russell - We Will Rock You (3:27)
-02. Robin Zander - Stone Cold Crazy (3:36)
-03. Mickey Thomas - Play The Game (4:54)
-04. Joe Lynn Turner - Fat Bottomed Girls (4:25)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AE6D28007CD4E713AB2B9C74198ED1DC417EDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

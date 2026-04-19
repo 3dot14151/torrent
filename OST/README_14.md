@@ -1,3 +1,32 @@
+###  Публикация: 927215   (529929) от 12.08.2015
+
+Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantastic Four Prelude
+02. The Garage
+03. The Unveiling
+04. Baxter(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AF5B133D712339D04EF0EBACA5FFD319FEBFCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157274   (525466) от 11.08.2017
 
 Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Instrumental, Epic Orchestral>
@@ -732,32 +761,6 @@ Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548961   (464362) от 19.09.2012
-
-Joel Nielsen - Black Mesa Source Soundtrack (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ScoreПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49FF2007F203724193D6D550894766B9E023C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

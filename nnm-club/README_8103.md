@@ -1,25 +1,22 @@
-###  Публикация: 1527391   (736949) от 28.01.2022
+###  Публикация: 500051   (740375) от 20.07.2020
 
-VA - Lounge Tales, Vol. 4 (2015) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+Штучки / Sztuczki (2007) HDTV [H.264/1080i-LQ] [VO]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Minus Blue - Ocean Sky (5:23)
-02. Chambre 41 - Promenade No.2 (6:18)
-03. Twentyeight - Faith (4:28)
-04. The Soulful Sun - Loose It (4:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:15:45
+В маленьком городке живут 6-летний Стефек и его 17-летняя сестра Элька. Отец давно ушел из семьи к другой женщине, и Стефек его никогда даже не видел. Но Стефек уверен, что мужчина с портфелем, каждое утро пересаживающийся с одной электрички на другую на их станции — это и есть отец. И что его можно вернуть, если приманить к себе счастье или подкупить его.Производство: Польша / Wytwórnia Filmów Fabularnych (WFF)Жанр: Драма, КомедияРежиссер: Анджей ЯкимовскийАктеры: Дамьян Уль, Эвелина Валендзяк, Томаш Сапрык, Йоанна Лишовска, Гжегож СтельмашевскийПеревод: Одноголосый любительскийЯзык озвучки: РусскийСубтитры: Русские, АнглийскиеПродолжительность: 01:31:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C2B9DAB627F4A21BF97818C24E2058FD8076E22
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527386   (736948) от 28.01.2022
+###  Публикация: 1397466   (740374) от 20.07.2020
 
-VA - Lounge Tales, Vol. 3 (2015) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
+Американский пирог 3: Свадьба / American Wedding (2003) BDRip [H.265/1080p-LQ] [10-bit] [Unrated]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pnfa - Along the Way (6:01)
-02. Ganesha Love Duo - Kalkuttas Theme (4:22)
-03. Mindel - Seeds of Love (4:14)
-04. Martin Sponticcia - Super Connect (2:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:59:45
+Джим и Мишель решили пожениться. Стифлер планирует быть на свадьбе шафером и переспать с подружкой невесты. Финч больше не гоняется за мамой Стифлера, а охотится за младшей сестрой Мишель, Кэденс, - сексуальной красоткой, на которую положил глаз Стифлер.Производство: США, Германия / Universal Pictures, Zide-Perry Productions, LivePlanetЖанр: комедияРежиссер: Джесси ДиланАктеры: Джейсон Биггз, Шонн Уильям Скотт, Элисон Хэннигэн, Эдди Кэй Томас, Томас Иэн Николас, Дженьюэри Джонс, Юджин Леви, Молли Чик, Дебора Раш, Фред УиллардПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:43:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF53E8238694A2E7405DEC313C37EBEB0D9CFA7F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527382   (736947) от 28.01.2022
+###  Публикация: 1397442   (740373) от 20.07.2020
 
-VA - Lounge Tales, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+Роберт Шекли | Сборник фантастики. Рассказы (2020) [MP3]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. EK - Sonho (6:00)
-02. Life Audience - Waves & Particles (7:22)
-03. Didascalis - 4 Chords (4:27)
-04. Taco-Town - Acerado (3:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:40:24
+Большой мастер коротких рассказов, Роберт Шекли открыл новую страницу в фантастической литературе. После него многие авторы стали подражать стилю Шекли.Жанр: ФантастикаПродолжительность: ~ 10:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DBDE537A88FA417A8E3DB8EAD0C3E76D88DFC0E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527294   (736946) от 28.01.2022
+###  Публикация: 1397475   (740372) от 20.07.2020
 
-VA - Mediterraneo 2 (2018) [AAC|~328 Kbps] <Chill Out, Downtempo, Organic House>
+Великие реки Земли / Die groessten Fluesse der Erde / Earth's Great Rivers (2018) BDRemux [H.264/1080p] (серии 1-3 из 3)
 
->>Аудио и Видео
->>Музыка (AAC)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nacho Sotomayor - Mykonos (4:15)
-02. Dj Brahms, Ankoku Project - Horasango (5:52)
-03. Ersin Ersavaş - Night (4:10)
-04. Christophe Goze - Ja Vidi (5:58)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 00:55:24
+Это путешествие по трем из самых величественных рек планеты — Амазонке, Нилу и Миссисипи. Новейшие технологии видеосъемки и использование дронов помогли произвести съемку мест, недоступных ранее. Погрузиться в неизвестные лагуны Амазонки, проплыть рядом с гигантским электрическим угрем, преодолеть сотню миль по Амазонке за несколько секунд и посмотреть, как африканские (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC), Public Broadcasting Service (PBS)Жанр: Документальный, природа, флора, фаунаРежиссер: Марк ФлаверсПеревод: Одноголосый закадровый, профессиональныйСубтитры: Английские (SRT, только 1 серия, на речь шамана)Продолжительность: 3 x ~00:50:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB9DA9F94F166B06DA39940FD26C31489517FFCC
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +102,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527396   (736945) от 28.01.2022
+###  Публикация: 920579   (740371) от 20.07.2020
 
-VA - Cappuccino Lounge, Vol. 2 (Relaxed Coffee Tunes) (2017) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
+Red - 7 альбомов и 2 EP (2006-2020) [MP3|320 кб/с]<Christian Rock>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Urban Phunk Society - Spring 2 Summer (3:03)
-02. Artur Bayramgalin - Cafe Rendez-Vouz (5:02)
-03. Greg Walker - Rio Geo (Revisited) (3:30)
-04. Charly McLion, Susannah Mavis - Sunrise (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:16:37
+2006 - End Of Silence
+2009 - Innocence & Instinct
+2011 - Until We Have Faces
+2013 - Release The Panic(   Читать дальше...   )Жанр: Christian RockПродолжительность: 06:54:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CE0E22A8040C521FC5376E6EFCAC48DEBD57DA5
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527384   (736944) от 28.01.2022
+###  Публикация: 1397430   (740370) от 20.07.2020
 
-VA - Lounge Tales, Vol. 2 (2014) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
+Призраки войны / Ghosts of War (2020) WEB-DL [1080p] ATV3
 
->>Аудио и Видео
->>Музыка (AAC)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Hammock - StarSoul (7:52)
-02. Jens Buchert - Aztec (4:47)
-03. Sugarman - Phonk Reprise (2:47)
-04. Domenic - Analog (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:53
+Последние месяцы Второй мировой войны. Французская провинция. Пятеро опытных американских солдат получают приказ охранять замок, в котором еще недавно располагалось нацистское верховное командование. Эта неожиданная передышка перерастает в безумие, когда они сталкиваются со сверхъестественными силами, гораздо более страшными, чем то, что творилось на поле боя.Производство: Великобритания / Miscellaneous EntertainmentЖанр: Ужасы, триллер, военныйРежиссер: Эрик БрессАктеры: Брентон Туэйтс, Тео Росси, Кайл Галлнер, Скайлар Эстин, Алан Ричсон, Лайла Банки, Нэйтан Купер, Ребекка Флинн, Калоян Христов, Alexander Behrang KeshtkarПеревод: Профессиональный (многоголосый закадровый) (HDRezka Studio)Субтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:35:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC5A1C21C4E737873B32F99576509979743F5AFB
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527491   (736943) от 28.01.2022
+###  Публикация: 1397411   (740369) от 20.07.2020
 
-VA - Cappuccino Lounge, Vol. 3 (Relaxed Coffee Tunes) (2017) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
+UltraSearch 2.3.2.537 + Portable [Multi]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Martin Liege - Morning Coffee (4:16)
-02. De La Cream - Holding Back The Years (4:22)
-03. Florito - Loungery (4:34)
-04. James Butler - Cloud No 9 (3:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:21
+UltraSearch ищет файлы и папки на локальных дисках и представляет результаты всего за несколько секунд . Этот инструмент использует уникальную технологию, которая позволяет осуществлять поиск непосредственно в основе файловой системы NTFS на вашем жестком диске, в Master File Table (MFT). UltraSearch просматривает все каталоги на локальных дисках с молниеносной скоростью (   Читать дальше...   )Язык интерфейса: Английский, немецкий и др.(Русского нет)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:219FCC15FEEB78452209AC6F7BC89901CA5948DD
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527392   (736942) от 28.01.2022
+###  Публикация: 1363865   (740368) от 20.07.2020
 
-VA - Cappuccino Lounge, Vol. 1 (Relaxed Coffee Tunes) (2015) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demonic Front: Babylonia | Судьба: Великий приказ - Вавилония [2019, TV, 21 эп. + OVA] BDRip 1080p raw
 
->>Аудио и Видео
->>Музыка (AAC)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Urban Phunk Society - De Janeiro (4:14)
-02. Elisabetta - L'idea Dell'amore (Sax on the Beach Mix) (3:30)
-03. Peter Pearson - Bossalove (4:43)
-04. Florito - Shirabyoshi Love (Instrumental) (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:48
+2017 год н.э. Последний век существования магии. Пока маги продолжали пытаться постичь сущность этого мира, простые люди создали собственное общество. Магия – это методики, созданные людьми, жившими в далёком прошлом, их невозможно объяснить современной наукой. Однако наука воплотила в себе открытия людей, живущих будущим, и эти открытия никогда не будет дано постичь (   Читать дальше...   )Производство: студия CloverWorksЖанр: приключения, фэнтезиРежиссер: Акай ТосифумиПеревод: Истари Комикс (OVA) + Anilibria (TV)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 21 эп. + OVA по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:901627D8E91E1B93CBB38DDA741AEFF84804F26D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,26 +209,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527365   (736941) от 28.01.2022
+###  Публикация: 1283260   (740347) от 16.02.2019
 
-World Clock Deluxe 4.18.1 [En]
+Rhys Thomas b2b Jonny Griffiths - Live @ Wax Format vs. Journey(Portland House Cardiff)(2019-01-26) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John O'Callaghan & Cold Blue - Symmetric
+02. Solarstone & Clare Stagg - Jewel (Craig Connelly Remix)
+03. Will Atkinson - Numb The Pain
+04. Paul Denton - Revolution(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3395D9DD6603DF61E4175DCEAC8768F5665FC71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283407   (740346) от 16.02.2019
+
+Фристайл. Чемпионат мира 2019. Парк-Сити (США). Могул (2019) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740346.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2019 года
+3-й совместный Чемпионат мира по фристайлу и сноуборду 2019. Парк-Сити (США).
+Фристайл.
+Могул. Мужчины и Женщины(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C6E36CF2C584EB852B049F889CAB489D1D6D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283274   (740345) от 16.02.2019
+
+Dave Lambert - Yearmix 2018 (Deep House Edition) 2019-02-15[MP3|320 Kbps] <Deep House, Tech House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kolsch - Left Eye Left
+02. Xinobi - Far Away Place (Rampa Remix)
+03. HearThuG - Crossroads (Bebetta Remix)
+04. Eskuche - Concentrate(   Читать дальше...   )Жанр: Deep House, Tech House, Progressive HouseПродолжительность: 02:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12F30D1BCABA022636B0F74320487BB06C9B25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283341   (740344) от 16.02.2019
+
+VA - Suanda Music Radio Top 20 (January/February) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Roxanne Emery - Lullaby (Full Fire Mix)
+02. Adip Kiyoi & Christina Novelli - Carousel (Extended Club Mix)
+03. O.B.M Notion - Despite Everything (Extended Mix)
+04. Feel & Alexandra Badoi - We Are One (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E7932B1BCC44A10F847714104BE6EDDD810750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283077   (740343) от 16.02.2019
+
+Clearview 2.1.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-World Clock Deluxe - это надежное и простое в использовании ПО, которое позволяет отображать несколько часов в горизонтальной или вертикальной палитре, в строке меню и в Dock.
-С помощью World Clock Deluxe можно также отображать среднее время по Гринвичу и всемирное координированное время, легко определять лучшее время для конференц-связи или видеоконференции в нескольких (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 1997-2022 MaBaSoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+Clearview - приложение для удобного чтения электронных книг на вашем Mac, которое работает с такими форматами, как PDF, EPUB, CHM, и MOBI. В процессе чтения вы можете добавлять аннотации, ставить закладки и использовать поиск по тексту. Чтобы добавить книги в вашу библиотеку - просто перетащите содержащую их папку в окно программы и вся информация будет быстро импортирована (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.02.2019Разработчик: Canoe SoftwareПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72E4982E5B4C28ED2AFBEF18A7D85A243E7F5332
+magnet:?xt=urn:btih:CCFA6D58EB61C49BC658F29EA039750BF06C7BE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,54 +351,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527310   (736940) от 28.01.2022
+###  Публикация: 1282655   (740342) от 16.02.2019
 
-Joe 'Fingers' Carr - Honky Tonk Hits (1997) Good Music [FLAC|Lossless|image + .cue] <Ragtime, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Much Mustard [2:32]
-02. Twelfth Street Rag [2:20]
-03. Stumbling [2:05]
-04. Somebody Stole My Gal [2:14](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D11567703DA414C1DA807D849565FE67EAF314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527536   (736939) от 28.01.2022
-
-System Toolkit 5.2.5 [Multi]
+Bahkauv - Et Bahkouv kütt (1990) [FLAC|Lossless|tracks + .cue] <Electronic, Dungeon Synth>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
+01. Intro/Aquae Granni (03:39)
+02. Fastrada (11:06)
+03. Getrudisnacht zu Aachen (Die Legende vom wehrhaften Schmied) (04:06)
+04. Mundolph und Gundolphus (09:09)(   Читать дальше...   )Жанр: Electronic, Dungeon SynthПродолжительность: 00:46:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52C05D436DEFAFD30B3E9757EC1D9917982CCA5B
+magnet:?xt=urn:btih:4DA903A2FDF36A75EAC8EE22D10BF259AD56A75F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,113 +380,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527295   (736938) от 28.01.2022
+###  Публикация: 1283351   (740341) от 16.02.2019
 
-VA - Mediterraneo 3 (2020) [AAC|~332 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christos Papadopoulos, Dim Angelo, Alex Mihalakis - Sunset In Aegean (3:51)
-02. Elias Fassos, RisK (Gr), Ghenwa Nemnom - Ilios (6:15)
-03. Nikos Kaponis - Gypsy Day (6:46)
-04. Bassi, Jojo Rose - Epidaurus (4:26)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8681B209FBCD1085E4A23BA80E390806C065C9B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527293   (736937) от 28.01.2022
-
-VA - Electro Swing Dance Session (2018) [AAC|~324 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marebo - Jamaican Klezmer (4:07)
-02. Doobie - Swing Interlude (0:53)
-03. DJ Tissue, Googirl - The Time (Tik - Tak) (Electro Swing Mix) (5:42)
-04. Half Decent - Something Like This (4:04)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18118489221E1D6046E12FEDF5B1E51A38972690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527533   (736936) от 28.01.2022
-
-Mirror for Panasonic TV 3.7.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Panasonic. Никаких проводов и дополнительных аппаратных средств не требуется.
-Mirror for Panasonic позволяет отображать экран вашего Mac на любом телевизоре Panasonic Smart TV. Никаких проводов и дополнительного оборудования не требуется. Вы также можете передавать отдельные видеофайлы с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C026EDE02BCAF24A2C84DCAEF08D43D54162CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527431   (736935) от 28.01.2022
-
-ArchCommander 2.2 [Multi]
+Биатлон. Кубок Мира 2018-2019. 8-й Этап. Солт-Лейк Сити - Солджер Холлоу (США).  Женщины. Спринт 7,5 км (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение ArchCommander - это легкий файловый менеджер архивов для macOS.
-• Browsing
-• Просмотр элементов
-• Создание новых архивов(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2010-2022 Marcin LabenskiПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и Польский
+14 февраля 2019 года, четверг. 21:15 МСК
+Кубок Мира по биатлону сезона 2018-2019.
+Этап 8. Солт-Лейк Сити - Солджер Холлоу (США):
+Женщины. Спринт 7,5 кмТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:12:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BFA2C6F7F189172AD51D9A3BF5B050C1720BF18
+magnet:?xt=urn:btih:F004899FF097010F3077BE9E39E8E9D362E304F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,25 +409,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527469   (736934) от 28.01.2022
+###  Публикация: 1283362   (740340) от 16.02.2019
 
-4K Stogram Pro for Mac 4.2.3 [Multi/Ru]
+Биатлон. Кубок Мира 2018-2019. 8-й Этап. Солт-Лейк Сити - Солджер Холлоу (США). Мужчины. Спринт 10 км (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740340.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2022 OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+15 февраля 2019 года, пятница. 21:15 МСК
+Кубок Мира по биатлону сезона 2018-2019.
+Этап 8. Солт-Лейк Сити - Солджер Холлоу (США):
+Мужчины. Спринт 10 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:18:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0443FC014220226BD61D61C5B7CDFC3E4D7B9339
+magnet:?xt=urn:btih:BDD0145411751D9B64B55D8B9454DD2E99B08D94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,28 +438,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527494   (736933) от 28.01.2022
+###  Публикация: 1283385   (740339) от 16.02.2019
 
-VA - Cafe Deluxe Chillout - Nu Jazz / Lounge, Vol. 8 (2022) [AAC|~297 Kbps] <Easy Listening, Lounge, Nu Jazz>
+Lissom - Lissom (2018) Whales Records [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Instrumental, Vocal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740339.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nightview - Deep Flow (3:43)
-02. Soundset City - Sweeping (3:55)
-03. Jean Mare - Break of Day (3:10)
-04. Soundset City - Smooth and Funky (2:59)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 01:02:25
+01. Limbo (3:59)
+ 02. Mascaron (5:00)
+ 03. Contour (3:05)
+ 04. Scalped (4:22)(   Читать дальше...   )Жанр: Dark Ambient, Instrumental, VocalПродолжительность: 00:32:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8210F5B8474FD4B118B9D70DD04A74EAB891887E
+magnet:?xt=urn:btih:5636FC79D8BDD34FD5E7CBEA0358C6F15FF4B9E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,25 +467,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527356   (736932) от 28.01.2022
+###  Публикация: 1283196   (740338) от 16.02.2019
 
-NetWorker Pro 8.2.5 [Multi]
+Mono Peninsula - Metro/Pol (2018) Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740338.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
+01. Garden (08:46)
+ 02. Grass (06:05)
+ 03. Street (08:48)
+ 04. Hill (11:10)(   Читать дальше...   )Жанр: Ambient, DubПродолжительность: 00:54:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD1FB5F503E86FF66862E42314F17BF68298332D
+magnet:?xt=urn:btih:AA3A4AE56781781CEC4E4B5449A26DE342F37D45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,28 +496,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527344   (736931) от 28.01.2022
+###  Публикация: 1283324   (740337) от 16.02.2019
 
-Insania - V (Praeparatus Supervivet) (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+VA - Black Hole Trance Music 02-19 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Ottaviani feat. Clara Yates - Why (Extended Mix)
+02. Ferry Corsten & Ilan Bluestone - We're Not Going Home (Extended Mix)
+03. Andy Moor & Somna feat. Monika Santucci - Free Fall (Extended Mix)
+04. Driftmoon & Eco - They'll Never Find Us (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2246C61B6DCDA1885F06B9A1D37930A47F58884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283255   (740336) от 16.02.2019
+
+VA - The Official UK Top 40 Singles Chart 15.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - break up with your girlfriend, i'm bored
+02. Ariana Grande - 7 rings
+03. Lewis Capaldi - Someone You Loved
+04. Sam Smith, Normani - Dancing With A Stranger(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D88A6892215B9199362DF9DC709F9BFE07AF127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283094   (740335) от 16.02.2019
+
+Millencolin - SOS (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Praeparatus Supervivet
-02. Solur
-03. Prometheus Rise
-04. Moonlight Shadows(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:18
+01. SOS (03:19)
+02. For Yesterday (02:46)
+03. Nothing (02:58)
+04. Sour Days (03:07)(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:35:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DCF255E05E9A7ACD10979FC75C697C9B8EEDDA4
+magnet:?xt=urn:btih:A1D4078F596D0C7C529A71984BCF0F1CD3D7F818
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,81 +583,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527482   (736930) от 28.01.2022
+###  Публикация: 1283171   (740334) от 16.02.2019
 
-Клоун Коко и его добыча / KoKo's Catch (1928) TVRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс, похоже, еще тот ходок. Во всяком случае, когда у него появилась новая секретарша, все его внимание сосредоточилось на ней. А от своих старых друзей Коко и Фитца он просто отмахнулся. И они остались предоставлены сами себе...Производство: США, Inkwell StudiosЖанр: Рисованная анимация, короткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские встроенные отключаемыеПродолжительность: 00:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EFF8CFA9FCF64214AEEC13DE184A1FA2F6E766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527333   (736929) от 28.01.2022
-
-Dianthus - Realms (2022) [MP3|320 kbps] <Alternative, Progressive Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Realms (05:42)
-02. My First Breath (03:10)
-03. Don't Change (04:01)
-04. Creeping In (02:41)(   Читать дальше...   )Жанр: Alternative, Progressive Metal, Female VocalПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A00C7ECAEBDFAE76291D194B553E4F0B5BA4658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527526   (736928) от 28.01.2022
-
-EverWeb (Standalone) 3.6.1 [En]
+Футбол. Лига Европы УЕФА 2018-2019. 1/16 Финала. 1-й матч. Олимпиакос (Греция) — Динамо К (Украина) (14.02.2019) IPTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С EverWeb любой может создать профессиональный веб-сайт, просто перетаскивая его. Используйте один из встроенных шаблонов или начинайте с нуля и создавайте идеальный веб-сайт для вашего бизнеса или личного хобби. Добавьте текст, фотографии, видео, виджеты и многое другое, чтобы легко создать нужный веб-сайт.
-EverWeb даже создает мобильные сайты, которые отлично смотрятся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2022 RAGE SoftwareПоддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
+14 февраля 2019, четверг. 20:55 МСК
+Лига Европы УЕФА 2017 - 2018. Плей-офф.
+1/16 Финала. 1-й матч.
+Олимпиакос (Пирей, Греция) — Динамо (Киев, Украина)(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F64013588D39BD3BDC5E73A5A92C707199136524
+magnet:?xt=urn:btih:7D2D2A05174608D3B1F147AB6F25A93AA79FD375
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,25 +612,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527477   (736927) от 28.01.2022
+###  Публикация: 1283186   (740333) от 16.02.2019
 
-Мэри Пикфорд. Стопроцентная американка / One Hundred Percent American (1918) DVDRip
+Футбол. Лига Европы УЕФА 2018-2019. 1/16 Финала. 1-й матч. БАТЭ (Беларусь) — Арсенал (Англия) (14.02.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Четвертый Займ Свободы, выпущенный в конце 1918 года так увлек Мэри Пикфорд, что распространились слухи, будто она собирается отбыть за океан и помогать там армии. Она снялась в короткометражном пропагандистском фильме «Стопроцентная американка», где сыграла Мэйм, бедную девушку, которая отказывается от поездок на трамвае и идет две мили пешком, чтобы сберечь пять (   Читать дальше...   )Производство: США, Famous Players-Lasky Corporation / Liberty Loan CommitteeЖанр: Короткометражка, немое киноРежиссер: Артур РоссонАктеры: Мэри Пикфорд, Лоретта Блейк, Теодор Рид, Генри Бергман, Монте Блу, Джоан МаршПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 00:14:24
+14 февраля 2019, четверг. 20:55 МСК
+Лига Европы УЕФА 2017 - 2018. Плей-офф.
+1/16 Финала. 1-й матч.
+БАТЭ (Борисов, Беларусь) — Арсенал (Лондон, Англия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:905CC1BD17F076FC4A6911FE99AC242AF15A5847
+magnet:?xt=urn:btih:F45370C5CFFCECCAE4CE45FEFD7605BD9232DBBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,59 +641,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527258   (736926) от 28.01.2022
+###  Публикация: 1283239   (740332) от 16.02.2019
 
-VA - Best of Cafe De Anatolia 3 (2020) [AAC|~317 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jose Solano - Kanun (8:06)
-02. Martin Hiska - Dust (4:59)
-03. Serkan Eles - Tevafuk (6:29)
-04. Elias Fassos, RisK (Gr) - Sunset in Ayia Napa (7:08)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 04:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5466EE284D2FB3807B2D9D1550591D6337169FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527337   (736925) от 28.01.2022
-
-Pyramaze - Epitaph (2020) [FLAC|Lossless|image + .cue] <Power Metal, Progressive Metal>
+Shivaree - Full Studio Discography (1999-2007) [FLAC|Lossless|tracks + .cue] <Country Rock, Soft Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PYRAMAZE - ведущая Progressive/Power Metal группа из Дании, сформированная в 2001-ом году.
-В 2007 году бывший вокалист Iced Earth Matt Barlow предстал в качестве нового вокалиста Pyramaze и записал с ними альбом "Immortal" (2008).
-С 2011-го года к составу группы в качестве гитариста присоединился самый известный датский продюсер Jacob Hansen.01. Epitaph
-02. A Stroke Of Magic
-03. Steal My Crown
-04. Knights In Shining Armour(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 01:01:46
+01. Paradise (3:49)
+02. I Wanna Be Your Driver (2:30)
+03. Half On A Baby (4:15)
+04. Don't Stop 'Til You Get Enough (4:02)(   Читать дальше...   )Жанр: Country Rock, Soft Rock, Indie Rock |Продолжительность: 00:34:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C45B02FD9019D5323A22F2050EF387139A3C7964
+magnet:?xt=urn:btih:1643B44017ADB73FE7CD4D19895C8D472DF9DFD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -704,28 +670,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527500   (736924) от 28.01.2022
+###  Публикация: 1283331   (740331) от 16.02.2019
 
-VA - Vintage Remix Cafe (2022) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo, Pop>
+Футбол. Лига Европы УЕФА 2018-2019. Плей-офф. 1/16 Финала. Обзор первых матчей (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sarah Menescal - Here Comes the Sun (Remix) (2:38)
-02. Urban Love, Bellestar - Love is in the Air (Bellestar Remix) (3:13)
-03. Banda Do Sul, Cherie Currie - Here Today, Gone Tomorrow (Positive Remix) (2:49)
-04. Banda Do Sul, Natalie Renoir - Watermelon Sugar (Ronan Remix) (2:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, PopПродолжительность: 00:56:16
+14 февраля 2019, четверг.
+Лига Европы УЕФА 2017 - 2018. Плей-офф.
+Обзор первых матчей 1/16 Финала.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:25:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F11220FECC9F937C9C0A510AA713131C0E57879
+magnet:?xt=urn:btih:5C0B588F82FAFE65917A247B3024C558614B7220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283402   (740330) от 16.02.2019
+
+Сноуборд. Чемпионат мира 2019. Парк-Сити (США). Хафпайп (2019) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740330.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2019 года
+3-й совместный Чемпионат мира по фристайлу и сноуборду 2019. Парк-Сити (США).
+Сноуборд.
+Хафпайп. Мужчины и Женщины(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2F7724BB92CB6B27FC1A30E0FACFAB5AA3BBCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

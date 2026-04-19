@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 434247   (1063069) от 
+###  Публикация: 434247   (1064394) от 28.03.2026
 
 Протодиакон Андрей Кураев | Полное собрание лекций протодиакона Андрея Кураева [2011] [MP3]
 
@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064394.jpg" />
 </div>
 
 

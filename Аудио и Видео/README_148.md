@@ -1,3 +1,177 @@
+###  Публикация: 1545551   (613282) от 20.04.2022
+
+VA - Sommerbrise 2K22: The Chill & Deep House Session (2022) [AAC|~298 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kid Vibes, Lazar Kissiov, Stashica - Falling (4:04)
+02. Susana - Storm (Boryka Rising Storm Mix) (8:23)
+03. Blacksheep - I'm Just a Kid in a Dream (6:13)
+04. navi - Shapat (4:20)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6C844F53C7368B15FCFF2E6A3FE0F21E60CAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545552   (613269) от 20.04.2022
+
+VA - Los Angeles Beach Lounge, Vol. 5 (2022) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monodeluxe - Could It Be (4:52)
+02. Tapelapse - NYC Clouds (1:28)
+03. Jezzalounge, Delphine - Rêve Fragile (Original Mix) (5:29)
+04. Lemongrass - September (Originalmix) (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01EF24580F3C937351C559FF43B609D1AF70B27A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545518   (613268) от 20.04.2022
+
+VA - Chillout Spring Gems 2022: Chillout Your Mind (2022) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Move (Original Mix) (3:34)
+02. Martin Hiska - Shangla (3:41)
+03. Michael e - Lost in Thought (Original Mix) (5:19)
+04. Beamy - Elmwood (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC87D8E7B90138329BFDCA6427427B90392796B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545519   (613261) от 20.04.2022
+
+VA - Groove Beats: Urban Chillout Music (2022) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magmatunes - Fool for You (Original Mix) (5:52)
+02. Matej Blanusa - Any Love (4:28)
+03. sarosa - Blow Up (Original Mix) (4:42)
+04. Roberto Bronco - Beam Me Up (Original Mix) (4:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695A50803194FE5641ADC4340A656B564BCA5E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545528   (613169) от 20.04.2022
+
+Валерий Меладзе, Константин Меладзе - Полста, Vol. 2 (2016) [AAC|~268 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лимбо (4:03)
+02. Сэра (3:53)
+03. Разведи огонь (4:02)
+04. Актриса (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A80685B49CFD49F5D752DF5B4EAA82DCC78410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545523   (613168) от 20.04.2022
+
+Ногу Свело! - Хару мамбуру (1993) [AAC|~351 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тарзан (2:45)
+02. Ю а биг (3:35)
+03. Секс с самим собой (3:56)
+04. Хару виват! (0:27)(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A5AD59E8AFB9CE5BF02AECDFC4B9BB763624D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545524   (613165) от 20.04.2022
 
 Ногу Свело! - Хару мамбуру 25 (2019) [AAC|~332 Kbps] <Rock>
@@ -523,180 +697,6 @@ VA - Beluga Lounge, Vol. 4 (2013) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5366D836552A5297E8DD15938E5B80C74AD90C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545777   (609753) от 22.04.2022
-
-VA - Beluga Lounge, Vol. 2 (2012) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J'Unique - Eine sekunde (Faris al-hassoni timecode mix) (6:26)
-02. 351 Lake Shore Drive - Provençale (Hotel Del Mar Edit) (5:10)
-03. Johannes Huppertz, Twila.too - Sapristi (4:48)
-04. Euphonic Traveller - Loungin @ la rue boissy d anglais (6:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2FC9AB26E1BA63403E3E98E5B26CCDECB71A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545779   (609752) от 22.04.2022
-
-VA - Beluga Lounge, Vol. 3 (2013) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cardinal Zen - Summer Solstice (4:48)
-02. Barclay & Cream - Natural Thing (Alexander Metzger Mix) (5:16)
-03. Northbound - Twice the Day (4:34)
-04. Guenter Haas - Cienfuegos (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93A89A6035DE27CB2DF2A584A306165ED284EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545999   (609741) от 22.04.2022
-
-VA - We Chill del Mar, Vol. 2 (2014) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ms. Jones and the Fireflies - Inception of Life (Birdy Monster People Mix) (5:23)
-02. Restless Mind - Chill Fever (Chill Del House Edit) (5:05)
-03. Pink Cookies - Clouds but No Sky (Shake in Harlem Mix) (6:02)
-04. Untited Basement Chiller - After Work (Jo Low Edit) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433ABE8FB191339438998A76A7FFDC8FEA83F1D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545786   (609739) от 22.04.2022
-
-VA - Chillout Room Session #2 (2012) [AAC|~293 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antibe Coast - Stile moderno (4:41)
-02. Jazz Nature - Consumato (5:04)
-03. Free South Project - Riflesso (5:07)
-04. Purechill - Un attimo (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61636D37F17CCD2273671C0209B4456BC656EF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546009   (609634) от 22.04.2022
-
-VA - Cigar Lounge, Vol. 1 (2015) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rainer Schnelle - White Wine (Underscore Version) (1:40)
-02. Omaya - Silence (3:29)
-03. Van Young - 'Em Be Myo (4:53)
-04. Body Talkers - Let the Music Be Your Guide (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134BE0C4204072C672258691BED5C44E49D64B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545775   (609633) от 22.04.2022
-
-VA - Beluga Lounge, Vol. 1 (2011) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqualise, Jane Henley - Lost in the Sea (8:46)
-02. Albert St.Barth - Cafe au lait (Deluxe Lounge Mix) (5:52)
-03. Josephine Sinclar - Sommernachtstraum (Kiss and Blow Mix) (7:11)
-04. Smooth Deluxe - El Ritmo (Private Gossip Edit) (5:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0A985E0072C8CF3E920FE977070EAA1F9BDF8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

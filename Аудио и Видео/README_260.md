@@ -1,3 +1,206 @@
+###  Публикация: 1516107   (167949) от 09.12.2021
+
+VA - Caravan 2 (2018) [AAC|~305 Kbps] <Chill Out, Downtempo, Organic House, Ethnic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stanisha - Caravan (9:50)
+02. Elias Fassos, RisK (Gr) - Manangel (5:57)
+03. Dreamers Inc, TreePines - Desert Sound (ThroDef Istanblues Remix) (6:18)
+04. Stanisha - Amman (11:12)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic House, EthnicПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6D69B0E33DECCF9B9A814A2CA5E307152205E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516063   (167936) от 09.12.2021
+
+VA - Earthbound Collection, Vol. 2 (Compiled by Salvo Migliorini) (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Deep House, Ethnic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Essek - Krangalis (7:22)
+02. Jose Solano - Jangal (8:02)
+03. Mikhail Catan - Oracle (5:44)
+04. Ali Termos - Roya (4:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, Deep House, EthnicПродолжительность: 01:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA06C654AB48ACD114E7722593C02E848E97B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515912   (167933) от 09.12.2021
+
+VA - Buddha Luxury, Vol. 3 (Esoteric World Music) (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J. R. Haim - Yasmin (Original Mix) (3:31)
+02. Mandarin Plaza - Carpet Ride (Original Mix) (5:09)
+03. FAT V - Silence of Sadness (Original Mix) (5:44)
+04. Clelia Felix - Eastern Sunrise (Original Mix) (4:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA50A7EFF365F1169437FD4560748CEDD17687E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516060   (167922) от 09.12.2021
+
+VA - Earthbound Collection, Vol. 1 (Compiled by Salvo Migliorini) (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Deep House, Ethnic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jose Solano - Hakina (8:15)
+02. Toulouse - Damask Rose (6:47)
+03. Nevel (IT) - Elisir (5:30)
+04. Levo - Hadria (6:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, Deep House, EthnicПродолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0CA6459B766EA6CC1F1F512F789104306E73C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515953   (167919) от 09.12.2021
+
+VA - Buddha Luxury, Vol. 2 (Esoteric World Music) (2018) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silvio Piersanti - Hand in Hand (World mix) (2:57)
+02. Travel Memories, Marco Attali - My Brazilian Heart (Original Mix) (3:30)
+03. Dharma Frequency - Oriental Pleasure (Original Mix) (3:54)
+04. Marga Sol - Desedena (Instrumental Mix) (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8481A968788034C67274631054121FB2627BCB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516065   (167913) от 09.12.2021
+
+VA - Earthbound Collection, Vol. 3 (Compiled by Salvo Migliorini) (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Deep House, Ethnic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clive Vaz - Morning Glory (6:39)
+02. Marga Sol, Zarina - Mandala (Shar Planina) (7:22)
+03. The Mystic - Anam Cara (5:36)
+04. Deepwalk - Ayahuska (5:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, Deep House, EthnicПродолжительность: 02:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B8D0D2EE3345684C260C020474487C69B220FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515907   (167909) от 09.12.2021
+
+VA - Buddha Luxury, Vol. 5 (Esoteric World Music) (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sami Sivananda - Shikantaza (Original Mix) (2:47)
+02. Finland & Aaskoven - La Balbianello (Original Mix) (6:25)
+03. Mirage Of Deep - Shabanna (5:46)
+04. Duke B, Nacho Arimany, Gaida - Divina (4:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53E6E22BF83CD440D1A4F61E911641BA6605E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515905   (167895) от 09.12.2021
 
 VA - Buddha Luxury, Vol. 6 (Esoteric World Music) (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
@@ -536,198 +739,6 @@ VA - Armada Music 2022 (2021) [AAC|~322 Kbps] <House, Deep House, Dance, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BFF709DF50FFDE2379BD08EC030D2A8EC1342DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516299   (166991) от 10.12.2021
-
-VA - FROZEN Yellow (2021) [AAC|~300 Kbps] <Dub Techno, Deep House, Deep Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignacio Tardieu - BASIC002 (6:48)
-02. Kyrro - Regeneration (7:08)
-03. Lotech/Hijack - further out (7:49)
-04. Ajnkana - Monoject (Hypno Dub Edit) (7:34)(   Читать дальше...   )Жанр: Dub Techno, Deep House, Deep TechnoПродолжительность: 02:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8055969E7F4CF861CB495699C25B19828BB8178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516314   (166981) от 10.12.2021
-
-Alicia Keys - KEYS (2021) [AAC|~298 Kbps] <Soul, R&B, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166981.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Alicia Keys, Pusha T - Plentiful (Originals) (3:09)
-1.02. Skydive (Originals) (3:04)
-1.03. Best Of Me (Originals) (3:59)
-1.04. Dead End Road (Originals) (3:32)(   Читать дальше...   )Жанр: Soul, R&B, PopПродолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94EFABD0879F5BA81E9C127E585C3D385147CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345228   (166970) от 14.12.2019
-
-Шестеро вне закона / 6 Underground (2019) WEBRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть миллиардеров фальсифицируют собственные смерти и создают отряд мстителей, чтобы самостоятельно вершить правосудие.Производство: США / Bay Films, Skydance MediaЖанр: Боевик, триллерРежиссер: Майкл БэйАктеры: Райан Рейнольдс, Мелани Лоран, Мануэль Рульфо, Бен Харди, Адриа Архона, Дэйв Франко, Кори Хоукинс, Лайор Раз, Пейман Моаади, Юрий КолокольниковПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB60A6D6D9A2FE31BEACD31B2AD1CE472C7BAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516247   (166891) от 10.12.2021
-
-Галлиполи / Gallipoli (1981) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166891.jpg" />
-</div>
-
-
-###  Подробнее
-
-1915 год. Два романтически настроенных молодых человека вступают в ряды австралийских вооруженных сил. После ускоренной подготовки в «учебке», затерянной в песках близ древнеегипетских пирамид, приятелей отправляют в полк, который ведет боевые действия против турецкой армии.
-Друзья еще не знают, что им предстоит принять участие в битве при Галлиполи - одном из самых (   Читать дальше...   )Производство: Австралия / R & R Films, The Australian Film CommissionЖанр: драма, приключения, военный, историяРежиссер: Питер УирАктеры: Мэл Гибсон, Марк Ли, Билл Керр, Харольд Хопкинс, Чарльз Латалу Юнипингу, Хит Харрис, Рон Грэхэм, Герда Николсон, Роберт Грубб, Тим МакКензиПеревод: Профессиональный двухголосыйСубтитры: русские, английскиеПродолжительность: 01:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FBE3185CACDF2152F7CCB97261E4D7417E24A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516253   (166792) от 10.12.2021
-
-Венецианский купец / The Merchant of Venice (2004) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в Венеции. Жизнерадостные, беспечные, щедрые венецианцы недолюбливают и высмеивают угрюмого иноверца Шейлока, алчного ростовщика, считающего каждую копейку. Шейлок отвечает им лютой ненавистью. Конфликт обостряется, кровопролитие кажется неминуемым. Но тут вмешивается созидающая сила женской любви.Производство: Великобритания, Люксембург, Италия / 39 McLaren St. Sydney, Avenue Pictures, Dania Film, Delux Productions, Film Fund LuxembourgЖанр: драма, мелодрамаРежиссер: Майкл РэдфордАктеры: Аль Пачино, Джереми Айронс, Джозеф Файнс, Линн Коллинс, Зулейха Робинсон, Крис Маршалл, Чарли Кокс, Хезер Голденхерш, Макензи Крук, Джон СешнсПеревод: Профессиональный двухголосыйСубтитры: русские, английскиеПродолжительность: 02:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C75BE9429285931C5C6EFCA256C81EC713CBD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516217   (166515) от 10.12.2021
-
-Королевская игра / Schachnovelle (2021) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вена, 1938 год. Юрист Йозеф Барток вместе с женой собирается покинуть оккупированную нацистами Австрию, но его арестовывает гестапо. От Бартока требуют выдать конфиденциальную информацию о клиентах, а после отказа помещают в одиночное заключение и полностью лишают связи с внешним миром. Но однажды Йозефу удается украсть у своих тюремщиков книгу о шахматах. Она становится (   Читать дальше...   )Производство: Германия, Австрия / Walker Worm Film, ARD Degeto Film, Bayerischer Rundfunk (BR)Жанр: драма, триллерРежиссер: Филипп ШтёльцльАктеры: Оливер Мазуччи, Альбрехт Шух, Биргит Минихмайр, Рольф Лассгор, Андреас Луст, Самуэль Финци, Лукас Мико, Клеменс Берндорфф, Герхард Фледль, Луиза-Селин ГаффронПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02A2C6B1F17560B609955017749BE5BB37A38B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516388   (166276) от 11.12.2021
-
-VA - Mystical Frequencies (2021) [AAC|~328 Kbps] <Psy-Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twelve Sessions - Reborn (Original Mix) (6:42)
-02. Lunatica, Hypatia - Brain Sequences (Original Mix) (7:40)
-03. Zephirus Kane - Synchronicity (Original Mix) (7:17)
-04. Redrosid - Energetic State (Original Mix) (7:38)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9AA5805516709F616270359A737B2A6264F034
 ```
 
 https://mybot314.ru/tekegram_catalog/

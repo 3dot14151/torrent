@@ -1,3 +1,61 @@
+###  Публикация: 1115150   (828044) от 17.03.2017
+
+VA - Bass Sound Clinic: Drum & Bass Vol.1 (2017) [MP3|320 Kbps] <Drum And Bass, Dubstep, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828044.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Foreign Beggars - Apex (Dirtyphonics Remix)
+002. Martin Garrix - Animals (Instant Party! Remix)
+003. 1.8.7. Deathstep - Defcon (Cruel Reaction Remix)
+004. 3D Stas - Blind Drive (Rusty K Remix)(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, ElectroПродолжительность: 09:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A990DE8AEF86439750177004BCC45B2E9A177664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378875   (827740) от 06.05.2020
+
+VA - Carried away by space (2020) [MP3|320 Kbps] <Trance, Dance, House, Epic Rock>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - I Live For That Energy
+02. Gaia - Tuvan
+03. Tiesto - Adagio For Strings
+04. Andy Moor - K Ta(   Читать дальше...   )Жанр: Trance, Dance, House, Epic RockПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A99EED874A4F47E62C9712A64AED48A55015376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006494   (827256) от 12.04.2016
 
 VA - Misha Dance Party Vol.1 (2016) [MP3|320 кб/с] <House, Electro House>
@@ -690,64 +748,6 @@ VA - Mega Bass: Прокачай свою систему 12 (2011) [MP3|320 kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:693E734B4CA62077A2A6E82B8F48E5979A81B693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502856   (821107) от 18.10.2021
-
-VA - Synthpop Favorite Playlist (2021) [MP3|320 Kbps] <Synthpop, Electro Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bronski Beat - Why!
-002. New Order - Be A Rebel
-003. Mkrni - En Tu Lugar
-004. Kaleida - Long Noon(   Читать дальше...   )Жанр: Synthpop, Electro Pop, DanceПродолжительность: 06:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A195D90131DF1174D0F3E5582A5BDCE7E4029C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382238   (821028) от 10.05.2020
-
-VA - Beatport Psy Trance: Electro Sound Pack #78 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821028.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Replay - Danger (feat. Katri)
-002. Loose Connection - Spiral
-003. Satya - Pedition Of Dreams
-004. 3g1k - Hive Mind(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 13:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5D02323216E6C129529183ADA00D766B95F338
 ```
 
 https://mybot314.ru/tekegram_catalog/

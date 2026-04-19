@@ -1,23 +1,48 @@
-###  Публикация: 1526692   (738181) от 25.01.2022
+###  Публикация: 1397280   (741249) от 19.07.2020
 
-Posterino 3 v3.11.4 [Multi]
+Жизнь Раз (2018) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писательница и экспатриант Марина получает приглашение на встречу выпускников школы. Поддавшись ностальгическому порыву, она прилетает из Европы в Новоустиновск - уездный город в средней полосе страны, которой уже давно не существует. Там, в провинциальной глубинке прошлого, живут ее воспоминания и старые подруги, все они эфемерны как телевизионные передачи из другой (   Читать дальше...   )Производство: Россия, Нидерланды, Чехия / Студия «Тритона»Жанр: ДрамаРежиссер: Владимир РакшаАктеры: Ингеборга Дапкунайте, Иван Кожевников, Юлия Абрамова (II), Елена Дегтянникова, Анна Асташкина, Айк Саргсян, Полина Виторган, Андрей Железный, Марк ТузенкоСубтитры: НетПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3F422E27CB3A8A583B94E5C99CA7DE912B737D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397330   (741248) от 19.07.2020
+
+UltraISO Premium Edition 9.7.3.3629 (DC2020-07-17) [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Posterino – программа, ориентированная на создание различных постеров и открыток. Включает в себя достаточно много разных шаблонов, касательно расположения изображений на постере. Среди них такие знаменитые, как 365 Days, Landscape, Classic, Clasters и многие другие.
-Шаблоны можно редактировать, получая в какой-то мере произвольные результаты постеров. Это достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2005-2022 Zykloid SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AC4B053507A1AB47C882D749AA8E08EE155249C
+magnet:?xt=urn:btih:3C20C80E17B2772AFDBE0183744DC11D9675FE72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,26 +50,570 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526719   (738180) от 25.01.2022
+###  Публикация: 417605   (741247) от 19.07.2020
 
-GoodNotes 5 v5.7.58 [Multi/Ru]
+Расул Гамзатов | Мой дедушка (1975) [PDF, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Букинистическое издание.
+ В книге представлена поэма Расула Гамзатова «Мой дедушка».
+С иллюстрациями. Для детей дошкольного возраста.Жанр: Детская литератураФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532D471E9FDAE32C148500A769807B0E2BBA24D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397226   (741246) от 19.07.2020
+
+[Udemy] Leonid Shapiro | Инфраструктура Открытых Ключей (PKI). Часть 1, 2  (2017, 2019) PCRec
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс посвящен внедрению инфраструктуры открытых ключей в корпоративной среде.
+В первой части курса слушатели познакомятся с теоретическими основами Инфраструктуры Открытых Ключей (PKI) и поймут основы криптографии. Научаться проектировать многоуровневые иерархии PKI и обеспечивать их безопасность и доступность.
+Во второй части слушатели научатся внедрять PKI на основе (   Читать дальше...   )Производство: Leonid ShapiroЖанр: Криптография, информационная безопасностьПродолжительность: 09:55:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397299   (741245) от 19.07.2020
+
+Мой создатель / Archive (2020) WEB-DL  [H.264/1080p] [EN / EN Sub]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741245.jpg" />
+</div>
+
+
+###  Подробнее
+
+2046-ой год. Время невероятных технологических открытий, могущественных корпораций и торжества искусственного интеллекта.
+Молодой ученый в секретной лаборатории занимается поиском вечной жизни для сильных мира сего. Но его истинная цель другая. Он пытается воскресить свою единственную любовь, погибшую несколько лет назад.
+Когда объект перестает выходить на связь, (   Читать дальше...   )Производство: Великобритания, Венгрия, США / Head Gear Films, Hero Squared, IndependentЖанр: фантастикаРежиссер: Гэвин РотериАктеры: Рона Митра, Тео Джеймс, Тоби Джонс, Стэйси Мартин, Питер Фердинандо, Ричард Гловер, Ханс Петерсон, Джереми Вилер, Timea Maday KingaПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: English (Full, SDH)Продолжительность: 01:49:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392261   (741244) от 19.07.2020
+
+Первое убийство / First Kill (2017) BDRip [H.264/1080p]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм об опытном офицере, который расследует похищение мальчика, ставшего свидетелем разборки между банковскими грабителями. Вызволить ребенка так же торопится его молодой отец, вызывающий у полицейского серьезные подозрения — а не был ли он сам связан с этим ограблением?Производство: США / Aboretum Productions, Brookstreet Pictures, Emmett/Furla/Oasis Films (EFO Films)Жанр: Боевик, триллерРежиссер: Стивен С. МиллерАктеры: Брюс Уиллис, Хейден Кристенсен, Тай Шелтон, Меган Леонард, Гетин Энтони, Уильям ДеМео, Дэб Дж. Гирдлер, Тайлер Джон Олсон, Ши Бакнер, Маги АвилаПеревод: 2 х Профессиональный многоголосый, авторскийСубтитры: Английские (Full, SDH)Продолжительность: 01:41:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397244   (741243) от 19.07.2020
+
+Марьяна Терехина | Планирование для блогеров и предпринимателей (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вебинар, на котором мы наведем порядок в ваших делах и организуем работу с командой/клиентами/блогом
+Создадим систему управления вашим делом и блогом в бесплатной программе Notion. Она станет фундаментом для вашего развития, поможет навести порядок в жизни, найти дополнительное время на отдых и начать получать крутые результаты!Жанр: Бизнес-планированиеПродолжительность: 03:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F27B12B25FEAB6F4CCA69537FFDBD849FADBC15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283102   (741242) от 15.02.2019
+
+Gene Krupa & His Orchestra - Let Me Off Uptown (1949) 2000, Trama [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disc Jockey Jump [3:06]
+02. Yesterdays [3:20]
+03. Lemon Drop [3:26]
+04. After You've Gone [3:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD76498DDE8280BE925F54B7CD521381A1BB987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282869   (741241) от 15.02.2019
+
+Carmen McRae - Black Magic "Live" (1979 - 1981) 1992, Jazz Hour [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Magic [3:50]
+02. Last Winter [4:29]
+03. New York State of Mind [5:18]
+04. Underneath the Apple Tree [4:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08239A0AAC83C3F113579F1F18C420E5FFE67B29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282862   (741240) от 15.02.2019
+
+Benny Goodman - Stompin' At The Savoy (1935 - 1938) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Porter Stomp [3:11]
+02. Goodbye [3:27]
+03. If I Could Be with You (One Hour Tonight) [2:18]
+04. Down South Camp Meeting [3:20](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF0C5079A3D8B0B2EDAB2D06C04D769C84144A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283108   (741239) от 15.02.2019
+
+John Coltrane - Jazz Classics (1959, 1960) 2006, Flashback [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giant Steps [4:46]
+02. Naima [4:22]
+03. My Shining Hour [4:52]
+04. Central Park West [4:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14F1E0EE2177A5AE2E3FDDDD81130F505F76A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282874   (741238) от 15.02.2019
+
+Carmen McRae - You're Lookin' At Me (1983) 1986, King Record [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm an Errand Girl for Rhythm [3:33]
+02. Beautiful Moons Ago [3:11]
+03. The Frim Fram Sauce [3:59]
+04. Come in out of the Rain [3:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F823DDDCD4C255CF4EF58CA92AFA4BCA52E5B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282859   (741237) от 15.02.2019
+
+Count Basie - Basie Boogie (1959) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Mellotone [6:01]
+02. The Midgets [9:25]
+03. Whirly-Bird [4:07]
+04. Basie Boogie [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C0136BB8D91CB72688942A610153DEE92889FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283105   (741236) от 15.02.2019
+
+Beegie Adair - Into Somethin' (2011) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Walked Bud [4:43]
+02. All in Love Is Fair [4:45]
+03. Lovesick Blues [3:28]
+04. Try Again [4:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF3207FC35ED1729CCC985C790DACCA9644D00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283104   (741235) от 15.02.2019
+
+Carmen McRae - Ms. Magic (1978) 1986, Dunhill Compact Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Coming Home [4:21]
+02. Burst in with the Dawn [4:37]
+03. Come in from the Rain [4:17]
+04. I Won't Last a Day Without You [7:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FFC001B63295E86070BC89895FB2AF0906E78E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283107   (741234) от 15.02.2019
+
+Jackie McLean Quartet - Dr. Jackle (1966) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Jackle [12:25]
+02. Melody for Melonae [10:52]
+03. Jossa Bossa [9:20]
+04. Little Melonae [14:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7867BFE4A501FB163FF89AAD045EE90DE7052C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282876   (741233) от 15.02.2019
+
+Count Basie - Portrait (1930-e) 2002, Rainbowcd.com [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basie Blues [3:08]
+02. Mutton Leg [3:22]
+03. It's Sand, Man [3:08]
+04. Wild Bill's Boogie [2:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE6D57A8C553DB95B93BEEEF0122DF65624A8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283139   (741232) от 15.02.2019
+
+BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BK & Christopher Lawrence - Warp (7:23)
+02. BK & EJ Doubell - Butterflies (7:46)
+03. BK & Tom Harding - Raucous (2:56)
+04. BK & Dave Randall - Tiptronic (5:25)(   Читать дальше...   )Жанр: House, Hard HouseПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680F533C78B26AAB6770A5DC385318B16707A37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283170   (741231) от 15.02.2019
+
+Splashgirl - Sixth Sense (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Nu Jazz, Dark Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carrier (6:17)
+02. Broken (7:20)
+03. Sixth Sense (6:59)
+04. Monsoon (4:18)(   Читать дальше...   )Производство: Hubro – HUBROCD2587Жанр: Jazz, Nu Jazz, Dark JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FEB45C6FB0DA9030E34A5F6C0438CCBABEF0EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283138   (741230) от 15.02.2019
+
+Александр Кравецкий | Церковная миссия в эпоху перемен (2011) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просматривая предреволюционные и современные публикации, посвященные проблемам миссии, нельзя отделаться от впечатления, что, рассуждая о миссии, авторы разных эпох пишут о совершенно различных предметах. Очевидно, что понятие миссия за прошедшее столетие претерпело существенные изменения.
+
+Если современный человек под миссионерской деятельностью Церкви понимает, (   Читать дальше...   )Жанр: История церквиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B000DE91443DF8FA515AF257A1A777349620B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283099   (741229) от 15.02.2019
+
+Tony Bennett - As Time Goes By: Great American Songbook Classics (1950-e) 2013, Concord Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Moon [2:14]
+02. Reflections [3:35]
+03. As Time Goes By [3:15]
+04. Maybe September [3:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE999F8484D4D58113215D6680483F74B9FDC95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127205   (741208) от 20.04.2017
+
+Хоккей. КХЛ 2016-2017. Кубок Гагарина. Финал. 3-й матч. СКА (Санкт-Петербург) — Металлург (Магнитогорск) (12.04.2017) IPTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741208.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
-Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2011-2022 GoodNotes LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+12 апреля 2017, среда. 19:30 МСК
+КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 3-й матч
+СКА (Санкт-Петербург) — Металлург (Магнитогорск)
+Стадион: Ледовый дворец (Санкт-Петербург, Россия), 12348 зрителей (99 % при вместимости 12500)(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:52:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C5A25036E5D29F465CFECE6BD9B079944C93439
+magnet:?xt=urn:btih:F3134E5872217EF1D9A911DF78CECEEA6208F12A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,26 +621,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526679   (738179) от 25.01.2022
+###  Публикация: 864993   (741207) от 19.07.2020
 
-Author 8.1 [Multi]
+Ю.С. Карабасов и др. | Металлургия и время: энциклопедия. В 6-ти томах [6 книг] (2011-2014) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энциклопедия включает шесть томов, содержание которых отражает более чем 10-тысячелетний путь, пройденный металлургией. Подробно и популярно изложены ключевые моменты развития металлургии. Рассмотрены социальные, политические, экологические и другие объективные и субъективные обстоятельства появления изобретений и открытий в области металлургического искусства. Это (   Читать дальше...   )Жанр: МеталлургияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23415C20C9C1DE350A782D89952E97A799EBE57F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126913   (741206) от 20.04.2017
+
+Хоккей. КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 2-й матч. Металлург (Магнитогорск) — СКА (Санкт-Петербург) (10.04.2017) IPTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741206.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение Author это - полный контроль над процессом авторства с помощью расширенной копии цитирования, расширенного глоссария, расширенных представлений, вырезок и многого другого.
-Когда вы будете готовы поделиться своей работой в формате PDF, вы получите автоматически созданный справочный раздел. Вы также можете публиковать сообщения в WordPress.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2007-2021 The Augmented Text Company LTD, UKПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
+10 апреля 2017, понедельник. 17:00 МСК
+КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 2-й матч
+Металлург (Магнитогорск) — СКА (Санкт-Петербург)
+Стадион: Арена-Металлург (Магнитогорск, Россия), 7500 зрителей (97 % при вместимости 7700)(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:58:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A5C0D16714BE70407E5E1AE248F31398DF1F959
+magnet:?xt=urn:btih:BC5A3A341904551DA5B74F1F63DAB5BA70ED5363
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,26 +676,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526655   (738178) от 25.01.2022
+###  Публикация: 528557   (741205) от 19.07.2020
 
-Dropzone 4 Pro v4.2.5 [En]
+Тараканище (1963) DVDRip [H.264] [Реставрация КП]
 
->>Архив торрентов
->>Архив 4Apple
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2022 Aptonic LimitedПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский
+По сказке К. Чуковского о страшном-престрашном Тараканище, который до смерти напугал всех зверей, но был проглочен обыкновенным маленьким воробышком.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, Детский, СказкаРежиссер: Владимир ПолковниковСубтитры: ОтсутствуютПродолжительность: 00:16:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04A2BF53FFFABF6ADDB5AF252015E82D904254A1
+magnet:?xt=urn:btih:88A834C4DCC54C21BB782C2B08DFD11ECC61805C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,610 +702,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526575   (738177) от 25.01.2022
+###  Публикация: 1127125   (741204) от 20.04.2017
 
-VA - Milano Orange (Urban Music for Urban People) (2018) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
+Nels Cline & Vinny Golia - The Entire Time (2004) Nine Winds [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roberto Bronco - Spirit (Original Mix) (5:19)
-02. Giacomo Bondi - Breakfast Club Di Milano (Instrumental) (4:43)
-03. Brass - Firenze Vacations (Original Mix) (4:16)
-04. St Project - Sound of Dark (Original Mix) (3:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:10:56
+01.Divining [13:52]
+ 02.City Snow Stories [09:21]
+ 03.For Oliver Lake [04:59]
+ 04.The Tiny Boxes Speak Her Name [02:22](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:06:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2753D2BF690C703898934B56516D63929B25524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526715   (738176) от 25.01.2022
-
-WonderPen 2.0.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738176.jpg" />
-</div>
-
-
-###  Подробнее
-
-WonderPen - приложение для как для профессиональных, так и для писателей любителей. WonderPen - простой в использовании текстовый редактор с поддержкой Markdown с поддержкой полноэкранного режима. Документы могут быть экспортированы в качестве Image, PDF, HTML и т.д. WonderPen поддерживает автоматическое сохранение при редактировании, возможность добавления заметок (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 atominn.comПоддерживаемая ОС: macOS 10.11.0 +Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32184A9D0F6B5C032DB6847CCBC2D3E3329C2AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526574   (738175) от 25.01.2022
-
-VA - New York Orange (Urban Music for Urban People) (2018) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brazil Beat - Ain't No Sunshine (Original Mix) (3:56)
-02. Gabrielle Chiararo - Fool Me (Original Mix) (4:19)
-03. Soul Trend - You Got Me Wrong (Original Mix) (4:55)
-04. Pier-O - Dim Light (Original Mix) (5:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676B36F070820FE66033D1ADFB13DAAECAF799BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526579   (738174) от 25.01.2022
-
-VA - Singapore Orange (Urban Music for Urban People) (2019) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Copponi - Deep Blue (Original Mix) (4:42)
-02. Silvio Piersanti, Antonio Arena - Exotic (Original Mix) (3:24)
-03. Double Fab - Tribal Dreams (Original Mix) (8:10)
-04. Andrea Cardillo - Asiatic Girl (Original Mix) (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19792682404EB9ED1026F2B87AA1148EDAEE2D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526695   (738173) от 25.01.2022
-
-RAW Power 3.4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
-Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: © 2021 Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA4FD32310DE1D6A3B0BB93FAFCA26B8EAA4A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526699   (738172) от 25.01.2022
-
-Downie 4 v4.4.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A5828FA06C837BF422E4A905F4AC6E5709AE50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526571   (738171) от 25.01.2022
-
-VA - Monaco Orange (Urban Music for Urban People) (2018) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giacomo Bondi - Jazz Schema (Instrumental Mix) (4:20)
-02. Vibraphile - The Dream About You (Original Mix) (3:59)
-03. Gianna Chillà - Lady Flight (Original Mix) (4:11)
-04. Francesco Demegni - I Feel It Now (Instrumental) (3:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AB04C0246202DA388A3B93CAD1F2299E4FDB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526578   (738170) от 25.01.2022
-
-VA - Bali Orange (Music to Chillout & Relax) (2019) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e - Over the Hills and Far Away (Original Mix) (6:25)
-02. La Estación Del Mar - Punta Begona (Original Mix) (3:35)
-03. Dharma Frequency - Purple Water (Original Mix) (4:27)
-04. DJ Maretimo, Stereo Gringos - Texmex 3.0 (Laid Back Mix) (5:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D98BFAAB11C86D6CFB61B55FB7750EEDA618962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526734   (738169) от 25.01.2022
-
-Mirror for Sharp TV 3.6.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможно, вы уже смотрите шоу или видео на своем MacBook Pro или MacBook Air. Но зачем довольствоваться маленьким экраном? Зеркальное отображение вашего Mac на Sharp Smart TV возможно с помощью приложения Mirror for Sharp TV. Транслируйте экран своего ноутбука на телевизор без кабеля. Для обеспечения высочайшего качества просмотра приложение выделяется, как передовое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A79ED00B32AB49E4CB4C43211B2ACC6C97BBC9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526568   (738168) от 25.01.2022
-
-VA - The Electro Swing Revolution, Vol. 5 (2014) [AAC|~325 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Swing Circus - Bella Belle (3:38)
-02. Edgar Tones, The Susis! - Cheeky Chick (2:59)
-03. Cissie Redgwick - Gimme That Swing (Radio Edit) (3:53)
-04. Stereo Swing, Gabi Szucs - Charleston Follies (3:43)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 02:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D8816B0C2B8B9FBD723C2CF916AAD08CC13C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526702   (738167) от 25.01.2022
-
-Permute 3 v3.8.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E0C280B659D2811EBD26BE908F822F266ADF47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526653   (738166) от 25.01.2022
-
-Bartender 4 v4.31b U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9658F251F1217770BF4D3505A68232FDAD057F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526713   (738165) от 25.01.2022
-
-Alfred 4 Powerpack 4.6.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 Running with Crayons LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FE548AD6ADC1E7C4E65F3B887636BA21B05D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526663   (738164) от 25.01.2022
-
-HighTop Full 1.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738164.jpg" />
-</div>
-
-
-###  Подробнее
-
-HighTop - самый удобный способ работы с любимыми локальными папками, Google Диском или Dropbox. Вам больше не понадобится поиск окон Finder, скрытого рабочего стола или загрузки вкладок браузера.
-Проще говоря, HighTop - это представление ваших файлов в иде «дерева», которое интегрировано в macOS.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1C2E305AECC1BF148E4CF339E17D57419082D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526776   (738163) от 25.01.2022
-
-Yate 6.8.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BFB437722EF40211C5166F16F6A3CF89CAB68C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526710   (738162) от 25.01.2022
-
-SnippetsLab 2.0.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738162.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnippetsLab — это простой в использовании менеджер фрагментов кода. Он позволяет вам структурировано и организованно хранить сниппеты (фрагменты кода), легко находить нужные, а также синхронизировать их между устройствами через iCloud. Интерфейс SnippetsLab минималистичен и улучшена совместимость с macOS Monterey.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2015-2022 Renfei SongПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CCA0867286B8887E6E63171F6415071BBA97DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526720   (738161) от 25.01.2022
-
-Project Office Pro 9.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с вашим личным экспертом по диаграммам Ганта. Project Office - это полнофункциональное приложение для управления проектами, которое поможет вам управлять как простыми, так и сложными проектами на устройствах macOS.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2015 – 2022 by DK ConsultingПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CFB6E34AD88CC3E9B5EC8984014214B8AF2472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526628   (738160) от 25.01.2022
-
-Ravager - The Third Attack (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intruders
-02. Planet Hate
-03. Back To The Real World
-04. Priest Of Torment(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219D7904AABB8339A5A7F4D79974B42F6D94DF30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526711   (738159) от 25.01.2022
-
-Things 3 v3.15.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2007-2022 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C109D73F5DB6BF803C4AA7218DC691A9F009F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526577   (738158) от 25.01.2022
-
-VA - Paris Orange (Romantic French Vibes of the City) (2018) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Butler - Valse De La Noblesse (Original Mix) (3:02)
-02. Marga Sol - French Kiss (Original Mix) (4:36)
-03. Pier-O - Les Nuits De Paris (Original Mix) (5:47)
-04. The Soul Crusaders - Loveride (Original Mix) (5:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0068C22A3F450E3D0C2F7B789BDBCC891F0FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526674   (738157) от 25.01.2022
-
-Palace - Shoals (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Said It Was Easy (2:10)
- 02. Shame On You (3:20)
- 03. Fade (4:27)
- 04. Gravity (5:28)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E11D84BA0E09B63209E4D60AED1CD4E64EE0D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526466   (738156) от 25.01.2022
-
-Kandia - Quaternary (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthropocene (1:02)
-02. Obliterate (4:08)
-03. The Flood (3:46)
-04. Fight or Flight (3:37)(   Читать дальше...   )Жанр: Heavy Metal, Modern MetalПродолжительность: 00:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FD9C0A34F3C797E061D36D5DAD9C8590910FA4
+magnet:?xt=urn:btih:803641727D8D25081D48C69ABA662FBCD951334D
 ```
 
 https://mybot314.ru/tekegram_catalog/

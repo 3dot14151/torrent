@@ -1,3 +1,206 @@
+###  Публикация: 1416582   (365104) от 17.10.2020
+
+VA - Restaurant Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabrielle Chiararo - Smooth Operator (Instrumental Mix) (5:04)
+02. Augusto Alves - Frias Palavras (3:44)
+03. Brazil Beat - Englishman in New York (3:52)
+04. Alfredo Bochicchio - Gentle Kiss (4:36)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F4070F8749F55FB722719BCA287C700F9A5CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576356   (364118) от 15.09.2022
+
+VA - Deep & Uplifting: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gift Of Africa - Stay (06:32)
+02. Boyzen SA - Bambelela (feat Butler - AfroSoul mix) (06:24)
+03. Thap Soul - Silent Love (05:09)
+04. Deepofomin - Apollo (07:36)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71DA9FB0CF5313426A1AEFB79300CDAEB47ADAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576365   (363859) от 15.09.2022
+
+Tricky (Adrian Thaws) - 11 Albums (2008-2022) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Abstract Hip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinking Of [00:02:11]
+02. Close Now [00:01:37]
+03. Running Off [00:01:44]
+04. I'm In The Doorway [00:02:51](   Читать дальше...   )Жанр: Trip Hop, Abstract Hip-HopПродолжительность: 11 CD, 06:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246235D3F182BC6ED085798B4AD048AF32CE24CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417561   (357699) от 20.10.2020
+
+Hugo Kant - Far From Home (2020) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Trip-Hop, Instrumental Hip-Hop, Nu Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melancholia (5:34)
+02. Before Midnight Tonight (5:17)
+03. The Second Sun (6:00)
+04. Sure The Sun Will Rise (4:56)(   Читать дальше...   )Жанр: Downtempo, Trip-Hop, Instrumental Hip-Hop, Nu JazzПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF508600B07BE41D0FE4AD2CE822E69D18A8D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329174   (354440) от 04.10.2019
+
+Jay-Jay Johanson - Kings Cross (2019) Digital Booklet [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, Downtempo, Alternative>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Time Yet (4:58)
+ 02. Heard Somebody Whistle (3:04)
+ 03. Smoke (4:34)
+ 04. Lost Forever (4:39)(   Читать дальше...   )Жанр: Electronic, Trip-Hop, Downtempo, AlternativeПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E370DA23B348D3CAB933DA570C1547E1C2B624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577725   (350169) от 21.09.2022
+
+VA - Coffee to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Out Of Hours (03:09)
+02. Michael E - For Hayley (feat Ramon Sanz) (04:36)
+03. Gabrielle Chiararo - Estate (03:40)
+04. Living Room - This Old Rollercoaster (instrumental mix) (05:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72836505BB37C35FF332F65F1AC37555F6CDB32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418398   (349411) от 24.10.2020
+
+VA - Bioluminescence (2007) Native State Records [FLAC|Lossless|tracks+.cue] <Dub, Downtempo, IDM, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krill.Minima - Kronen Dab (06:00)
+ 02. Selffish - Easy, Mr. Palmer (07:01)
+ 03. Sympath - Zero Sum (07:29)
+ 04. Xerxes - Longyaard (06:21)(   Читать дальше...   )Жанр: Dub, Downtempo, IDM, AmbientПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F9E72E7B5008451EB34F5F57C5BFB7239C98D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330123   (345743) от 08.10.2019
 
 Hill & Wiltschinsky Guitar Duo - Lover's Guitar (1995) Compilation [FLAC|Lossless|tracks + .cue] <Easy Listening, Instrumental>
@@ -542,206 +745,6 @@ Kruder & Dorfmeister - Discography 18 Releases (1993-2020) Studio !K7, G-Stone [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFE92A39D9181F09F33C294B1D13103900A3D5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 677349   (296940) от 19.11.2017
-
-VA - The Mystic Art Of Chill Vol.1-2 (2004-2005) [FLAC|Lossless]<Chillout, Lounge, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Chillout, Lounge, AmbientПродолжительность: 02:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F0148D689887E4D0D9B934E971B1579FF4E275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079297   (296392) от 03.12.2016
-
-Lunatick Project - Veronika (2015) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rainy Day 02:57
-02. Lost Paradise 06:28
-03. Going Road From A Moonlight 05:53
-04. Flights In A Dream And In Reality 06:24(   Читать дальше...   )Жанр: Chill Out, Downtempo, AmbientПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B3C19852D6B677798B0913D1E553A4AB32BBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423940   (295814) от 15.11.2020
-
-VA - Autumn Leaves Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deepanima - Autumn Leaves (Dalibor Dadoff Remix)
-02. Darles Flow, Marga Sol - Silent Day
-03. Christoph Kardek, Iris Onica - Terra (Alveol Dub Remix)
-04. Nenad J. - Sunrise Flight (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA53DECF6CA5BAAA1F803D4E201F7C938190EFFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334461   (294777) от 29.10.2019
-
-Michael E & Tim Gelo - Bring It Back (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring It Back 04:31
-02. Turquoise 06:09
-03. True Love 07:56
-04. Helpless (Shaker Mix) 06:22(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB6C45F278F51442D155FEE2CB824BD02C3F189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262909   (291548) от 17.11.2018
-
-VA - Cafe Del Mar - Ibiza - Volumen Dos (1995) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Poets - Moment Scale (Dubmaster X Remix)
-02. Psychedelic Research Lab - Tarenah (Chill Mix)
-03. DxNote - Dxvotion
-04. Eddie Parker - Easter Song(   Читать дальше...   )Жанр: Downtempo, Ambient, LoungeПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1D05FE7DED89EC60599666F1522BB2D197E54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263614   (288261) от 19.11.2018
-
-Lacunae - 2 Albums (2004-2006) [FLAC|Lossless|tracks+.cue] <Trip Hop, Experimental, Illbient, Glitch, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Surface (01:22)
- 02. Lifetime (03:17)
- 03. Rebuild In Black (04:25)
- 04. Follow Me Down (04:00)(   Читать дальше...   )Тип издания: CDЖанр: Trip Hop/Illbient/Experimental/GlitchПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74A3AB5010A93633FC8372298503B948E68949C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335427   (287729) от 02.11.2019
-
-Jim Brickman - Underground (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Lounge, Jazz Groove>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poolside Chill (Super Chilled Lo-Fi Remix) (3:18)
- 02. Light a Candle (Super Chilled Lo-Fi Remix) (3:51)
- 03. Drive North (Super Chilled Lo-Fi Remix) (3:32)
- 04. Served Chilled (Super Chilled Lo-Fi Remix) (4:38)(   Читать дальше...   )Жанр: Instrumental, Chillout, Lounge, Jazz GrooveПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFCD1F7CE2519E449A6B2E3ABCA26540D4CBFFA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

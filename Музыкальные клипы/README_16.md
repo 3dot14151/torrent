@@ -1,3 +1,185 @@
+###  Публикация: 507320   (683179) от 08.06.2012
+
+Evanescence - Live at Verizon Arena (2012) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative, Gothic rockПродолжительность: ~00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165DB54D7EA872E542C41766677FCD57BADC1F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 336495   (678568) от 14.05.2011
+
+Жанна Фриске - Пилот (2011) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F226ABCA09DA1EA42ED672C2FBF9C9A473256BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 337440   (676544) от 15.05.2011
+
+Britney Spears - Till The World Ends (Dance Version) (2011) HDTVRip 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD280A5CC01AB58F4828DCC2CC99D5182B91437B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508679   (676508) от 11.06.2012
+
+DVJ Bazuka - Anything [Без цензуры] (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727F61B4722342E3AB9A40D78750649B50DC15C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509939   (672568) от 13.06.2012
+
+DVJ Bazuka - Don't Get Around (2012) [720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE700591969F2A3EC492D13EA277FAA1AD284CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510106   (670648) от 14.06.2012
+
+Millenium Extended (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5128C6A391A534A01784F8D3AEF31673DF59E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510681   (670309) от 14.06.2012
+
+Сборник видеоклипов Millenium Extended (2012) [H.264] DVDrip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F71292376DA6106D268D5AC74221666AD9C6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223986   (667962) от 08.05.2018
 
 Sexy Car Chag Rock Mix (2018) WEBRip [H.264/720p]
@@ -78,6 +260,68 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B4B350FE17C4CC4FD371681B1BB6C123D6D3EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 326652   (663383) от 23.05.2011
+
+Sandra - The Complete History (1974 - 2002) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Maria magdalena
+02 In the heat of the night
+03 Little girl
+04 Innocent love
+05 Hi hi hi
+06 Loreen
+07 Midnight man
+08 Everlasting love
+09 Stop for a minute
+10 Heaven can wait(   Читать дальше...   )Жанр: PopРежиссер: AllАктеры: SandraПеревод: ОтсутствуетПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340929   (662512) от 24.05.2011
+
+Avril Lavigne - Smile (2011) HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662512.jpg" />
+</div>
+
+
+###  Подробнее
+
+А́врил Рамо́на Лави́н(Avril Ramona Lavigne, род. 27 сентября 1984 года) — канадская певица, автор-исполнитель, дизайнер и актриса. Её дебютный альбом, Let Go, вышел в 2002 году и был продан тиражом 16 млн копий. Последующие работы — Under My Skin (2004) и The Best Damn Thing (2007) — возглавляли мировые чарты, в том числе американский Billboard 200. Пять песен Лавин — «Complicated», «Sk8er Boi», «I’m With You», «My Happy Ending» и «Girlfriend» — занимали первые строчки мировых чартов. По всему миру было продано более 30 млн копий её альбомов. По состоянию на январь 2011 года, она являлась одной из самых популярных певиц в США с 11,5 млн проданных альбомов. Журнал Billboard поместил Лавин на 10-е место в рейтинге артистов 2000-х, а также на 28-е место по коммерческому успеху. Её четвертый студийный альбом Goodbye Lullaby вышел в марте 2011 года.
+20 мая состоялась премьера клипа на композицию «Smile». По сюжету Аврил ходит по улицам Нью-Йорка и забирает кусочки разбитого сердца у разных людей, делая (   Читать дальше...)Жанр: МузыкаРежиссер: Avril LavigneАктеры: Avril LavigneПеревод: ОтсутствуетПродолжительность: 00:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7C888440056BF612BB77FC83B82A3E4AEFD781
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,248 +704,6 @@ ATB - Humanity (Airplay Mix)(Official Video HD)Жанр: TranceПеревод: �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAD6DA933AC0B026FE5437E5A77473C2C0E31408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682030   (630780) от 23.07.2013
-
-ATB - Let You Go (Reworked) (2005) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630780.jpg" />
-</div>
-
-
-###  Подробнее
-
-ATB - Let You Go (Reworked)(Official Video HD)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0DFF54644FF9AF2A2457E21C857EE08DA3EB5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682048   (630642) от 23.07.2013
-
-Dannii Minogue - Who Do You Love Now (feat Riva) (2001) [720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630642.jpg" />
-</div>
-
-
-###  Подробнее
-
-DANNII MINOGUE 'Who Do You Love Now' (with Riva) 2001 HDЖанр: DanceПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5008690D9EB784477DCF629C5908C7847BC7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682077   (630634) от 23.07.2013
-
-Kylie Minogue - The One (2008) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kylie Minogue - The One (HD)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C701CF79839C9BD429C7C9EFB0DEAABB136812CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682073   (630447) от 23.07.2013
-
-Kylie Minogue - In My Arms (2008) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kylie Minogue - In My ArmsЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2C56C8ACEC0E21D826F8DAF3F71A8F801A1C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682069   (630429) от 23.07.2013
-
-Kylie Minogue - Can't Get You Out Of My Head (2001) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kylie Minogue - Can't Get You Out Of My Head HDЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6408D8744EF07EFB9626948C7CD835AA09D30B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682869   (629995) от 23.07.2013
-
-Сборник клипов - VA - Various Music part. 44 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629995.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2 Chainz, Wiz Khalifa - We Own It (Fast & Furious) 1080p (2:37)
-2. AK Babe - We Don't CareЖанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF2926975F5E8188E470F7D477943713E5F9D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034797   (629931) от 15.07.2016
-
-Сборник клипов - Philizz "Tropical Summer" (2016) HDTV [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Tropical Summer 2016" - фирменный видеомикс от голландского ви-джея Philizz. Устройтесь поудобнее, расслабьтесь и наслаждайтесь!
-Видеомикс - это видеосборник,составленный из небольших фрагментов клипов. Довольно новое явление в современной музыкальной культуре, насчитывает всего несколько лет, и все больше и больше приобретает популярность. (   Читать дальше...   )Twenty One Pilots - Stressed Out (Tomsize Remix)
-Alan Walker - Sing Me To Sleep
-Sigala ft. Imani & DJ Fresh - Say You Do
-Eagles - Hotel California (Diezeo Remix)(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2193692E50F1AAC08C3ECF11D55B478A3E76FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293943   (629620) от 07.04.2019
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью переделал выпущенный ранее сборник (растянул картинку с SD до HD) Вся сила энергия и мощь понастоящему крутой музыки! Это 2я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 2 - Intro
-01. Guns N' Roses - You Could Be Mine
-02. Kingdom Come - Should I
-03. Limp Bizkit - Take a Look Around(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7533F9DA9DAFEE7D3FD30FBD35B3EBC8607FC26A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682031   (628610) от 24.07.2013
-
-Chicane - Saltwater (2000) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chicane - SaltwaterЖанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCD4C47E2475809C9E90D0CB180B68A16CA2684
 ```
 
 https://mybot314.ru/tekegram_catalog/

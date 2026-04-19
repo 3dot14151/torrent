@@ -1,3 +1,93 @@
+###  Публикация: 516349   (649708) от 30.06.2012
+
+Session Victim - The Haunted House Of House (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Deep HouseПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C0D13C056D33C20C734C58DBF32B2896F23213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031829   (649684) от 05.07.2016
+
+VA - Earotic Vol 1 (Chill Out For Your Ears) (2016) [MP3|320 Kbps] <Deep House, Breaks, Сhill>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castlebed - Cold Moves (3:49)
+02. Dormidontov - Home (6:37)
+03. Anthony Chocco - You Are (Beach & Martini Mix) (4:03)
+04. Don Major - At Sunset (3:34)(   Читать дальше...   )Производство: KarmagrooveЖанр: Deep House, Breaks, СhillПродолжительность: 02:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AB362F2E6A56062520243FB7109B36F1528160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517192   (649471) от 30.06.2012
+
+VA - Hed Kandi Pres: Beach House (2012) [MP3|320 кб/с]<Deep House, Funky House, Disco House, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loui & Scibi Feat. Nathalia - Giving You The Light (Shane D. Remix) (05:02)
+02. One51 Feat. Heidi Vogel - Elevate (Earnshaw's House Mix) (05:32)
+03. Steve K & Anna Rizzo - Second Time (Shane D Remix) (05:32)
+04. Raul Rincon Feat. Clara Mendes - Dry Martini (Original Mix) (05:32)
+05. Rasmus Faber & Alf Tumble Feat. Beldina - Leave Me Alone (Kocho Remix) (05:03)
+06. Spiritchaser - Yesterday's Gone (Club Mix) (06:43)
+07. Dom Navarra Feat. Kat Kyrris - If You Knew (Reelsoul Vocal Mix) (04:03)
+08. Natasha Watts - Look Inside (Glenn Thornton Slaag Original) (05:34)
+09. Blacksoul Feat. Andrea Love - All We Need (Original Mix) (05:41)
+10. Eesa - The Way (Original Mix) (05:02)Жанр: Deep House, Funky House, Disco House, Soulful HouseПродолжительность: 07:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E97A6F855B456A288DB4C5A0E1FE413CCB3358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141700   (648813) от 11.06.2017
 
 VA - Mykonos Sunset Vol 4 (2017) [MP3|320 Kbps] <Deep House>
@@ -433,6 +523,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 345820   (643969) от 06.06.2011
+
+Tropical Highlight - Regressive Life (EP) - 2011 /PND 0084/ [MP3|320 kbps]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_643969.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Жанр: Progressive HouseПродолжительность: 01:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D7B59A520FA190E5B3C9640FADDB062D8ACF26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292756   (643186) от 31.03.2019
 
 VA - Deephouse Top 100 Vol.8 (2019) 2CD [MP3|320 Kbps] <Deep House>
@@ -455,6 +571,32 @@ CD 01: (03:20:59)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFCF3645306E87B287E4686AF5CB23997E196E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346643   (641642) от 07.06.2011
+
+VA - Hed Kandi Pres: Beach House (2011) /HEDK110/ [MP3|320 kbps]<Tech House, Deep House, Funky House, Disco House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_641642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech House, Deep House, Funky House, Disco HouseПродолжительность: 10:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC7985E8006AC0E8550CF4DE42DC3B868119D75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,151 +742,6 @@ VA - Chill House Ibiza 2017 (Finest Chill House Music) (2017) [MP3|320 Kbps] <Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36F5C9C0FFF121B0CEC09236B16862EBFDADF00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142633   (641061) от 15.06.2017
-
-VA - Ibiza Beach Chill House Club Party Del Mar (2017) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterhour FlicFlac - Into Silence - Beach Summer Ibiza House Mix
-02. Beachsurfer Reloaded - Beachball - Extended Del Mar Version
-03. Robin Rhodes - Falling in the Ocean - No Chainsmokers Mix
-04. Dimitrova Burak - Balkan Express - Bucovina Yeter Clubmix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655A1D0BF66174CF2AD3187E62DE13F03DC1C00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142608   (641053) от 15.06.2017
-
-VA - Clubfete 2017.02 (63 Summer Club & Party Hits)  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz - Ok (Feat. James Blunt) 03:09
-02. Cheat Codes - No Promises (Feat. Demi Lovato) 03:43
-03. Jason Derulo - Swalla (Feat. Nicki Minaj & Ty Dolla $Ign) 03:35
-04. Ofenbach - Be Mine 02:41(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E236F09F280187E74391FDD6E3E0506B843823A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907098   (639816) от 11.06.2015
-
-VA - House of Love Vol. 1 (2015) [MP3|320 кб/с]<House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Renee Alexandre - Relax (03:17)
-02. Magic Elements - Funky Doobiest (03:30)
-03. Island Beats - Intercontinental (03:37)
-04. Deep Alchemy - No Fusion (03:39)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E457D7EB34A50F51EF74B752D59A7DEF447050C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143072   (639345) от 16.06.2017
-
-VA - Ibiza Chill House Sensations (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Desaparecidos - Ibiza (Mirko Boni, Benny Camaro & Frankie Gada Remix)  5:48
-02.  C.A.P. - Dragostea Din Tei (Lounge Harlem Mix)  3:48
-03.  Giuseppe Magnatti - Around You (Original Mix)  7:03
-04.  Nogun - Cloud Child (Lanfranchi & Farina Original Mix)  5:32(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 03:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E54FFE37AEF31151063800CCC6580DBC51115BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033654   (638228) от 11.07.2016
-
-VA - Be Spa EP (2016) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rayko - I Keep Forgettin (Rayko Moscow Discow Rework) (8:08)
-02. Julian Sanza - Unleashed (6:13)
-03. Glenn Dale - When the Night Goes On (6:05)
-04. James Rod & Fran Deeper - Mallorcas Island (6:42)(   Читать дальше...   )Производство: Spa In DiscoЖанр: Electronic, Disco, Nu-DiscoПродолжительность: 01:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540B923FF8A1805B0D1BAFCCF04290F1700D8044
 ```
 
 https://mybot314.ru/tekegram_catalog/

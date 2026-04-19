@@ -1,3 +1,61 @@
+###  Публикация: 1781828   (26463) от 25.02.2025
+
+VA - Modern 80's - The Best Of Discopop Vol.3 (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milli Vanilli - Girl You Know It's True
+02. A-ha - Take on Me
+03. Alphaville - Big In Japan
+04. Laura Branigan - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, Synth-popПродолжительность: 02:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAE034F86CCBC995ED9EE497D95C30EBF4D78B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784381   (24986) от 11.03.2025
+
+Good Ride - Faces (2023) [MP3|320 Kbps] <Italo-Disco, Italo-Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're Gonna Dance (Extended) (5:46)
+02. What Can I Say (4:13)
+03. One Moment (Extended) (6:10)
+04. Star Cloud (5:42)(   Читать дальше...   )Жанр: Italo-Disco, Italo-DanceПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35239E03586F138345F5E37206D4E82497109AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784435   (24985) от 11.03.2025
 
 VA - ZYX Italo Disco Collection (The Memory Label) (2002) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Disco>

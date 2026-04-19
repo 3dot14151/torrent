@@ -1,3 +1,33 @@
+###  Публикация: 1223006   (680665) от 01.05.2018
+
+VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начались длинные праздники. Многие их проводят в заботах сельскохозяйственных, но и они вечерком любят посидеть. А как в старом анекдоте: "Чем отличаются хорошие люди от всех остальных - хорошие люди посидят-посидят, да и выпьют!" Ну а как не вспомнить хорошую песню при хорошем застолье.
+Но даже если и не сами, то обрадуйте этими раритетами своих пап и (   Читать дальше...   )CD1:
+01. Людмила Зыкина - Тонкая Рябина  (5:12)
+02. Екатерина Шаврина - Ой, Мороз, Мороз  (4:02)
+03. Н. Матвiенко - Ой, Летiли Дикi Гуси  (4:48)(   Читать дальше...   )Жанр: FolkПродолжительность: 02:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDA6A7D6746D05F86CC49FC54163F1AC6FDFB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136439   (674901) от 22.05.2017
 
 NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
@@ -716,35 +746,6 @@ Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC2C2F652E878C8B0E819734A91D278B08F215DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295503   (618797) от 13.04.2019
-
-Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lincoln (3:09)
-02. Newspaper Gown (2:55)
-03. Oh Weather (1:07)
-04. South (3:07)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AA095DF27E681AB80057114E48DB4F93C6F1BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

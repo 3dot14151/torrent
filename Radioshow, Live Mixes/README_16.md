@@ -1,3 +1,235 @@
+###  Публикация: 676376   (279792) от 11.12.2016
+
+Ori Uplift - Uplifting Only 001 - 200 / Promo & Guest Mixes (2013 - 2016) [MP3 | 320 кб/с] < Melodic / Uplifting / Emotional Trance >
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoundLift - Wonderful Feeling (Original Mix)
+02. Emanuele Congeddu - Butterfly Effect (Original Mix)
+03. Sound Apparel - Dream (Original Mix)
+04. Sunbrothers Feat. Danny Claire - Everything (Original Mix)(   Читать дальше...   )Жанр: Melodic Trance / Epic Trance / Euphoric Trance / Progressive Trance / ProgLift / Vocal Trance / Uplifting Trance / Emotional Trance / ChillOutПродолжительность: 67:07:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C2173307F2044D2C1BCE2D9E405FDC7D11409C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334165   (279055) от 07.11.2019
+
+VA - Live from Luminosity presents This Is Trance! Club Panama, Amsterdam ADE 19-10-2019 [MP3|~ 128 - 320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ferry Corsten @ Luminosity pres. This Is Trance!, Netherlands 2019-10-19
+01. Kristian Nairn & Ferry Corsten - Galaxia
+02. 2HD - Sunflakes (Kristian Nairn Bootleg)
+03. Kevin Saunderson pres.Inner City - Good Life (Ferry Corsten Bootleg)(   Читать дальше...   )Жанр: TranceПродолжительность: 16:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C73D84EE738B43B57B3AE224CFCA25470E57FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336983   (277532) от 08.11.2019
+
+Cold Blue - Live @ Anomaly, Tunnel Club Birmingham, United Kingdom 2019-10-12 [MP3|192 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Blue - Fortitude
+02. ID - ID
+03. John O'Callaghan - Hammers At Dawn
+04. Cold Blue - Another Life(   Читать дальше...   )Жанр: TranceПродолжительность: 03:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6AFDBE1C43CBD407EFCCECECC4646F069531EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187812   (277302) от 30.11.2017
+
+VA - Aly & Fila - Future Sound of Egypt 524 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fashion Victimz - Conga Conga (Original Mix)
+02. Kamilo Sanclemente & Golan Zocher - El Sol (Roger Martinez Remix)
+03. Kamilo Sanclemente - Azure (Original Mix)
+04. Gabriel Moraes & Rafael Cerato - Coda (NekliFF Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337FE0BF7872698125D1F9E5FE9D3EADDAC90A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337134   (276121) от 09.11.2019
+
+VA - Live @ Another Dimension, Transmission Prague, O2 Arena Prague, Czech Republic 2019-10-12 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thomas Coastline @ Another Dimension, Transmission Prague, O2 Arena Prague, Czech Republic 2019-10-12
+
+01. Juan Pablo ft. Alessandro Di Rienzo - Nature (Remix)
+02. Matchy - Irreversible(   Читать дальше...   )Жанр: TranceПродолжительность: 08:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B68E4B1362401D35441A8DECD2F77222BDDE9B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188565   (274902) от 02.12.2017
+
+VA - Ori Uplift & Dr. Riddle - Uplifting Only 251 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PRE-RELEASE PICK: illitheas - Levity (Intro Mix) (EXCLUSIVE PREMIERE)
+02. Manuel Rocca - Amortentia (EXCLUSIVE PREMIERE)
+03. FAN FAVORITE: Ahmed Romel - Vanaheim
+04. Naoufal Lamrani - Suits(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F79F1DFE89051D74F91CD1D816EE7AB7611090A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188541   (274884) от 02.12.2017
+
+VA - Markus Schulz & Talla 2XLC - Global DJ Broadcast (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz
+01. P!nk - What About Us (Gai Barone Bootleg Mix)
+02. Pryda - Stay with Me
+03. Dennis Sheperd - Copenhagen (Global Selection)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B0B4AE274C6C503BF3798CE96AD959A2DB2C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265959   (272081) от 30.11.2018
+
+VA - Markus Schulz & Johan Gielen - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Markus Schulz & Christina Novelli - Symphony of Stars (Markus Schulz Festival Mix)
+02. Viper - Titty Twister (Jam El Mar Retouch)
+03. Above & Beyond and Spencer Brown featuring RBBTS - Long Way from Home(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E3E6D5F1AFF158628731FB1F5FCA1B61EA37E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266492   (270075) от 02.12.2018
 
 VA - Ori Uplift & Redchild – Uplifting Only 303 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -511,238 +743,6 @@ VA - Ori Uplift - Uplifting Only Episode 666 (2025) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AB6BAD684584810EC7177A5CCD9BD837858F369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836997   (255877) от 14.11.2025
-
-VA - Armin van Buuren - A State Of Trance 1251 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTY – Brave
-02. Eximinds & Alexander Komarov – Far Away
-03. ATB – 9PM (Till I Come) (James Hype Edit)
-04. Cosmic Gate & RYVM & Marlene – Heaven Knows (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:0:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6894B837E09E7B043A07CAD44586135F3180B5A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836113   (252490) от 09.11.2025
-
-Markus Schulz - Global DJ Broadcast Afterdark (2025) [MP3|320 Kbps] <Trance, Techno, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kennedy One - The Things That Will Never Be
-02. Markus Schulz - Enter the Portal
-03. Morees - Depths of Your Mind
-04. HI-LO & Tai Woffinden - The Orange Theme(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 04:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E945E29237B2F13F2FE26474755C8CC24E10A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835730   (251898) от 07.11.2025
-
-MEDUZA - Live @ Meduza³ (Futur Stage, Kappa FuturFestival) Turin, Italy (2025-07-05) [MP3|320 Kbps] <Tech House, Melodic House/Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GENESI & MEDUZA ft. Aya Anne - Freak (Piano Intro Edit) w/MEDUZA ft. Hozier - Tell It To My Heart (Acappella)
-02. Equinøx - ID w/MEDUZA ft. Dermot Kennedy - Paradise (Acappella)
-03. MEDUZA & GOODBOYS - Self Control w/Darude - Sandstorm (Vintage Culture & Zerky VIP)
-04. Calvin Harris - I'm Not Alone (CamelPhat Remix) w/MEDUZA - Friends (Meduza (   Читать дальше...   )Жанр: Tech House, Melodic House/TechnoПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64B614595A49AB6D695A8EC6EB5406482BEF402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835709   (251670) от 07.11.2025
-
-VA - Live @ Amsterdam Music Festival, Johan Cruijff ArenA, ADE, Netherlands (2025-10-25) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Alle Farben ft. Ava Silver - Lost In Time (Intro Edit)
-02. Armin van Buuren & JOA - Heavy (DJ KUBA & NEITAN Remix)
-03. ID - Amsterdam ID
-04. Armin van Buuren & Adam Beyer vs. D-Shake - Techno Trance(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FE5B03451CDE68BA8FB31138E119388A607FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835662   (251665) от 07.11.2025
-
-VA - Ori Uplift - Uplifting Only Episode 665 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro Mireno & Alaera – Awakening (Piano Intro Mix)
-02. Mhammed El Alami & NELLY TGM – We Are One
-03. BiXX – Appreciation
-04. DreamLife & Aleksey Gunichev – Good Night My Dream(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7685A29BFDA1EE0DB83C98049824EA93EBD24F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835656   (251662) от 07.11.2025
-
-VA - Armin van Buuren - A State Of Trance 1250 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yuri Kane ft. Kate Walsh – Right Back
-02. Gareth Emery ft. Christina Novelli – Concrete Angel
-03. Gareth Emery & STANDERWICK ft. HALIENE – Saving Light
-04. Above & Beyond ft. Zoë Johnston – No One On Earth (Gabriel & Dresden Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC36ECB5EFDA2ACDD19EE8274DD78CE6A0CBE7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832946   (246103) от 31.10.2025
-
-VA - Armin van Buuren - A State Of Trance 1249 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Skytech & Amber Revival - End Of Time
-02.	Joris Voorn x Goodboys - Utopia (Korolova Remix)
-03.	Above & Beyond - Sun In Your Eyes (Marsh Remix)
-04.	Krevix - Afterlight(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754BF488E3E0B66DDA2A315D1914DC543517794B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832961   (246082) от 31.10.2025
-
-VA - Ori Uplift - Uplifting Only Episode 664 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. REX.W - Viva La Amistad (Intro Mix)
-02. Roman Messer & Cari - Serenity (Alex M.O.R.P.H. Remix)
-03. Witness45 & Poonyk - Indiana (New World Remix)
-04. PRE-RELEASE PICK: Southdreamer - Miracle of Life (WORLD PREMIERE)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E9BA2BEC22CDE9FF353A338DA2DBC2EDE27119
 ```
 
 https://mybot314.ru/tekegram_catalog/

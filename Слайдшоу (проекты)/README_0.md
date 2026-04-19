@@ -1,3 +1,56 @@
+###  Публикация: 1448821   (1030419) от 19.02.2021
+
+Проекты - VideoHive - Coffee Morning Openers - 30474695 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030419.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Coffee Morning Openers» - стильный элегантный проект для создания легкого бодрящего как кофе, утреннего слайд шоу.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2400A18DC99EA91E07E29F0F99401AAF46096EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449753   (1029667) от 22.02.2021
+
+Проекты - VideoHive - Slideshow - Dynamic Slideshow - 30558161 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029667.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Slideshow - Dynamic Slideshow» - это стильный, динамичный, современный проект, который отлично подойдет в качестве вступления к различному видео. Можно использовать как самостоятельное фото-слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EC37F87E275B90B038C433EA8ECDBF6E7B82AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449808   (1029469) от 23.02.2021
 
 Проекты - VideoHive - Ink Drop Romantic Media Opener - 30586461 [MOGRT, AEP]
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:287E3D2595EA0E6105DA9F63C0DA16B3B8378F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463385   (1020377) от 18.04.2021
-
-Проекты - VideoHive - Photo Slideshow - Elegant Slideshow - 29855795 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шикарный проект для тех, кто хочет сделать слайд-шоу с большим количеством фото/видео материалов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67C5A514CA31326DFFECCF6E8969D7C9665A906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463952   (1020079) от 20.04.2021
-
-Проекты - VideoHive - Vintage Slideshow - 31622242 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стильный проект для создания фото-галереи из ваших старых фотографий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1A7B97178587F124F83C437CE6D9C3B8020596
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1238390   (547027) от 29.07.2018
+
+VA - Rock Road Trip: The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Rock, Alternative, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547027.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Troggs - Wild Thing (Edit) 2:26
+02. Free - All Right Now (Single Version) 4:12
+03. The Velvet Underground - I'm Waiting For The Man 4:38(   Читать дальше...   )Жанр: Rock, Alternative, Hard Rock, Pop RockПродолжительность: 06:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D044F1374B8E1EF47B03C735A833EB8EFE1BA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048435   (546530) от 02.09.2016
 
 Anthony Green - Pixie Queen (2016) [MP3|320 Kbps] <Indie Rock>
@@ -716,35 +745,6 @@ The Beatles - Live At The Hollywood Bowl (1977) Remastered, 2016, Universal [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B117FA31C97CB4D464B7E3EC56208F78C7B2502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051126   (534368) от 10.09.2016
-
-VA - Absolute Rock Ballads Classics (2001) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - We Are the Champions.
-02. Nazareth - Love Hurts.
-03. Scorpions - Still Loving You.
-04. David Bowie - Space Oddity.(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop Rock, Classic Rock |Продолжительность: 02:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9574311EA8B754DA06F3592069CD43B84EA16D87
 ```
 
 https://mybot314.ru/tekegram_catalog/

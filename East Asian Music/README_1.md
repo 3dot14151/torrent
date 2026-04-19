@@ -202,7 +202,7 @@ Tiger Huang(Huang Xiao Hu) - 6 альбомов (1992-2009) [FLAC|Lossless]<Chin
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_908793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908793.jpg" />
 </div>
 
 

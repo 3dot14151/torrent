@@ -1,3 +1,30 @@
+###  Публикация: 1678982   (141412) от 23.11.2023
+
+Anna Gandrabura | Grammar Phrasebook (2023) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Времена в грамматике могут быть трудными для изучения, но эти 30 конструкций легко запомнить. 30 современных грамматических конструкций с практическими примерами, упражнениями и полезными советами. 30 грамматических конструкций, 30 подлинных материалов, более 300 современных примеров использования и 120 упражнений.
+Забудьте о длинных списках грамматических правил. (   Читать дальше...   )Жанр: Английский языкИздательство: english4itФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED6B9DCC85FB3944A7580C92501C06FCC3C63AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349017   (139234) от 30.12.2019
 
 Н.Н. Абуева, Э.М. Нурмагомедова | Английский язык для изучающих логистику и таможенное дело [2-е издание] (2019) [PDF]
@@ -673,33 +700,6 @@ Twelve themed chapters are broken down into easy-to-follow 15-minute daily lesso
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67C988787514623B1C1B80DA029EC07E5924FAA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732179   (107562) от 23.06.2024
-
-Anita Ganeri | Amazing Earth (2021) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Award-winning children's author Anita Ganeri takes curious kids who love learning to the most incredible locations in the world. This science book for kids includes breathtaking images and mind-blowing facts about our majestic home - Earth. Turn the pages to discover natural wonders, stunning vistas and other jaw-dropping places from around the world.
-The Most Incredible (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A423C3B507DDBA37BE34CF92D379A937877DA4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

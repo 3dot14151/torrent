@@ -1,3 +1,32 @@
+###  Публикация: 1838029   (257743) от 20.11.2025
+
+VA - New Year Trance Rave 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Mactire - Irruption 07:28
+02. Andrew Modens - Dreaming 05:04
+03. Betelgeuze - Dissolution 06:49
+04. Chris Pryde - The Last Fight 05:37(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C3B848D0304450ACF52D83271A227D4FA4C26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836777   (255941) от 13.11.2025
 
 EVO (Eternal Voice of Orbits) - Мультивселенная (2017) [FLAC|Lossless|tracks] <Trancecore, Nintendocore, Electronic Post-Hardcore>
@@ -716,35 +745,6 @@ VA - Ibiza Closing Party 2023 Trance [FLAC|Lossless|WEB-DL|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35BA798C4020344733C700090895343682B31511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662341   (188013) от 17.09.2023
-
-V.A. - A State of Trance, Ibiza 2023 (Mixed by Armin van Buuren) (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188013.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 – On The Beach:
-01. MaRLo & Mila Josef - You Are Not Alone
-02. Armin van Buuren - Motive (Jochem Hamerling Remix)
-03. Push vs Crashguard - I Want To Tell You(   Читать дальше...   )Жанр: Trance |Продолжительность: 02:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B44123D522728747DF0DA50C956B3BE0A54BEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

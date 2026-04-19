@@ -1,3 +1,61 @@
+###  Публикация: 1447581   (1031657) от 14.02.2021
+
+VA - Magic Of Trance Vol 12 (Mixed by Vito Von Gert) (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vito Von Gert - Magic Of Trance Vol 12 (Continuous DJ Mix)
+02. Ithur - Mentor (Extended Mix)
+03. Roman Sand - Waterfalls (Original Mix)
+04. Catchfire - Falling Down (Original Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DD5D7B3780A8A7D9112C1BFB8A257DD7E2F2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620882   (1031227) от 24.03.2023
+
+VA - Techno Club Vol. 68 (Mixed by Talla 2XLC x Metta & Glyde) (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tillmann Uhrmacher - On The Run (Talla 2XLC Extended Remix) [6:21]
+02. Vimana - Dreamtime (Johan Gielen Extended Remix) [7:24]
+03. Talla 2XLC - Ragnaroek (Extended Mix) [6:46]
+04. Allen Watts - Mainframe (Extended Mix) [6:14](   Читать дальше...   )Жанр: TranceПродолжительность: 06:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C7A247713E8EBA1777BEC5AEC1C25EAE6B7B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621691   (1030993) от 25.03.2023
 
 VA - Trance Reserve Music 2022 (2023) [MP3|320 Kbps] <Trance>
@@ -693,64 +751,6 @@ DJ Aligator Project - The Sound Of Scandinavia (2002) [MP3|320 Kbps] <Trance, Eu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:741E56E46C4E871D8DCEC517C638A3147A959992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980868   (954839) от 30.01.2016
-
-VA - Suanda Winter Vol. 3 (2016) [MP3|320 кб/с] <Trance, Chillout>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Eskova - Without You (Aurosonic Chillout Remix)
-02. Feel & Make One - The Power Of Nature (Original Mix)
-03. Nomosk feat. Cari - Don't Hold Back (Original Mix)
-04. Audiocells - Mass Effect (Original Mix)(   Читать дальше...   )Жанр: Trance, ChilloutПродолжительность: 02:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB9A61B6663969642625F98E5DDDE718748CC89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089209   (954016) от 02.01.2017
-
-VA - Silent Shore Records - The Best Of (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tristan Armes - Dreamfall (Original Mix) 06:14
-02. Josh Oshima - Voyage (Original Mix) 06:50
-03. Pvr - Solar Station (Original Mix) 08:21
-04. Nord Horizon - Innocent Angel (Original Mix) 07:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25453CB333FBF50F6CE2F1298A31A3A131990B58
 ```
 
 https://mybot314.ru/tekegram_catalog/

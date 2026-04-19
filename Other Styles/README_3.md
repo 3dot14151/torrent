@@ -1,3 +1,177 @@
+###  Публикация: 368390   (1030401) от 19.02.2021
+
+Liliana Barrios - Troileana (2007) [FLAC|Lossless|image + .cue] <Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La ultima curda (5:49)
+02. Ese muchacho Troilo (1:51)
+03. Che, bandoneon (3:51)
+04. Desencuentro (3:28)(   Читать дальше...   )Жанр: TangoПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D080D82731C070D472E4A6CB3BD676561BB59FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293707   (1030379) от 19.02.2021
+
+VA – Exotic Guitars From The Clovis Vaults - Including "World Wide Hits" (2010) Compilation, Limited Edition [FLAC|Lossless|image + .cue] <Guitar Insrumental, Easy Listening, Oldies>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030379.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 редких и неизданных инструментальных композиций от знаменитой студии Norman Petty's Clovis, в исполнении The Fireballs и The String-A-Longs.01. The Fireballs - Torquette  		 (02:24)
+02. The Fireballs - Poquito  		 (01:32)
+03. The Fireballs - Motivation		 (02:01)
+04. The Fireballs - Stormy 		 (03:24)(   Читать дальше...   )Жанр: Guitar Insrumental, Easy Listening, OldiesПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6351903D25D6852D2FCBEDD867E19BC8C1E08117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301914   (1030368) от 19.02.2021
+
+VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|image + .cue] <Ballroom Dance, Easy Listening>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nat King Cole - El Choclo (2:13)
+02. Fun Boy Three - The Tunned Of Love (3:09)
+03. Mary & Gordy - Vom Festen Grundsatz Zum Lockeren Madchen (2:38)
+04. Vicky Leandros - Tango D'amor (3:35)(   Читать дальше...   )Жанр: Ballroom Dance, Easy ListeningПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D03F42018507C377B2D1EA259E6A359DB151BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327760   (1030366) от 19.02.2021
+
+The Royal Philharmonic Orchestra - Hits Of Elton John - The Ballads (1991) [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikita 			(05:55)
+02. Your Song 			(04:15)
+03. Goodbye Yellow Brick Road 	(03:19)
+04. Easier To Walk Away 	(04:28)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BAA109E874022C82A51964305086C05A1FDB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327066   (1030362) от 19.02.2021
+
+Stefan Nicolai - 2 альбома (1993, 2006) [FLAC|Lossless|tracks] <Instrumental, Pan Flute>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030362.jpg" />
+</div>
+
+
+###  Подробнее
+
+1993 - Golden Sound of Panflute
+01. Chanson Anonyme 	    (04:08)
+02. Vaya Con Dios 	    (03:21)
+03. Goodbye my Love Goodbye (03:06)(   Читать дальше...   )Жанр: Instrumental, Pan FluteПродолжительность: 02:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BA9D34BBA453B00722C11533ED7C55E227CCED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332726   (1030361) от 19.02.2021
+
+Norrie Paramor and His Orchestra - 2 альбома (1998) Compilation [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030361.jpg" />
+</div>
+
+
+###  Подробнее
+
+1998 - Shadows in Latin
+01. Dance on 			  	(02:57)
+02. Atlantis 			  	(02:57)
+03. Foot Tapper 		  	(02:35)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF62CDB926F75D8BD70D111631983EE78741EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 203755   (1030357) от 19.02.2021
 
 VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
@@ -568,180 +742,6 @@ The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51CA83A0DD93D638AB24FFBE31F160DBE6355CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623171   (1029595) от 31.03.2023
-
-VA - Mystera II (1998) [OGG Vorbis|480 Kbps] <NewAge, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enya - Storms In Afrika
-02. Era - Enae Volare Mezzo
-03. Enigma - Beyond The Invisible
-04. Capercaillie - Ailein Duinn(   Читать дальше...   )Жанр: NewAge, MeditativeПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14E59DA6FEE74AFA597244BCDB07EE7FF9EA79F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449559   (1029523) от 23.02.2021
-
-VA - Country Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Hofmeyr - Amanda (03:07)
-02. Demi Lee Moore - Neon Moon (04:10)
-03. Chris Else - I Am I Said (03:47)
-04. Roan Ash - Whiskey To My Soul (03:45)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4077B8D2B4E512875811504660687796666AC982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449973   (1029347) от 24.02.2021
-
-Darren Korb - Pyre OST (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In the Flame [3:10]
-2. Downriver [0:38]
-3. Downside Ballad [4:11]
-4. Path to Glory [3:15](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5277F93292D6660F13DC5E5AEF477026140737BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450117   (1029343) от 24.02.2021
-
-Devesh Sodha - Past & Present (2018) + Singles (2013-2020) [FLAC|Lossless|WEB-DL] <Soundtrack, Instrumental, Epic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny Of The Urban Warrior
-02. Carol of the Bells (Epic Version)
-03. Promises
-04. Falling FasterЖанр: Soundtrack, Instrumental, EpicПродолжительность: 00:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28186DE1AD7B25F70FE6EA3D4FC758A85F02410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449974   (1029337) от 24.02.2021
-
-Darren Korb - Hades OST (2020) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029337.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. No Escape [2:26]
-2. The House of Hades [4:53]
-3. Out of Tartarus [5:55]
-4. Wretched Shades [2:56](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFC18A2620B3407DC4D1D55FE92646CE3F0A885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450418   (1029003) от 26.02.2021
-
-Simon Chylinski - Subnautica (Original Game Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salutations (01:50)
-02. Into the Unknown (02:58)
-03. Tropical Eden (01:43)
-04. God Rays (01:30)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4A2FE3ACAE93BC6A6E4B55F0E62169C2C4646A
 ```
 
 https://mybot314.ru/tekegram_catalog/

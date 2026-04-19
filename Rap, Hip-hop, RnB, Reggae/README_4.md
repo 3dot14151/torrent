@@ -1,3 +1,32 @@
+###  Публикация: 978063   (964458) от 22.01.2016
+
+VA - Старая пластинка: Ритм-н-Блюз (2013) [MP3|256 кб/с] <R'n'B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent George (unknown) Myra Johnson
+02. So Good To My Baby (Kirkland/McCoy) Big Maybelle
+03. Wild Wild Young Men (Ahmet Ertegun) Ruth Brown
+04. Hey Little Boy (Albinia Jones) Albinia Jones(   Читать дальше...   )Жанр: R'n'BПродолжительность: 02:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6319AA1736F01AF66E56317A2B46800CCC353C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978234   (963513) от 23.01.2016
 
 Валиум - 1989 (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
@@ -713,35 +742,6 @@ BONES - OFFLINE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD9084F303AFA8EEF2CA59235FADD53565B94050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365790   (927269) от 09.03.2020
-
-Scarlxrd - SCARHXURS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PERFECT. [02:20]
-02. YXU’VE BEEN CANCELLED. [02:24]
-03. GRAVESTXNE. [02:41]
-04. MAKING A KILLING. [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AD8022D3F6DDD1086D848F7521BB948FC67ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/

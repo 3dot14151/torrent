@@ -1,3 +1,203 @@
+###  Публикация: 1597402   (166683) от 14.12.2022
+
+VA - Anjunadeep The Remixes 2022 (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  OLAN -  Wake And Return (Little Dragon Remix Mixed)  (5:10)
+02.  Lakou Mizik, Joseph Ray -  Ogou (Pran Ka Mwen) (Martin Roth Remix Mixed)  (4:16)
+03.  Marsh, Sun Ra -  Another Planet (LeSonic Remix Mixed)  (5:15)
+04.  Luttrell -  More Than Human (Antic Remix Mixed)  (4:39)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A831B79CA90A4C871AB96C99F7CA98D16B6681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671497   (166142) от 31.10.2023
+
+Miss Jane feat. Miichii - It's A Fine Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 It's A Fine Day (2023 original mix) (6:59)Жанр: Deep House, Progressive HouseПродолжительность: 00:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E020D298B9AAB3114086B4A0C01802BEF7448B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345782   (165852) от 16.12.2019
+
+Calibre - Planet Hearth (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hills
+02 - Colby Park
+03 - Eratik
+04 - Five Minute Flame(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 01:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6624FED2E228A35E155016AA6E4E14B55CB91AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346106   (164613) от 18.12.2019
+
+M.S.L - Discography 4 Releases (2018-2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Periphery (05:44)
+ 02. Triennale (07:54)
+ 03. Enterprise (04:59)
+ 04. Careful, Thinking Could Become A Habit (05:06)Жанр: ElectroПродолжительность: 01:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8B08BF70E2414622617A8943E3CDBF81AA9F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346299   (164532) от 18.12.2019
+
+VA - Anjunadeep: The Yearbook 2019 (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jody Wisternoff & James Grant - Dapple (05:20)
+02. 16BL - Vette (06:08)
+03. Nox Vahn - Brainwasher (04:40)
+04. CRi - Initial (05:03)(   Читать дальше...   )Жанр: Deep House, Tech House |Продолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E354C8DAD3945BF6A4CC1128683943BB591FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346198   (164403) от 18.12.2019
+
+Monolink - Amniotic (2019) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amniotic (7:31)
+ 02. Black Day (5:37)
+ 03. Sirens (5:58)
+ 04. Rearrange My Mind (7:18)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDE9531B92FC01A48040751E8A533B447A07C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598408   (163373) от 18.12.2022
+
+Hieroglyphic Being - There Is No Acid in This House (2022) [FLAC|Lossless|tracks + .cue] <Abstract, Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Communion of the Highest Order (8:46)
+02. We Are the Light Vessels (5:20)
+03. When Situations Get 2 Deep (Original Mix) (5:47)
+04. Look Over There 9 O'Clock (5:17)(   Читать дальше...   )Жанр: Abstract, Techno, HouseПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC3619EBA601A62D817992A4E936C369F817345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673241   (163252) от 03.11.2023
 
 aname (SE) - Beautiful World (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal House, Melodic House & Techno>
@@ -536,208 +736,6 @@ Orbital - Live At Eventim Hammersmith Apollo (15.12.18) (2018) Live Here Now [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4524293D37668E384BBD5E615DCD290A5C5AFD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347153   (154275) от 22.12.2019
-
-Octal Industries - Our Seasons (2019) Vertex Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Borg Tekin (07:18)
- 02. Thorp I Vanda (05:26)
- 03. Roblegt (06:44)
- 04. Dreki Flyr (06:44)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D191BFA0304127844CECB4E9460C78CC977F48CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518634   (154099) от 20.12.2021
-
-The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [FLAC|Lossless|tracks + .cue] <Dream House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me Softly (3:29)
-02. I Like Chopin (3:35)
-03. Bilitis (3:50)
-04. Children (5:23)(   Читать дальше...   )Жанр: Dream House, TranceПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61B53A01819F7AC57A2B1F3FCB235DB95C0F968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600991   (154027) от 29.12.2022
-
-Above & Beyond - Group Therapy Best Of 2022 pt.1 (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Above & Beyond -  Group Therapy Intro (ABGTX2022)  (0:32)
-02.  Joda -  We Find Ourselves (ABGTX2022)  (5:01)
-03.  Above & Beyond -  Group Therapy (Messages Pt. 1)Жанр: Progressive House, TranceПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A16DA8CEDB54BD436F5382AD3ACE128FE4C01F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676962   (151023) от 17.11.2023
-
-VA - Clubhits Top 200 Vol. 13 (2019) [FLAC|Lossless|tracks] <Club, Future House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas - Pretender (Crystal Rock & Marc Kiss Remix Edit) [1:18]
-02. Arnold Palmer - Dance Little Sister (Kahikko Edit) [0:55]
-03. Marc Vedo & DJ Rae - Make Me Better (Club Edit) [1:47]
-04. Da Hool - Bora Bora 2.0 (Festival Bang) [1:49](   Читать дальше...   )Жанр: Club, Future HouseПродолжительность: 03:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3705706F189884C4C4FC775D6C339C8B82DE2620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677503   (150524) от 18.11.2023
-
-VA - Futuro (Mixed And Compiled By John Digweed) - 2023 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Digweed - Continuous Mix CD1
-02. John Digweed - Continuous Mix CD2
-03. John Digweed & Nick Muir - FuturaScent (Intro mix)
-04. Carerra & Tavares - Mind(   Читать дальше...   )Жанр: Tech House, Progressive, Breaks, TechnoПродолжительность: 05:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7129E87426C3E200E523D7EF79E7C3E1370468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677518   (150502) от 18.11.2023
-
-VA - Disco House Sounds 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown - Get That Phunk Phenomana (Original Mix) (4:23)
-02. Supercircus - I Can't Get Enough (Nu Disco Mix) (4:29)
-03. The Disco Boys - Funk Decision (2:51)
-04. Dominica - I Gotta Let U Go (Youngr Bootleg) (4:39)(   Читать дальше...   )Жанр: Club House, DiscoПродолжительность: 01:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75BE21EF97FFFE71A669160F0CC258B745B91A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086650   (150360) от 25.12.2016
-
-VA - Steyoyoke Gems Solar 05 (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dahu & Soul Button - Soma [06:20]
-02. Blancah - Urutau [05:38]
-03. Nick Devon - Sunflower [06:48]
-04. Soul Button - Demise (feat Terry Grant) [07:25](   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 01:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:372A902CC1F89EA25154EE606C7F44B737CC1426
 ```
 
 https://mybot314.ru/tekegram_catalog/

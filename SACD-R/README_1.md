@@ -1,3 +1,32 @@
+###  Публикация: 1831027   (212559) от 28.10.2025
+
+Brahms - Piano Quartet No. 1 Op. 25 · Schumann - Fantasiestücke Op. 88 (Martha Argerich, Gidon Kremer, Юрий Башмет / Yuri Bashmet, Миша Майский / Mischa Maisky) (2002) 2025 [DSD64 2.0|1bit/282 ...
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brahms - Piano Quartet No. 1, Op. 25
+01. 1. Allegro (13:18)
+02. 2. Intermezzo (Allegro ma non troppo) (7:35)
+03. 3. Andante con moto (10:50)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C660166311E5563D4DABB66BFA0E8F67AA48B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584773   (211987) от 19.10.2022
 
 Hiromi - Spectrum (2019) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Fusion>
@@ -726,35 +755,6 @@ Bryan Ferry - Boys And Girls (1985) /2005 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83F604A041BE5DA3B77078E7EFC28727EE033AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691029   (123563) от 10.01.2024
-
-Van Halen - Van Halen (1978) SACD, Reissue, Remastered, 2023, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runnin' With The Devil 3:36
-02. Eruption 1:42
-03. You Really Got Me 2:38
-04. Ain't Talkin' 'Bout Love 3:49(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877192CC62F1328653834B41507DF4A8B9F836E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

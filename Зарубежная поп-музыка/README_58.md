@@ -1,3 +1,61 @@
+###  Публикация: 1419058   (342048) от 27.10.2020
+
+VA - Dance Club 2020.03 (2020) [MP3|320 Kbps] <Dance, Pop, Deep House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn feat. Nea & Bryn Christopher - No Therapy [2:52]
+02. twocolors - Lovefool [3:10]
+03. VIZE & Tom Gregory - Never Let Me Down [2:33]
+04. Tujamo x VIZE & MAJAN - Lonely [2:49](   Читать дальше...   )Жанр: Dance, Pop, Deep HouseПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F006FAB4F05B66D2384B3393B7553A42986BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180205   (341966) от 03.11.2017
+
+Maroon 5 - Red Pill Blues (2017) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Best 4 U
+2. What Lovers Do (Feat. SZA)
+3. Wait
+4. Lips On You(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407882739C32D914AA327771F00410497B32C5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419105   (341850) от 27.10.2020
 
 VA - Now 100 Hits The Legends (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
@@ -691,64 +749,6 @@ Ian Mitchell Band - Lonely Nites (1979) LP [MP3|320 Kbps] <Pop, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9B08FD98F59ACE359C76970D27B4E931406B8B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258661   (334600) от 31.10.2018
-
-VA - Hits From The Dancefloor (2018) [MP3|320 Kbps] <Funky, Vocal, Club, Nu Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Busiello - My Friend
-02. Alex Barattini - Abc
-03. Corti & Lamedica - I Rock I Sweat I Dance
-04. Nick Detti - I Do It For Money (Funky Bull Remix) (Feat. Francesca)(   Читать дальше...   )Жанр: Funky, Vocal, Club, Nu DiscoПродолжительность: 02:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0AE880AC5B4248EF284022BF03D8CC124CA6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259033   (333037) от 01.11.2018
-
-Dance Mission - Italo Disco Chapter 80ies (2018) [MP3|320 Kbps] <Euro-Pop, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TMY (3:21)
-02. Night After Night (4:10)
-03. Blinded by the Light (3:54)
-04. Deep in My Heart (3:52)(   Читать дальше...   )Жанр: Euro-Pop, Italo-DiscoПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33D6B24A9B3CC4F4483E97336D336CAEFA80D4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,24 +1,22 @@
-###  Публикация: 1276492   (788230) от 16.01.2019
+###  Публикация: 1510894   (790138) от 18.11.2021
 
-Money Pro 2.0.4 [Multi/Ru]
+Милицейская сага / Ментовская сага (2016) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-12 из 12)
 
->>Архив торрентов
->>Архив 4Apple
+>>Отечественные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
-
-Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Сериал о жизни целого поколения оперов, настоящих «романтиков розыска». Они пришли на работу в милицию в самом начале 90-х годов и стали непосредственными участниками сложной послеперестроечной жизни страны. В центре повествования судьбы четырех друзей, начавших свою службу в уголовном розыске одного из территориальных отделов.Производство: Россия / ООО «Форвард-фильм», «Прогресс-Студия»Жанр: детектив, боевик, криминалРежиссер: Петр Забелин, Жанна КохановаАктеры: Дмитрий Паламарчук, Андрей Горбачёв, Андрей Гульнев, Максим Блинов, Борис Клюев, Алексей Федькин, Олег Андреев, Анна Арефьева, Олег Абалян, Герасим АрхиповПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EEC44C6B8CDDFB89AE675B5980AD2F3EA65F129
+magnet:?xt=urn:btih:772C1D4616A63E798AD18D4065267601218F7110
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276460   (788229) от 16.01.2019
+###  Публикация: 1497826   (790137) от 18.11.2021
 
-VA - Gym Floor Energy 2019 [MP3|320 Kbps] <House>
+Роковой патруль / Doom Patrol (2021) WEB-DLRip [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) BigSinema [AD]
 
->>Electronic
->>House
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790137.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Spikaa Feat. Deja - Home (Radio Mix) 3:11
-02. Eros Pandi - Second Chances (Radio Mix) 2:43
-03. Gianni Camelia Feat. Sabrina Christian - Don't Stop The Beat (Luke Db Remix Edit) 2:40
-04. Skelectro Feat. Norah B. And Itto - No Time (Original Mix) 3:13(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:40
+Разбившийся в аварии гонщик, получивший заряд радиации пилот, девушка с 64 личностями, изуродованная актриса, парень-киборг и во главе этого всего - сумасшедший учёный. Эти неудачники и жалкие ничтожества становятся супергероями. Они находят своим сверхспособностям применение, а себе — новый смысл жизни. Теперь они — Роботмен, Негативный Человек, Безумная Джейн, (   Читать дальше...   )Производство: США / DC ComicsЖанр: фантастика, боевик, драма, комедия, детективРежиссер: Крис Мэнли, Дермотт Даунс, Гарри ЖиержианАктеры: Эйприл Боулби, Дайан Герреро, Мэтт Бомер, Брендан Фрейзер, Тимоти Далтон, Джоиван Уэйд, Райли Шэнэхэн, Мэттью Зук, Алан Тьюдик, Скай РобертсПеревод: Многоголосый любительский (BigSinema)Язык озвучки: РусскийПродолжительность: ~00:55:00 серияРеклама: присутствуют аудио и видео вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:870AA17436018D0A5AB8551C2182155C52CAFBFE
+magnet:?xt=urn:btih:8EBBEA1E3AF83B9F6D5C6CDEBA975EF12F266267
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276598   (788228) от 16.01.2019
+###  Публикация: 1510842   (790136) от 18.11.2021
 
-VA - Markus Schulz - Global DJ Broadcast - World Tour Los Angeles (2019) [MP3|320 Kbps] <Trance>
+Искушение / Blessed Virgin / Benedetta (2021) BDRip [MVO]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. New World Punx - Torque (Markus Schulz Big Room Reconstruction)
-02. Skyrim - The Song of Dragonborn (Markus Schulz Festival Mix)
-03. Faithless vs. VIZE - Glad You Came from Insomnia (Markus Schulz Mashup)
-04. Virtual Self - Ghost Voices (Markus Schulz Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:06
+Италия, XVII век. Место, где великая красота хладела в руках инквизиторов. Терзаемая эротическими видениями монахиня Бенедетта Карлини влюбляется в новую послушницу, пылкую и безрассудную. Вскоре об их запретной страсти узнают за пределами монастыря.Производство: Франция, Бельгия, Нидерланды / Pathe, Netherland Filmfund, SBS Productions, Belga Productions, Topkapi FilmsЖанр: Драма, мелодрама, биография, историяРежиссер: Пол ВерховенАктеры: Виржини Эфира, Шарлотта Рэмплинг, Дафна Патакия, Ламбер Вильсон, Оливье Рабурден, Луиз Шевильот, Эрве Пьер, Клотильда Куро, Давид Клавель, Гилен ЛондезПеревод: Любительский многоголосый (MuzoboZ)Язык озвучки: Русский, французскийСубтитры: Русские (3 х full), Английские (full), Французские (full) отдельными файламиПродолжительность: 02:11:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D3462C725316AE8A2043F894FB2980164D0D9C8
+magnet:?xt=urn:btih:1AAD136B3925385F34FFA18D9050057912E7B5C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,28 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276603   (788227) от 16.01.2019
+###  Публикация: 1388004   (790135) от 04.06.2020
 
-VA - Reanimate Music Volume 1 (Mixed by Somna) (2018) [MP3|320 Kbps] <Trance>
+Babik Reinhardt - Vibration (1995) R.D.C. Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Soul-Jazz>
 
->>Electronic
->>Trance
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_790135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anden State - Dogma (Extended Mix)
-02. Formal One - Neon City (Original Mix)
-03. Andrew Bayer feat. Alison May - Immortal Lover (In My Next Life Mix)
-04. Somna & Blu Eyes - Drawn To You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:28
+01. Rue des Lombards [3:58]
+02. Lover [6:07]
+03. Round Midnight [4:32]
+04. Tribute to Messenger [6:52](   Читать дальше...   )Жанр: Jazz Fusion, Soul-JazzПродолжительность: 00:42:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95FBD9537238B13466B11EE58B89CF17A35A951F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,57 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276348   (788226) от 16.01.2019
+###  Публикация: 1387999   (790134) от 04.06.2020
 
-Maayan Nidam - Sea of Thee (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dust And Dirt (04:06)
-02. Die Sonne Innere (08:00)
-03. Acid Kiss (06:41)
-04. In A Lair Of My Other (05:27)(   Читать дальше...   )Жанр: Tech House, Deep House, ElectronicПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED58E5BB1A33E1500767831BF62DEA360E9254A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276391   (788225) от 16.01.2019
-
-Gerald Toto - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World, Pop>
+Ella Fitzgerald - Clap Hands, Here Comes Charlie! 1961 (2012) Analogue Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alger 69
-02. Day by Day
-03. My Girlfriend
-04. Away Alive(   Читать дальше...   )Жанр: Vocal Jazz, World, PopПродолжительность: 00:34:41
+01. A Night in Tunisia [4:10]
+02. You're My Thrill [3:39]
+03. My Reverie [3:20]
+04. Stella by Starlight [3:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6B2714925AFF218FCB80208184E5DE2BF94BCA4
+magnet:?xt=urn:btih:44AC7EE482A2E94A6B252BF0982AA59E8DAF015D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,28 +134,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276583   (788224) от 16.01.2019
+###  Публикация: 1387997   (790133) от 04.06.2020
 
-Twilight Force - Heroes of Mighty Magic (2016) [FLAC|Lossless|tracks + .cue] <Power Metal>
+Dizzy Gillespie - Soul Time (2002) Castle Pulse [FLAC|Lossless|tracks + .cue] <Bop, Soul-Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slewfoot [5:01]
+02. Soul Mama [3:45]
+03. Azure Blue [4:37]
+04. Sweet Stuff [4:18](   Читать дальше...   )Жанр: Bop, Soul-Jazz, Jazz-FunkПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A78A5C05FFE3A7BB200D2327FA350A120D1044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388022   (790132) от 04.06.2020
+
+Soen - Lotus (2019) [MP3|320 Kbps] <Progressive Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_790132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opponent (05:44)
+ 02. Lascivious (05:37)
+ 03. Martyrs (06:23)
+ 04. Lotus (05:24)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388150   (790131) от 04.06.2020
+
+Drive Like Jehu - Yank Crime - Yank Crime (1994) [FLAC|Lossless|tracks + .cue] <Rock, Hardcore>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_790131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Come The Rome Plows (5:45)
+02. Do You Compute (7:13)
+03. Golden Brown (3:15)
+04. Luau (9:28)(   Читать дальше...   )Жанр: Rock, HardcoreПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388157   (790130) от 04.06.2020
+
+Hole - Live Through This (1994) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Battle of Arcane Might (5:07)
- 02. Powerwind (5:17)
- 03. Guardian of the Seas (5:39)
- 04. Flight of the Sapphire Dragon (5:40)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:28
+01. Violet (3:24)
+02. Miss World (3:00)
+03. Plump (2:34)
+04. Asking For It (3:29)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B906EDC459C65ABDA53FD2C55669F524C914ADE7
+magnet:?xt=urn:btih:86FF29BE25E6272F778A037F9598060906CA35E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,28 +250,202 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276610   (788223) от 16.01.2019
+###  Публикация: 1387990   (790129) от 04.06.2020
 
-VA - Best Of Trancer 2018 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance>
+MC5 - Kick Out The Jams (1969) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ramblin' Rose (4:15)
+02. Kick Out The Jams (2:52)
+03. Come Together (4:29)
+04. Rocket Reducer No. 62 (Rama Lama Fa Fa Fa) (5:41)(   Читать дальше...   )Жанр: Rock, Garage RockПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3879BC5B0E380457DCC30FC365EFC5DA8940D3BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388010   (790128) от 04.06.2020
+
+Gene Clark - White Light (1972) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Virgin (3:39)
+02. With Tomorrow (2:27)
+03. White Light (3:40)
+04. Because Of You (4:05)(   Читать дальше...   )Жанр: Rock, Folk Rock, Country RockПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A82945E5D0AF3248C34DB54C4092B3A5B90140B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388037   (790127) от 04.06.2020
+
+Girls Against Boys - Venus Luxure No.1 Baby (1994) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Like Flynn (4:25)
+02. Go Be Delighted (3:57)
+03. Rockets Are Red (5:03)
+04. Satin Down (5:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2CAEA24489F9A2A5165A06DDC2421980F3EA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388002   (790126) от 04.06.2020
+
+New Found Glory - Forever And Ever x Infinity (2020) [MP3|320 Kbps] <Pop Punk>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_790126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shook By Your Shaved Head (02:44)
+ 02. Greatest Of All Time  (02:57)
+ 03. Double Chin For The Win (02:39)
+ 04. Nothing To Say (02:01)(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387996   (790125) от 04.06.2020
+
+The Stooges - Fun House (1970) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down On The Street (3:44)
+02. Loose (3:34)
+03. TV Eye (4:18)
+04. Dirt (7:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833E4460F543DF17D040EF3F26A02BB951453B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388040   (790124) от 04.06.2020
+
+VA - Охота 24 (2009) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A La Ru - I am strong
+02. МартЪ - Океан
+03. СубМарина - Чёрная луна
+04. Клерки - Звезда(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9350F1E26EE241435AD2B93341BB0F63AAA482B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388092   (790123) от 04.06.2020
+
+VA - The Flatline Compilation 1 & 2 (1998-1999) Flatline Records [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, IDM, Electro, Industrial>
 
 >>Electronic
->>Trance
+>>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David Surok & AirLab7 – Urabe Mikoto (Original Mix)
-02. Varsente – Athena (Original Mix)
-03. Blue Moon & DreamLife – Last Farewell (George Crossfield Emotional Remix)
-04. Sothzanne String – Live Your Dreams (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:29
+CD1
+ 01. The Galan Pixs - Pearl Necklace (03:55)
+ 02. Cleen - Freak (Pumpin' Trash Mix) (06:03)
+ 03. Individual Totem - Reflexion (04:31)(   Читать дальше...   )Тип издания: CDЖанр: Rhythmic Noise/IDM/Electro/IndustrialПродолжительность: 04:49:06 •
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF9EDA52421DA856201AF053E0279FD0E27CB73C
+magnet:?xt=urn:btih:754623B59EDA27DDD421FE21FBC7A276783146A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,28 +453,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276413   (788222) от 16.01.2019
+###  Публикация: 1387936   (790122) от 04.06.2020
 
-VA - Die Offiziellen Deutschen Party & Schlager Charts 14.01.2019 (2019) [MP3|320 Kbps] <Schlager>
+Дарья Калинина | Пиф-паф, прекрасная маркиза! (2020) [MP3, Надежда Головина]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_790122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maite Kelly - Die Liebe Siegt Sowieso
-02. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
-03. Andrea Berg - Ja Ich Will (DJ Edition)
-04. De Lancaster feat. Kay Doerfel - Rosenzeit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:58:14
+Лучший способ найти мужа – ввязаться в какое-нибудь расследование, желательно с молодыми свидетелями, мудрым следователем и богатым подозреваемым, который окажется ни в чем не виноват. Важная деталь: все кандидаты в мужья в этой криминальной истории должны быть неженатыми. Не очень хорошо, конечно, рисковать собственной бабушкой, которую случайно могут убить, пока (   Читать дальше...   )Жанр: Иронический детективПродолжительность: 09:23:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99A916888A751DC84BF3398420590BF2151C5591
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +479,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276592   (788221) от 16.01.2019
+###  Публикация: 1510819   (790121) от 18.11.2021
 
-VA - Markus Schulz - Global DJ Broadcast - New Year's Rehab (2019) [MP3|320 Kbps] <Trance>
+Наши дамы / Our Ladies (2019) BDRip [H.264/1080p-LQ] [MVO]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tim Green - Her Future Ghost
-02. Tonal Axis - Rainfall (Monoverse Remix)
-03. Louis Botella - Sueno Latino (Paradise Slave Mix)
-04. Hernan Cattaneo & Lonya - Confession(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:50
+1996 год. Девушки из шотландской католической школы едут на музыкальный конкурс в Эдинбург, но их больше интересуют выпивка, вечеринки и свидания, чем победа.Производство: Великобритания / Sigma Films, Sony Pictures International ProductionsЖанр: Драма, комедияРежиссер: Майкл Кейтон-ДжонсАктеры: Росс Андерсон, Тони Атертон, Ив Гордон, Кейт Дики, Александра Финни, Крис Фултон, Джек Гринлис, Tallulah Greive, Дэвид Хейман, Алекс ХоупПеревод: Многоголосый профессиональный (Кинопоиск HD)Субтитры: Русские, английскиеПродолжительность: 01:45:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5390D1CC956E686A832D9AB180A3E36A44A35659
+magnet:?xt=urn:btih:B14556432D7694FD8968681250B38684518A7F0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +505,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276401   (788220) от 16.01.2019
+###  Публикация: 1510822   (790120) от 18.11.2021
 
-Toto Bona Lokua (Gerald Toto, Richard Bona, Lokua Kanza) - Bondeko (2017) [FLAC|Lossless|tracks] <Vocal Jazz, World Fusion>
+Проекты - VideoHive - Christmas Magic Logo 2019 - 22886966 [AEP]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Проекты
+>>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ma Mama
-02. Naleki
-03. Youwile
-04. Je Kango(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:41:02
+Идеальный проект, что бы пожелать своим клиентам счастливых праздников и сделать отличное вступление для вашей веб-страницы, страницы facebook, и т.п.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE94040FC36A8E72DC5A420BA3D4B2647E8A5B74
+magnet:?xt=urn:btih:04BF5F424746830D7FD746B94FB1A7FF24B3D2BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +531,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276410   (788219) от 16.01.2019
+###  Публикация: 1510683   (790119) от 18.11.2021
 
-VA - New Music Releases Week 1 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
+Hilmar Orn Hilmarsson - Children Of Nature (1996) [FLAC|Lossless|image + .cue] <Electronic, Abstract, Ambient>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Other Styles
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dzeko, Riggi & Piros, Veronica - Heaven (Feat. Veronica)
-002. Lost Kings, Wiz Khalifa, Social House - Don't Kill My High
-003. The Regrettes - Don't Stop Me Now
-004. Artlec - Void(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 06:41:48
+01. Ars Moriendi (5:54)
+Cello - Stefán Örn Arnason
+02. Charon (2:29)
+03. Sudurgata (3:26)(   Читать дальше...   )Жанр: Electronic, Abstract, AmbientПродолжительность: 00:40:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B053F683AE5FE28629CD6E72DB00B0F29A15756D
+magnet:?xt=urn:btih:CB3BFC58593617C91556C0E6732A1AFDB9CB0F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,170 +560,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203540   (788218) от 02.02.2018
+###  Публикация: 1510882   (790118) от 18.11.2021
 
-Dana Dawson (Дана Доусон) - Black Butterfly (1995) EMI, TOCP-8648, Japan [MP3|320 Kbps] <Contemporary R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Да́на До́усон (англ. Dana Dawson; 7 августа 1974, Ямайка (англ.) русск., Куинс, Нью-Йорк, США - 10 августа 2010, Нью-Йорк, США) - американская актриса и певица. Как певица, Дана выпустила свой первый сингл в 1988 году - «Ready To Follow You». Песня была написана французской певицей Жаклин Тайеб (англ.)русск., записана во Франции и достигла Top 20 во французском (   Читать дальше...   )01. Interlude 'Black Butterfly' 0:39
-02. 3 Is Family 3:39
-03. Got To Give Me Love 4:10
-04. Show Me 4:03(   Читать дальше...   )Жанр: Contemporary R&B, SoulПродолжительность: 01:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAE5890999212FF326A144ACE94F1A5727F2678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203405   (788217) от 02.02.2018
-
-VA - Big Party: EDM Anthems (2018) [MP3|320 Kbps] <House, Melbourne Bounce, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Turbotronic  -  JOA (Original Mix)  4:30
-02.  Maarten Van Larsen, Harlie & Charper  -  Woodoorave (Extended Mix)  4:24
-03.  DJ MNS vs. E-Maxx  -  Night Train (Harlie & Charper Remix)  3:48
-04.  Turbotronic  -  Show Me The Money (Original Mix)  4:13(   Читать дальше...   )Жанр: House, Melbourne Bounce, ClubПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BBA4124C9C61FDD70136447BA963C291B389F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203216   (788216) от 02.02.2018
-
-С. Моносов | Очерки истории революционного движения (1933) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий учебник предназначается для обслуживания слушателей совпартшкол, рабфаков, техникумов и для самообразования.
-
-Первоначально предполагалось, что учебник будет переработан самим автором С. Моносовым, но преждевременная смерть автора поставила Партиздат пред необходимостью привлечь ряд товарищей для коренной переработки этого учебника.
-(   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0803F7EC6CC1B3FB96D7E0E208BAA32694C2F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203533   (788215) от 02.02.2018
-
-Dana Dawson (Дана Доусон) - Paris New-York And Me (1991) Columbia, COL 481568 2, Europe [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Да́на До́усон (англ. Dana Dawson; 7 августа 1974, Ямайка (англ.) русск., Куинс, Нью-Йорк, США - 10 августа 2010, Нью-Йорк, США) - американская актриса и певица. Как певица, Дана выпустила свой первый сингл в 1988 году - «Ready To Follow You». Песня была написана французской певицей Жаклин Тайеб (англ.)русск., записана во Франции и достигла Top 20 во французском (   Читать дальше...   )01. Romantic World 4:44
-02. Tell Me Bonita 5:01
-03. Survival 3:45
-04. I'm A Singer 4:03(   Читать дальше...   )Жанр: Electronic, Pop, R&BПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45D6EF7A68776B5FDE9D489F20DE6A6D0D2B0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203442   (788214) от 02.02.2018
-
-Григорий Ряжский | Подмены (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь семьи Грузиновых-Дворкиных складывалась вполне респектабельно: глава семьи – герой Отечественной войны, дошедший с батальоном до Праги, профессор, заведующий кафедрой; жена, красавица княжеских кровей; подающий надежды сын; просторная квартира в центре Москвы… Но ветры перемен не минуют в российской истории никого, и вот, уже в послевоенные годы, семейная идиллия (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 16:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86F696F2E0D02182F24B5491E6FF9FCFD8551BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203448   (788213) от 02.02.2018
-
-Serial Box 02.2018 [En]
+MiniTool Power Data Recovery 10.1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-База серийных номеров проекта iSerial по состоянию на 2 февраля 2018 года.
-В ней содержится информация по активации (серийные номера,информация о других методах активации) как для программ платформы PowerPC, так и Intel.
-
-База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете!Тип издания: macOS SoftwareРелиз состоялся: 01.02.2018Разработчик: iSerialПоддерживаемая ОС: OS X 10.3.9 или более новаяЯзык интерфейса: Английский
+MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD/DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DD5AAD426AECA546F1A3413FC63B0C1E8A5D202
+magnet:?xt=urn:btih:4168A218EA094B1BE445F03B80E65F529824F1E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,25 +586,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203140   (788212) от 02.02.2018
+###  Публикация: 1510750   (790117) от 18.11.2021
 
-А. И. Новиков | Заговор справедливых (1977) [DJVU, PDF, FB2]
+Джеймс Бонд 007: Казино Рояль / James Bond 007: Casino Royale (2006) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
 
->>Разное (категория книг)
->>Публицистика
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга о мужественных и самоотверженных людях, осмелившихся мечтать об обществе, в котором все будут равны и свободны. Юный читатель узнает о том, как жили и боролись против мира насилия Мор, Кампанелла, Фурье, Сен-Симон и многие другие провозвестники светлого будущего человечества.Жанр: История, политология, философия, биография, публицистикаФормат: DJVU, PDF, FB2
+Используя богатый шпионский арсенал, Джеймс Бонд вступает в поединок с финансовым гением преступного мира Ле Шиффром. Но генеральное сражение против него можно выиграть лишь силой ума, и не на поле боя, а на зеленом сукне казино «Рояль».Производство: Великобритания, Чехия, США, Германия, Багамы / Columbia Pictures, Eon Productions, Casino Royale ProductionsЖанр: Боевик, триллер, приключенияРежиссер: Мартин КэмпбеллАктеры: Дэниэл Крэйг, Ева Грин, Мадс Миккельсен, Джуди Денч, Джеффри Райт, Джанкарло Джаннини, Катерина Мурино, Симон Абкарян, Исаак Де Банколе, Еспер КристенсенПеревод: Дублированный (Лицензия), Двухголосый профессиональный (П. Гланц и И. Королёва), Авторский (Ю. Живов, А. Гаврилов, Ю. Сербин, С. Рябов)Язык озвучки: Русский, украинский, английскийСубтитры: Русский (Forced, Full), английский (Full)Продолжительность: 02:24:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABADEACE6B77976E594A0E8F69D148436482B5B3
+magnet:?xt=urn:btih:F796A0C3C51286CD06641EFC5DEAF919371717AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,28 +612,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203453   (788211) от 02.02.2018
+###  Публикация: 1510861   (790116) от 18.11.2021
 
-VA - Markus Schulz - Global DJ Broadcast 2 Hour Mix (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+Folx Pro 5 v5.26 [Multi/Ru]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Elevation presents Elara - Meridian (World Premiere)
-02. Markus Schulz presents Dakota - Cafe Del Mar
-03. Stoneface & Terminal - Covenant
-04. Giuseppe Ottaviani - Till the Sunrise (Global Selection)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:29
+Folx Pro 5 - менеджер загрузок с удобным интерфейсом в стиле macOS.
+Приложение предлагает уникальную систему сортировки и хранения скачанных файлов, восстанавливает прерванные загрузки, разбивает загрузку на несколько потоков, регулирует скорость и многое другое.
+Современный интерфейс в стиле macOS с поддержкой разрешения для дисплеев Retina. Уникальная система сортировки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2021Разработчик: © 2021 Eltima SoftwareПоддерживаемая ОС: OS X 10.9+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA8179E870BB0496E6141C5389920D90201B306C
+magnet:?xt=urn:btih:2FA79401C382D27E72C4BF2176ACE333281A3AA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,28 +640,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203390   (788210) от 02.02.2018
+###  Публикация: 1510769   (790115) от 18.11.2021
 
-Troum & raison d'être - De Aeris In Sublunaria Influxu (2015) Essence Music [FLAC|Lossless|tracks+.cue] <Dark Ambient, Drone, Experimental, Tribal>
+Movavi Video Converter 22.1.0 Premium RePack (& Portable) by 9649 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
- 01. Folia (03:01)
- 02. Alio Tempore (10:05)
- 03. Oculum Mundi (15:15)(   Читать дальше...   )Жанр: Dark Ambient, Drone, Experimental, TribalПродолжительность: 01:08:34+00:23:48
+Movavi Video Converter - программа для конвертации видео и аудио файлов. Конвертируйте, сохраняйте видео для iPod, iPhone, PSP, Zune, КПК, MP4 - плееров и сотовых телефонов. Загружайте онлайн - видео,записывайте DVD. Программа подойдет пользователю с любыми навыками в работе с видео, программа предлагает как готовые настройки популярных форматов для новичков, так (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78ACD91A27300314C662A15AB870F80642592CA0
+magnet:?xt=urn:btih:16E3B9CCDB9FE402A8D394D31EF8E22E8C14438F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,25 +666,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203438   (788209) от 02.02.2018
+###  Публикация: 1510173   (790114) от 18.11.2021
 
-Эрик Ломакс | Возмездие (2017) [MP3]
+Apple внедрила в бета-версию iOS 15.2 бэкдор, по ее словам, с благими намерениями
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_790114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга поражает искренностью — все, что в ней написано, правда. Во время Второй мировой войны британский офицер Эрик Ломакс попадает в плен. После страшных пыток и унижений в японском концлагере он уже не может вернуться к прежней жизни. Мысль о возмездии не покидает его. Он уверен, что его мучители заслуживают самого страшного наказания, и особенную ненависть (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:59:45
+Обновление iOS 15.2 может навсегда изменить опыт использования iPhone.Грядущее обновление iOS 15.2 станет самым радикальным обновлением для iPhone за последние несколько лет. Самым радикальным не только из-за новых функций и сервисов, но также из-за нового подхода к конфиденциальности пользователей iMessage.План Apple по обеспечению безопасности детей состоит из (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0937E6E6DF2F30B623B97E308AB03FD9CE5791D6
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,112 +692,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203488   (788208) от 02.02.2018
+###  Публикация: 1510690   (790113) от 18.11.2021
 
-Carbon Copy Cloner 5.0.6 [En]
+Windows 11 Home 21H2 x64 by Brux [22000.318] [Ru]
 
->>Архив торрентов
->>Архив 4Apple
+>>След.
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Carbon Copy Cloner –  утилита для резервного копирования данных.
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+Сборка windows 11 выполнена на основе оригинальных образов microsoft Windows 11.22000.318 Version 21H2 (November 2021 Update) (MSDN)  Предназначена как для домашних пользователей, так и для рабочих станций, где требуется минимальное отклонение от оригинала. Все изменения в сборке производились исключительно при помощи DISM.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25585BE4A3EDDA26AC3CF93E9DB71A92DFEB550F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203430   (788207) от 02.02.2018
-
-VA - Arabian Shisha Lounge Vol.3 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Christos Fourkis  -  Summer Escape (Original Mix)  6:44
-02.  Dormidontov  -  Love You (Original Mix)  7:10
-03.  Dany Cohiba  -  Afro Civilization (Original Mix)  5:56
-04.  Urban Phunk Society  -  Night Train (Original Mix)  3:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC20E7C37303D5D2CCA7E23B9492168AF345C34B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203439   (788206) от 02.02.2018
-
-iFinance 4.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788206.jpg" />
-</div>
-
-
-###  Подробнее
-
-iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2018Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D210ECD373EBE04E2C9F51584E34537DCFC357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203392   (788205) от 02.02.2018
-
-World Party - Bang! (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingdom Come (05:27)
-02. Is It Like Today? (05:12)
-03. What Is Love All About? (04:07)
-04. And God Said... (00:26)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B602EFE2EF98A58988768CCD1488D9F877038D
+magnet:?xt=urn:btih:79F69CD38C5E2ED2F4E155C614122D2B9D346E27
 ```
 
 https://mybot314.ru/tekegram_catalog/

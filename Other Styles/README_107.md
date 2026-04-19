@@ -1,3 +1,206 @@
+###  Публикация: 1160669   (473914) от 25.08.2017
+
+The Romantic Strings Orchestra - The Greatest Love Of All (1998) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always on My Mind (3:51)
+02. The Greatest Love of All (5:00)
+03. Theme From Hill Street Blues (3:25)
+04. All I Ask of You (From Phantom of the Opera) (3:47)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27516B3EB9699352697EAFB43763507F0702E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245261   (473890) от 05.09.2018
+
+VA - Sax Is The Best! Showa Kayo Listening At Sax (2012) 5CD [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental, Sax>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yogiriyo Konya Mo Arigatō - Satoru Oda
+02. Otaru No Hitoyo - Teruo Yoda
+03. Shiankyō Blues - Teruo Yoda
+04. Minatomachi Blues - Teruo Yoda(   Читать дальше...   )Жанр: Easy Listening, Instrumental, SaxПродолжительность: 04:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E09CAAEE9B183F891127868D80A5923EB0FCF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939410   (473564) от 22.09.2015
+
+Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes the Heartache (03:27)
+02. I've Been Drinkin' More (03:34)
+03. Hot Mouth Mama (02:32)
+04. Fancy Limousine (03:29)(   Читать дальше...   )Жанр: Texan CountryПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E1CD728A3D576164054C50FF6EBADE04390C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939416   (473558) от 22.09.2015
+
+Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Hat Blues (02:49)
+02. When It Comes To Loving You (02:41)
+03. Darlin Its A Waste Of Time (03:28)
+04. The Chores Song (03:06)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B785EC0BA5D2F1562051DE74912CA3073BB14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797289   (473540) от 05.09.2018
+
+Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (2014) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:43)
+02. The Rains of Castamere* (02:42)
+03. Breaker of Chains (04:05)
+04. Watchers On the Wall (02:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 1:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701841   (472067) от 20.09.2013
+
+IchPak - De mo (2013) Авторская раздача [MP3|320 кб/с]<untitled>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472067.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:53] 01 - SOFA
+[04:15] 02 - Atusubitu
+[03:03] 03 - 12на5
+[01:16] 04 - Bionic Commando Groder's Anthem cover(   Читать дальше...   )Жанр: untitledПродолжительность: 00:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CFF13FF1958CFB03C008B1F9557F4CE09993D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245470   (472014) от 06.09.2018
+
+Jan Pham Huu Tri & Gabin De L’Auray - Gentle Acoustic Guitar (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumemtal, Guitar, Downtempo>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Togetherness (*) 01:58
+02. Holiday Souvenir (*) 01:49
+03. Lasting Friendship (*) 01:30
+04. Sunshine Hug (*) 01:45(   Читать дальше...   )Жанр: Instrumemtal, Guitar, DowntempoПродолжительность: 00:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48E6900250E0E92BD55B71E24FB3C1AE69A54AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245579   (471909) от 06.09.2018
 
 Relaxing Piano Music & Sleep Baby Sleep - Newborns - Relaxing Pregnancy Music (2018) [MP3|320 Kbps] <New Age>
@@ -559,206 +762,6 @@ VA - Mystera IX (2002) [FLAC|Lossless|tracks + .cue] <NewAge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04FEDF1A66922FB5B154A9CDF0EC0020242E9555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246006   (467658) от 08.09.2018
-
-VA - The Best Of Mystera (2001) 2CD [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Era - Ameno
-02. Enigma - Sadness Part 1
-03. Highland - Veni, Vedi, Vici
-04. Vangelis - Conquest Of Paradise(   Читать дальше...   )Жанр: NewAgeПродолжительность: 02:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6AB81156D9A1986A2DCD27BDBF84FD67381E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161253   (467372) от 28.08.2017
-
-VA - Magic Is The Moonlight/ South Sea Island Favorites (2000) [MP3|320 Kbps] <Instrumental, Vocal, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467372.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Francis Goya & His Golden Guitar - Magic Is the Moonlight (2:50)
-2. The Islanders - Hawaiian Wedding Song (2:52)
-3. Louie King & His South Sea Islanders - My Isle of Golden Dreams (2:51)
-4. Kalua Beach Boys; Lotus Blossoms, Vocal - Down Among the Sheltering Palms (2:49)(   Читать дальше...   )Жанр: Instrumental, Vocal, Easy ListeningПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DEA1F3135F9463A66AD40AC6285574FED2ECD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548433   (466764) от 18.09.2012
-
-ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная аудиопрограмма>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Психоактивная аудиопрограммаПродолжительность: 00:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC1BEC724F23CE3EF9E6F5239FE3D87D6B7B908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940731   (466746) от 25.09.2015
-
-The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC|Lossless]<Instrumental, Easy listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
-02. Tonight I Celebrate My Love
-03. Body Talk
-04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417C6CCC4DE995D3C92BA9AAF04AB03361C860EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407419   (466398) от 07.09.2020
-
-The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In Your Arms Again
-02. Lies
-03. Born To Be Blue
-04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43D449F042CE44C44752F8602AE03C55BE953A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407299   (466396) от 07.09.2020
-
-The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Sitiera
-02. Recuerdos
-03. No Vale la Pena
-04. Poder Vivir(   Читать дальше...   )Жанр: Latin, Country, TejanoПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC35407B8D019938034182567EEFB738C983FD76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407418   (466395) от 07.09.2020
-
-The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In Your Arms Again
-02. Lies
-03. Born To Be Blue
-04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A099F83FA7C38A13098746D355E7C53964240B
 ```
 
 https://mybot314.ru/tekegram_catalog/

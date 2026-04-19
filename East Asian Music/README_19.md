@@ -1,3 +1,218 @@
+###  Публикация: 1694177   (121301) от 23.01.2024
+
+Ryujin - Ryujin (2024) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hajimari / instrumental
+02. Gekokujo
+03. Dragon, Fly Free
+04. Raijin & Fujin(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02289F145027592019CB96FFCCD3EA2B16370AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720600   (110186) от 05.05.2024
+
+Concerto Moon - Back Beyond Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. THE GOLD DIGGER [00:03:34]
+02. HOPE SEEKER [00:04:42]
+03. STORY OF MY LIFE [00:04:52]
+04. REACHING OUT FOR MERCY [00:05:04](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E720B7B43AFAA8E1C47AA20697BDE1CD803FD8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725617   (108923) от 25.05.2024
+
+Tears Of Tragedy - Trinity And Overture 15th Anniversary Special (2024) [MP3|320 Kbps] <Symphonic, Melodic Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vorspiel (Live at CLUB CITTA'/October2023) [00:00:45]
+02. Silence Ocean (Live at CLUB CITTA'/October2023) [00:05:27]
+03. Euclase (Live at CLUB CITTA'/October2023) [00:05:04]
+04. Astrea (Live at CLUB CITTA'/October2023) [00:04:10](   Читать дальше...   )Жанр: Symphonic, Melodic Power MetalПродолжительность: 3 CD, 02:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AD3B84DB6CF65017A63E7E7FA9CBB346F27957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739923   (105969) от 30.07.2024
+
+Concerto Moon - Back Beyond Time (2024) 2 x CD [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105969.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Gold Digger
+02. Hope Seeker
+03. Story of My Life(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936EC4B53FEB326DB1A6355AFF24CC3E4AA8A7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750366   (104220) от 19.09.2024
+
+Defiled - Horror Beyond Horror (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke and Mirrors (2:35)
+02. Horror beyond Horror (4:01)
+03. Syndicate (3:59)
+04. The Alchemy (2:47)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FF24D36BAE0B88665290CBB3D5BCD4950604C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486055   (90017) от 22.04.2012
+
+Yoshida Kiyoshi - Warriors (2011) [MP3|320 кб/с]<New age, Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90017.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:57) 01. Warriors
+(5:01) 02. Moment
+(4:17) 03. Brilliance of Edo
+(1:20) 04. Collage 1 - Bush Warbler
+(4:55) 05. Frontier
+(4:33) 06. Blinking Out
+(4:56) 07. The Sword
+(1:15) 08. Collage 2 - The Aftermath
+(4:47) 09. Like the Wind
+(3:58) 10. Zen(   Читать дальше...   )2011Жанр: New age, EthnicПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F1FD30DB9520391D5C85AB822C13296A34F989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483276   (88778) от 16.04.2012
+
+Lai Muang - The Spirit Of Lanna (2008) [MP3|320 кб/с]<New age, Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88778.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:06) 01. Chiang Saen Luang
+(3:16) 02. Long Mae Ping
+(4:24) 03. Khang Khao Kin Kluay / Khamen Lai Kwai
+(2:14) 04. Por Khru
+(6:24) 05. Pee Mot
+(4:23) 06. Mon Lampang
+(4:16) 07. Tang Chiangmai
+(4:10) 08. Lao Duang Duen
+(2:20) 09. Kulap Chiangmai
+(2:19) 10. Low Peejum Solo(   Читать дальше...   )2008Жанр: New age, EthnicПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78D86B09A1E5E5ABC8AB3AFAFC64888B8507307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483622   (88768) от 16.04.2012
 
 Jiang He Shui - Water of Jangce River (2007) [MP3|128-320 кб/с]<Ethnic, Folk>

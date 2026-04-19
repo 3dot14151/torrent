@@ -1,3 +1,61 @@
+###  Публикация: 1241555   (519292) от 18.08.2018
+
+VA - Wearmada Ibiza Pool Party (Extended Versions) (2018) [MP3|320 Kbps] <House, ElectroHouse,Trance, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loud Luxury feat. Brando - Body (Orjan Nilsen Extended Remix) 4:44
+02. Armin Van Buuren - Blah Blah Blah (Bassjackers Extended Remix) 4:18
+03. Afrojack vs. Jewelz & Sparks - One More Day (Nicky Romero Extended Remix) 5:22
+04. Lost Frequencies feat. James Blunt - Melody (ANGEMI Extended Remix) 4:21(   Читать дальше...   )Жанр: House, ElectroHouse,Trance, DanceПродолжительность: 02:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B49158F0A3D8A9BB48C4308CFEA31CB4AC08D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241760   (518355) от 19.08.2018
+
+VA - Top Of The Pops - Groove, Hip Hop & Rnb (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Ii Soul, Caron Wheeler - Back To Life (However Do You Want Me) (Remastered)
+02. Arrested Development, Speech, Rasa Don, Headliner, Aerle Taree Jones - People Everyday
+03. Diana King - Shy Guy
+04. Shabba Ranks, Chevelle Franklyn - Mr. Loverman (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 03:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB70125E5C66ACEF9EF188D365D7C51AC3AB6952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314507   (518186) от 15.07.2019
 
 VA - NRJ Beach Party (2019) [MP3|320 Kbps] <Pop>
@@ -711,70 +769,6 @@ Halsey - BADLANDS (2015) Deluxe Edition [MP3|320 кб/с]<Indie Pop, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE9F78EC8E546F194F9F7694699B6E279355564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538792   (507465) от 25.08.2012
-
-Roxette - It's Possible (Unofficial Release) & The Sweet Hello, The Sad Goodbye (Bassflow Remake) (2012) [MP3|~245 кб/с (V0)]<Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две последних пластинки легендарной группы - оффициально вышедший сингл The Sweet Hello, The Sad Goodbye (Bassflow Remake); и работа фанов группы - It's Possible (Unofficial Release), который включает в себя новейшую песню It's possible (version one), а также старые хиты в ремиксах и концертные версии песен.01. It's possible (version one) :: 02:37
-02. It must have been love (Live St Petersburg 2010) :: 06:02
-03. Wish I could fly :: 04:42
-04. How do you do! (Live Stavanger 2010) :: 02:35
-05. Dangerous (Live Stavanger 2010) :: 04:11
-06. Reveal (Attic Remix) :: 03:30
-07. Speak to me (Bassflow Remix) :: 03:39
-08. Dressed for success (Live St Petersburg 2010) :: 04:35
-09. Sleeping in my car (Live Stavanger 2010) :: 03:42
-10. Milk and Toast and Honey :: 04:05(   Читать дальше...   )Жанр: Pop, Pop-RockФормат: CD, Compilation, SingleПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64E4ED22D504C8F0B8956A1F0F37CA163A2DF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316671   (505006) от 27.07.2019
-
-Michael Jackson - Memorial (2019) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thriller (Instrumental)
-02. Wanna Be Startin' Somethin' (12'' Mix)
-03. Billie Jean (Underground Mix)
-04. Ghost(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1C589702ABFC516D07880C387A9499D46E3A84
 ```
 
 https://mybot314.ru/tekegram_catalog/

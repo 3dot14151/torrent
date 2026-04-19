@@ -1,3 +1,55 @@
+###  Публикация: 922859   (566253) от 30.07.2015
+
+Проекты - VideoHive - The Good Time Memories [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E18A597D7A4D9DC104FDBAA933A1902983656E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922603   (566245) от 30.07.2015
+
+Проекты - VideoHive - In Style [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FEA594D8137E9867016BD969D318A85D71E0140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922587   (566201) от 30.07.2015
 
 Проекты - VideoHive - Beautiful Target [AEP]
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:201C0BE0C4CB1A3D46FC0E468350913F04BAD458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924202   (558812) от 03.08.2015
-
-Проекты - VideoHive - Vintage Premium Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858A621E1A26AE66C0B4D442047783F564C82D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924227   (558760) от 03.08.2015
-
-Проекты - afteryou - Sunny Summer [AEP]
-
->>След.
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторский проект отФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513A9516C1A08169D02573FD7B28B9DCD8B56091
 ```
 
 https://mybot314.ru/tekegram_catalog/

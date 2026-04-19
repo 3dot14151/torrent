@@ -1,3 +1,206 @@
+###  Публикация: 1191315   (263449) от 16.12.2017
+
+Albert Artemyev - The Living Universe (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263449.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  The living Universe
+2.  The pieces of the planets
+3.  Cosmic mind
+4.  Extraterrestrial(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9FA1E0DDF7A804027CD45F8E20E6CBF19A391B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191264   (263392) от 16.12.2017
+
+Eva Cassidy - Acoustic (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop, Jazz>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early Morning Rain (Acoustic) (4:06)
+02. Wayfaring Stranger (Acoustic) (3:05)
+03. Kathy's Song (Acoustic) (4:34)
+04. Wade In The Water (Acoustic) (2:36)(   Читать дальше...   )Жанр: Folk, Pop, JazzПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D2C59505D7D7DD9B3FF7F5E9803942AEB93237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192498   (263100) от 17.12.2017
+
+Gipsy Kings - Instrumental Best (1995) [FLAC|Lossless|image + .cue] <Flamenco, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inspiration (3:47)
+02. Ritmo De La Noche (3:33)
+03. Luna De Fuego (3:45)
+04. Pharaon (4:07)(   Читать дальше...   )Жанр: Flamenco, InstrumentalПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83575BD258EB493AA39A895053676A41618C9519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340462   (262918) от 26.11.2019
+
+Seymour Light Orchestra - That Ole Devil Called Love (1987) [FLAC|Lossless|image + .cue] <Instrumental, Ballad, Contemporary>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Smile Without You - Barry Manilow (3:15)
+02. Crying - Joe Melson (3:06)
+03. First Time Ever I Saw Your Face - Joe Melson (3:23)
+04. Hard to Say I'm Sorry - Joe Melson (2:59)(   Читать дальше...   )Жанр: Instrumental, Ballad, ContemporaryПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA80903DFB42EBE2CD64FB46B930B584ACA79DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340474   (262906) от 26.11.2019
+
+Imaginary Sound Project - Synthesizer Dreams - World Hits On Synthesizer (1991) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Day In Paradise - Phil Collins (3:52)
+02. Lady In Black - Ken Hensley (3:29)
+03. Bright Eyes - Mike Batt (4:04)
+04. To Love Somebody - B, M & R Gibb (4:38)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499F3B6FE375FAE1E4F5A84D5E6A4AA67925CF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340296   (262895) от 26.11.2019
+
+Amanaska - Panorama (2003) [MP3|320 Kbps] <World Music, Ethno, Worldbeat>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incantation
+02. Distant Worlds
+03. Meridien
+04. Panorama(   Читать дальше...   )Жанр: World Music, Ethno, WorldbeatПродолжительность: 01:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34D102253E1F33AA99455AA7272F90C234A60E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192579   (262748) от 18.12.2017
+
+Atom Music Audio - Immortals: Massive Hybrid Epic Tracks (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asura [03:09]
+02. Immortalized [03:01]
+03. War Gods [03:35]
+04. God Screamer [03:21](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16CCDC732F30260B1794D3918642C710848D203D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341021   (262621) от 27.11.2019
 
 VA - Buddha Meditation Relax (2019) [MP3|320 Kbps] <New Age, Relax, Downtempo>
@@ -582,218 +785,6 @@ VA - Celtic Spirit (2001) [MP3|320 кб/с]<New Age, Celtic Music, Ambient, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C10A0A42E50312BEB246EFFFA80775FEA5DBFC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501216   (258342) от 25.05.2012
-
-Willie Nelson - The Very Best Of Willie Nelson (2008) [MP3|320 кб/с]<Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258342.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.On The Road Again - 2:32
-2.If You've Got The Money I've Got The Time - 2:03
-3.Blue Eyes Crying In The Rain - 2:18
-4.Angel Flying Too Close To The Ground (Willie Nelson & Family) - 4:28
-5.The Pilgrim: Chapter 33 - 3:33
-6.I'm Movin' On	 - 2:43
-7.Big River	 (Waylon Jennings, Willie Nelson, Johnny Cash, Kris Kristofferson) - 2:46
-8.Georgia On My Mind - 4:19
-9.If You Can Touch Her At All (Waylon Jennings & Willie Nelson) - 3:00
-10.Something To Brag About (Willie Nelson & Mary Kay Place) - 2:02(   Читать дальше...   )2008Жанр: CountryПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8231BA27DF0AEA1947DB7D07B4CED57325FBFCF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500643   (258083) от 24.05.2012
-
-Православный Дон - Авторский сборник (2005) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk Казачья песняПродолжительность: 01:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953DA6B7C89098FB2F3BE1F60D8480CBFD00DE7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500658   (258074) от 24.05.2012
-
-Новая Азия - Зов предков (2006) [MP3|320 кб/с]<Этно-электроника, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зов предков
-02. Перевалы Алтая
-03. Шаман и Змея
-04. Песни пастуха
-05. Старый орёл
-06. Лошадь
-07. Легенда о воинах
-08. Весёлый охотник
-09. Завоеватели
-10. Укок(   Читать дальше...   )2006Жанр: Этно-электроника, FolkПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE851397AC72C5BEF0E12CA68C8617D3937AE8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838070   (257978) от 21.11.2025
-
-Liam Bradbury - Piano Covers Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thinking out Loud (3:19)
-02. Yesterday (2:40)
-03. Can You Feel the Love Tonight (4:26)
-04. Shout (2:08)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBC4AEA25AF3858D6F8A076F8D095820AE04500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838077   (257977) от 21.11.2025
-
-Liam Bradbury - This Blue Planet (2017) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolving World (2:39)
-02. Deep Blue Sea (4:03)
-03. Over Rolling Hills (3:53)
-04. Beneath the Stars (3:11)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901CBE63079BF9F8E2EF205CC086461F9E59E3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838109   (257940) от 20.11.2025
-
-Danheim - Domadagr (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Domadagr (3:36)
-02. Skaldhakker (feat. Heldom)(3:39)
-03. Einherjar (3:10)
-04. Runar (4:19)(   Читать дальше...   )Жанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B33AA09B8D90D50C07D90854B3939E54AC7EF39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838110   (257939) от 20.11.2025
-
-Danheim - Heimferd (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agermark (3:25)
-02. Brenhin Llwyd (3:01)
-03. Haukadalur (4:52)
-04. Heimferd (4:12)(   Читать дальше...   )Жанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7768DB549187161804F95DD15E48565B5AF83512
 ```
 
 https://mybot314.ru/tekegram_catalog/

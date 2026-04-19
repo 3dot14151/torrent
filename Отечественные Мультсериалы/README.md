@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1863262   (1063858) от 
+###  Публикация: 1863262   (1063604) от 03.04.2026
 
 Котенок Кнопа и его друзья (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-52 из 52)
 
@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063604.jpg" />
 </div>
 
 

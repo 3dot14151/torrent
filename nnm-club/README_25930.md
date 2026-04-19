@@ -1,74 +1,22 @@
-###  Публикация: 1760358   (37413) от 13.11.2024
+###  Публикация: 1755457   (40174) от 16.10.2024
 
-Дмитрий Билик | Рубежники. Бедовый 3. Княжий человек (2024) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли чувствовать себя в безопасности, после того, как присягнул на верность Великому Новгородскому князю? Конечно же нет. Главный враг затаился, но не сбежал окончательно. Опасная нечисть, способная менять обличия, ходит где-то рядом. А беды продолжают сыпаться, как из рога изобилия.Жанр: городское фэнтези, мистика, приключения, юморИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98000470FE440C09D5E4B30B11E35A1B896C686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760315   (37412) от 13.11.2024
-
-Г.Н. Вертушков, В.Н. Авдонин | Таблицы для определения минералов по физическим и химическим свойствам [2 книги] (1980, 1992) [PDF, DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является фундаментальным справочником-определителем минералов. В предлагаемом релизе она представлена в двух изданиях (во втором список минералов увеличен почти на 100 названий). В таблицах приведены свойства наиболее важных минеральных видов, позволяющие диагностировать их по внешним признакам без применения специальных анализов и сложной аппаратуры. В издании (   Читать дальше...   )Жанр: минералогия,  справочникИздательство: "Недра"Формат: PDF, DJVUКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB83D24951A1DB6E874CFF0FFD318E980296FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760295   (37411) от 13.11.2024
-
-Война миров. Следующее столетие / Wojna swiatow - nastepne stulecie (1981) WEB-DLRip [H.264/1080р] [AVO]
+Современная леди / Vor tids dame (1912) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Всего несколько дней назад марсиане приземлились на землю и познакомились с ее обитателями. Марсиане, как более развитая раса стремятся обучить людей новым технологиям. Все бы хорошо, но ведущему новостей кажется что здесь что-то не так.Производство: Польша / Zespol Filmowy "Perspektywa"Жанр: фантастика, триллерРежиссер: Петр ШулькинАктеры: Роман Вильхельми, Кристина Янда, Мариуш Дмоховский, Ежи Штур, Марек Вальчевский, Божена Дыкель, Иоанна Жулковска, Веслав Джевич, Станислав Гавлик, Януш Гайос и др.Перевод: Авторский (Антон Алексеев)Язык озвучки: русский, польскийСубтитры: английские, польскиеПродолжительность: 01:33:35
+Молодой граф фон Бернер (красавчик Вальдемар Псиландер) внезапно теряет состояние и едет в Нью-Йорк, чтобы попытать счастья там. Обладая обаятельным характером и решительностью, он быстро продвигается от докера до водителя известного миллионера. Только когда у него начинаются отношения с дочерью миллионера Энни, у него возникают проблемы...Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, мелодрама, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Вальдемар Псиландер, Axel Boesen, Lauritz Olsen, Торбен Мейер, Clara Pontoppidan, Viking RingheimПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:41:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23B2A2722C1F2A5443A87B756958915100BA4952
+magnet:?xt=urn:btih:A978FD4C1202937B84AC7E0E1A245BD0CB7D5485
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,27 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760248   (37410) от 13.11.2024
+###  Публикация: 1755579   (40173) от 16.10.2024
 
-Дракон: История Брюса Ли / Dragon: The Bruce Lee Story (1993) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10-bit]
+Sorrow - Death Of Sorrow (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Биографическая драма, рассказывающая о жизни легендарного Брюса Ли, погибшего таинственным образом. Фильм снят по воспоминаниям жены Брюса Линды Ли Колдуэлл. Создатели ленты попытались показать Ли как человека, преодолевающего препятствия, неуклонно идущего к цели.
-
-Мистика и реальность переплетаются друг с другом, и Брюс Ли, великий «маленький дракон», вступает (   Читать дальше...   )Производство: США / Universal PicturesЖанр: боевик, драма, биографияРежиссер: Роб КоэнАктеры: Джейсон Скотт Ли, Лорен Холли, Роберт Вагнер, Майкл Лернд, Нэнси Кван, Кэй Тонг Лим, Рик Янг, Лоюн Ван, Стерлинг Мейсер мл., Свен-Оле ТорсенПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 02:00:05
+01. Doom The World (3:57)
+02. Judicial Falsity (5:32)
+03. Remembered Eternally (7:14)
+04. Scar (6:07)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D893EE15D467BF3DB937F2B72E72A6992EAD0DC
+magnet:?xt=urn:btih:35DB1801148A96311B9BA825429B537135531D96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760243   (37409) от 13.11.2024
+###  Публикация: 1755541   (40172) от 16.10.2024
 
-XnView MP 1.8.3 + Portable [Multi/Ru]
+VA - Luxurious, Relaxed & Sophisticated Atmosphere Soothing Tunes to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XnView MP - мощное многофункциональное приложение для работы с графическими файлами, являющееся расширенной версией программы XnView. По сути этот инструмент может считаться своеобразным медиа-браузером с опциями просмотрщика, конвертера и каталогизатора. XnViewMP поддерживает просмотр более 500 различных графических форматов, а при сохранении (преобразовании) - (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Kool&Klean - Reality (4:01)
+02. Chillaxonic - Iridescent (5:10)
+03. Konstantin Klashtorni - Used to Love You (4:08)
+04. Chillaxing Jazz Kollektion - Touch (3:52)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:51:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA53C80680D06A5A876569898E30F217775C2069
+magnet:?xt=urn:btih:BD05AC40AC168E3FC6EBB629A209A253B9A025DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682125   (37408) от 13.11.2024
+###  Публикация: 1755540   (40171) от 16.10.2024
 
-Водолей / Страх сцены / Deliria / StageFright (1987) BDRip [H.264/720p] [DVO]
+VA - Harmonic and Melodic Laid-Back Ambiance Lounge Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В небольшом театре идут репетиции мюзикла, главным героем которого должен стать маньяк-убийца Ирвинг Уоллес. По дьявольской иронии судьбы сам прототип, только что сбежавший из закрытой психиатрической лечебницы, оказывается среди зрителей на генеральной репетиции. И начинается кровавая баня - ведь к концу спектакля все актеры могут превратиться в куски окровавленного (   Читать дальше...   )Производство: Италия / Filmirage S.r.l.Жанр: ужасы, триллерРежиссер: Микеле СоавиАктеры: Дэвид Брэндон, Барбара Куписти, Доменико Фиоре, Роберт Глигоров, Микки Нокс, Джованни Ломбардо Радице, Клейн Паркер, Лоредана Паррелла, Мартин Филипс, Джеймс СэмпсонПеревод: Авторский (Андрей Гаврилов, Сергей Визгунов, Сергей Кузнецов), двухголосый любительский (Paper Pirates)Язык озвучки: русский, английскийСубтитры: русские, английские, испанские, немецкие, французскиеПродолжительность: 01:30:16
+01. Kool&Klean - My World (5:25)
+02. Chillaxing Jazz Kollektion - Blessings (4:34)
+03. Chillaxonic - Ethereal (5:09)
+04. Chillaxing Jazz Kollektion - One Hundred Ways (3:54)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:45:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E840524BE8D80C205E7D4795EBEAFFCAFC85086A
+magnet:?xt=urn:btih:48E02737E3C64713EE3DE821228B998031190648
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,25 +111,257 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760346   (37407) от 13.11.2024
+###  Публикация: 1755615   (40170) от 16.10.2024
 
-DreamFace: видео редактор с ИИ v4.8.5 Mod by MustHave [Ru/Multi]
+VA - Anjunabeats presents Progressive House 01 (DJ Mix) (2024) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parker & Hanson - Afterthought (Extended Mix) [08:13]
+02. Above & Beyond - Is It Love? (1001) (Matt Lange Extended Mix) [07:46]
+03. Ilan Bluestone & Giuseppe de Luca - Frozen Ground (Spencer Brown Extended Mix) [07:12]
+04. Soundprank - Atlantic (Extended Mix) [07:19](   Читать дальше...   )Жанр: House, Progressive House, Melodic House & Techno, ElectronicПродолжительность: 01:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE6292A3FE81EA65A813949B8B6827689F0607C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755596   (40169) от 16.10.2024
+
+VA - FSOE ADE Compilation (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila & Philippe El Sisi & Omar Sherif with Jaren - Count On Me (Extended Mix) [8:57]
+02. Billy Gillies - Closed Eyes (Extended Mix) [6:11]
+03. Paul Denton - The Code (Extended Mix) [6:39]
+04. Alex M.O.R.P.H. - Arcadia (Extended Mix) [6:10](   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC40B19E76FFECBEDB70A7B92A23DC1BAE831175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755547   (40168) от 16.10.2024
+
+VA - Travel and Leisure Vacations at Exotic Locations Smooth Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Home (5:42)
+02. Kool&Klean - I Smile (4:41)
+03. Chillaxonic - Iridescent (5:10)
+04. Chillaxing Jazz Kollektion - Return to Innocence (4:18)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F428EF90EF7D047D909B861D209959B7A7353F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755542   (40167) от 16.10.2024
+
+VA - Melodic and Harmonic Laid-Back Ambiance Smooth Intrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Aurora (5:13)
+02. Chillaxing Jazz Kollektion - It Dews (4:26)
+03. Kool&Klean - I Smile (4:41)
+04. Love Suggestions - Clarity (4:36)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA2B81E3FB253C69F7ED322250214E80B62A458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755550   (40166) от 16.10.2024
+
+VA - Vacation Travel and Leisure at Exotic Locations Lounge Sweet Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Desire (4:20)
+02. Chillaxonic - Iridescent (5:10)
+03. Chillaxing Jazz Kollektion - Home (5:42)
+04. Kool&Klean - I Smile (4:41)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C244FD32BB7D64B5327F4311F594AB84918D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755544   (40165) от 16.10.2024
+
+VA - Relaxed & Luxurious Sophisticated Atmosphere Smooth Chilly Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Lost (4:20)
+02. Chillaxing Jazz Kollektion - Touch (3:52)
+03. Chillaxonic - Mellifluous (4:27)
+04. Chillaxing Jazz Kollektion - Evening Sun (4:35)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C658CBC898C4F80634363C9C9BCEDB197918481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755545   (40164) от 16.10.2024
+
+VA - Soft and Soothing Jazzy Playlist to Unwind and Relax (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Sail (4:49)
+02. eJazz Artistry - Come Share My Love (4:31)
+03. Love Suggestions - Counting Stars (5:09)
+04. Chillaxing Jazz Kollektion - Evening Sun (4:35)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A4FE5A01835C0155B356BA4516D42F3DE57C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755376   (40163) от 16.10.2024
+
+Hot Chip - Coming On Strongerer (2004) 20th Anniversary Deluxe Edition, 2024, Moshi Moshi Records [MP3|320 Kbps] <Synth-Pop, Indie Pop, Electro>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hittin Skittles [00:04:30]
+02. Marrow [00:04:49]
+03. My PC (20th Anniversary Deluxe Edition) [00:03:05]
+04. From Drummer To Driver [00:04:24](   Читать дальше...   )Жанр: Synth-Pop, Indie Pop, ElectroПродолжительность: 2 CD, 01:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69C77A334BCEDC3B9255BF1EFA7312783F8E7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755319   (40162) от 16.10.2024
+
+PhotoRoom v5.4.7 Mod by Mixroot [Ru/Multi]
 
 >>Программы, Игры и прочее
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DreamFace APP — это мощное приложение, созданное с использованием передовых технологий искусственного интеллекта, которое позволяет пользователям превращать свои фотографии и видео в удивительные анимационные произведения. Введение этого инструмента в ваше художественное пространство откроет беспрецедентные возможности для самовыражения и развлечения.Тип издания: ProРелиз состоялся: 13.11.2024Разработчик: AI Art Magic Avatar StudioПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.10.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAFAA2555EAE7215479CAC8AD67AB595121AD4B2
+magnet:?xt=urn:btih:F455F2D1B920626A18E1B8DA4ACFB39C2545BB68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -182,27 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760244   (37406) от 13.11.2024
+###  Публикация: 1755548   (40161) от 16.10.2024
 
-Ронда Берн | Тайна любви, здоровья и денег. Мастер-класс (2023) [PDF, FB2, FB3, RTF, TXT, EPUB, MOBI]
+VA - Ultimate Chillout Ambient Lounge III (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В своей новой книге Ронда Берн, автор документального фильма «The Secret» и мегабестселлера «Тайна», поделится с вами тайным знанием о том, как работает закон притяжения, и научит применять его к трем ключевым сферам нашей жизни: отношениям, здоровью и деньгам.
-
-Книга «Тайна любви, здоровья и денег» создана в форме мастер-класса и представляет собой бесценную коллекцию (   Читать дальше...   )Жанр: Популярная психологияИздательство: ЭксмоФормат: PDF, FB2, FB3, RTF, TXT, EPUB, MOBIКачество: Изначально электронное (ebook)
+01. Chillaxonic - Creation Sings (3:56)
+02. Kool&Klean - Kiss & Dance (4:44)
+03. Chillaxing Jazz Kollektion - New Sunrise Every Day (4:19)
+04. Love Suggestions - Clarity (4:36)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:46:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32D246F107F7E4E655F401D7D62E1E8977E9FF8A
+magnet:?xt=urn:btih:3F9FEB110125614643BB90E4333B4BB843AE9BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,25 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760284   (37405) от 13.11.2024
+###  Публикация: 1755460   (40160) от 16.10.2024
 
-Paint.NET 5.1.0 Final + Portable [Multi/Ru]
+Fever Ray - Live at Troxy (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Synth-pop, Leftfield>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Paint.NET - Простой, но мощный и удобный редактор графики. Позиционируется как отличная замена стандартному MS Paint из поставки Windows. Поддерживаемые форматы: BMP, JPEG, PNG, TIF, GIF, TGA и собственный формат PDN. Основные возможности: работы со слоями, применение эффектов, работа со сканером и камерой, коррекция красных глаз, масштабирование от 1% до 3200%. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. An Itch (Live) [00:05:28]
+02. A Part Of Us (Live) [00:03:52]
+03. When I Grow Up (Live at the Troxy) [00:04:26]
+04. Mustn't Hurry (Live) [00:04:35](   Читать дальше...   )Жанр: Dance-pop, Synth-pop, LeftfieldПродолжительность: 01:15:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B037BFBD30ABC9E575BC8CDC63CF1F7372FCAE81
+magnet:?xt=urn:btih:F2B45424C79F7DCD98D4E37AC5EF87DC5DA830D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,25 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760313   (37404) от 13.11.2024
+###  Публикация: 1755603   (40159) от 16.10.2024
 
-Opera One 114.0.5282.185 + Portable [Multi/Ru]
+Anastasia Calmus - Revelations (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
->>Архив торрентов
->>Архив Программ
+>>Классика
+>>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Sì dolce è'l tormento, SV 332 (Transcr. for Piano by Vyacheslav Gryaznov) (3:07)
+02. Sonata in C Major, Kk. 159 La caccia (2:29)
+03. Keyboard Sonata in D Minor, Kk. 1 (2:22)
+04. Keyboard Sonata in A Major, Kk. 208 (4:34)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:43:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE22FFB7D58680ABE9C35A136697F1A22799F397
+magnet:?xt=urn:btih:0A63A31AF6D69E0B30950A4BD0F018D796BD685B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,21 +456,157 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760034   (37403) от 13.11.2024
+###  Публикация: 1755539   (40158) от 16.10.2024
 
-Тариф «Государственный»: Минцифры введёт госрасценки для «белых хакеров»
+VA - Classy Charming Luxury Light Jazz Chilly Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
 
->>Поговорим
->>Новости
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Минцифры рассматривает возможность введения «государственных тарифов» за участие в программе Bug Bounty. Об этом на SOC Forum 2024 сообщил заместитель министра цифрового развития Александр Шойтов, пишет Коммерсантъ. По его словам, инициатива направлена на «нормализацию процедуры», и на текущий момент многие федеральные и региональные органы власти используют такую (   Читать дальше...   )
+01. Kool&Klean - Begin Again (4:14)
+02. Chillaxonic - Oasis (4:58)
+03. eJazz Artistry - One Summer Night (4:01)
+04. Kool&Klean - Amazing (3:49)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57C2B916450DFD9377D207AFCE27EBC788958CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755624   (40157) от 16.10.2024
+
+Клиффорд Саймак | Мираж (2021) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40157.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Около сотни лет назад люди пришли на Марс и стали истреблять представителей древнего рода "Древних" за их мех. А ведь для того, чтобы эти таинственные пустынные существа могли выжить, им необходимо сохранять полное разнообразие полов, которых на Марсе не два, а целых семь. И вот давно не осталось ни одного "седьмого" и значит, жизнь на Марсе (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD074674BA7AC89B4954EF96A9E457B0EDDE35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755538   (40156) от 16.10.2024
+
+VA - Charming Classy Luxury Lounge Chilly Relaxing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - It Will Rain (3:53)
+02. Chillaxonic - Oasis (4:58)
+03. Kool&Klean - Feel Again (3:53)
+04. eJazz Artistry - Letters from Home (3:58)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAE0CB519520A235F44995D059B6625842078CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622816   (40155) от 17.10.2024
+
+Книжная серия | «Дети Великого Шторма» [14 книг] (2019-2024) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия современного русскоязычного классического и тёмного фэнтези. Изначально создавалась как авторская, для издания трилогии Наталии Осояну «Дети Великого Шторма», впоследствии была расширена и стала включать в себя книги и других авторов. В целом идея была сделать серию добротного отечественного фэнтези, тяготеющего к классическим традициям, без ромфанта и боёвки. (   Читать дальше...   )Жанр: ФэнтезиИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A139B30246945F08AAB1246876AEADB2116EB9C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755697   (40154) от 17.10.2024
+
+В укрытие / Take Cover (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэм, опытный снайпер, согласившийся на своё последнее задание, попадает в огромный пентхаус с панорамными окнами, который оказывается ловушкой, устроенной для него конкурентом. Сэму придётся постараться, чтобы не поймать пулю, ведь укрытий в этом пентхаусе практически нет.Производство: Великобритания / Signature EntertainmentЖанр: боевикРежиссер: Ник МакКинлессАктеры: Скотт Эдкинс, Джек Парр, Элис Ив, Билли Клементс, Мадалина Беллариу Ион, Ada Michaels-Mason, Питер Колфилд, Альба де Торребруна, Ренарс Латковскис, Том ЛиПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B11B837E95FC4C3FAFB2B02E0253A52ADCDFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755491   (40153) от 17.10.2024
+
+До прекращения поддержки Windows 10 осталось меньше года — сотни миллионов ПК останутся без обновлений
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже менее чем через год, 14 октября 2025 года, Microsoft прекратит выпуск обновлений безопасности для большей части ПК, которые всё ещё работают под управлением Windows 10. Организации и частные лица смогут дополнительно оплачивать обновления ещё три года, но стоимость этой услуги до сих пор неизвестна — Microsoft обещала озвучить её «ближе к октябрю 2025 года».Обычно (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -288,25 +618,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760312   (37402) от 13.11.2024
+###  Публикация: 1755653   (40152) от 17.10.2024
 
-Google Chrome 131.0.6778.70 Stable + Enterprise [Multi/Ru]
+Бордерлендс / Borderlands (2024) BDRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Программ
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+Вселенски известная охотница за головами Лилит получает задание отправиться на планету Пандора, где прошло её трудное детство, и вызволить из заточения похищенную бандитами дочку межгалактического бизнесмена Атласа. На месте выясняется, что девочку никто против воли не удерживает, и она весело проводит время в сомнительной компании, а также все считают её Избранной, (   Читать дальше...   )Производство: США, Венгрия / Lionsgate Films, Media Capital TechnologiesЖанр: фантастика, боевик, комедияРежиссер: Элай РотАктеры: Кейт Бланшетт, Кевин Харт, Эдгар Рамирес, Джейми Ли Кёртис, Ариана Гринблатт, Флориан Мунтяну, Янина Гаванкар, Джек Блэк, Бен Дэвис, Оливье РихтерсПеревод: Дублированный (CPI Films), Многоголосый (Jaskier), Авторский (А. Кашкин)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH), украинские (Forced) и другиеПродолжительность: 01:40:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7B0387ED687D2642B5772CB5998F156292E61D2
+magnet:?xt=urn:btih:15062DFED202948F9315ABEDF9CD53EFB7AC162C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,28 +644,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759638   (37401) от 13.11.2024
+###  Публикация: 1755282   (40151) от 17.10.2024
 
-Градусы - Голая (2011) [FLAC|Lossless|image + .cue] <Pop>
+Google предупредила о скором отключении uBlock Origin и других расширений
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01		Кто Ты?
-02		Бледные Поганки
-03		Лох
-04		Режиссёр(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:30
+Интернет-магазин Chrome от Google начал выдавать предупреждение, что блокировщик рекламы uBlock Origin и другие расширения вскоре могут быть заблокированы в рамках прекращения поддержки спецификаций расширения Manifest V2.«Это расширение вскоре может перестать поддерживаться, поскольку оно не соответствует передовым практикам для расширений Chrome», — говорится на (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FDA2E027E0AE00DC324A560024F9A5939006752
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,297 +670,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760253   (37400) от 13.11.2024
+###  Публикация: 1755668   (40150) от 17.10.2024
 
-VA - Autumn In the Mirror (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37400.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Dreams - (04:18)
- 002. Maude Latour - Heaven - (03:01)
- 003. Why Bonnie - Wish On The Bone - (03:53)
- 004. America - Ventura Highway - (03:32)(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 11:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7DFACCFB0A4455D0DE798F8036694DE953393A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760344   (37399) от 13.11.2024
-
-Журнал | Садовод и огородник №21 (536) (ноябрь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37399.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67962F15712195BEDC5E486CB3BFB2686EE570AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760357   (37398) от 13.11.2024
-
-STEEZY Studio - Learn To Dance v5.0.0 Mod by youarefinished [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37398.jpg" />
-</div>
-
-
-###  Подробнее
-
-STEEZY - танцевальная студия №1 на вашем устройстве Android или Smart TV - используйте ее, чтобы научиться танцевать шаг за шагом в удобном для вас темпе. С более чем 800 классами, которые добавляются каждую неделю, всегда есть больше стилей и забавных процедур для изучения. Классы варьируются от новичков до экспертов, так что прыгайте в любое удобное для вас место, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.11.2024Разработчик: STEEZYПоддерживаемая ОС: Android 8.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888A2CF77CBD7FDCDA12F162998E20E7026EA5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760365   (37397) от 13.11.2024
-
-VA - Chillout Lounge 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Emotion - Relax, Take It Easy (2:37)
-02. Audioboy - Shining Star (3:10)
-03. Silk Department - All Of My Love (2:47)
-04. Dani Corbalan - Out Of My Mind (2:55)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BE63B8D9811F042E1120B5196FCC9B0C3A05DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760238   (37396) от 13.11.2024
-
-Exif Pilot 6.26 + Batchplugin [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exif Pilot - EXIF редактор используется для просмотра EXIF, EXIF GPS, IPTC и XMP данных, редактирования, создания EXIF, EXIF GPS и IPTC данных. Импорт/экспорт из/в XML, MS Excel формат, текстовый файл. Exif Pilot поддерживает следующие форматы: JPEG, TIFF, PNG, DNG, NEF, PEF, CRW, JP2 - читает, редактирует и создает метаданные. RAW изображения, включая CR2, MRW, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66456E9D964F95C00758D6694C58B420BC1D0AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760353   (37395) от 13.11.2024
-
-Наши мульти - пульти: Большой секрет для маленькой компании (1979-1991) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл предназначен для самого маленького зрителя и состоит из нескольких фильмов. В сборник вошли: Большой секрет для маленькой компании, Волк и семеро козлят на новый лад, Гори, гори ясно, Мы рисуем, Осьминожки, Пиф-паф, ой-ой-ой!, Здесь могут водиться тигры, Шалтай-болтай.Производство: СССР / ТО \Жанр: мультфильм, короткометражкаРежиссер: Юлиан Калишер, Раса Страутмане, Леонид Аристов, Лидия СуриковаАктеры: Татьяна Никитина, Сергей Никитин, Юнна Мориц, Людмила Гнилова, Татьяна Курьянова, Александр Пожаров, Михаил Козаков, Клара Румянова и др.Субтитры: отсутствуютПродолжительность: ~ 0:12:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:779907F6A630BF4B1E8E5736608A97FBB1A5B7C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759675   (37394) от 13.11.2024
-
-VA - OST Ласковый май (2009) Саундтрек к кинофильму [WavPack|Lossless|image + .cue] <Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белые розы
- 02. Седая ночь
- 03. Старый лес
- 04. Месяц июль(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A14C76C9A08E19820D3C7FE969CCA3EDDAC70A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760270   (37393) от 13.11.2024
-
-VA - Новые хитовые песни 2024, Часть 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ислам Итляшев - Между нами стена (3:00)
-02. Soldatov - Летний дождь (2:55)
-03. Игорь Кибирев - Перекрёстки (3:27)
-04. Татьяна Буланова - Призрачный сон (3:21)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC85226F918E8FB4FEE83725FE6555BAD669348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760336   (37392) от 13.11.2024
-
-Менеджер Паролей SafeInCloud 2 v24.17.2 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Менеджер паролей SafeInCloud позволяет хранить ваши логины, пароли и другую личную информацию в безопасности в зашифрованной базе данных. Вы можете синхронизировать данные с другим телефоном, планшетом, маком или ПК через ваш собственный аккаунт в облаке. SafeInCloud — это не просто хранитель паролей, но и 2FA-аутентификатор, генерирующий одноразовые коды для любого (   Читать дальше...   )Тип издания: Pro / Extra ModРелиз состоялся: 13.11.2024Разработчик: SafeInCloud S.A.S.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C623F1AD0523941FD0145290FF3A9C23DC4541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760355   (37391) от 13.11.2024
-
-Частная жизнь Петра Виноградова (1934) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпускники школы Петр Виноградов, Сеня Кауфман и Котя Охотников отправляются из далекого города в Москву. Приятели обещают не забывать родной город и друзей. Петя с грустью прощается с любимой девушкой Валей, мечтающей поступить в Московскую консерваторию. Приехав в столицу, друзья поступают работать на автозавод и устраиваются в вечерний вуз. Жизнь только начинается...Производство: СССР / МоскинокомбинатЖанр: комедия, мелодрамаРежиссер: Александр МачеретАктеры: Борис Ливанов, Валентин Цишевский, Константин Градополов (старший), Галина Пашкова, Надежда Арди, Иван Переверзев, Татьяна Барышева, Ева МилютинаСубтитры: отсутствуютПродолжительность: 01:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA07B8305B67EB59FAC1D7034BA01314C5FE743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760345   (37390) от 13.11.2024
-
-Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
+RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Repack Other s [Alex Murphy Edition]
 
 >>Win Игры
->>Adventure/Quest
+>>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Неожиданная суматоха с обезумевшими космическими демонами приводит к тому, что никто из кампуса Сейджи «связывается судьбой» с Юри, тайной девочкой-волшебницей, которая также является его тайной школьной любовью! Раскрыв оба секрета, сможет ли Сейджи все еще выстрелить? Или же приспешники злого Маджина первыми вторгнутся на Землю?Тип издания: LicenseРазработчик: miraiЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+Станьте культовым полицейским, получеловеком-полумашиной, и попытайтесь восстановить справедливость на опасных, охваченных преступностью улицах Старого Детройта. Мощный Auto-9 и другие 20 видов оружия помогут вам разобраться с преступниками на всех этапах этого захватывающего приключения. Робототехника и кибернетика наградили вас силой и навыками, которые можно улучшать (   Читать дальше...   )Тип издания: RepackРазработчик: TeyonЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FAD6106D2180D2B2835BC76299297EF0A7B9049
+magnet:?xt=urn:btih:BE59C3CD95A655EC8A39E8A1757A5524045623F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,51 +696,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760380   (37389) от 13.11.2024
+###  Публикация: 1755330   (40149) от 17.10.2024
 
-Microsoft Visual Studio 2019 Enterprise 16.11.42 (Offline Cache) [Ru/En]
+Покупательная способность одной копейки в разный период Российской империи
 
->>Архив торрентов
->>Архив Программ
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+Представьте, что Вы обычный крестьянин, которому выпала возможность побывать во все периоды Российской Империи и проследить, как менялись деньги и цены на продукты.Интересно? Попробуем представить и погрузиться в те времена.
+(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38C05899923BEE1F5980EDCAB09BB872D71812F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760306   (37388) от 13.11.2024
-
-Последний американский девственник / The Last American Virgin (1982) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедия о первых эротических переживаниях трёх незадачливых старшеклассников - ловкача, толстяка и скромника. Последнему очень хочется, но долго не удается, покончить с собственной невинностью...Производство: США / Cannon Group, Golan / Globus ProductionЖанр: мелодрама, комедияРежиссер: Боаз ДэвидсонАктеры: Лоуренс Моносон, Дайан Франклин, Стив Энтин, Джо Руббо, Луиза Мориц, Брайан Пек, Кимми Робертсон, Тесса Ричард, Винифред Фридман, Джерри Айдол, Сэнди Спранг, Пол Кит, Фил Рубенштейн, Роберто Родригес, Бланш РубинПеревод: профессиональный многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2120B6B98787689815BFA89F4CF8882CB63596
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

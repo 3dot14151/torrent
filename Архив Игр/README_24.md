@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_701795.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ BioShock 2 [Ru] (RePack) 2010 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_699678.jpg" />
 </div>
 
 

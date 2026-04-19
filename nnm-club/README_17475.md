@@ -1,25 +1,25 @@
-###  Публикация: 1259569   (318937) от 04.11.2018
+###  Публикация: 1582430   (323585) от 09.10.2022
 
-Too Mutz Blues Band - Collection (2017-2018) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
+Reverend Mother - Damned Blessing (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Doom>
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Let The Blues Get In (00:04:34)
-02. I Want You (00:03:25)
-03. A Quitter Never Wins (00:08:12)
-04. Charlie's Blues (00:07:09)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:51:43
+01. How to Serve Man [00:07:05]
+02. Funeral March [00:01:07]
+03. Locomotive [00:04:45]
+04. Reverend Mother [00:04:35](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, DoomПродолжительность: 00:43:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFBBB67B898EC45327D5E0894455B55D57DC36B9
+magnet:?xt=urn:btih:B5C7259B25A6DF00EB0C4022B7943B8E1CC21E34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259438   (318936) от 04.11.2018
+###  Публикация: 1582199   (323584) от 09.10.2022
 
-Гетьман - Вітер З Гаєм Розмовляє (2012) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+Never Back Down - Downfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01-Вітер З Гаєм Розмовляє (7:01)
-02-Було Колись В Україні (6:39)
-03-Рубаї (7:48)
-04-Пісня Вовків (4:54)(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:41:45
+01. In Time (0:52)
+02. Golddigger (4:37)
+03. Call to Arms (3:48)
+04. Marigold (3:58)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:36:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:317DCA8A206742DCA9A3678FD8FCE030D1FFDEEA
+magnet:?xt=urn:btih:1B8DFEB2470232708BF62366F1114C79594759FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,191 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582659   (318935) от 11.10.2022
+###  Публикация: 1075197   (323583) от 21.11.2016
 
-EldersThrone - 1978 (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+Newsletters Templates for Pages 1.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не тратьте свое время, делая информационные бюллетени!
+Newsletters Templates for Pages будут для вас помощником в  создании захватывающих информационных бюллетеней в считанные минуты. Выберите из  коллекции профессионально продуманных и настраиваемых шаблонов бюллетеня для любого вида новостей.
+
+Newsletters Templates for Pages содержит более 90 больших шаблонов в различных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 октября 2016Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874D9617A401DDFE689E53E97A55F19647F3525B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582479   (323582) от 09.10.2022
+
+Фёдор Достоевский | Записки из подполья (2012) [MP3, Валерий Карнаух]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323582.jpg" />
+</div>
+
+
+###  Подробнее
+
+В повести «Записки из подполья» (1864) Ф.М. Достоевский ставит вопрос о взаимоотношениях отдельной личности и окружающего мира. Очень ярко и выразительно писатель показывает исповедь человека с трагически разорванным сознанием, оттенки и движения его души. Герой повести “Записки из подполья” - подпольный человек - собирательный образ, некий тип маленького человека. (   Читать дальше...   )Жанр: Классическая проза, ПовестьПродолжительность: 05:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDB2601FA6DB9F15364E45CAD5C4B6A43F7949D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075283   (323581) от 21.11.2016
+
+Познер. Интервью с Нани Брегвадзе (21.11.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323581.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Познер» - это программа-интервью. Владимир Познер задает вопросы политикам, общественным деятелям, деятелям культуры, искусства, науки, спорта. Беседа может быть как привязана к актуальным событиям недели, так и не связана с последними событиями.
+Обязательным условием каждого выпуска ведущий считает рубрику «vox populi» (глас народа). Вопросы гостю программы задают (   Читать дальше...   )В этом выпуске: Ведущий: Владимир ПознерТелекомпания: Первый КаналЖанр: ТелепередачаПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5021A2F268958DF98DFE2627DE26C66EAA0E810E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075090   (323580) от 21.11.2016
+
+VA - Stress Free: Deep House Laidback Beats (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sylvia Detmers - It's My Life - Highpass Radio
+02. Kandi & Fitch - Spirit in the Sky - Sea Lounge Mix
+03. Oliver Anders - Addicted to Paradise - Instrumental Mix
+04. Eric Delgado - Breaking Free(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A58DFDC77561ACBB34AC46BC57214D21139FC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582466   (323579) от 09.10.2022
+
+Фёдор Достоевский | Записки из подполья (2005) [MP3, Семен Ярмолинец]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323579.jpg" />
+</div>
+
+
+###  Подробнее
+
+В повести «Записки из подполья» (1864) Ф.М. Достоевский ставит вопрос о взаимоотношениях отдельной личности и окружающего мира. Очень ярко и выразительно писатель показывает исповедь человека с трагически разорванным сознанием, оттенки и движения его души. Герой повести “Записки из подполья” - подпольный человек - собирательный образ, некий тип маленького человека. (   Читать дальше...   )Жанр: Классическая проза, ПовестьПродолжительность: 05:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6AFAAF40741C8EDCB38787B3A3BD8AEBF5B16C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074298   (323578) от 21.11.2016
+
+Дэвид Уайтхаус | Биография солнца (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги увлекает читателя в путешествие к сердцу нашей локальной звезды и ее окрестностям, повествуя о рождении Солнца, его влиянии на жизнь на Земле и о том, что постигнет звезду в будущем. Эта книга приоткрывает множество окутывающих Солнце тайн и рассказывает о выдающихся ученых, которые пытались и пытаются их разгадать, иногда даже ценой собственной жизни. (   Читать дальше...   )Жанр: Научно-познавательная литератураПродолжительность: 11:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E20D8C78D749AB32F7E22D1143FBAA6CEF93693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582343   (323577) от 09.10.2022
+
+Backman Johanson And The Others - At Last (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, AOR>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323577.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Forsaken (03:07)
-02 - Possession (04:21)
-03 - Wasteland (04:21)
-04 - Armageddon (03:03)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:32:41
+01. Cut And Paste (4:02)
+02. I Don’t Have The Heart (4:25)
+03. Let You Know (4:25)
+04. Me And You Day (3:50)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:51:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0FA8AE5CAA8BA63010AF7BD984F02144FE0D569
+magnet:?xt=urn:btih:B26500A8DC7AC824C46415AB6FB2EB83AB9E053E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +248,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582703   (318934) от 11.10.2022
+###  Публикация: 1075154   (323576) от 21.11.2016
 
-Amaurot - ...to Tread the Ancient Waters (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
+Bobby Kimball - We're Not In Kansas Anymore (2016) [FLAC|Lossless|image + .cue] <Rock, Acoustic>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Aether Child (05:48)
-02 - Des Wanderers Leid (04:50)
-03 - Starless Sky (05:54)
-04 - Ritual (06:55)(   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:51:36
+01. Too Far Behind [3:39]
+02. On My Feet [3:48]
+03. Hey It's Me [2:52]
+04. One Day [3:59](   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:39:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D8DF728C2D381CB8817F514E367463FBFA7322B
+magnet:?xt=urn:btih:B492DC61061F4333E4C0EE4DE1070A52808FDE60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,173 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582675   (318933) от 11.10.2022
+###  Публикация: 1582266   (323575) от 09.10.2022
 
-Elysia - Numinous (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_318933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Onism (06:44)
-02 - Into Malevolent Transcendence (04:08)
-03 - Veiled Fears (04:59)
-04 - And Thou Shall Rule (04:50)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:29:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582748   (318932) от 11.10.2022
-
-Thomsen - III (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_318932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise
-02. Fight
-03. Nightfall
-04. I Can See The Light(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582739   (318931) от 11.10.2022
-
-Them - Return To Hemmersmoor (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diluvium
-02. Age Of Ascension
-03. The Tumultous Voyage To Hemmersmoor
-04. Free(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B564FF760CFB0033842CC82877ECE1881C1CD42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582632   (318930) от 11.10.2022
-
-Charles Mingus - Presents Charles Mingus (1960) 2022, Candid [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Folk Forms No.1 [12:58]
-02. Original Faubus Fables [9:13]
-03. What Love [15:18]
-04. All the Things You Could Be by Now If Sigmund Freud's Wife Was Your Mother [8:32]Жанр: Post-BopПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89768A455EDD4AA53C9B6CD75E4BC46D4411DF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582637   (318929) от 11.10.2022
-
-Egoist - Наследие (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Последний Рассвет (Last Sunrise) (04:51)
-02 - Наследие (Heritage) (04:34)
-03 - Корона Смерти (Deathcrown) (05:37)
-04 - Некромант (Necromancer) (04:14)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266059872614539965008F6413425B4966BAF6BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582810   (318928) от 11.10.2022
-
-голоса изнутри - Help (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+След Пепла - Шёпот темноты (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Groove Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Прoщание моряка [00:04:43]
-02. До пустоты [00:01:58]
-03. Я иду в перёд [00:02:12]
-04. Одержимый [00:02:47](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:29:49
+01. Шёпот темноты [00:01:47]
+02. Женщина в чёрном [00:05:33]
+03. Дом в овраге [00:04:48]
+04. Инстинкт зверя [00:04:33](   Читать дальше...   )Жанр: Modern Metal, Groove MetalПродолжительность: 00:42:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B491D7E065CDE0CB2B453C7E858BE21F3A7CB80D
+magnet:?xt=urn:btih:1EAA6ED20E08442D5716CAFF7D234FE90904DA0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +306,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582699   (318927) от 11.10.2022
+###  Публикация: 1075225   (323574) от 21.11.2016
 
-Magical Heart - Heartsonic (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Postbox 5.0.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Postbox  — социально-ориентированный почтовый клиент
+Postbox является почтовым клиентом, в основу создания которого лёг код Mozilla Thunderbird с большими функциональными возможностями. Во-первых, программа будет весьма полезна для тех, кто часто отправляет и получает письма, содержащие вложения – документы, фотографии и пр. Просматривать фотографии, которые вам прислали, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 ноября 2016Разработчик: : PostBoxПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62B0BC99BD0B2EB551EA01A9D7599930D66DA1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582434   (323573) от 09.10.2022
+
+Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bad Habits
-02. Heartsonic
-03. My Own Way
-04. Waiting For So Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:29
+01. Vacation in the Underworld [00:04:23]
+02. Like a Bullet [00:04:37]
+03. Sharpen the Sword [00:04:14]
+04. The Reason [00:04:28](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98DAE8F4230A2025E6F1229B4479916092A23A66
+magnet:?xt=urn:btih:E79847B3F37CA1840E1C2AC3F9B8E801AF861A2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +362,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582583   (318926) от 11.10.2022
+###  Публикация: 1073967   (323572) от 21.11.2016
 
-Trick Or Treat - Creepy Symphonies (2022) [FLAC|Lossless|image + .cue] <Power Metal>
+Роберт Сейбер | Приманка для простаков (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все началось с появления в офисе частного сыщика Карла Гуда провинциальной пожилой леди, которая попросила найти ее дочь, уехавшую в город с миллионером – нефтяником. Сыщик начинает поиски и практически сразу же сталкивается с преступниками, которые занимаются рэкетом и убивают всех, кто становится на пути больших денег. Роман «Приманка для простаков» - это что-то (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D681DD12201F3C3A40DD694242505F265F7CA902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582300   (323571) от 09.10.2022
+
+Bronson - Live Fast Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardcore, Punk Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Trick Or Treat?
-02. Creepy Symphony
-03. Have A Nice Judgment Day
-04. Crazy(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:04
+01. Welcome on board [00:01:43]
+02. Una canzone per disobbedire [00:03:06]
+03. Roma Tiger Punk (vol.2) [00:02:16]
+04. Tutto quello che ho [00:02:53](   Читать дальше...   )Жанр: Melodic Hardcore, Punk RockПродолжительность: 00:30:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D6A5658BE1388F1C2F5F2590C594A8BFBB816E6
+magnet:?xt=urn:btih:37D475B998750F0986931E5A3EEDD7ABAB9A0D57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +417,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582752   (318925) от 11.10.2022
+###  Публикация: 1075174   (323570) от 21.11.2016
 
-VA - Chapter 1 Uplifting Trance (2022) [MP3|320 Kbps] <Uplifting Trance>
+Graphics 2.4.2 [En]
 
->>Electronic
->>Trance
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Habashi - I Am King (Original Mix)
-02. Habashi - Christine (Extended Mix)
-03. Habashi & FAWZY - Orientalism (Extended Mix)
-04. Kinngs - Feel The Energy (Extended Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:11:28
+Graphics  - набор иллюстраций, подходящих для любого iWork документа, который требует цвет, текстуру и пр. Вы обязательно найдете подходящую иллюстрацию среди 2000 изображений высокого качества.
+
+Категория Клипарт представляет собой набор из 100 красивых, детальных изображений в двух различных разрешениях. Их содержание колеблется от автомобилей и автобусов для бассейнов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 октября 2016Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E6400F4AC8CF026F8C15FCC8031869DA4BE481A
+magnet:?xt=urn:btih:BF995088977823CD621FBCB56781C96885AAC76D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +445,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582753   (318924) от 11.10.2022
+###  Публикация: 1075079   (323569) от 21.11.2016
 
-Fallujah - Empyrean (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+В.А. Кузнецов | Христианство на Северном Кавказе до XV века (2002) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Bitter Taste Of Clarity
-02. Radiant Ascension
-03. Embrace Oblivion
-04. Into The Eventide(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:52:11
+В монографии доктора исторических наук В. А. Кузнецова рассматривается история христианства на Северном Кавказе до XV века. Особое место уделено христианизации Алании, в связи с чем изложены новые гипотезы, выводы, исторические реконструкции. Книга, написанная к минувшему 2000-летию христианства, предназначена для всех, интересующихся историей Кавказа.Жанр: История христианстваФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB178A32C164046E606E7992E5AB273F127AADDF
+magnet:?xt=urn:btih:01D3939473299A68FA4F10254A5760295D6E4ECD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,21 +471,129 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 417349   (318923) от 30.11.2011
+###  Публикация: 1073973   (323568) от 21.11.2016
 
-Эта - дурацкая - любовь / Crazy, Stupid, Love. (2011) DVD5
+Грэм Грин | Монсеньор Кихот (2012) [MP3]
 
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У Кола Уивера, пуританских взглядов семьянина в возрасте «чуть-чуть за сорок», не жизнь, а мечта — хорошая работа, прекрасный дом, замечательные дети и брак со школьной возлюбленной. Но когда Кол узнает, что его жена Эмили изменила ему и хочет развода, его «идеальная» жизнь быстро рушится. Хуже того, говоря современным языком, Кол, который уже пару десятилетий не (   Читать дальше...   )Производство: Carousel Productions (II) (США)Жанр: Драма, Мелодрама, КомедияРежиссер: Гленн Фикарра, Джон РекуаАктеры: Стив Карелл, Райан Гослинг, Джулианна Мур, Эмма Стоун, Аналей Типтон, Йон Бобо, Джои Кинг, Мариса Томей, Бет Литлфорд, Джон Кэрролл ЛинчПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, Хорватский, Эстонский, Латвийский, Литовский, Польский, Русский, Сербский, Словенский, Турецкий, УкраинскийПродолжительность: 01:53:15
+"Монсеньор Кихот" - роман крупнейшего английского писателя Грэма Грина. Произведение это неожиданное. Автор как бы переносит сюжет и бессмертных героев Сервантеса в день сегодняшний, наделяет их современными чертами. Остроумный замысел позволил автору противопоставить и в то же время соединить двух людей - носителей противоположных воззрений - католического (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 07:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E62DDD22A0E93241B04AD1FDFE594027473CD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074061   (323567) от 21.11.2016
+
+Фенимор Купер | Прогалины в дубровах, или Охотник за пчелами (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323567.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе Ф. Купера «Прогалины в дубровах» читатель найдет многое из того, что давно уже стало «фамильной» приметой произведений этого писателя: описание жизни и быта коренных жителей страны Ч индейцев и белых поселенцев; многочисленные сцены охоты; сметающую самые немыслимые преграды любовь; верность данному однажды слову и готовность доказать эту верность ценой (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 16:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4177DE05D7CF6C4C170B62A806BB3B9126F349A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073144   (323566) от 21.11.2016
+
+Альфред Брэм | Жизнь животных. Пресмыкающиеся. Обезьяны (2013) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено знаменитому научно-популярному труду немецкого ученого-зоолога и путешественника Альфреда Эдмунда Брэма "Жизнь животных".
+Слушатель, как школьник, так и взрослый узнает много нового и интересного о жизни животных. Приведены интересные наблюдения и рассказы натуралистов.Жанр: Биология, зоологияПродолжительность: 10:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB10D76423D9A71033569BB81796FA9884F36D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843702   (323554) от 23.11.2014
+
+Последние часы / These Final Hours (2013) HDRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это последний день на земле. Через двенадцать часов глобальный катаклизм положит всему конец.
+Джеймс держит путь через город, погрузившийся в хаос, чтобы попасть на последнюю вечеринку.
+По пути он спасает жизнь маленькой девочки по имени Роуз, которая отчаянно ищет своего отца.Производство: Австралия |  8th In Line, XYZ FilmsЖанр: Триллер, ДрамаРежиссер: Зак ХилдитчАктеры: Сара Снук, Джессика Де Гау, Нэйтан Филлипс, Дэвид Филд, Дэниэл Хеншэлл, Ангури Райс,
+Кэтерин Бек, Линетт Каррен, Нельсон АспенПеревод: ОтсутствуетПродолжительность: 01:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F908C81E02F9A246EC70C546F5591A4488998757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840951   (323550) от 23.11.2014
+
+NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip [H.264/720p-LQ] (серии 1-13 из 13)
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_323550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Японский телеканал NHK Enterprises представляет вашему вниманию документальный сериал "Nature Wonder Land VI". Много чудес и необычного таит в себе мир живой природы. Сериал раскроет зрителям ее великое разнообразие. Загадочные факты, скрытые в природе лежат в основе многих удивительных сказок, и некоторые из них хочется назвать мифами. Сериал выявил множество (   Читать дальше...   )Производство: Япония, NHK EnterprisesЖанр: Документальный, путешествия, природа, флора, фаунаРежиссер: Такао Ямамото, Око Кабаяши, Акишико Ида, Казунори Ватанабе, Тошио Хашиба, Микио Курода, Юки ТадокороПеревод: Одноголосый закадровый (профессиональный, ТПО "Red Media")Продолжительность: 13 х ~00:24:00
 
 ## Скачать торент
 ```bash
@@ -430,138 +605,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582704   (318922) от 11.10.2022
+###  Публикация: 1259076   (323545) от 02.11.2018
 
-Mariah Carey - Music Box (1993) [OGG Vorbis|480 Kbps] <Electronic, Funk / Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamlover
-02. Hero
-03. Anytime You Need a Friend
-04. Music Box(   Читать дальше...   )Жанр: Electronic, Funk / SoulПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECEB34BA7C5BC7C29236DCCBB9A4B76ED31154E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582744   (318921) от 11.10.2022
-
-Thomas Datt - Trance Pioneers 003 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Datt - Still Alone (Original Mix)
-02. Thomas Datt - Long Distance (Original Mix)
-03. Thomas Datt - Mass Effect (Original Mix)
-04. Thomas Datt - Evaporate (Part 2) (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D49D3D1BC42C16E908B1D1633481AF12C12DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582811   (318919) от 11.10.2022
-
-Фред Варгас | Комиссар Адамберг (Книга 7). Игры Нептуна (2022) [MP3, BIGBAG]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318919.jpg" />
-</div>
-
-
-###  Подробнее
-
-У комиссара парижского уголовного розыска Жана-Батиста Адамберга есть младший брат – Рафаэль, обвиненный в убийстве подружки, оправданный судом, но не общественным мнением, и скрывшийся в неизвестном направлении – на тридцать лет. Комиссар Адамберг с самого начала знал, что настоящий убийца – судья Фюльжанс, но, как ни старался, ничего не мог доказать. В конце концов (   Читать дальше...   )Жанр: детективПродолжительность: 12:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BF523222FC17183D1C6871A89A6D33EB13AF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582786   (318917) от 11.10.2022
-
-IObit Driver Booster Pro 10.0.0.36 Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C474BCE374B95E0AAF24D72D5C265BBFD297A4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582584   (318915) от 11.10.2022
-
-Wolfheart - King Of The North (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+Sundrifter - Visitations (2018) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Psychedelic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Skyforger
-02. Ancestor
-03. Knell
-04. Desolated Land(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:33
+01. Sons of Belial (04:35)
+02. Death March (04:46)
+03. Lightworker (04:15)
+04. Targeted (04:45)(   Читать дальше...   )Жанр: Stoner Rock, Psychedelic RockПродолжительность: 00:48:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EEC4FC02DD5D3993FA005D6FA1AB5EC948CBA9A
+magnet:?xt=urn:btih:BD48373BC882ED5A818983FDA38D3A8854700CF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,84 +634,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582749   (318913) от 11.10.2022
+###  Публикация: 1259215   (323544) от 02.11.2018
 
-Daxson - Face The Future (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Giant Circles - Outside The Realm (Daxson Remix)
-02. Daxson & Lachi - Unmask (Album Mix)
-03. Daxson - Ethereal (Original Mix)
-04. Daxson - Hakuba (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517CCD99982E4423C087DF092867373F5BDD7A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582777   (318911) от 11.10.2022
-
-Barbra Streisand - Walls (2018) [OGG Vorbis|480 Kbps] <Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's on My Mind
-02. Don't Lie to Me
-03. Imagine  What a Wonderful World
-04. Walls(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DABEFF969DB4134060D67714400FB144A308CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582510   (318909) от 11.10.2022
-
-Vended - 1 EP, 1 Single (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Nu-Metal>
+VA - Dr. Demento Covered in Punk (2018) 2CD [FLAC|Lossless|tracks + .cue] <Punk, Comedy>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2021 - What Is It//Kill It (EP)
-2021 - Ded to Me (Single)Жанр: Heavy Metal, Nu-MetalПродолжительность: 00:22:23
+CD1
+01. Osaka Popstar's Demented Punk Orchestra with The Roto Rooter Goodtime Christmas Band - Dr. Demento Opening Theme (Pico & Sepulveda) (01:42)
+02. Dr. Demento and Osaka Popstar - Demento Segment I (00:26)
+03. Osaka Popstar - Fish Heads (01:43)(   Читать дальше...   )Жанр: Punk, ComedyПродолжительность: CD1 - 01:02:03
+CD2 - 01:02:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2E78BFF7971B1288CC617100C051F1B8F9F2416
+magnet:?xt=urn:btih:11D9600C5C7D41932E9033C738EDCC3654B72874
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,28 +664,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 415421   (318906) от 30.11.2011
+###  Публикация: 1259109   (323543) от 02.11.2018
 
-Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
+VA - Morphological Patterns: Techno Electrozombies (2018) [MP3|320 Kbps] <Techno>
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Концерт известной американской альтернативной рок-группы на Красной площади в Москве.01. Intro
- 02. New Divide
- 03. Papercut
- 04. Given Up(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:43:41
+001. Kocleo - Reflection
+002. Bruno Power - Light In The Forest
+003. Stereo View - Asteroid (Original Mix)
+004. Bad Habitz - One Day Well Find Our Way(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:26:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49643EA6747707F7A553951025B5DA18A1F3A3FD
+magnet:?xt=urn:btih:FE9C3982AF703712751BEEE35C85DB1766E9B16F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -683,51 +693,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 844374   (318890) от 25.11.2014
+###  Публикация: 1259094   (323542) от 02.11.2018
 
-Подшивка журналов | Linux Format [UK] №191, 192 (декабрь, christmas 2014) [PDF] [En]
+VA - Ori Uplift - Uplifting Only 299 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance,Vocal Trance>
 
->>Журналы
->>Компьютерные журналы
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Linux Format (UK) - легендарный британский ежемесячный журнал на английском языке, целиком посвящённый операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках, обучающих программах, (   Читать дальше...   )Формат: PDF
+01. BREAKDOWN OF THE WEEK: Andy Blueman - Beyond the World We Know (Extended Mix)
+02. Kaimo K feat. Jess Morgan - In A Whisper (Extended Mix)
+03. Giuseppe Ottaviani featuring Thea Riley - On The Way You Go (OnAir Extended Mix)
+04. DJ Dean & DJ T.H. feat. Hanna Finsen - Find A Road(   Читать дальше...   )Жанр: Trance,Uplifting Trance,Vocal TranceПродолжительность: 01:56:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B708A26EF1C6E0C638FA477ECE53810F2AC1F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844512   (318882) от 25.11.2014
-
-Подшивка журналов | Атлас. Целый мир в твоих руках №228-249 (2014) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318882.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Атлас. Целый мир в твоих руках» - коллекция издательства «ДеАгостини», представляющая собой иллюстрированный энциклопедический путеводитель для всех, кто хочет познакомиться с красотами и тайнами нашей планеты. Атлас мира — это необходимая энциклопедия в домашней библиотеке. Географические материалы могут пригодиться школьникам, студентам и всем, кто хочет узнать (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C91430FD0D7751B8DEEC000065BACB11629990
+magnet:?xt=urn:btih:4B609817D25F40AD328CAA2AC3DD2F6EE65FDD7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1066854   (603802) от 26.04.2022
+
+VA - Emmanuelle - Instrumental Collection (2004) [APE|Lossless|image + .cue] <Pop, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadows - Chattanooga Choo Choo
+02. P. Weekers - El Condor Pasa
+03. F. Papetti - Smoke Gets In Your Eyes
+04. F. Lay - Emmanuelle 2(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5A850108EC4CA5A77C0D2F758C8D7FF6C956F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148309   (603483) от 07.07.2017
+
+Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thousand Star (8:16)
+02.Flow Of Time's Arrow (7:22)
+03.Belle E'Poque 3012 (8:16)
+04.The Visionary (9:05)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F5A0B05A4FC17596013746F81C5F9A93176754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148497   (603412) от 07.07.2017
+
+Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Funk, Soul>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. The Love I Lost
+02. Satisfaction Guaranteed (Or Take Your Love Back)
+03. Be For Real(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 03:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDD75659B38FC441E7ED8F25AA5584D42A85D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546870   (603350) от 27.04.2022
+
+VA - Borderlands 3 Original Game Soundtrack (2019) [FLAC|Lossless|tracks] <Game OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск 01
+01. Sanctuary 3 - Michael McCann (7 min 18 s)
+02. Landing on Athenas - Michael McCann (4 min 13 s)
+03. Liberating Athenas - Michael McCann (4 min 21 s)(   Читать дальше...   )Жанр: Game OSTПродолжительность: 05:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B1B5783847552EB87C0E4693376FC380345A0E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231743   (603195) от 21.06.2018
+
+Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exile [03:31]
+02. Revolt [02:11]
+03. Cytokine Storm [01:59]
+04. Heart and Soul [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1AEC102A73C568A9EFF3EE5841C6FB7C6FEBDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231744   (603182) от 21.06.2018
+
+Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda [03:09]
+02. Visitors from the Stars [02:38]
+03. Ancestors [03:08]
+04. A Million Years Journey [03:13](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B494F55DD309505B083D7F2EA2B1F635660AE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297649   (603095) от 24.04.2019
+
+Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603095.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jacaranda Street (5:33)
+2. The Lavender Lighter (3:32)
+3. My Love Waits For Me (4:06)
+4. Stepping On That Bridge (3:32)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DB87800156C61EB3CD70335C75D7A0FD23854A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297787   (603090) от 24.04.2019
 
 VSOP Vienna Symphonic Orchestra Project - The 6th - A Kind Of Magic (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -538,209 +741,6 @@ VA - Игра престолов / For The Throne (Music Inspired by the HBO Ser
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC2D32730A6A2F79BB1F06393E2EDEAF2326571C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913970   (601149) от 30.06.2015
-
-Deva Premal & Miten with Manose - Songs For The Sangha (2015) [MP3|320 кб/с]<New Age, Meditative, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parameshwara Mantra / Deep in Love
-02. Sarveshaam Mantra
-03. Ganapati Mantra / Strong My Roots
-04. Karuna(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FC50FB051E91760E404EE1A4A56EA5C7D0ADC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913613   (601132) от 30.06.2015
-
-VA - Golden Cinema Hits (2006) [FLAC|image + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Armstrong - La Vie En Rose (Jeux D'Enfants) [3:25]
-02. Quincy Jones & His Orchestra - Soul Bossanona ( Austin Power: The Spy Who Shagged Me) [2:41]
-03. Goran Bregovic - Ederlezi (Le Temps Des Gitans) [5:00]
-04. James Brown - I Got You (I Feel Good) (Good Morning Vietnam) [2:47](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276415D60ACD521FBC822E509F314FFE1BF46FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547692   (600253) от 02.05.2022
-
-Faun - Pagan (2022) [FLAC|Lossless|WEB-DL|tracks] <Medieval, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galdra (6:10)
-02. Halloween (3:54)
-03. Gwydion (3:59)
-04. Wainamoinen (4:02)(   Читать дальше...   )Жанр: Medieval, FolkПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B101F44C05B5777AB78E0C8D31FC1D0CA03EED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149227   (600216) от 11.07.2017
-
-Amure - GEO (2016) 2CD [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds (6:49)
-02. Fall in Love (5:10)
-03. After the Rain (6:19)
-04. Inspiration (5:27)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C04488E3582BCFD15D0D4C75DF8CA2EBFB982A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548117   (600134) от 02.05.2022
-
-Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire In Your Heart (07:07)
- 02. Old Medicine Man (06:31)
- 03. Call Of The Great Spirit (06:47)
- 04. Sacred Space Of Love And Wisdom (07:13)(   Читать дальше...   )Жанр: New Age, Native AmericanПродолжительность: 01:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278F776BCFE7CE769EDAAD6358093D4DB08D6C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299117   (600022) от 01.05.2019
-
-Shambhu - Lilac Skies (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Jazz, Acoustic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lilac Skies
-02. Unspoken Words
-03. Dochas
-04. Blue Whispers(   Читать дальше...   )Жанр: New Age, Jazz, AcousticПродолжительность: 48:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD75305131E20A6099036F5F738C1A9C71062B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232523   (599928) от 24.06.2018
-
-Echosonica - Midnight Wonderland (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Wonderland (03:47)
-02. Sketchbook of Untold Magic (03:32)
-03. Falling Stars (03:33)
-04. Fairy Tale (04:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69BEB4327C932A1E1E22EB74BC700B66758C491
 ```
 
 https://mybot314.ru/tekegram_catalog/

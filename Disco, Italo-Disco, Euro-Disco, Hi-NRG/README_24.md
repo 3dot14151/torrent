@@ -1,3 +1,61 @@
+###  Публикация: 1046609   (551858) от 27.08.2016
+
+VA - Unclassics: Obscure Electronic Funk & Disco 1978-1985 (2004) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Deep House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untro -  Untro (0:07)
+02. Discotheque -  Disco Special (4:54)
+03. Zodiac -  Pacific (3:49)
+04. Pluton & Humanoids -  World Invaders (4:46)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Deep House, DiscoПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78441F2EE157C72E74E3C9A898D279AE855327B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046468   (551847) от 27.08.2016
+
+Moon Birds - 2 Albums (1977, 1978) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский студийный проект в стиле "спейс-диско" композитора, продюсера и режиссера Гумберта Ибахе (Humbert Ibach, настоящее имя Умберто Петруччи) с привлечением сессионных музыкантов.01. Cosmos No. 1 (2:20)
+02. Fly In The Night (3:08)
+03. Safari Rock 1 (2:17)
+04. Safari Rock 2 (2:20)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A0C5FD5E3C4E5E08FAC1DBB3C0BC6CC1D1BDD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046567   (551787) от 27.08.2016
 
 VA - I-Robots - Italo Electro Disco Underground Classics (2004) CD [MP3|320 Kbps] <Electronic, Italo-Disco>
@@ -685,64 +743,6 @@ The Freedom Machine - 2 Albums (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B7A075171B11F9F2E7B190CEAB1DC2BE74A2A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558182   (533654) от 19.06.2022
-
-Midnight Magic - Do It 'N Dance (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runnin' Machine (4:35)
-02. Freakin' Out (Freak No. 1) (5:32)
-03. Do It 'N Dance (3:53)
-04. Just For You (4:35)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C122E54B32365081D76B05BEBF0185463F91536F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239928   (533352) от 08.08.2018
-
-VA - The Sound Of Indie Dance Vol.12 (2018) [MP3|320 Kbps] <Indie Dance, NuDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St Jean - Chicago (Yamilet Vivas Remix) 4:31
-02. KS French - She's Dance (Original Mix) 7:30
-03. Otheo - Technotheo (Tronik Youth Remix) 5:16
-04. Mark Lower feat. Yota - Jump Into This Fire (Original Mix) 5:48(   Читать дальше...   )Жанр: Indie Dance, NuDiscoПродолжительность: 02:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04061488EAC22BF3EEBE5A405D5D762F15F6D2C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

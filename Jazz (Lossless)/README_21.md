@@ -1,3 +1,38 @@
+###  Публикация: 609593   (992096) от 27.01.2013
+
+Modern Gustin Trio - The Beatles Go Jazz (1995) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michelle
+02. Let It Be
+03. Something
+04. I Wanna Hold Your Hand
+05. With A Little Help
+06. Can't Buy Me Love
+07. Yesterday
+08. Ob-la-di Ob-la-da
+09. A Hard Day's Night
+10. Girl(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353477   (991861) от 18.01.2020
 
 Brian Simpson & Steve Oliver - Unified (2020) [FLAC|Lossless|image + .cue] <Smooth Jazz, Contemporary Jazz>
@@ -735,38 +770,6 @@ Various Artists - Smooth Jazz for a Rainy Day (1999) [FLAC|Lossless]<Smooth Jazz
 08. Mark Hasselbach - Across the Canyon
 09. Chris Standring - Solitaire
 10. Michael Mcevoy - Cycles of Re-ElevationЖанр: Smooth JazzПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612372   (986198) от 02.02.2013
-
-Various Artists - Miles From India (2008) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986198.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Spanish Key
-02. All Blues
-03. Ife (Fast)
-04. In A Silent Way (Intro)
-05. It's About That Time
-06. Jean PierreЖанр: JazzПродолжительность: 01:00:06
 
 ## Скачать торент
 ```bash

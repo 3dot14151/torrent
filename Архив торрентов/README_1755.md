@@ -1,22 +1,23 @@
-###  Публикация: 798915   (652694) от 23.06.2014
+###  Публикация: 515938   (654818) от 27.06.2012
 
-Журнал | Elle Decoration №7-8 (137) (июль-август 2014) [PDF]
+VA - Дискотека Ultrahit vol.2 (2007) [MP3|320 кб/с]<Pop>
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654818.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Elle Decoration" является источником вдохновения для ведущих дизайнеров и декораторов мира. Для людей, задумывающихся о строительстве и обустройстве дома, он служит путеводителем в мире современных материалов и тенденций интерьерной моды. В каждом номере — архитектурные новости, выбор лучших дизайн-объектов и знакомство с их создателями, практические советы (   Читать дальше...   )Формат: PDF
+01 Don't Walk Away - Michael Mind
+02 Feel AliveЖанр: PopПродолжительность: 01:17.08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECD9AAF5EC2BA39D890ED86B41CE095384BBBD41
+magnet:?xt=urn:btih:29275DFFE0BABE6B1ECC91DA529E533301D5CE23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +25,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 798918   (652692) от 23.06.2014
+###  Публикация: 514005   (654817) от 27.06.2012
 
-Журнал | Elle Decoration №6 (136) (июнь 2014) [PDF]
+Giperboreia - Глубина глаз (2012) [MP3|256 кб/с]<Underground Rap>
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654817.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Elle Decoration" является источником вдохновения для ведущих дизайнеров и декораторов мира. Для людей, задумывающихся о строительстве и обустройстве дома, он служит путеводителем в мире современных материалов и тенденций интерьерной моды. В каждом номере — архитектурные новости, выбор лучших дизайн-объектов и знакомство с их создателями, практические советы (   Читать дальше...   )Формат: PDF
+01. Ленивый
+02. Отбросы общества п.у. Small
+03. Глубина глаз
+04. Паршивый
+05. Сквозь сон п.у. Женя Ка Поник, Jeqan
+06. Выходит
+07. До корня
+08. Не жалуюсь п.у. Small, Прохожий (Златый базар )
+09. Слепо
+10. Шалфей п.у. Parkerr(   Читать дальше...   )Жанр: Underground RapПродолжительность: 60 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:522D6AD05B51D093B6F49FA8C0B353E5E35A8200
+magnet:?xt=urn:btih:B855726F422352BEA71CED698CF6823B72E6A411
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,26 +60,167 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291567   (652666) от 26.03.2019
+###  Публикация: 515231   (654816) от 27.06.2012
 
-RightFont 5 v5.4.1 (2474) [En]
+Артем Александрович Черепко | Двое [2012] [DOC]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91EE38CDF3A0FB8C59311CC29F8605FE3B33131C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516206   (654815) от 27.06.2012
+
+VA - Vocal Trance Volume 36 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654815.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andrew Rayel - 550 Senta (Aether Mix)
+002. Andre Visior - Angels (Grey & Frost Club Mix)
+003. DNS Project feat. Madelin Zero - Another Day (Original Mix)
+004. DJ Hashish feat. 3PM - Be Careful (My Love) (Summer Nights Mix)
+005. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix)
+006. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix)
+007. Beat Service feat. Neev Kennedy - But I Did (Extended Mix)
+008. Armin Van Buuren feat. Ana Criado - Down to Love (Kyau & Albert Remix)
+009. Cerf, Mitiska & Jaren - Down To You (Pulser Vocal Mix)
+010. Arnej feat. Sally Saifi - Free Of You (8 Wonders Vocal Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93DBF180B5B2793DF5B5D39A592D5AA786322B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515787   (654814) от 27.06.2012
+
+[Wallpapers] Best HD Wallpapers Pack (27.06.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB41FFC7397E71B460FC0AB1D12855C57486075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 343815   (654802) от 31.05.2011
+
+VA - Worldwide 001 (Mixed And Compiled by Matrix & Futurebound) - 2011 /MTRVPR002LP/ [MP3|320 kbps]<Drum'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_654802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Drum'n'BassПродолжительность: 02:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA1BDB82041E9AE4BBB0A94AF2A2B84459DFD49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226583   (654791) от 21.05.2018
+
+VA - Hard Trance Legends, Vol.1 (2018) [MP3|320 Kbps] <Trance, Hard Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jay P - The Ride (Criostasis Remix)
+02. 100mg - Yarg (Original Mix)
+03. Unit 13 - Rocked (T-Factor Remix)
+04. Sarah C - Need Your Lovin' (Original Mix)(   Читать дальше...   )Жанр: Trance, Hard DanceПродолжительность: 06:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912F2F2ED0DA3472A8568EBD7CF5CB9B7BF9481C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226598   (654790) от 21.05.2018
+
+Transmit 5.1.3 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональное приложение для управления шрифтами, которое может использовать любой пользователь.
-RightFont - менеджер шрифтов с красивым интерфейсом. RightFon предлагает различные возможности, которые помогают Вам легко управлять всеми своими шрифтами. B RightFont 5. наконец-то появилась библиотека шрифтов. Теперь вы можете организовывать шрифты и шрифты в библиотеке (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2019Разработчик: Markly TeamПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+Transmit представляет собой отличный FTP (File Transfer Protocol), SFTP, S3 (Amazon.com файл-хостинг) и iDisk / WebDAV клиент, который позволяет загружать, выгружать и удалять файлы через Интернет, с продуманным, простым и интуитивно-понятным интерфейсом, высокой скоростью передачи/приема файлов, прекрасной стабильностью. Теперь Transmit подключается к 10 новым облачным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Panic IncПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83613E4BAB57970DE91AD1C79CBBD6069109044E
+magnet:?xt=urn:btih:C101BC30C886F6AEE1A56B1E3074099AC16C20A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,28 +228,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141232   (652649) от 09.06.2017
+###  Публикация: 1226601   (654789) от 21.05.2018
 
-Волейбол. Чемпионат мира 2018. Отборочный турнир. Мужчины. Европейская Квалификация. Группа D. 3 тур. Эстония — Черногория (26.05.2017) WEB-DL [H.264]
+Хоккей. Чемпионат мира 2018. Матч за 3-е место. США – Канада (20.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26 мая 2017 года
-Чемпионат мира 2018. Отборочный турнир. Мужчины. Европейская Квалификация
-Группа D. 3 тур
-Эстония — Черногория(   Читать дальше...   )Телекомпания: CEV TVЖанр: СпортПеревод: Не требуется, нет голосовых комментариевЯзык озвучки: ИнтершумСубтитры: отсутствуютПродолжительность: 01:48:46
+20 мая 2018 года, воскресенье. 16:45 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+Матч за 3-е место.
+США – Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B29ECBC911CB74DF802DEC8246DFC14E6CA7FEA7
+magnet:?xt=urn:btih:053355057254D21AF6449B005917D83EA8A14263
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,186 +257,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540490   (652646) от 30.03.2022
+###  Публикация: 1226600   (654787) от 21.05.2018
 
-BurnAware Free 15.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652646.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware Free - бесплатная и простая в использовании программа для записи CD, DVD и Blu-ray дисков. Позволяет выполнять все основные задачи по записи: создание и прожиг образов, запись аудио дисков из файлов WAV, MP3, и WMA, запись DVD-Video и дисков с данными, поддержка мультисессии, проверка записанных данных и многое другое.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AC120D252EF57FFBD51B00112860BEF4ED6E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540494   (652645) от 30.03.2022
-
-Opera GX 84.0.4316.52 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD9F691C3B1E7C92A191D49657F0FCD039478FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540545   (652639) от 30.03.2022
-
-Typora 1.2.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Typora дает вам безупречный опыт как читателя, так и писателя. Приложение удаляет окно предварительного просмотра, переключатель режимов, синтаксические символы исходного кода и все другие ненужные отвлекающие факторы, заменяя их предварительным просмотром в реальном времени, чтобы помочь вам сосредоточиться на самом контенте.Тип издания: macOS SoftwareРелиз состоялся: 26.03.2022Разработчик: © 2021 TyporaПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1B94C5A09F2565DE5BB94E5AD06D765FA3AAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799009   (652611) от 23.06.2014
-
-Журнал | Безбожник [4 журнала] (1930) [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652611.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Безбожник» — еженедельная газета атеистической направленности, издававшаяся в Советском Союзе с 21 декабря 1922 года по 20 июля 1941 года (с перерывом с января 1935 по март 1938). Газета являлась печатным органом Центрального Совета Союза воинствующих безбожников. Главной целью издания являлась антирелигиозная пропаганда.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D1E2A55D311059AB795A82A5E185E7D313C5D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291725   (652582) от 26.03.2019
-
-Ultra Mood - I Hate To WAIT (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultra Mood - I Hate To WAITЖанр: HardstyleПродолжительность: 00.03.25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D789E58C862C9996705C38E574C2F0B063812CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291713   (652580) от 26.03.2019
-
-Mozilla Thunderbird 60.6.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392D6622B5A4091F2451E19DE90F20952DB6C566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140721   (652567) от 09.06.2017
-
-Волейбол. Чемпионат мира среди клубов 2017. Женщины. Финал. ВакифБанк (Турция) — Рексона-Сеск (Бразилия) (14.05.2017) WEB-DL [H.264/720p-LQ]
+Хоккей. Чемпионат мира 2018. Матч за 3-е место. США – Канада (20.05.2018) IPTVRip [H.264/1080p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-14 мая 2017 года
-Чемпионат мира среди клубов 2017. Женщины. Финал
-ВакифБанк (Стамбул, Турция) — Рексона-Сеск (Рио-де-Жанейро, Бразилия)
-Стадион: Кобе Грин Арена (Кобе, Япония), вместимость 4852 зрителей(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:36:33
+20 мая 2018 года, воскресенье. 16:45 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+Матч за 3-е место.
+США – Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A033F8EF49B1E1EF88139E29AD8013F1AE264D84
+magnet:?xt=urn:btih:2FA5537C022BA1B47EF13961C45B1C02D1F8C81D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,54 +286,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141055   (652560) от 09.06.2017
+###  Публикация: 1226549   (654786) от 21.05.2018
 
-A Better Finder Attributes 6 v6.05 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652560.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла. С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе. Помимо этого A Better Finder Attributes может синхронизировать дату модификации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.06.2017Разработчик: PublicspaceПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A566D4E6BB78712FDF17C87D610E92F32D24F528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141153   (652553) от 09.06.2017
-
-VA - Uplifting Only Top 15: June (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Karsten Pflum - No Noia My Love (2011) Hymen Records [FLAC|Lossless|tracks+.cue] <Drum & Bass, IDM, Dubstep>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  AirLab7 - Reminiscent Of My Teen Life (Original Mix)  7:09
-02.  Naeba & Soundfly - Love Is Out There (Sebastian Brushwood Remix)  6:05
-03.  Dreamlife - The Last Sunset (Original Mix)  7:04
-04.  Tycoos - Things We Left Behind (Original Mix)  6:05(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:48:06
+01. The Hand (07:11)
+ 02. Lov Dog (05:39)
+ 03. Muntermacher (07:17)
+ 04. Dansk Notebook Center (07:36)(   Читать дальше...   )Жанр: Drum & Bass, IDM, DubstepПродолжительность: 01:15:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01B5534447DC3EA40B36FBB7710FE2210A340178
+magnet:?xt=urn:btih:3153669B7D9CF5A66448AB674C90E6C5032E0CF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,25 +315,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540492   (652536) от 30.03.2022
+###  Публикация: 1140701   (654777) от 07.06.2017
 
-Google Chrome 100.0.4896.60 Portable by Cento8 [Ru/En]
+Bulk Crap Uninstaller 3.9.0 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор программ, который позволит удалить без следов и остатков любое приложение на Вашем компьютере. Как известно, любая программа в процессе работы заполняет ПК некими данными: записи в реестре, созданные папки, файлы и т.д. Если Вы просто удаляете потом такое приложение, то некий мусор все равно остается в системе, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F004B0CE53C799171CA0D7877B6AE67BE43539BF
+magnet:?xt=urn:btih:53CD6FC2F850BC3B94E2FC7117461A901EAB59D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,52 +341,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540485   (652535) от 30.03.2022
+###  Публикация: 1226577   (654774) от 21.05.2018
 
-iStat Menus 6 v6.62 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652535.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS Mojave и macOS Catalina.
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2022Разработчик: © 2022 Bjango Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7291B91F0F32349D2872B938911E16D1BFB6D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540576   (652534) от 30.03.2022
-
-Cyberduck 8.3.0 Build 37309 [Multi/Ru]
+WinCatalog 2018 18 RePack by вовава [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cyberduck — программа представляет собой бесплатный мультифункциональный клиент для подключения к удаленным директориям серверов, поддерживая работу с многими популярными протоколами подключения. В список типов серверов, к которым возможно выполнить подключение, вошли любые FTP, FTP-SSL, защищенное подключение SFTP, WebDAV, а также публичные облачные сервера Amazon (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+WinCatalog - это простая в использовании программа-каталогизатор, предназначенная для каталогизации дисков, файлов и папок. Приходилось ли Вам когда нибудь просматривать содержимое десятков CD в поисках нужной программы или песни? Используя WinCatalog Вам больше никогда не придется тратить время на поиск. Достаточно один раз добавить Ваши диски в WinCatalog и поиск (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68E2DEA9127903CC74B72BED323DB2E7AFA78AEB
+magnet:?xt=urn:btih:1CAD2AED4468AA20C1F7C9DADEC1BD5653054F52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,26 +367,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540595   (652532) от 30.03.2022
+###  Публикация: 1140702   (654769) от 07.06.2017
 
-Soft Organizer Pro 9.19 RePack (& Portable) by elchupacabra [Multi/Ru]
+Stellarium 0.15.2 Portable by PortableApps [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Soft Organizer - утилита для полного удаления ненужных программ из системы.
-Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Stellarium это бесплатный планетарий для вашего компьютера с открытым кодом. Он показывает реалистичное небо в 3D, как вы видите невооруженным глазом, бинокль или телескоп. Он используется в прожекторах планетарий. Просто установите Ваши координаты и вперед.Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:280A595CEF0918C73B703CB4F92DD64D5EDEB9E2
+magnet:?xt=urn:btih:AAD8295B7864C81E4C45860E53A7D9C4E902B006
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,25 +393,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540600   (652528) от 30.03.2022
+###  Публикация: 1140642   (654759) от 07.06.2017
 
-Files Inspector Pro 3.19 RePack (& Portable) by elchupacabra [Multi/Ru]
+Zoner Photo Studio X 19.1706.2.28 RePack by KpoJIuK [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если на диске заканчивается свободное место, и вы не можете понять, чем занят ваш диск, то Files Inspector – отличное решение для поиска и удаления затерявшихся фильмов, загруженных файлов и неиспользуемых программ, которые вам уже не нужны, но занимают место на диске.Язык интерфейса: Русский, Английский и другие
+Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B85BDC4B4245C84C0D8AFD9EAC9576EB98CAA8C9
+magnet:?xt=urn:btih:3A339BE6BFCA1780D4DDCCDC3FE2C2EB2B5FD8FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,25 +419,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 798982   (652509) от 23.06.2014
+###  Публикация: 515788   (654751) от 27.06.2012
 
-Анна Литвинова, Сергей Литвинов | Незримая связь (2014) [MP3]
+[Wallpapers] Nature Wallpapers (27.06.12)
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В последнее время Татьяне Садовниковой фатально не везло: ее подставили на дороге, обвинили в преступлении, которого она не совершала, и вдобавок уволили с работы... В поисках удачи она отправилась в Тибет, к легендарной горе Кайлас. Все тяготы пути и восхождения Таня перенесла не зря: у подножия священного камня она нашла белую нефритовую чайку. После этого ее дела (   Читать дальше...   )Жанр: ДетективПродолжительность: 05:35:04
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7215C5620353D58BEB6E134AD516574AA1D8EA72
+magnet:?xt=urn:btih:F01D89769236775B1746B3EA14D0DBC6CB61B5FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,138 +445,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291749   (652505) от 26.03.2019
+###  Публикация: 516102   (654750) от 27.06.2012
 
-Mozilla Thunderbird 60.6.1 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3817829CA1ED12F544CB049032C2425AA74E265E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291861   (652499) от 26.03.2019
-
-VA - The Jazz Hop Cafe - Jazz Hop #4 Autumn Exclusives (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, ChillHop>
+VA - Best Trance Producers (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Classik - Moonlight Metropolis (4:42)
-02. MAXGONZ - Rainfall (3:25)
-03. SkyBlew - Pixy Stix & Snick (3:44)
-04. Rythmatical - Sleep (3:59)(   Читать дальше...   )Производство: The Jazz Hop CaféЖанр: Hip-Hop, Jazz Hop, ChillHop, Instrumental, LoungeПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FC23C58B9396C0D15FBF75CDE8971CC58C65F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291862   (652496) от 26.03.2019
-
-VA - The Jazz Hop Cafe - Jazz Hop #5 Summer Exclusives (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, ChillHop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taiyo Ky - Keikyu Beat (Ft. Phoebe Lee) (2:33)
-02. Pabzzz - Serenade (3:24)
-03. EMERLD - I Know (Ft. Jerré & Buuda) (3:18)
-04. Profound Beats - Starry Eyes (2:59)(   Читать дальше...   )Производство: The Jazz Hop CaféЖанр: Hip-Hop, Jazz Hop, ChillHop, Instrumental, LoungeПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6FCC6223C804D01913DCE21D4E45679FC9983E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291583   (652490) от 26.03.2019
-
-Morph Age Pro 4.3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Morph Age Pro мощный инструмент для высококачественного морфинга и варпинга(деформации) цифровых изображений и видеофрагментов для Mac OS X.
-Результаты работы с программой могут быть сохранены в виде видеоролика. Программа позволяет плавно регулировать изменения изображения с помощью направляющих кривых. Версия PRO может работать с видео, в то время как стандартная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2019Разработчик: Creaceed SPRLПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859705E20EC3EEF0E37BFECC6A2BA4862E44BB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291792   (652484) от 26.03.2019
-
-Elmedia Player Pro 7.2.1 (1778) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+VA - Best Trance Producers (2012)
 
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Мультиязычный, включая русский
+Год: 2012
+Жанр: Trance
+Продолжительность: 01:46:21
+Лейбл: Self-Released
+Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8854B6A38581F5E0B07A8556401B000FCE5E757
+magnet:?xt=urn:btih:46E62C5DDFD795AD90BC1781A4885664368EE357
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,28 +479,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141176   (652465) от 09.06.2017
+###  Публикация: 516203   (654748) от 27.06.2012
 
-VA - Vocal Dance Vol. 2 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+Вечерний Ургант. Выпуск №35 (2012.06.27) SATRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Papulin - Paper Boats (feat Maria Milewska - extended mix) (05:45)
-02. Elite Electronic & John Swanson - Polaris (extended mix) (06:00)
-03. Roman Messer & Armos - Higher (feat Angel Falls - original mix) (06:30)
-04. Attila Syah & Cari - Dark Side Of The Moon (original mix) (06:32)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:19:48
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:28:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05CF2A9FCF755ED2D0D2E7A97F9DFC7A191C0266
+magnet:?xt=urn:btih:A6ED19124D669DA5DBF52C5AEEAE4CC95640F501
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,28 +505,225 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141266   (652464) от 09.06.2017
+###  Публикация: 515862   (654746) от 27.06.2012
 
-Psybuddy - Sonic Treatment (2017) [MP3|320 Kbps] <Psy-Trance>
+VA - TMP: Vanilla Dreams 077 (2012) [MP3|320 кб/с]<Vocal Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sonic Treatment 08:21
-02. Puma Punku 08:41
-03. Galactic Horizons 07:32
-04. Addictive Noize 08:41(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:18:58
+001. Aly & Fila - 200 - FSOE 200 Anthem (Ummet Ozcan Mix)
+002. JIR3H-3 - Fly (Original Mix)
+003. Arty - Kate (Original Mix)
+004. Fredda L. & Fisher - Love, You Call It (Beat Service Remix)
+005. Benya feat. Emma Lock - Loved To Be (Original Mix)
+006. Mat Zo & Arty - Mozart (Original Mix)
+007. C-Systems feat. Hanna Finsen - Pieces (Original Mix)
+008. Cardinal feat. Arielle Maren - Sink Into Me (Original Mix)
+009. Euphoric Feel - Trip To India (Original Mix)
+010. Kristina Sky & Randy Boyer feat. Shyboy - Welcome To The Future (M.I.K.E. Remix)Жанр: Vocal TranceПродолжительность: 01:07:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD6C454FFAB58C7BB06B58861139D3F83D2ED2C5
+magnet:?xt=urn:btih:BD9B649D32D2DD85202AF99938D6F7C73A3F024F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515789   (654742) от 27.06.2012
+
+[Wallpapers 16+] Wallpapers Sexy Girls Pack (27.06.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680x1050 - 4000x2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC7FA7E4D3219F898E62DC31286260BFFEBCA87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514351   (654735) от 27.06.2012
+
+VA - Camouflage — Retrospective 1999/2004 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overtone — Mental Movement (09:09)
+ 02. Haunted House — Rain-Bow (08:03)
+ 03. Blacklight — Daydream (07:25)
+ 04. Cosmo Kid — Cosmic Meltdown (Original Mix) (07:33)
+ 05. Jericho — Way of Love (07:00)
+ 06. The Snapper — Pulsar (Original Mix) (10:25)
+ 07. Overtone — Soulstatic (Part 1) (07:37)
+ 08. Phrenetic System — Intensity (Original Mix) (09:52)
+ 09. Oudja — Opium (2001 Revisited Mix) (09:20)
+ 10. Dolt Dish — This Round Up (Main Mix) (09:41)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 03:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF54F85A3C4008B004266E706D346041F8C9DA9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 344362   (654716) от 31.05.2011
+
+Rumble D.P - Apparat + B-sides (2007) [MP3|320 kbps]<Downtempo, Trip Hop, Abstract, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Downtempo, Trip Hop, Abstract, AmbientПродолжительность: 01:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0528407234AA98F45C886B4ECAB34DD20063F22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226648   (654701) от 21.05.2018
+
+Glary Utilities Pro 5.98.0.120 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAF32DE3CE7805E6E3E56660415305005FE22E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226670   (654700) от 21.05.2018
+
+Яндекс.Браузер 18.4.1.638 Portable by thumbapps [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9D9A49E92901F3753340A6EF714CFDC6368267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140770   (654693) от 07.06.2017
+
+oCam 406.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654693.jpg" />
+</div>
+
+
+###  Подробнее
+
+oCam Screen Recorder - бесплатная программа, позволяющая быстро и качественно записать видео всего происходящего на экране. Кодирование (сжатие) получаемого видео производится кодеками, установленными в систему. Имеется поддержка двух мониторов. Cam Screen Recorder позволяет записывать также и звуковое сопровождение, причем не только через микрофон. Особенностью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C357FDB37C5AE4AE364932AB7C489AB4BA2206C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140649   (654691) от 07.06.2017
+
+4K Video Downloader 4.3.0.2195 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654691.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader позволяет скачивать видео, аудио и субтитры с YouTube в высоком качестве на ваш компьютер. Если вы хотите закачать видео на iPad, iPhone и другие девайсы, тогда это приложение — ваш выбор! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Paste Url".Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C81D5484540216C504B5855FAF9A75D9041DE2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

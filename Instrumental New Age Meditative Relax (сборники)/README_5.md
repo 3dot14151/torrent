@@ -1,3 +1,32 @@
+###  Публикация: 1018641   (753955) от 21.05.2016
+
+VA - Acoustic Cafe: Relaxing and Easy Listening (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Munros - Homeward Bound - Cafe Mix
+02. The MacDonald Bros - When You Say Nothing at All
+03. Julienne Taylor - Turn out the Light - Cafe Mix
+04. The MacDonald Bros - Fields of Gold(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9C336CD846FCA9202674A81917169E04FD70FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018675   (753943) от 21.05.2016
 
 VA - Sleep Deep Piano Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -713,35 +742,6 @@ VA - Love Therapy: Romantic Piano and Instrumental (2016) [MP3|320 кб/с] <Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:970BFB6077868C91A98931D42DE89EBCF31BB7B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129814   (718441) от 30.04.2017
-
-VA - Music Of Dreams: Original Relax Mix (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718441.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Deep Sleep Hypnosis Masters - Massage Music  3:26
-002.  Xerxes & Phoenix - Scarecrow  4:04
-003.  351 Lake Shore Drive - Frozen Heart  6:51
-004.  Marga Sol - Ibiza Blue  5:03(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FBCB06225BF76480A8009B7EBA71D379865F91
 ```
 
 https://mybot314.ru/tekegram_catalog/

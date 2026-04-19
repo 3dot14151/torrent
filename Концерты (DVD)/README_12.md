@@ -1,3 +1,58 @@
+###  Публикация: 276467   (266810) от 30.12.2010
+
+Кен Хенсли / Ken Hensley With Live Fire / in concert Norway (2007) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Marco Arndt at Membran A&RЖанр: RockПеревод: ОтсутствуетЯзык субтитров: ОтсутствуетФормат: DVD9Продолжительность: 01:32:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191396   (264100) от 14.12.2017
+
+Gary Moore - The Definitive Montreux Collection (2007) 2хDVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Уильям Гэри Мур (англ. Robert William Gary Moore) — ирландский гитарист, певец, автор песен. Внёс заметный вклад в развитие блюз-рока. С 14 лет играл на стандартных гитарах, то есть для правшей, несмотря на то, что от рождения Гэри — левша. Представлена коллекция выступлений Гэри Мура на Montreux Jazz Festival с 1990 по 2001 годDisc 1
+1990:
+1. Midnight Blues
+2. Texas Strut(   Читать дальше...   )Производство: США, Eagle VisionЖанр: Блюз, рокПеревод: ОтсутствуетСубтитры: Отсутствуют
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EBCCAEC02AD1EAAA32FB63C4F1C7BCEC8ABEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503126   (259360) от 29.05.2012
 
 Robin Gibb - Live with The Neue Philharmonie Frankfurt Ochestra / Robin Gibb - Live with The Neue Philharmonie Frankfurt Ochestra (2005) DVD5
@@ -72,6 +127,41 @@ Black Sabbath – Undead And Alive (2004) DVD5
 3. War Pigs 	7:32
 4. Children Of The Grave 	4:16
 5. Snowblind 	6:13(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492435   (248202) от 06.05.2012
+
+Лиза Стэнсфилд Live At Ronnie Scott's / Lisa Stansfield - Live At Ronnie Scott's (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 8-3-1
+ 02. The Real Thing
+ 03. So Natural
+ 04. Make Love To Ya
+ 05. Tenderly
+ 06. Someday
+ 07. Don't explain
+ 08. Can't Take That Away From Me
+ 09. Didn't I?
+ 10. Change(   Читать дальше...   )Жанр: pop rock / soul / ballad / dance / disco / R&BПеревод: ОтсутствуетЯзык субтитров: French, German, Italian, Spanish ( только интервью )Продолжительность: 01:24:48 + 00:18:59 + 00:02:33
 
 ## Скачать торент
 ```bash
@@ -649,106 +739,6 @@ Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:956A286ECD8C76EA22A0D91ECB816453EF329A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589446   (148001) от 15.12.2012
-
-Porcupine Tree - Octane Twisted (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это специальное издание1. Occam's Razor
-2. The Blind House
-3. Great Expectations
-4. Kneel And Disconnect
-5. Drawing The Line
-6. The Incident
-7. Your Unpleasant Family
-8. The Yellow Windows Of The Evening Train
-9. Time Flies
-10. Degree Zero Of Liberty(   Читать дальше...   )Жанр: Прогрессивный РокРежиссер: KscopeПеревод: ОтсутствуетПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588917   (147663) от 15.12.2012
-
-Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный концерт, снятый MTV в Нью-Йорке, в 1998 году.
-
-Трек лист:
-
-01. Creeping Death Jam
-02. Die Die My Darling
-03. Blitzkrieg
-04. Small Hours
-05. The Prince
-06. Sabbra Cadabra(   Читать дальше...   )Жанр: Thrash metal.Режиссер: Joe FridayПеревод: ОтсутствуетПродолжительность: 01:42:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592935   (134544) от 24.12.2012
-
-Легенды Ретро FM (2009) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_134544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка
-
-Описание фильма
-Шоу, которое собирает на своей сцене любимых исполнителей отечественной и зарубежной эстрады прошлых лет. Самая большая за всю историю проекта сцена, самая сложная постановка (350 танцоров и музыкантов) и самые яркие звезды Ретро FM, которые поют песни, объединяющие все поколения! Начало этого удивительного фестиваля было взято еще в 2005 году. На этот раз организаторы превзошли самих себя, объединив в "необыкновенном шоу" всех самых ярких звезд 80-х и 90-х: от Тото Кутуньо и Томаса Андерса до Софии Ротару и Юры Шатунова.
-Сандра и Томас Андерс, солист Modern Talking, приготовили небольшой сюрприз для России. Они дуэтом исполнили песню "The Night Is Still Young" с ярко выраженными латиноамериканскими мотивами. Общее творение Томаса и Сандры возникло на жарком испанском острове Ибица, где живет певица. Во время выступления сцена то вспыхивала разноцветными фейерверками, то превращалась в огромный витраж. А под финал выступления сверху опустилось большое алое сердце с девушкой-акробатом (   Читать дальше...   )Режиссер: Орт 1 каналАктеры: София Ротару,Юрий Шатунов,Sandra,Thomas Anders,Виктор Салтыков,Мираж,E-Type,Восток,Технология,Жанна Агузарова,Белый орёл,Toto CutugnoПеревод: ОтсутствуетПродолжительность: 01:50:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

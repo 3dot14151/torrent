@@ -1,3 +1,32 @@
+###  Публикация: 34841   (160490) от 07.11.2023
+
+Johannes Brahms Complete Edition (1996) 46CD Box Set [APE|Lossless|image + .cue]<Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Works on This Recording
+1.
+German Requiem, Op. 45 by Johannes Brahms
+Performer:  Andreas Schmidt (Baritone), Barbara Bonney (Soprano)(   Читать дальше...   )Жанр: Classical
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F84618034D694EFA1C43CF917F1762B3DD5840F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 38724   (160489) от 07.11.2023
 
 Handel - The Masterworks (2004) 40CD Box [FLAC|Lossless|image + .cue] <Classic>
@@ -709,35 +738,6 @@ bond - Play (2011) [FLAC|Lossless]<Classical Crossover>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:118CB9E55A35405AC9C42813EB68F7040C88DDE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824998   (136858) от 16.10.2025
-
-Mozart: Requiem, K. 626 - Say: Mozart & Mevlana, Op. 110 by Fazil Say, Fatma Said, Marianne Crebassa, Pene Pati, Michael… (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozart - Requiem in D Minor, K. 626
-01. I. Introitus. Requiem æternam (4:10)
-02. II. Kyrie (2:17)
-03. III. Dies iræ (1:44)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C72A7CC84A7F87E6A052136D669D3C6A7B7EEC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

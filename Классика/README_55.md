@@ -1,3 +1,32 @@
+###  Публикация: 238359   (19312) от 05.05.2025
+
+Michael Nyman - 54 альбома (1985-2009) [MP3|320 кб/с]<Minimalism, Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the Money and Run (3:13)
+02. Secrets, Accusations and Charges (3:32)
+03. City of Turin (3:00)
+04. Friendly Fire (2:28)(   Читать дальше...   )Жанр: Minimalism, ClassicalПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A915A42FA1F04DA338F334D46FCEACF25DD8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795636   (19239) от 05.05.2025
 
 VA - Modern Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>

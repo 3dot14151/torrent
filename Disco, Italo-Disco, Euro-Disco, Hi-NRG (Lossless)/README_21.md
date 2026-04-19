@@ -1,3 +1,147 @@
+###  Публикация: 1342507   (223622) от 02.12.2019
+
+Stars On 45 - The Very Best Of... (2010) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, Pop, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars On '89 Remix (Radio Version) (4:47)
+ 02. Stars On 45 (Original 12-Inch Version) (9:47)
+ 03. More Stars (Abba Medley) (Original Single Version) (3:53)
+ 04. More Stars (U.S.A. Version) (Original 12 Inch Version) (6:56)(   Читать дальше...   )Жанр: Electronic, Disco, Pop, 80sПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F6252719DC3AFBF6A7358956CDDE7FA945BDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425306   (222475) от 20.11.2020
+
+Savage - Love And Rain (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Second Of My Life (Ouverture) (0:41)
+ 02. Don't Say You Leave Me (3:02)
+ 03. I Love You (3:17)
+ 04. Italodisco (3:07)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2678FC0BAB4135F7E2AEB4D3CC0FB2C02F47C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425183   (222186) от 20.11.2020
+
+Savage - Love And Rain (Remixes) (2020) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You (Kimmo Salo Flashback Remix) (6:54)
+02. Where Is The Freedom (Kimmo Salo Flashback Remix) (6:11)
+03. Italodisco (Kimmo Salo Flashback Remix) (5:52)
+04. Lonley Nights (Kimmo Salo Flashback Remix) (6:25)(   Читать дальше...   )Жанр: Electronic, Italo-Disco |Продолжительность: 01:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC74ED76C2F5E0E45E04869AB74B2A6981AF7390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342929   (221196) от 04.12.2019
+
+Digital Emotion - You'll Be Mine / Run Away (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'll Be Mine
+02. Run AwayЖанр: Disco, ElectronicПродолжительность: 00:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF3498B22D854DB11411E904B8EE87A6CB2A3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164166   (218176) от 02.12.2021
+
+Matia Bazar - Коллекция (1976-1989) [FLAC|Lossless] <Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218176.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 Альбомов с вокалом Антонеллы Руджеро (Antonella Ruggiero)
+Спасибо bazar и dimitri28 с "национального"01. Stringimi
+02. Se Tu
+03. Il Mare
+04. Winnie(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4431EC1DDA951A0C7A747E576BDDF39DC1FF572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426102   (216733) от 23.11.2020
 
 KC & The Sunshine Band - A Sunshine Christmas (2015) [FLAC|Lossless|tracks + .cue] <Boogie, Neo Soul, Rhythm & Blues>
@@ -595,151 +739,6 @@ Savage - Greatest Hits and More (1990) 1995 Reissue, Compilation, Unofficial [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3508247AE02810946B9C7A8187BF4826A3B4A21C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662830   (187405) от 19.09.2023
-
-Linda Jo Rizzo - Passion (The Original Maxi-Singles Collection) (2023) Compilation, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion
-02. You're My First, You're My Last (Maxi Version)
-03. Perfect Love (Maxi Version)
-04. Heartflash (Tonight) (Maxi Version)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A91580579590AD87DA61198E2B54C1029363DC2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591588   (187116) от 18.11.2022
-
-D.White & DimaD. - The Butterfly Effect (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Have Fun Tonight (Album Version)
-02. 600 Km (Album Version)
-03. Verone (Album Version)
-04. You Are My Love(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E71520147202A36FA249EB66F9E4EF97D5D965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427144   (183719) от 27.11.2020
-
-Savage - The Hits (2020) [FLAC|Lossless|image + .cue] <Pop, EuroDance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry Tonight
-02. Only You
-03. Radio
-04. A Love Again(   Читать дальше...   )Жанр: Pop, EuroDanceПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCF4254AD01C3E3693322CB53A7715DA197C62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826887   (173578) от 19.10.2025
-
-AlimkhanOV A. - The Best (The 5th Album) (2025) 2CD, Limited Edition [FLAC|Lossless|tracks] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best (4:21)
-02. Strong (4:54)
-03. Walking In The Chinatown (4:39)
-04. Run Away (4:08)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1432650FFCED7A45FC1183C5F83C63BF3246428A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669672   (172587) от 17.10.2023
-
-Amanda Lear - The Sphinx•1976-1983 ( 2006 ) 3CD [FLAC|Lossless|tracks + .cue] <Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fashion Pack - ( Studio 54 ) ( Albom Version ) - 1979
-02. Love Your Body - 1983
-03. Intellectualy - 1979
-04. Enigma ( Give A Bit Of Mmh To Me ) - 1978(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 02:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C7D04B6AEFF23F6511866D29237223D1F1E668
 ```
 
 https://mybot314.ru/tekegram_catalog/

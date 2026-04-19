@@ -1,3 +1,32 @@
+###  Публикация: 921745   (573594) от 26.07.2015
+
+Jean-Michel Jarre - Remix EP [1] (2015) [MP3|320 кб/с]<Electronic, Ambient, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conquistador (JMJ Rmx) (3:50)
+ 02. Glory (Radio Mix) (2:54)
+ 03. Glory (Steve Angello Remix) (5:53)
+ 04. Zero Gravity (Above And Beyond Remix) (7:20)(   Читать дальше...   )Жанр: Electronic, Ambient, Synth-popПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709FB2A72E409198C078D98D1718ADA9170E7195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303504   (572703) от 21.05.2019
 
 Blancmange - 4 Albums (1982-1985) [MP3|320 Kbps] <Electronic, Synth-pop, New Wave>
@@ -716,35 +745,6 @@ Profil - Profil (серия "Другие восьмидесятые") (1982) CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0B061053D5F1ED537BE9862FCCE70CF4B1AAC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316854   (503971) от 28.07.2019
-
-Yello - 3 Editions (2012, 2017) Remixes [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - The Key To Perfection
-2017 - Frautonium (The Andrew Weatherall Remixes)
-2017 - Limbo (The Remixes)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945B6C03A4AF07020E30F6DB3EA705820F95E443
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,173 @@
+###  Публикация: 1138540   (1006186) от 18.07.2021
+
+Lars Leonhard - Discography 42 Releases (2011-2021) BineMusic, Ultimae Records [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Deep House, Downtempo>
+
+>>След.
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep In Space (06:56)
+ 02. Diving To Coral (07:38)
+ 03. Metamorphose (08:16)
+ 04. Sunk In Thoughts (07:56)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Dub Techno, Ambient, Deep House, Downtempo •Продолжительность: 35:51:19 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF38D1775C2B087794582A2E4F558F3FE9FC5FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485485   (1005464) от 25.07.2021
+
+Electrypnose - Crooked House (2021) [FLAC|Lossless|WEB-DL|tracks] <PsyTech House, Techno, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Winter Sunday
+02. More Than I Give Them
+03. The Sun Winking at the Moon
+04. Crooked House(   Читать дальше...   )Жанр: PsyTech House, Techno, ProgressiveПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09490AA9A764F4DB01C317836928B0B7B0DA462D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484784   (1005349) от 26.07.2021
+
+Pobedia & Nebyla - Good Morning EP (2012) DDR006 [FLAC|Lossless|tracks] <Dub Techno, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005349.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nebyla - Mountain Yard 05:24
+2. Pobedia - 6 a.m 04:57Жанр: Dub Techno, Deep TechnoПродолжительность: 00:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DD97325675188E0AA6DFBD0211B1117C424BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485676   (1005223) от 27.07.2021
+
+Oxia - Speicher 34 (2006) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005223.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Change Works
+2. DominoЖанр: Techno, Minimal TechnoПродолжительность: 00:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C086B7335F7765617382500E9AF3563F12E5818F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180845   (1004928) от 29.07.2021
+
+Anton Kubikov (A. Kubikoff) - Discography 26 Releases (1999-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Techno, Ambient, Deep House, Tech House, Minimal>
+
+>>След.
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killahertz - Boost (05:38)
+ 02. De:Se - De's World (05:24)
+ 03. Polar Lights - Joytime (04:49)
+ 04. Chizh - Psy Out (06:44)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Techno, Ambient, Tech House, Minimal •Продолжительность: 15:49:45 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EFD8177677334A782D4BE1CB239174538ADD63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486289   (1004749) от 31.07.2021
+
+VA - Beach Grooves Maretimo Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airstream - Coffee Bar (Sunnys Pool Mix) (04:49)
+02. DJ Maretimo - Rio (Take Me on Mix) (05:31)
+03. Cinematic - Sunset Love (The Funky Light Mix) (04:31)
+04. Jazzy James Jr. - Get on Funky (Cosmo Cut) (04:49)(   Читать дальше...   )Жанр: Organic House, Downtempo, LoungeПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A3603F46DB1719EC194CB62E2BE6218AC1177F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349468   (1004492) от 01.01.2020
 
 VA - Best of Winter 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -563,183 +733,6 @@ Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A7B7F15D11403BAF5031022FF192DC5C9C9F990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352350   (1001086) от 14.01.2020
-
-Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eintagsfliege (07:08)
-02. Zweibrütiger Scheckenfalter (07:13)
-03. Dreizehenspecht (03:34)
-04. Vierfleck (06:12)(   Читать дальше...   )Жанр: Techno, Tech House, MinimalПродолжительность: 01:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0020D78DF4A05E02C425DC34B90E6ECBAE703339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352888   (1000890) от 15.01.2020
-
-VA - Parquet Goodies (2019) - 2020 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive House, Neo Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Progressive House, Neo TranceПродолжительность: 03:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3D71D1C10E0CCC7E40C0B39848C75D08F36B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547986   (1000715) от 15.01.2020
-
-Brooklyn Bounce - 9 Альбомов (1997 - 2004) [FLAC|Lossless]<Hard Trance, Euro House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brooklyn Bounce (рус. «Бруклин Баунс») - немецкая музыкальная группа, работающая в стиле Hard House, Euro Trance. В начале своего творческого пути была одной из самых востребованных и популярных танцевальных команд. За двенадцать лет было продано 2 500 000[1] CD с синглами группы. Одно из самых известных произведений Brooklyn Bounce «Bass, Beats and Melody» получило (   Читать дальше...   )Жанр: Euro Trance, Hands-up, Techno, Хард-хаус, Progressive HouseПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D797157C55F5500617F2A4F2964721EBDD57EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597720   (999964) от 04.01.2013
-
-VA - Dance Decades - A Compete History Of Dance 1989-2004 (2004) [FLAC|Lossless]<Dance, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modjo - Lady (Hear Me Tonight) [03:40]
-02. Sonique - It feels So Good [03:48]
-03. Junior Senior - Move Your Feet [02:59]
-04. Moloko - Sing It Back (Boris Musical Mix) [04:37]
-05. Stonebridge - Put 'Em High [03:25]
-06. Basement Jaxx - Rendez Vu [03:41]
-07. Wamdue Project - King Of My Castle [03:26]
-08. Bob Marley Vs Funkstar Deluxe - Sun Is Shining [03:53]
-09. The Cardigans - Love Fool (Tee's Club Radio Edit) [03:19]
-10. X-Press 2 Feat. David Byrne - Lazy [04:11](   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598662   (999668) от 05.01.2013
-
-VA - Zirkus Zirkus: Elektronische Tanzmusik Vol.1 (2013) [FLAC|Lossless]<Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:00:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601453   (997503) от 13.01.2013
-
-Savant - Alchemist (2012) [FLAC|Lossless]<Dubstep, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997503.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Mother Earth
-2. Sky Is The Limit (feat Donny Goines)
-3.  Sledgehammer
-4. Alchemist (feat Gino Sydal)
-5.  Dancer In The Dark
-6.  Hungry Eyes (feat Qwentalis)
-7. Sustainer
-8.  Witchcraft
-9.  Redemption
-10.  Konami Kode (feat. Donny Goines)(   Читать дальше...   )Жанр: Dubstep, Electro HouseПродолжительность: 01:42:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

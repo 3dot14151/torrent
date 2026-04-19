@@ -1,3 +1,61 @@
+###  Публикация: 1323386   (437868) от 03.09.2019
+
+Rocky M - The Best Of (1989) LP [MP3|320 Kbps] <Electronic, Europop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Heart (3:15)
+02. Disco Lady (3:27)
+03. An Angel Passed My Way (4:13)
+04. Fever (3:22)(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D378BE82ED2A71D9F819420794DA401EDA980F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249153   (437866) от 22.09.2018
+
+Luca Rovini & Companeros - Cuori Fuorilegge (2018) [MP3|320 Kbps] <Italy Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senza gambe ne parole (05:10)
+02. Fuorilegge (04:44)
+03. Honky tonk senorita (03:09)
+04. Al tavolo di un altro (04:31)(   Читать дальше...   )Жанр: Italy PopПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E55A273056C77C56B95AF6569E3452E1BA6853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 124135   (437547) от 20.09.2020
 
 ABBA - Дискография (1970-2007) 65CD [MP3|320] <PoP, Rock>
@@ -684,64 +742,6 @@ Celine Dion - All The Way... A Decade Of Song (1999) [OGG Vorbis|485 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8F179F787B663311724F3D8171C0BFC33FFE9DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570711   (427419) от 24.08.2022
-
-Dido - Still On My Mind (2019) [OGG|485 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricanes (05:17)
-02. Give You Up (03:21)
-03. Hell After This (03:27)
-04. You Don't Need a God (03:31)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B4268486642F4116D971F8BE77A12782A837D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324280   (427409) от 08.09.2019
-
-VA - Bravo Hits Jesień 2019 (2019) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427409.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Sam Smith - How Do You Sleep_
-02. Ariana Grande & Social House - Boyfriend(   Читать дальше...   )Жанр: PopПродолжительность: 02:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858E0CCB09B6D4067F0E624D86E3EB21C137C094
 ```
 
 https://mybot314.ru/tekegram_catalog/

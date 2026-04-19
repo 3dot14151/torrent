@@ -1,3 +1,32 @@
+###  Публикация: 1119709   (805005) от 29.03.2017
+
+Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный день (Original Soundtrack Recording) (2017) Remastered 2016 [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title Terminator 2 Theme (01:57)
+02. Sarah On The Run (02:33)
+03. Escape From The Hospital (04:36)
+04. Desert Suite (03:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599F7DA1C0FE4B50D09778150BF6ED5C8285500E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120683   (802092) от 31.03.2017
 
 Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -716,35 +745,6 @@ VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:208FB825F5C00E334256B41DC93FDC1435C30043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278573   (768478) от 26.01.2019
-
-Atom Music Audio - Vortex (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mistake [02:33]
-02. In the Dark Rise [02:29]
-03. Vortex [02:05]
-04. Eternity [02:36](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0C7C4E896D58F9D3BF4B6015463AF86D86E7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

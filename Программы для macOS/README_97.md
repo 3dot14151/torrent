@@ -1,3 +1,29 @@
+###  Публикация: 1412728   (415571) от 30.09.2020
+
+JetBrains AppCode 2020.2.3 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415571.jpg" />
+</div>
+
+
+###  Подробнее
+
+AppCode – умная IDE, предназначенная для разработчиков iOS/macOS приложений для устройств Apple, таких как Mac, iPhone и iPad. AppCode содержит полный набор необходимых средств для эффективной и удобной работы с языком Objective-C, Swift, C, C++ и на 100% совместима с Xcode.Тип издания: macOS SoftwareРелиз состоялся: 17.09.2020Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F043F59C44BEE431366467495F5A15D48D7C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412673   (415390) от 30.09.2020
 
 iZotope - RX 8 Audio Editor Advanced STANDALONE, VST, VST3, AAX 8.1.0.544 [En]
@@ -663,32 +689,6 @@ Animated Wallpapers - приложение говорит само за себя
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2933B99A5E8AEBE5BAB220E29E7A815CA2AEE102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573398   (412385) от 31.08.2022
-
-Cisdem Data Recovery 13.7.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem DataRecovery может помочь вам восстановить ценные потерянные данные, такие как: документы, электронные письма, видео, музыка, фотографии, потерянные разделы. Программа, предназначенная для восстановления удалённых файлов с жесткого диска Вашего компьютера Mac, внешних дисков, USB drives, SD card, optical media, memory cards, digital cameras, iPods, и т.д. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.08.2020Разработчик: © 2022 Cisdem Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F916833F34F1AC7640B203C3A66C78CAC56A03F
 ```
 
 https://mybot314.ru/tekegram_catalog/

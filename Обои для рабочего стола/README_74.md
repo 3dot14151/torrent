@@ -1,3 +1,29 @@
+###  Публикация: 1189739   (269406) от 07.12.2017
+
+Обои - Desktop Wallpapers Full HD. Part (109) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0486C15B78BB0AD706724DA90B4D4C2F1BEB37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189735   (269344) от 07.12.2017
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (119) [JPG]
@@ -641,32 +667,6 @@ Desktop Wallpapers Full HD. Part (535) [JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D5A04A96FDBE385C6777B45E59A66A7E4DB3F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340454   (263955) от 23.11.2019
-
-Desktop Wallpapers Full HD. Part (538) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806BA79441ED9A71515DF1234CCA33584139BA64
 ```
 
 https://mybot314.ru/tekegram_catalog/

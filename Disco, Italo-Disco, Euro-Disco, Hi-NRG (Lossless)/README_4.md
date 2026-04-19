@@ -1,3 +1,148 @@
+###  Публикация: 1362637   (948317) от 24.02.2020
+
+Frank Lozano - The Album (2018) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948317.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Fotonovela 5:56
+2 Las Manos Quietas 5:08
+3 Vuela Vuela (Classic Mix) 4:17
+4 I Wanna Fly 3:44(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751D43C883C1EB9AC65515BF47168BD033EFA183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090339   (947442) от 06.01.2017
+
+JohnnyM5 - Fantasy Of Love (Extended & Remixed) (2009) [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night (For You & Me) (Extended Version) (6:40)
+02. Take The Heat (Extended Mix) (6:08)
+03. Fantasy Of Love (Maxi Version) (5:08)
+04. Give Me Your Love (Obsession Remix) (3:52)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Hi-NRGФормат: CD, AlbumПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F506D3B62DD719E9F1EC1FC23DAF18C51DC7D502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751137   (946404) от 30.01.2014
+
+C.C. Catch - Maxi Hit-Sensation: Nonstop DJ-Mix+Extra Bass (2006) [FLAC|Lossless]<Disco, Euro House, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soul Suvivor (Long Version)   (4:58)
+02.  Midnight Gambler (Long Version)   (4:11)
+03.  Back Seat Of Your Cadillac (Extended Version)   (4:35)
+04.  Good Guys Only Win In Movies (Maxi-Version)   (4:40)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8072CCB58BA46E6CDDF92FF265F8087C88FC3863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 88838   (944941) от 26.02.2020
+
+Chilly - Showbiz (1980) [FLAC|951 Kbps]<Pop/Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's No Business Like Showbusiness (0:20)
+02. Showbiz (1:39)
+03. Rock'N'Roll Sally (2:32)
+04. Taxman (3:17)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A79599E88E86ED8CF9BD08D4F2E4BCEEE78950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363294   (943761) от 27.02.2020
+
+Do Piano - Again & Forever (2009) [FLAC|Lossless|image + .cue] <Italo-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Again (Single Version) (4:43)
+02. All The Time (Single Version) (4:34)
+03. This Angel (Single Version) (4:15)
+04. Encore (Single Version) (4:44)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E577D7ECBE8FC28584ED82A8D657609B90C080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363798   (940572) от 29.02.2020
 
 Modern Talking - Let's Talk About Love (1985) [FLAC|Lossless]<Disco>
@@ -601,151 +746,6 @@ Dee D. Jackson - Space And Time (2010) [FLAC|Lossless]<Disco>
 ###  Подробнее
 
 Жанр: DiscoПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992701   (898862) от 03.03.2016
-
-Ottawan - All Gold Of The World (2004) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.I.S.C.O. (English Maxi Version) (5:01)
-02. You're O.K. (5:15)
-03. Hands Up (Give Me Your Heart) (4:52)
-04. Crazy Music (5:31)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461CB344D8E5B82F955C544A119DE01F85D6BC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491529   (898842) от 01.09.2021
-
-MFSB - Philadelphia Freedom & Summertime   (2010)  2CD [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Picnic In The Park (04:16)
-02. Summertime (04:54)
-03. Plenty Good Lovin' (04:35)
-04. Sunnin' And Funnin' (04:17)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A7F2A87D5E024066ED8930D8B236BE35178EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992979   (898586) от 03.03.2016
-
-Gazebo - The Collection (1998) [FLAC|Lossless|tracks + .cue] <talo-Disco, Electro, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telephone Mama (5:44)
-02. Strategy (3:40)
-03. Solitaire (4:34)
-04. For Anita (5:56)(   Читать дальше...   )Жанр: Italo-Disco, Electro, Synth-popПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9317BD5696971B8133D176DA11740FE4839E92E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100922   (897504) от 05.02.2017
-
-Digital Emotion - Digital Emotion & Outside In The Dark (1984-1986) Compilation, 2002, Break Records [FLAC|Lossless|image + .cue] <Italo-Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up, Action [4:44]
- 02. Go Go Yellow Screen [6:01]
- 03. The Beauty & The Beast [5:06]
- 04. Don't Stop [4:38](   Читать дальше...   )Жанр: Italo-Disco, ElectroПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68A9B58C9EC03E0F32088F3BB899174FBB8B773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294605   (897416) от 12.02.2011
-
-Chilly - Ultimate Collection  Non-Stop (2010) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine Of Your Love :: 6:29
-02. Play Me A Classic Symphony :: 2:54
-03. We Are The Popkings :: 4:02
-04. Doll Queen :: 2:26(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:20:04
 
 ## Скачать торент
 ```bash

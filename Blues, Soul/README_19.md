@@ -1,3 +1,32 @@
+###  Публикация: 915184   (595202) от 04.07.2015
+
+Dane Phillip Smith - I'll Carry On (2015) [MP3|320 кб/с]<Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovers Curse (4:40)
+02. Without You (5:24)
+03. Walk With Me (3:17)
+04. Blues That's All (6:28)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14872F41E692ADC3DB865434D2F6F9362C448F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914932   (595147) от 04.07.2015
 
 The Betty Fox Band - Slow Burn (2015) [MP3|320 кб/с]<Funky Blues>
@@ -716,35 +745,6 @@ Big James And The Chicago Playboys - The Big Payback (2012) [MP3|320 кб/с]<Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CFFABAAFB4CC513BB9653297C99FEC02F00399C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918914   (584881) от 17.07.2015
-
-Maria Muldaur - Meet Me At Midnight (1994), Reissue/2005, Shout! Factory LLC/ [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble With My Lover (03:28)
-02. Meet Me At Midnight (04:03)
-03. Send The Man Back Home (05:09)
-04. Sweet Simple Love (03:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206DD942DE18649338BDC997A27E516C3918358B
 ```
 
 https://mybot314.ru/tekegram_catalog/

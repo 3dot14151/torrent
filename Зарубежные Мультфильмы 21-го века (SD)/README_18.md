@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_731338.jpg" />
 </div>
 
 

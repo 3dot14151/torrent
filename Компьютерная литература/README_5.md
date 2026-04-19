@@ -1,9 +1,195 @@
+###  Публикация: 1852640   (1055892) от 08.02.2026
+
+Yvonne Wilson, Abhishek Hingnikar | Solving Identity Management in Modern Applications. Demystifying OAuth 2, OpenID Connect, and SAML 2. Second Edition (2023) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Know how to design and use identity management to protect your application and the data it manages.
+
+At a time when security breaches result in increasingly onerous penalties, it is paramount that application developers and owners understand identity management and the value it provides when building applications. This book takes you from account provisioning to (   Читать дальше...   )Жанр: Computer Network Security, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B01171A6B504862A2F4FAD6B191EE44FF09F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852635   (1055891) от 08.02.2026
+
+Jeremy Gibson Bond | Introduction to Game Design, Prototyping, and Development. From Concept to Playable Game with Unity and C#. 3rd Edition (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn All the Design & Development Skills You Need to Make Great Games with Unity, the World's Most Popular Professional Game Engine
+
+If you want to design and develop games, there is no substitute for strong, hands-on experience with modern techniques and tools. That is exactly what this book provides. Leading instructor and indie game developer Jeremy Gibson (   Читать дальше...   )Жанр: Computer & Video Game Design, Game Programming, Computer Graphics & DesignЯзык: АнглийскийИздательство: Addison-Wesley ProfessionalФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF72CB7A2D285B7CE6E42AAB2887B5CF5E2A906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852634   (1055890) от 08.02.2026
+
+Milecia McGregor | Full Stack JavaScript Strategies. The Hidden Parts Every Mid-Level Developer Needs to Know. 1st Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055890.jpg" />
+</div>
+
+
+###  Подробнее
+
+As a working software developer, you know how to complete your tasks with solid code, whether it's on the frontend or backend. Now you're ready to move to the next level in your career, and you need to understand the subtle yet deep skills it takes to become a senior developer. This practical book shows you everything it takes to create a full-stack web application (   Читать дальше...   )Жанр: Web Services, JavaScript Programming, Computer Systems Analysis & DesignЯзык: АнглийскийИздательство: O’ReillyФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AC2F53BBE625FF3503F36DE5B8D48BBA5B6249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852631   (1055889) от 08.02.2026
+
+Oswald Campesato | Transformer, BERT, and GPT. Including ChatGPT and Prompt Engineering (MLI Generative AI Series). 1st Edition (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055889.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book provides a comprehensive group of topics covering the details of the Transformer architecture, BERT models, and the GPT series, including GPT-3 and GPT-4. Spanning across ten chapters, it begins with foundational concepts such as the attention mechanism, then tokenization techniques, explores the nuances of Transformer and BERT architectures, and culminates (   Читать дальше...   )Жанр: Artificial Intelligence, Artificial Intelligence Expert Systems, Natural Language ProcessingЯзык: АнглийскийИздательство: Mercury Learning and InformationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A473EFBA5DFEB0273BAB63C8390EFAFFBCCA79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852624   (1055887) от 08.02.2026
+
+Sergio Pereira | Generative AI for Software Development. Building Software Faster and More Effectively (2025) [EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055887.jpg" />
+</div>
+
+
+###  Подробнее
+
+How does Generative AI impact software development? In this practical guide, author Sergio Pereira shows you how to use this new technology to write better code in a fraction of the time. You'll learn how to leverage Generative AI at each step of a software feature's lifecycle, from brainstorming implementation ideas to writing and testing code to releasing features (   Читать дальше...   )Жанр: C & C++ Programming, Programming LanguagesЯзык: АнглийскийИздательство: O’ReillyФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0759FA1936A9649D0B0C42C7875638CD27EF6921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851451   (1055879) от 06.02.2026
+
+Дмитрий Кетов | Внутреннее устройство Linux, 3-е издание (2024) [PDF] [RU]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055879.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 3-м издании описаны механизмы принудительного разграничения доступа и контроля целостности, уникальные для российского защищенного дистрибутива Astra Linux и операционных систем в целом.  Учтены последние изменения в компонентах ОС и обновлены листинги примеров. Расширена глава про сетевую подсистему, добавлена глава по современным средствам трассировки, измерения (   Читать дальше...   )Жанр: Компьютеры и программыЯзык: РусскийИздательство: БХВФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87397BBB729AA1C91988815271F35071E25FF95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852324   (1055816) от 07.02.2026
+
+А.В. Кондратьев | Разработка Telegram-ботов на Python с нуля (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены практические подходы к созданию Telegram-ботов на языке Python с использованием фреймворка aiogram. Подробно описаны этапы разработки — от установки фреймворка и запуска бота до сложных сценариев взаимодействия с пользователем. Даны рекомендации по безопасному хранению токенов и других данных. Рассмотрены обработка сообщений, команд и аргументов, форматирование (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6105F1F27EDDAF8F55F0A255C3BBB9A71DD873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851582   (1055452) от 04.02.2026
 
 Neelam Koshiya, Jing Ning | AWS Solutions Architect - Associate Certification Guide: A comprehensive guide from AWS Solutions Architect - Associate certification to real-world applications (English ...
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055452.jpg" />
@@ -29,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 А. Аминиан, Х. Шенг | System Design. Подготовка к сложному интервью по GenAI (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055451.jpg" />
@@ -56,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 Виктор Николаевич Шитов | С++ для начинающих (2025) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055450.jpg" />
@@ -82,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 Chad Sanderson, Mark Freeman, B. E. Schmidt | Data Contracts. Developing Production-Grade Pipelines at Scale. 1st Edition (2026) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055449.jpg" />
@@ -108,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 Nathaniel Schutta, Dan Vega | Fundamentals of Software Engineering. From Coder to Engineer. 1st Edition (2026) [EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055249.jpg" />
@@ -136,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 David Pine | Learning Blazor. Build Single-Page Apps with WebAssembly and C#. 1st Edition (2023) [PDF, EPUB, MOBI] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055248.jpg" />
@@ -164,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 Kevin Moore | Mastering Flutter. Learn to develop Flutter apps for iOS, Android, desktop and web (English Edition) (2025) [EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055247.jpg" />
@@ -190,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 Чип Хьюен | AI-инженерия. Построение приложений с использованием базовых моделей (2026) [PDF]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055246.jpg" />
@@ -216,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 Ronald Mak | Software Design for Python Programmers. Principles and patterns (2026) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055245.jpg" />
@@ -244,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 Katya Gorshkova | Kafka for Architects. Event-driven architecture, logs, microservices, real-time event processing (2026) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055244.jpg" />
@@ -272,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 Justin Mitchel | Road to Kubernetes (2024) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055243.jpg" />
@@ -298,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 Jay Borthen | Building Data Integration Solutions. Unifying Data for Enhanced Decision Making. 1st Edition (2026) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055242.jpg" />
@@ -324,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 Hyen Seuk Jeong | Observability For Legacy Systems. Methods and Solutions with OpenTelemetry and AIOps. First Edition (2025) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055241.jpg" />
@@ -350,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 Kimiko Lee | Terraform for Developers. Essentials of Infrastructure Automation and Provisioning (2023) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055240.jpg" />
@@ -376,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 Scott Tilley | Systems Analysis & Design. 13th Edition (2025) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055235.jpg" />
@@ -402,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 Fabrizio Espindola | The Godot Shaders Bible [2 книги] (2025-2026) [PDF] [EN, ES]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055234.jpg" />
@@ -454,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 Chrissy LeMaire, Brandon Abshire | AI for Everyday IT. Accelerate workplace productivity (2025) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055089.jpg" />
@@ -482,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 Ю. Недре, А. Базанов | S(crum)-Light. Понятный путь управления проектами (2023) [PDF, EPUB]
 
 >>Компьютерная литература
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055088.jpg" />
@@ -496,196 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:236DD085FEF0DBE13240BCDC7ADF5B5914E67893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851155   (1055087) от 01.02.2026
-
-Лао Альфред | Это не бред, это Чат! Как говорить с ИИ, получая и результат, и удовольствие (2025) [PDF, FB2, EPUB]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мануал нового поколения в формате бизнес-эссе, для продвинутых и начинающих.
-30 небольших глав, читающихся на одном дыхании.
-Эта книга не с готовыми промптами, а с методологией «на блюдечке».
-Почти в каждой главе примеры и упражнения.(   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A5110E5DCA9596ED4F6C878C5286EE3334C578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851156   (1055086) от 01.02.2026
-
-Дэниел Джексон | Концепции дизайна. Как проектировать ПО, которое работает (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему так много программ остаются несовершенными? Почему до сих пор не существует системного и масштабируемого подхода к созданию удобного, надежного и безопасного ПО?
-Познакомьтесь с нестандартным подходом к проектированию ПО, который построен на концепциях. Дэниел Джексон доказывает, что любую программную систему следует рассматривать как набор взаимодействующих (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF07DCE72A5EEB6F654C22DF3E2996A52DA7F590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851162   (1055084) от 01.02.2026
-
-Андрей Верин | Диалоги с ИИ. Путеводитель по искусственному интеллекту (2024) [PDF, EPUB]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто лучше самого себя может рассказать о себе? Конечно, никто. Поэтому этот мир искусственного интеллекта был написан самостоятельно ИИ. Откройте для себя, как ИИ книга формирует нашу повседневную жизнь, работу и общество. От этих дилемм до прогнозов на будущее — эта книга предлагает глубокий анализ и практические примеры, помогающие каждому понять и научиться взаимодействовать (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700C1427F2C3CC96CDE82FEEF245A96F7B0BD66B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851180   (1055082) от 01.02.2026
-
-Peter von Oven | Learning VMware Workstation for Windows. Implementing and Managing VMware’s Desktop Hypervisor Solution. Volume 1 and 2 [2 книги] (2023-2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master VMware Workstation to create and run virtual machines, containers, and Kubernetes clusters simultaneously on physical devices without having to reformat or dual boot the underlying device. This book provides a practical, step-by-step guide to creating and managing virtual machines using VMware Workstation, a software solution that provides a type-2 hypervisor, (   Читать дальше...   )Жанр: Cloud Computing, Software Development, Operating SystemsЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B7731223C966BC473A4E3ED66FDEA3394BAA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851183   (1055081) от 01.02.2026
-
-М.В. Новосадова | Справочник IТ-терминов (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены основные IТ-термины в области разработки, тестирования, системного администрирования, облачных вычислений.
-Для начинающих IТ-рекрутеров и всех, кто интересуется информационными технологиями.Жанр: Компьютерная литератураИздательство: Инфра-ИнженерияФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E058649F9B5EB077582FE6C4CC9F39223E3227EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851184   (1055080) от 01.02.2026
-
-Натан Козыра, Мэтт Батчер, Мэтт Фарина | Go на практике. 2-е изд. (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итак, вы освоили азы Go, что дальше? Чтобы создавать надежные и готовые к использованию Go-приложения, вам нужно научиться реализовывать конкурентность, налаживать сетевые взаимодействия, получать доступ к файлам, использовать такие нативные протоколы передачи данных, как gRPC и TCP/REST, а также разбираться во множестве практических нюансов. В этой книге приводятся (   Читать дальше...   )Жанр: Компьютерная литература, Веб-программирование,  Язык GoИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2C8F11B469259537F5B92852DF97ED35456830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851187   (1055079) от 01.02.2026
-
-Dan Gookin | Tiny C Projects (2023) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn the big skills of C programming by creating bite-size projects! Work your way through these 15 fun and interesting tiny challenges to master essential C techniques you’ll use in full-size applications.
-In Tiny C Projects you will learn how to:
-Create libraries of functions for handy use and re-use
-Process input through an I/O filter to generate customized output(   Читать дальше...   )Жанр: C Programming Language, Microsoft Programming, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624623BEC6988762DFF2480B92D38DD91084BC69
 ```
 
 https://mybot314.ru/tekegram_catalog/

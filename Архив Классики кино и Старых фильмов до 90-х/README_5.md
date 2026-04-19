@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_827097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_827097.jpg" />
 </div>
 
 

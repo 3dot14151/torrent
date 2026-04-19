@@ -1,23 +1,24 @@
-###  Публикация: 1049138   (544547) от 04.09.2016
+###  Публикация: 1236795   (550375) от 25.07.2018
 
-Векторный клипарт - Bright backgrounds [AI]
+Сайонара / Sayonara (1957) BDRemux [H.264/1080p]
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 фонов в векторе. Многие оценят их по достоинству.
-15 AI | + JPG PreviewФормат: AI
+Экранизация одноимённого романа Джеймса Миченера.
+Майор Ллойд Грувер служит на японской военно-воздушной базе в разгар войны в Корее. Грувер видит проявления расизма со стороны американских военных по отношению к японцам: военнослужащим запрещают жениться на японках.
+Будучи первое время равнодушен к такой ситуации, Грувер вынужден изменить свою позицию, когда его (   Читать дальше...   )Производство: США / Pennebaker Productions, William Goetz ProductionsЖанр: Драма, МелодрамаРежиссер: Джошуа ЛоганАктеры: Марлон Брандо, Патриция Оуэнс, Ред Баттонс, Миико Така, Рикардо Монтальбан, Марта Скотт, Миёси Умеки, Джеймс Гарнер, Кент Смит, Дугласс Уотсон, Рейко КубаПеревод: Многоголосый закадровыйСубтитры: Русские, английские (SDH)Продолжительность: 02:27:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33882F9CF2995C4D50F33397B52009AC2A917554
+magnet:?xt=urn:btih:4E112FC5E3DC489495E6688DE9C2CED5463B98AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,240 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049332   (544546) от 04.09.2016
+###  Публикация: 1047287   (550374) от 29.08.2016
 
-Проекты - VideoHive - Animated Badges - 8654881 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания 80+ высоко качественных анимированных значков, что улучшит ваш рабочий процесс, и придаст им особый колорит.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0B0D41DE27E0A7B10D0EAFFB8EDB6233818B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016738   (544544) от 04.09.2016
-
-Aokana | Four Rhythm Across the Blue | Ao no Kanata no Four Rhythm | Четыре ритма сквозь синеву: За небо, в небосвод [2016, TV, 12 эп.] BDrip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди все-таки научились летать – правда, без крыльев, с помощью гравиботинок. В больших городах полеты ограничены, а вот в глубинке и на далеких островах – сколько угодно. Именно на такие острова, родину отца, приезжает Асука Курасина – и тут же влюбляется в небо и воздушный спорт под названием «летающий цирк». Ее инструктором по воле судьбы и мудрого учителя Кагами (   Читать дальше...   )Производство: студия Gonzo DigimationЖанр: приключенияРежиссер: Ойдзаки ФумитосиПеревод: Dreamers TeamЯзык субтитров: РусскийПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FFBF97DFADE4EE74FD2E5C0C4DC44C60364906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434948   (544543) от 04.09.2016
-
-Доброта (1977) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544543.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам повести Семена Ласкина «Абсолютный слух».
-Учительница литературы Мария Николаевна Струженцова считает, что основой воспитания учащихся должна быть Доброта в самом высоком понимании этого слова. Найти путь к сердцу, разбудить совесть — вот что, по ее мнению, главное. Позиция директора школы Леонида Павловича Прохоренко была иной. Придя в школу в момент, (   Читать дальше...   )Жанр: Детский, семейный, драмаРежиссер: Эдуард ГавриловАктеры: Тамара Семина, Леонид Неведомский, Николай Константинов, Владимир Звягин, Андрей Гусев, Алла Покровская, Валентина Сперантова, Николай Парфенов, Александр Вокач, Дмитрий Замулин, Людмила Мухина, Сергей НовиковПродолжительность: 01:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C221256D4D7E7EB741A39D552FECB1649116E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049027   (544542) от 04.09.2016
-
-Zack Hemsey - (Discography) (2006-2014) [FLAC|Lossless|WEB-DL|tracks]<Instrumental, Hip Hop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental, Hip Hop •Продолжительность: 10:12:29 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F001C7445840BA01DED9BFB9035CFBD1B8FD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049335   (544540) от 04.09.2016
-
-Экшены - GraphicRiver - Animated Smoke Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Animated Smoke - добавляет на фото удивительный и реалистичный эффект дыма. Вы можете добавить статический дым, и затем  этот дым анимировать. Отлично работает с любой фотографией.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19CF87EC4925ED83672CD8D8E7D6297190D690F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310944   (544538) от 27.06.2019
-
-Weeping Willows - After Us (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, Alternative country>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butterfly
-02. Let Go
-03. Save Us From Ourselves
-04. I Travel With You(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Alternative countryПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8C5E8967558F2731FBF91E07A6008EC8054102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310966   (544537) от 27.06.2019
-
-VA - Mellow Gold: 70s Classics (2019) [MP3|320 Kbps] <Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bread – If
-02. Seals and Crofts – Hummingbird
-03. America – Muskrat Love
-04. Gerry Rafferty – Look at the Moon(   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 01:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0428220E97F5D539B094CAD7A8524FE3AE881C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310720   (544536) от 27.06.2019
-
-Растровый клипарт - Delightful dahlias closeup [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восхитительные георгины крупным планомФормат: JPGРазрешение файлов: 3080x5472-5472x3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90098B34ECB69F40E1C54FB1CEF6C6AE7B4EFBEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310936   (544535) от 27.06.2019
-
-Glary Utilities Pro 5.122.0.147 RePack (& Portable) by TryRooM [Multi/Ru]
+Футбол. Чемпионат Испании 2016-2017. 2-й тур. Атлетик (Бильбао) - Барселона (28.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [RU/EN]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+28 августа 2016, воскресенье. 21:15 МСК
+2-й тур
+
+Стадион: Сан-Мамес (Бильбао, Испания) , 46 635 зрителей (87 % при вместимости 53 332)(   Читать дальше...   )Телекомпания: Сетанта Спорт Евразия HDЖанр: СпортЯзык озвучки: Русский / АнглийскийПродолжительность: 01:43:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCCA56D56617DA129000598BF47267A808A265B1
+magnet:?xt=urn:btih:8B1582682D3AA214C83558A590AE6802C3592796
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -266,28 +55,433 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310946   (544534) от 27.06.2019
+###  Публикация: 1047446   (550373) от 29.08.2016
 
-Denzel Curry - ZUU (2019) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-Hop>
+VA - Amalfi Coast Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda - Hang Out Time (06:45)
+02. Enrico Donner - Prefabricated Dreams (06:47)
+03. Don Gorda Project - Feeling Free (05:44)
+04. Cane Garden Quartet - Ageless (05:53)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A099D1A73277C17C9B06D5B78B84C95E7D93D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047259   (550372) от 29.08.2016
+
+Футбол. Чемпионат Англии 2016-2017. 3-й тур. Вест Бромвич - Мидлсбро (28.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550372.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 августа 2016, воскресенье. 15:30 МСК
+3-й тур
+
+Стадион: Хоуторнс (Вест Бромвич, Англия) , 23 690 зрителей (85 % при вместимости 28 003)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Елагин)Продолжительность: 01:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA2C1AE208CE30BF1C189C4077FCAC326467DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047191   (550371) от 29.08.2016
+
+Летний биатлон. Чемпионат мира 2016. Отепя (Эстония). Мужчины. Спринт 10 км (27.08.2016) WEB-DL [H.264/576p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550371.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 августа 2016, суббота. 11:30 МСК
+Чемпионат мира по летнему биатлону 2016. Отепя (Эстония).
+ Мужчины. Спринт 10 кмТелекомпания: Матч! Наш спортЖанр: СпортЯзык озвучки: Русский (Руслан Гатауллин)Продолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3139D8ADA51A8A03CB5AEE8A527D02F316695AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047143   (550370) от 29.08.2016
+
+VA - Satin Lounge Vol.1 (2015) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zuco 103 - Outro Lado
+02. Five Seasons - Guapo
+03. Frank Popp Ensemble - Just Say Goodbye
+04. Chin Chillaz - Trinity(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8CF773EB4F8A4E692F5F5298E7DB08C4ECB895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047170   (550369) от 29.08.2016
+
+VA - Ibiza Dreams, Vol. 1 (Finest Island Chill Out Mix) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gods Blue Chest - Floating (Beach Mix) (6:04)
+02. Roberto Sol, Florito - Tomorrow (4:50)
+03. Naoki Kenji - Tsunami (6:24)
+04. Peter Pearson - Always In My Dream (5:41)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA121800D65C30B480EC1BBF7E2999E49995D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047265   (550368) от 29.08.2016
+
+Jack McDuff - The Soulful Drums (1964, 1965) 2001, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Soulful Drums [06:10]
+ 02.Two Bass Hit [07:17]
+ 03.Greasy Drums [05:39]
+ 04.Moohah The D.J. [07:30](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA514626976B10DEED50CA202690AB7E20C4DBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047189   (550367) от 29.08.2016
+
+VA - Play Emotions Vol.2 Sweet Company Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GYSNOIZE - Same Love (04:01)
+02. Gabrielle Chiararo - Tango а Rouen (04:33)
+03. Edo - Illusion (04:01)
+04. Gabrielle Chiararo - Rien а faire pour moi (05:01)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9E32F6611DEE7923E761085019600A0B809A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047181   (550366) от 29.08.2016
+
+VA - The Sweet Lounge Vol.8 (Lounge in Capri) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koel - Emotions on the Keys (4:52)
+02. Viktor (UA) - We Are in Two (3:34)
+03. Giacomo Bondi - About a Bird Radio Edit (Full Mix) (4:13)
+04. Giacomo Bondi - Bola e samba no pe (Full Mix) (4:22)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EA36B5D7B284E117A25BF6D26B6D752FD7167C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047415   (550365) от 29.08.2016
+
+VA - Ibiza Musica Relajante (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight74 - Full Strings (3:36)
+02. Angel Spirit - Changing Spaces (3:49)
+03. Steve Sweet Peace - Rampant Ghost (3:49)
+04. Karim Le Mec - Happy Hour (3:25)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66343D4398F1B5FAC706995D784CA209DA2A56B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047214   (550364) от 29.08.2016
+
+Steve Hunt - From Your Heart And Your Soul (1997) [WavPack|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550364.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One Thing After Another (4:05)
+2. Point Of Light (6:23)
+3. Wake Up (6:24)
+4. Coming Home (8:25)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075CEDA3AD8EEEEC33220461A08BD763B74B8BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047029   (550363) от 29.08.2016
+
+Toots Thielemans - The Soul of Toots Thielemans (1959) 2010, FSR [FLAC|Lossless|tracks + .cue] <Bop, Contemporary Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are My Sunshine  05:17
+02. Nuages  05:24
+03. Five O'clock Whistle  04:37
+04. Soul  04:56(   Читать дальше...   )Жанр: Bop, Contemporary Jazz, Mainstream JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D603A74ACA8FDC40D9892DB875D917B9AF2542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047188   (550362) от 29.08.2016
+
+VA - Play Emotions Vol.1 Beyond the Imagination Chill Out (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Tayla - Amazon Moon
+02. Rainbow From Rain - Deep Sea Emotions
+03. Valefim Planet - Infinity - Original Mix
+04. Valefim Planet - Morning Forest(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45FA29B77BB07D6FBCD6A5A6C316D5533F49BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046838   (550361) от 29.08.2016
+
+Sadao Watanabe - Orange Express (1981) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Orange Express [04:39]
+ 02.Ride On [04:42]
+ 03.Call Me [05:08]
+ 04.Good For All Night [06:36](   Читать дальше...   )Жанр: Post-Bop, Crossover JazzПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BAE24336F6E05129DE9B02F2872C87AC56F1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047190   (550360) от 29.08.2016
+
+VA - Play Emotions Vol.3 Lounge and Chill Sweet Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Strangio - Weather Watch (Underscore) (01:04)
+02. St Project - Open Wings (04:01)
+03. Giacomo Bondi - Across My Mind (05:55)
+04. Nemax - Saudade do Brazil (01:59)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41AC9D2F9341E5BC6AA79AD811110D17C5D1AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047204   (550359) от 29.08.2016
+
+VA - Ferry Corsten presents Corsten's Countdown  August (2016) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ZUU (2:06)
-02. Ricky (2:28)
-03. Wish (feat. Kiddo Marv) (3:12)
-04. Birdz (feat. Rick Ross) (3:24)(   Читать дальше...   )Производство: Loma Vista Recordings - 888072111769Жанр: Rap, Hip-HopПродолжительность: 00:29:07
+01 Arty & Andrew Bayer - Follow The Light (06:46)
+02 Pierre Pienaar - Novus Vitae (Original Mix) (06:29)
+03 Rex Mundi - Skybe (Original Mix) (06:30)
+04 Sied Van Riel & Mike Sanders - Geyser (Original (07:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:147B83A9E3E163F1C04E7C04F57E89AD66DCB76D
+magnet:?xt=urn:btih:A7DA6FBA3E7596A84B415CF23F237D03D087EA17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,25 +489,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310731   (544533) от 27.06.2019
+###  Публикация: 1046678   (550358) от 29.08.2016
 
-Растровый клипарт - Altonaer Volkspark - dahlias [JPG]
+С. Б. Ингулов | Политбеседы (1937) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Георгины, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5472x3080
+Коммунистические партии должны добиваться установления широчайшего единого фронта при помощи совместных действий рабочих организаций различных направлений для борьбы против войны, для защиты жизненных интересов трудящихся масс. Необходимо вовлечь в эту борьбу все организации, ставящие себе целью борьбу за мир.
+
+Коммунистические партии должны бороться против подготовки (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D9B4FAF279D0DEFF2C484C8C53BB30C3EA59266
+magnet:?xt=urn:btih:9A9D6DE85244CB3606E9A650980FADBB9E85A1BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,28 +517,114 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311024   (544532) от 27.06.2019
+###  Публикация: 1047346   (550357) от 29.08.2016
 
-Budka Suflera - Zlote Przeboje (Unknown) [FLAC|Lossless|image + .cue] <Pop Rock>
+Nadiamori - Nadiamori Electro Jazz (2005) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lounge, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nadiamori (04:30)
+02. Drum'n Blues (04:50)
+03. Money Back Guarant... (05:26)
+04. Free In Love (04:58)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Electro SwingПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A8C059F13CFCD4A66527C3ED7EEAEEEB49F8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047192   (550356) от 29.08.2016
+
+Летний биатлон. Чемпионат мира 2016. Отепя (Эстония). Женщины. Спринт 7,5 км (27.08.2016) WEB-DL [H.264/576p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550356.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 августа 2016, суббота. 14:00 МСК
+Чемпионат мира по летнему биатлону 2016. Отепя (Эстония)
+Женщины. Спринт 7,5 кмТелекомпания: Матч! Наш спортЖанр: СпортЯзык озвучки: Русский (Руслан Гатауллин)Продолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B239AFB50208ABF9A5659418A46F2CC86A445B41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046873   (550355) от 29.08.2016
+
+Jim Suhler and Monkey Beat - Radio Mojo (1993) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Were You When the Lights Went Outї  02:50
+02. Doncha Hang Around My Door  04:30
+03. Radio Mojo  03:31
+04. Devil's Hand  03:40(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D59506DDF3F3745F2AFEEC43B3DF1B1863C237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309528   (550354) от 20.06.2019
+
+VA - Easy Guitar (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Twoje radio (5:16)
-02. Ona przyszla prosto z chmur (4:36)
-03. Samotny noca (3:00)
-04. Martwe morze (4:42)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:19:00
+01. Jason Castro - Learning To Fly (Acoustic Version) 4:35
+02. Alanis Morissette - Hand In My Pocket (Acoustic Version) 4:31
+03. Stone Sour - Wicked Game (Live Acoustic) 4:27
+04. Tyler Hilton - Missing You (Acoustic Version) 3:20(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 01:35:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02B57C3B8F82DA97E197167076170ADD3303DC60
+magnet:?xt=urn:btih:EB705E66E42831CF6E31444C8E2D37C881E972DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,25 +632,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311058   (544531) от 27.06.2019
+###  Публикация: 1309588   (550353) от 20.06.2019
 
-PDF Shaper Professional 9.1 RePack (& Portable) by TryRooM [Ru/En]
+VA - Night Dreams (2019) [MP3|320 Kbps] <House>
 
->>Архив торрентов
->>Архив Программ
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для работы с PDF-документами, которая предоставляет коллекцию инструментов и утилит для модификации и оптимизации PDF-файлов и их содержимого. Благодаря этой программе вы сможете легко разделять и объединять PDF-документы, извлекать тексты и графику из PDF-файлов, шифровать/расшифровывать документ при помощи пароля, изменять права пользователя, конвертировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+001. Bross (Ro) - I Hear The Drums
+002. Aava - Makes Me Cry
+003. Enduro Disco - Would Change All
+004. Djcybertsai - Expansive (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 12:59:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:936A0DA63CA4FF4CB177953F95849A67F4BE001E
+magnet:?xt=urn:btih:069FE67839BF16FAD1BA8230ABA68C79A19A0AD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,81 +661,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311060   (544530) от 27.06.2019
+###  Публикация: 1309578   (550352) от 20.06.2019
 
-Журнал | Ирэн №4 (2019) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый в России журнал, посвященный французской вязаной моде, представленной уникальными разработками французских модельеров и дизайнеров, а также производителей пряжи. Каждый номер демонстрирует эксклюзивную коллекцию вязаной одежды для каждого сезона, выполненную из высококачественной элитной пряжи. Силуэты элегантны, детали точны. Все модели, публикуемые в журнале (   Читать дальше...   )Жанр: вязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A350C0D927AC88E2EA8A9AC38EEFCA8720D45B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310854   (544529) от 27.06.2019
-
-М. А. Москалев и др. (сост.) | И. В. Сталин в сибирской ссылке (1942) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544529.jpg" />
-</div>
-
-
-###  Подробнее
-
-В историю большевистской партии вписано много ярких страниц о руководстве революционным рабочим движением великого соратника и продолжателя дела Ленина — Иосифа Виссарионовича Сталина.
-
-В данной небольшой монографии „И. В. Сталин в сибирской ссылке“ невозможно осветить всю сумму вопросов, связанных с огромной творческой теоретической работой, многогранной революционной (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604AF238BF82964E8F3263CFB558C58C35611221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310592   (544527) от 27.06.2019
-
-Векторный клипарт - Vector Fruits Collection #28 [AI]
+Векторный клипарт - Vector Sport Collection #39 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550352.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Фрукты
+Спорт
 50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:305D51D3853BF77C0EC895512730E0549913CBAA
+magnet:?xt=urn:btih:0E0E918431B3F3F3F57AE851C1F387BAE1179629
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,193 +689,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310779   (544526) от 27.06.2019
+###  Публикация: 1309576   (550351) от 20.06.2019
 
-студия Диафильм | Бармалей (1989) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известное произведение про ужасного Бармалея и маленьких детей. Когда родители уснули, Таня и Ваня не послушали их советов и убежали в Африку. Там они оседлали носорога, со слоном поиграли в чехарду, пощекотали бегемота. Но бегемоту их шутки не понравились, и он позвал Бармалея. Злой разбойник хотел съесть детей. Но к ним на подмогу пришел доктор Айболит…Жанр: Диафильм, Стихи и басниФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E797469691C2C094BA06EF49120C980D7ADDFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310958   (544525) от 27.06.2019
-
-Devil's County - Whisky Tango Foxtrot (2019) [MP3|320 Kbps] <Southern, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One More 3:37
-02. Hardwood Floors 4:30
-03. More Than Me 3:05
-04. Tomorrow 4:52(   Читать дальше...   )Жанр: Southern, Hard Rock, Blues RockПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5362F7A175568F5E71B9D5C829FF1B3B609590D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311105   (544524) от 27.06.2019
-
-Журнал | Автомир [Россия] №27 (июнь 2019) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544524.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
-Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B31199FB92B0721E3D81FCFED910F3F51E89133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311031   (544523) от 27.06.2019
-
-Bandizip 6.24 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandizip — это быстрая и надежная программа, которая поддерживает работу с форматами WinZip, 7-Zip, и WinRAR, и другими аналогичными архивами. Она использует очень быстрый алгоритм для сжатия и распаковки архивов, высокую скорость архивации, поддержку функции Drag and Drop (перетаскивания) и функцию мультисжатия.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772DCF759D7A119647CC4C0BD4B9FB1C2FE7655F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310997   (544522) от 27.06.2019
-
-Chocolat's - 3 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chocolat's - музыкальная группа тропических и Карибских жанров, образованная французами и бельгийцами.Список альбомов:
-1977 - Baby, Let's Do It The French Way Cubanita
-1977 - Kings Of Clubs
-1979 - Senorita Por Favor(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215AB13E1E8471A2BAC845352F7ACA0CB33D7A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311054   (544521) от 27.06.2019
-
-Tony Mills - Beyond The Law (2019) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544521.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Westside [4:12]
- 2. Beyond The Law [4:05]
- 3. Running Guns [4:39]
- 4. F.B.I. [4:18](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378745354B9255BEDAAE84CEEA7744E679A954A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310591   (544520) от 27.06.2019
-
-Векторный клипарт - Vector Fruits Collection #27 [AI]
+Векторный клипарт - Vector Professions #25 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550351.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Фрукты
-25 AI + PreviewФормат: AI
+Профессии
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6F489E892B816FF7C92DFC51BFEED0CD211F8F0
+magnet:?xt=urn:btih:F0CE9E1AB378CA493FB9650AA49AE4AE71C86342
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,57 +717,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311073   (544519) от 27.06.2019
+###  Публикация: 1309639   (550350) от 20.06.2019
 
-Tyler Bryant & The Shakedown - Truth And Lies (2019) [MP3|320 Kbps] <Hard Rock>
+AnyMP4 Video Enhancement 7.2.20 RePack (& Portable) by TryRooM [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shock & Awe (03:12)
-02. On To The Next (02:59)
-03. Ride (03:26)
-04. Shape I’m In (03:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:46
+AnyMP4 Video Enhancement - Видеоредактор для повышения качества. Позволяет изменить разрешение, оптимизировать яркость и контрастность, удалить шумы, а также конвертировать видео. Кроме того, позволяет вращать видео в любых направлениях, редактировать с помощью обрезки кадра, кадрирование, добавление водяных знаков, а также конвертировать видео в 4K H.265/HEVC, 4K (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32DE9A44B2CBC328869E87B9B9A46BA23BAA0807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238779   (544518) от 01.08.2018
-
-Gazebo - Italo by Numbers (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance-pop, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion (3:20)
-02. Give Me One Day (3:49)
-03. Self Control (4:18)
-04. Wait (4:03)(   Читать дальше...   )Жанр: Italo-Disco, Dance-pop, Euro-DiscoПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0058F41F4A3A159DDF35181B2DA9CABD6BA29D70
+magnet:?xt=urn:btih:54A91FEC046ADA6A8AD59D86579EF831AD19EE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

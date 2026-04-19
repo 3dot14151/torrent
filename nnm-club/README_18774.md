@@ -1,25 +1,24 @@
-###  Публикация: 1194110   (261822) от 23.12.2017
+###  Публикация: 1339834   (264581) от 21.11.2019
 
-VA - MNMN FOR HAPPY ANIMALS (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Breaks, Bass Music, Downtempo, Post Rock, Ambient, Synth-pop, Experimental>
+Анна Рэй | Магистр (2019) [FB2]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Art Electronix – Illbimatic (04:32)
-02. Backdoor Beauty – Big Friend (04:22)
-03. Hobotek – Cyberdog Revival (05:07)
-04. InSpectr – Phatramb (06:21)(   Читать дальше...   )Жанр: IDM, Breaks, Bass Music, Downtempo, Post Rock, Ambient, Synth-pop, ExperimentalПродолжительность: 01:53:16
+Второй роман цикла «Факультет магической механики».
+
+Марвел Уэлч вернулась Академию, и теперь ничто не сможет отвлечь ее от изучения магической механики, полетов на дирижаблях и свиданий с любимым деканом. Ничто… кроме новых обязанностей магистра и очередного расследования. Поиск таинственной лаборатории принца Агнуса, безумного ученого и бывшего владельца замка, (   Читать дальше...   )Жанр: Детективная фантастика, Детективное фэнтези, Любовное фэнтезиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D25CB180F307E50AABE6590AAB83CB4D599A31B3
+magnet:?xt=urn:btih:2493B3E483328F2446032766BF867C386CB18CFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,27 +26,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193804   (261821) от 23.12.2017
+###  Публикация: 1338551   (264580) от 21.11.2019
 
-Митрополит Иерофей (Влахос) | Господские праздники (2001) [DJVU]
+Фрэнки-Шоу / Franky-show (2004-2011) [Радиопередача] [m4b|HE-AAC]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Аудио и Видео
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264580.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вниманию читателей предлагается перевод книги одного из известнейших современных греческих богословов, Митрополита Навпакта и Святого Власия Иерофея (Влахоса) "Господские праздники"
-Автор подробно и систематически, с привлечением богатого святоотеческого материала, анализирует богословский и литургический смысл всех двенадцати Господских праздников.
-Примеры (   Читать дальше...   )Жанр: Литургическое богословиеФормат: DJVU
+«Фрэнки-шоу» – игра-мистификация под девизом «Закрой глаза и смотри!».
+Радио «Серебряный Дождь» ведет прямую трансляцию из сумасшедшего дома. В роли Фрэнки – гений, пожелавший остаться неизвестным. Игра проходит в форме биографической викторины. Сумасшедший Фрэнки одержим уникальной формой мании величия. Он каждый раз просыпается в новой роли. Чаще всего роль – историческое (   Читать дальше...   )Тип издания: АудиоспектакльЖанр: Игра-мистификацияФормат: m4b
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9683C3D1DFF8032C9F2F295AFF11CA1D59A524C
+magnet:?xt=urn:btih:2DEECA6C2711685B279AAC63568B67B12110C4C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193885   (261820) от 23.12.2017
+###  Публикация: 1339739   (264579) от 21.11.2019
 
-VA - Euro Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+Присмотри за Сюзи / Gib acht auf Susi! (1968) DVDRip [AVO]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Buckingham Palace  -  Give Me Your Name  3:48
-02.  ZITA  -  Shadow  5:14
-03.  Uffe Soderberg  -  Lady Lady  3:04
-04.  Wayne Scott  -  Rambo  5:27(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:16:12
+На десятилетнем Михи лежит серьезная ответственность. После того как его родители официально развелись, он должен присматривать за своей старшей сестрой Сюзи, которая готова менять поклонников каждый день, ну или почти каждый день. Для Михи и его приятеля лучше проводить время, как свойственно мальчишкам их возраста, например, изготовить порох и применить его. А (   Читать дальше...   )Производство: Германия (ГДР) / Deutscher Fernsehfunk (DFF)Жанр: семейный, комедияРежиссер: Клаус ГендрисАктеры: Дорит Габлер, Лисси Темпельхоф, Йохен Томас, Каспар Эйхель, Ханс-Герд Сонненбург, Фред Ленц, Ronny Mudlaff, Уилли Нарлох, Ирен Фишер, Gaby JähПеревод: Авторский (Юрий Муравский)Субтитры: ОтсутствуютПродолжительность: 01:19:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABADA4B8CF1A84D57DE05E1C92820BBFB5BA4265
+magnet:?xt=urn:btih:88E69B3C2E142C35B54D97DF2FCD17DA8A834166
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193873   (261819) от 23.12.2017
+###  Публикация: 1339897   (264578) от 21.11.2019
 
-VA - Ori Uplift & Darren Porter - Uplifting Only 254 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Hum3D - Honda Valkyrie GL1800C 2015 [Scanline|V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, MB]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.FAN FAVORITE: illitheas - Levity
-02.FAN FAVORITE: Manuel Rocca - Amortentia
-03.Ross Rayer - Dreamer (Greg Dusten Remix) (EXCLUSIVE PREMIERE)
-04.Phynn Feat. Tiff Lacey - Try Again (Arctic Moon Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:10:20
+3d модель мотоцикла марки HondaФормат: Scanline|V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, MB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE4B4FF09F5D2943EEBD4B66A2B942ACE9881730
+magnet:?xt=urn:btih:7E95304ADDFD691E137B950813653971946D2C37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,370 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194089   (261818) от 23.12.2017
+###  Публикация: 1339863   (264577) от 21.11.2019
 
-Konstantin Klashtorni - Smooth Jazz I-IV (2011-2017) 4CD [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Told You (4:02)
-02. Hills and Valleys (4:02)
-03. I Feel It Coming (4:39)
-04. Everywhere I Go (4:07)(   Читать дальше...   )Жанр: Smooth Jazz, Chillout |Продолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B08A95ADAAA319A1581A07E5FE5833BF6B2EE96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193902   (261817) от 23.12.2017
-
-The Auranaut - Divine Ordinance (2012) Power Circle Records [FLAC|Lossless|WEB-DL|tracks] <Breaks, Downtempo, Psybient, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine Ordinance (07:54)
- 02. Highway At Night (08:33)
- 03. Phazey World (07:16)
- 04. Devision Man Made Decision (06:41)(   Читать дальше...   )Жанр: Breaks, Downtempo, Psybient, AmbientПродолжительность: 01:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED994382CD1FD5BDFCF4ACC6B74BBFE4CD669CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193937   (261816) от 23.12.2017
-
-VA - House Party (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Basement Jaxx  -  Do Your Thing (Robbie Rivera Acid Remix)  3:33
-02.  Kristine Blond & James Hype  -  Love Shy  2:52
-03.  Inner City  -  Good Life 2017  3:16
-04.  Harry Romero  -  Revolt  3:26(   Читать дальше...   )Жанр: HouseПродолжительность: 03:26:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532C2D8A96EE3356BC33A158665EA947EE17608B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194030   (261815) от 23.12.2017
-
-VA - Markus Schulz - Global DJ Broadcast - World Tour - Best of (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Moraes - Die Hölle
-02. Mauro Picotto & Riccardo Ferri - New Time, New Place (New World Punx Remix)
-03. Ray Kajioka - Chair Encounters Keyboard (Markus Schulz Big Room Reconstruction)
-04. Solid Stone - Detox(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97DF54CD8F8E97B6D8B36B83AE529FA98FA4B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193835   (261814) от 23.12.2017
-
-VA - Euro Disco - The Lost Legends Vol. 5 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerome - Live It Up (5:48)
-02. Thomas Marin - Nobody Loves Me (4:34)
-03. Nick Letizia - Baby Blue (6:06)
-04. De Rogue - Night Life Fashion (5:41)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9189F4E02AC1DB5CE9D8F4DDF9266459EA47E473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193957   (261813) от 23.12.2017
-
-Oliver Nelson - Black, Brown And Beautiful (1969) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aftermath [05:32]
-02. Requiem [07:09]
-03. Lamb of God [02:35]
-04. Martin Was a Man, a Real Man [04:16](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9635221558ECAA43C5004947B5486965B642001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193951   (261812) от 23.12.2017
-
-Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone (2001) Cam Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addio Fratello Crudele [07:19]
-02. Mio Caro Dottor Grasler [06:32]
-03. La Voglia Matta [04:47]
-04. Just Beyond The Horizon [06:31](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE96A9F5BE00DC9E7E2A4B425348858C12E6B3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193848   (261811) от 23.12.2017
-
-VA - Euro Disco: The Lost Legends Vol. 6 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mr. Freaky  -  May Day Love  4:00
-02.  Go To  -  Girl Of The 80's  7:06
-03.  Martinique  -  Fantastic Life  5:28
-04.  L'Affair  -  Don't Fly Away  3:52(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E029E0D9469C41D85AFEA89584AA4EF757DCC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193727   (261810) от 23.12.2017
-
-Chontaraz - Rondamauh (2017) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261810.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Eyrusalem (4:11)
- 2. Shadowfall (4:59)
- 3. Am I Evil (3:57)
- 4. Rondamauh (4:21)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D5F1F15791C4ACB831E817B4C75BF899B5D3032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193811   (261809) от 23.12.2017
-
-VA - Euro Disco - The Lost Legends Vol. 3 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djalana - High Stakes (3:38)
-02. Cox - China (5:45)
-03. Kado - Tonight (6:12)
-04. Tommy Young - My Life Is Wonderful (5:42)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266243AE2F6C0A04197AFFD6CACCB098AEE6ECC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193943   (261808) от 23.12.2017
-
-iFinance 4.3.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261808.jpg" />
-</div>
-
-
-###  Подробнее
-
-iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2017Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32D0050DB0B43CFF3716DEE16E352CB0540101F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193892   (261807) от 23.12.2017
-
-Anson Funderburgh & The Rockets - Blast Off: The Best Of Anson Funderburgh & The Rockets (2006) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me What Have I Done Wrong? (03:09)
-02. A Man Needs His Loving (03:40)
-03. Come On (02:47)
-04. Rambling Woman (03:03)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33D353D6F44DFD779C521907BB5C51B13AA9F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193950   (261806) от 23.12.2017
-
-План электрификации РСФСР [2-е изд.] (1955) [DJVU]
+З. Энгельс, А. Новак | По следам элементов (1983) [PDF]
 
 >>Научная и техническая литература
->>Историческая литература
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264577.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 1920 г. Государственная Комиссия по электрификации России (ГОЭЛРО), в обстановке не окончившейся еще иностранной военной интервенции и гражданской войны, в условиях глубочайшей хозяйственной разрухи в нашей стране, разработала рассчитанный на 10—15 лет великий государственный план переустройства народного хозяйства Советской республики на основе крупной машинной (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+В увлекательной форме авторы рассказывают об истории открытия химических элементов на фоне развития всей культуры человечества, показывают, на каком этапе развития техники люди знакомились с тем или иным элементом, как человек использовал металлы и другие элементы в различных сферах своей деятельности, в повседневной практике. Для широкого круга читателей.Жанр: Научно-популярная литература, ХимияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:688C25ACDF9A727C2AC61A2DD1EE4D641C8DF672
+magnet:?xt=urn:btih:8FFF597E68583B81A48CC411B6B80DB8C0B18197
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,28 +131,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193679   (261805) от 23.12.2017
+###  Публикация: 1339908   (264576) от 21.11.2019
 
-VA - Italo Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Italo-Disco>
+Взрыв из прошлого / Blast from the Past (1999) WEB-DLRip [H.264/720p-LQ] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адам Уэббер родился нормальным ребенком, но, по глупому недоразумению, провел 35 лет в бомбоубежище вместе со своими родителями. Наивный и искренний, он впервые оказывается среди людей в бушующем Лос-Анджелесе 90-х! И кто знает — может, он еще успеет наверстать упущенное?!Производство: США / Forge, Midnight Sun Pictures, New Line CinemaЖанр: фантастика, драма, мелодрама, комедияРежиссер: Хью УилсонАктеры: Брендан Фрейзер, Алисия Сильверстоун, Кристофер Уокен, Сисси Спейсек, Дэйв Фоли, Джои Злотник, Дэйл Рауль, Хейден Тэнк, Дуглас Смит, Райан СпарксПеревод: Дублированный (со вставками MVO), многоголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05270644FC63FE9C838F37A7059FD12D2ECB957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339870   (264575) от 21.11.2019
+
+Peter Gabriel - Flotsam And Jetsam (2019) [FLAC|24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strawberry Fields Forever
+02. Slowburn (Extended Version)
+03. Perspective (Single Version)
+04. D.I.Y. (Single Version)(   Читать дальше...   )Жанр: RockПродолжительность: 05:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A967B4B6B5645E05FC01AAB71E1BA1801362E04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339874   (264574) от 21.11.2019
+
+FastStone Capture 9.3 Final + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264574.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Capture представляет собой довольно мощное, но в то же время простое средство для захвата снимков с рабочего стола Windows. Позволяет захватывать как отдельные элементы, окна, части рабочего пространства, так и полный экран (поддерживается прокрутка страниц). Оснащена небольшой панелью для манипуляций с изображениями. Кроме того, имеются в наличии такие (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FECB2DD19698D9C7240F8CF4F4AFCC0976C34BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339878   (264573) от 21.11.2019
+
+Ласковый Май - Золотой альбом (2003) [FLAC|Lossless|tracks + .cue] <Pop>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Tom Dollar  -  Love Is Something  6:44
-02.  C'Zar  -  I Remember (Look Me Baby)  6:29
-03.  Steve Martin  -  Roxide  6:30
-04.  Laura Angel  -  lf You Want  4:29(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:32
+01. Владимир Шурочкин - Ласковый май (Dance-remix 2003) (4:18)
+02. Юрий Шатунов - Белые розы (5:43)
+03. Андрей Разин - Старый лес (5:54)
+04. Андрей Разин - Маскарад (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81EB32E2CC724313D6FAB7245068AF0D2F4060EF
+magnet:?xt=urn:btih:563BA3C89B0DC982D313DC3D31349F47DD444FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,25 +241,317 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194082   (261804) от 23.12.2017
+###  Публикация: 1339901   (264572) от 21.11.2019
 
-Журнал | Дачный спец №12 (декабрь 2017) [PDF]
+Э.С. Митюкова | Налоговое планирование. Более 60 законных схем (2019) [PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264572.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние годы заметно ужесточился налоговый контроль, ФНС стала уделять больше внимания выявлению схем налоговой оптимизации. Тенденция явно продолжится и в последующие годы. Как можно в таких условиях законным образом не переплачивать налоги, вы узнаете из этой книги. В ней описаны основные методы, которые применяют компании разных видов деятельности, проанализирована (   Читать дальше...   )Жанр: Налоговое делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F547C0DCE213CC0A9DDFE6F00FD7A0BD97A074C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339847   (264571) от 21.11.2019
+
+Whispered Secrets 10: Dreadful Beauty / Нашептанные секреты 10: Ужасная красота (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая работа становится кошмаром для вашей подруги Кэти, и вы спешите ей на помощь. События разворачиваются в старом поместье, переоборудованнoм в больницу со странным названием «Жёлудь». Однако, странное здесь не только название, но и всё остальное: само здание, его помещения, персонал, оборудование... Везде чувствуется присутствие зла и мистики, а ещё кто-то следит (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFA1B3826DBE0D636D049C503C1851B96A7190C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339580   (264570) от 21.11.2019
+
+Gregorian - 20/2020 (2019) Limited Edition 2CD [MP3|320 Kbps] <New Age, Enigmatic, Ambientpop>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallelujah (New Version 2020) (04:58)
+02. Frozen World (Remastered Version 2020) (03:20)
+03. Pie Jesu (New Version 2020) (03:55)
+04. Fairytale Of New York (Remastered Version 2020) (04:10)(   Читать дальше...   )Жанр: New Age, Enigmatic, AmbientpopПродолжительность: 02:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDE988278D6C3C0FE16268C2B7EFE635F92E434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339875   (264569) от 21.11.2019
+
+Auslogics BoostSpeed 11.2.0.3 RePack (& Portable) by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22ED3B9E837C0E8CF264BFD4197EE557DEB270FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339880   (264568) от 21.11.2019
+
+Format Factory 4.9.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Format Factory - многофункциональный конвертер различных файлов мультимедиа. Имеет ряд дополнительных функций, превращающих FormatFactory в универсальный инструмент для работы с мультимедийными файлами разных форматов. Поддерживается конвертация популярных видеоформатов в MP4, 3GP, MPG, AVI, WMV, FLV, SWF, а также конвертация аудиоформатов в MP3, WMA, MMF, AMR, OGG, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D931CF5FCF078E57521E7F6ADA4FBBF34715F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339914   (264567) от 21.11.2019
+
+Creative Market - Cute Characters - vector clip art - 4197356 [PNG, JPG, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем милых персонажей - клипарты, рисунки и элементы. Вы можете использовать его для - подарочных карт, бирок, ярлыков, наклеек, приглашений, изображений заголовков, презентаций шрифтов, идеально подходящих для поделок, печатных бумажных изделий и многого другого. Все элементы нарисованы на 100% вручную.Формат: PNG, JPG, EPSРазрешение файлов: 507x525-8334x8334
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD060300F0C988A1E98D9E3C784F0465FBFC0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339724   (264566) от 21.11.2019
+
+Far Manager 3.0 Build 5511 Stable + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Far manager — бесплатный файловый менеджер с поддержкой UNICODE. Имеющий удобный интерфейс для работы с файловыми системами (реальными и эмулированными) и файлами. FAR Manager понимает длинные имена, корректно работает с русскими буквами (есть и перекодировщик WIN-KOI-ISO). Вмонтированный FTP-клиент, также настройка панелей по своему вкусу. Раскраска файлов, просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBBDC4B53885891E5C65DBFBBE0568C4C50E5C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339857   (264565) от 21.11.2019
+
+Gregorian - 20/2020 (2019) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Ethnic>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound of Silence (New Version 2020)
+02. Moment of Peace (New Version 2020)
+03. Hymn (New Version 2020)
+04. In the Air Tonight (New Version 2020)(   Читать дальше...   )Жанр: New Age, Enigmatic, Ambientpop, EthnicПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377C035CE88E23946037F1A68FF519D5109DFAF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339520   (264564) от 21.11.2019
+
+⚡ Новые нормы поведения эффективнее приживаются в соцсетях
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международная группа исследователей показала, что новые нормы поведения в социальных сетях распространяются намного эффективнее, чем в сообществах с офлайн-общением. Полученный результат поможет лучше разобраться в том, как использовать соцсети для популяризации отдельных товаров и услуг, а также общественно полезных норм поведения. Статья ученых опубликована в журнале (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339907   (264563) от 21.11.2019
+
+Дмитрий Нелин | Демоны сновидений (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришло время собраться с силами и обзавестись новыми союзниками. Мне предстоит найти противоядие от Сибирской Чумы, хотя все вокруг утверждают, что это невозможно. Для этого мне предстоит побывать в самых жутких локациях Лимба и спуститься на такие глубокие уровни снов, что местные демоны покажутся детскими страшилками. Мои приключения только начинаются!Жанр: Боевое фэнтези, LitRPGПродолжительность: 17:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43B0AE21A93D5DCE4AFD5FE8C43FB333638BB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339763   (264562) от 21.11.2019
+
+VideoHive - Christmas Slideshow - 22891207 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний проект, который насыщен крупинками снега, яркими снежинками и переливами световых бликов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85766AA328DB671D4DF31C6971ADD088DD39333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285908   (264561) от 21.11.2019
+
+Подшивка | Australian Wood Review (2019) [PDF] [En] [Обновляемая]
 
 >>Журналы
->>Домоводство (журналы)
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для тех, кто стремится вести свое хозяйство грамотно, с умом. В каждом выпуске вы сможете найти для себя полезную информацию от известных ученых, агрономов-практиков, садоводов-опытников.Жанр: Садоводство, растениеводство, огородничестваФормат: PDF
+Ежеквартальный журнал "Australian Wood Review" предназначен для всех любителей и профессионалов в области деревообработки и столярного дела. Предлагает обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража. Все изделия, модели и поделки представлены (   Читать дальше...   )Жанр: Столярное делоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46A91F4455D93BE79FE8B4CD576ED7D28B34EF80
+magnet:?xt=urn:btih:03AE44904F7D770A81CADDAFA49ABE2874B87268
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -539,28 +559,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193802   (261803) от 23.12.2017
+###  Публикация: 135837   (264560) от 21.11.2019
 
-VA - Euro Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+Эврика 2. Тайна Розы Ветров [4+] (L) [Русский] (2004)
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Детские PC Игры
+>>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bam Boo - Foreign East Love (5:42)
-02. Claudia Benn - Mister Hasta La Vista (6:14)
-03. Alberto D'Arco - Dai Dai Dai (Dolce Vita) (6:21)
-04. Nadia Dorine - Help Is On It's Way (5:53)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:16:09
+Недолго царил покой в сказочной стране Эврике!
+Неизвестный злоумышленник похитил Розу Ветров - волшебный артефакт, создающий хорошую погоду. Чтобы спасти Эврику, наш старый знакомый котенок Знайка и его друг Звездочет отправляются на поиски магического предмета.
+Перед отважными героями лежит весь земной шар. Египет, Китай, Мексика - путь похитителя запутан, и придется (   Читать дальше...   )Тип издания: LРазработчик: BurutЖанр: Обучающий, развивающий, приключенияЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B490F9AF53D014881030C8521433567474F8B585
+magnet:?xt=urn:btih:E4A530A85F7E51FAD44F4272D5A785E9E94ECDBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,25 +587,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193903   (261802) от 23.12.2017
+###  Публикация: 1339948   (264559) от 21.11.2019
 
-Расширенное заседание коллегии Министерства обороны России (22.12.2017) WEB-DL [H.264/720p-LQ]
+Narcos Rise of the Cartels (2019) [Switch] [USA] 9.0.1 [NSP] [License / 1.0.3] [Ru/Multi]
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Консольные Игры
+>>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Владимир Путин посетил Военную академию Ракетных войск стратегического назначения имени Петра Великого (ВА РВСН), где принял участие в ежегодном расширенном заседании коллегии Министерства обороны Российской Федерации.Производство: Президент.РФЖанр: ПолитикаПродолжительность: 01:03:30
+Добро пожаловать в Колумбию 1980-х годов. Эль-Патрон строит наркоимперию, расширению которой не в силах помешать никто. Благодаря своему влиянию и взяткам наркобарон переманил на свою сторону полицейских, военных и даже политиков. Спустя годы слухи о Медельинском картеле дошли до Америки. Narcos: Rise of the Cartels пересказывает события первого сезона сериала от (   Читать дальше...   )Тип издания: LicenseРазработчик: Kuju Entertainment Ltd.Жанр: Экшен, СтратегияЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F29C7834034E29D4467701DD4CC997608E5AD83
+magnet:?xt=urn:btih:7EF1D8A38B5F6D9BAFD86F986BC83817F2CDCF22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,28 +613,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194093   (261801) от 23.12.2017
+###  Публикация: 1339638   (264558) от 21.11.2019
 
-VA - The Official UK Top 40 Singles Chart 22.12.2017 [MP3|192-320 Kbps] <Alternative, Synthpop, Other>
+Слава Сэ | Разводы [сборник] (2019) [FB2]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Художественная литература
+>>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ed Sheeran - Perfect 4:23
-02. Eminem - River (Feat. Ed Sheeran) 3:41
-03. Wham! - Last Christmas 6:49
-04. Mariah Carey - All I Want For Christmas Is You 3:58(   Читать дальше...   )Жанр: Alternative, Synthpop, OtherПродолжительность: 02:27:29
+Сборник новых рассказов, пьеса и роман… Вот такой жанровый коктейль приготовил своим читателям известный Сантехник. Немного о любви, чуть-чуть о творчестве, умеренно о психологии и много про ЭТО…Жанр: Юмористическая прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BD29143272D3BD971146608C9C48C7BA725DD8D
+magnet:?xt=urn:btih:ABA1FC71CA20CDD9BD831D2A13499C28C9EA897D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,28 +639,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193887   (261800) от 23.12.2017
+###  Публикация: 1339892   (264557) от 21.11.2019
 
-Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Techno>
+The KMPlayer 4.2.2.34 repack by cuta (build 2) [Multi/Ru]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Complex Chemistry (06:15)
- 02. Morning Rain (06:18)
- 03. Lost In The Jungle (07:03)
- 04. Low Center Of Gravity (06:56)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:31:29
+The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7117753AFC579D5D39A3150890FA000F21FB5C5E
+magnet:?xt=urn:btih:E74732766BF4A71CBE4B36E9C275961D3847BF67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,83 +665,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193865   (261799) от 23.12.2017
+###  Публикация: 1339868   (264556) от 21.11.2019
 
-VA - Euro Disco: The Lost Legends Vol.7 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+FastStone Capture 9.3 Corporate RePack (& portable) by KpoJIuK [Ru/En]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>След.
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Elvin  -  Luggi, Luggi, Ludwig  5:26
-02.  First Cut  -  Tell Me Tell Me  7:14
-03.  Thai Break  -  Flowers In The Rain  5:38
-04.  Kenny Masters  -  Time To Fly (Sing My Song)  6:02(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:14:29
+FastStone Capture представляет собой довольно мощное, но в то же время простое средство для захвата снимков с рабочего стола Windows. Позволяет захватывать как отдельные элементы, окна, части рабочего пространства, так и полный экран (поддерживается прокрутка страниц). Оснащена небольшой панелью для манипуляций с изображениями. Кроме того, имеются в наличии такие (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0E59EF46014199B3F35BA633370448FB027BC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193923   (261798) от 23.12.2017
-
-Журнал | Загадки истории №51 (2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8034EEAABE0E4333ECA3F952311AEED78950E786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193894   (261797) от 23.12.2017
-
-Faydee - Patterns (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More (3:16)
- 02. Friendzone (feat. Demarco) (3:15)
- 03. Patterns (3:29)
- 04. When I'm Gone (3:13)(   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 00:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33E5C4B145A30DD995E3D0574AFEDC9227669A8
+magnet:?xt=urn:btih:56DBFF0949F4CC37DAB3E55D8811A17BB0D2931E
 ```
 
 https://mybot314.ru/tekegram_catalog/

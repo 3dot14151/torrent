@@ -1,3 +1,32 @@
+###  Публикация: 1572212   (423517) от 26.08.2022
+
+A-Ha - Headlines And Deadlines: The Hits Of A-Ha - 2 (1992) [OGG Vorbis|485 Kbps] <Electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move To Memphis
+02. I've Been Losing You
+03. The Living Daylights
+04. Crying In The Rain(   Читать дальше...   )Жанр: New Wave, Synth-pop, Soft RockПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD57BA9B8D8506B924390CBDDDDBD8F77A6FEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325933   (408692) от 17.09.2019
 
 Liaisons Dangereuses - Liaisons Dangereuses (1981) Reissue CD, 2002, Hit Thing [MP3|320 Kbps] <Electronic, Synth-pop, New Wave, EBM>
@@ -717,35 +746,6 @@ Galaxy Hunter - We Came From Space (2008) [OGG Vorbis|484 Kbps] <Electronic, Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3DCC540160D5CA7745096DF5293BB69A5FDBF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330710   (338969) от 11.10.2019
-
-Oblivion - Light of a Distant Star (2015) [MP3|320 Kbps] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:24)
-02. First Orbit (Around the Earth) (4:57)
-03. Mysterious Universe (Space Music Fest Edit) (3:52)
-04. On the Edge of Infinity (4:51)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF68B71AD6FC9FE270EB4F33A9B5623C134AD1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

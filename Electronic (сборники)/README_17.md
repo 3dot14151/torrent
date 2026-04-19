@@ -1,3 +1,61 @@
+###  Публикация: 971870   (984594) от 04.01.2016
+
+VA - Explosion Samples Tropic House (2016) [MP3|230-320 кб/с] <Tech House, Soulful, Nu Disco, Progressive, Tropical House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984594.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ka One & St-Sene - Page Not Found 05:58
+002. Fred P - Slow Euphoria 07:03
+003. Herron - Feet First 05:26
+004. Lnrdcroy - Donny On The River 02:47(   Читать дальше...   )Жанр: Tech House, Soulful, Nu Disco, Progressive, Tropical HouseПродолжительность: 11:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7267BBE320242DE7FF234E034729D3B3D0E37136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971877   (984587) от 04.01.2016
+
+VA - Top 100 Deep House (December) (2016) [MP3|302-320 кб/с] <House, Indie Dance, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AKA AKA & Thalstroem - Faces (Teenage Mutants Remix)
+02. Alex Preda, Amber Long - DNA Matching feat. Amber Long (Arnas D Dub Remix)
+03. ALEXANDER AUREL - SHOUT (Original mix)
+04. Alexander Hristov & Wallmers - Let`s Go Retro (Original Mix)(   Читать дальше...   )Жанр: House, Indie Dance, Nu DiscoПродолжительность: 10:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B09E9C5405AB4EFC76A2E5C24F1E204FAA393C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971867   (984367) от 04.01.2016
 
 VA - Resident Advisor Top 100 Charted Tracks Of 2015 (2016) [MP3|245-320 кб/с] <Electronica, Techno, Minimal, Tech House, Deep House>
@@ -699,70 +757,6 @@ VA - Keep Growing: Deep Techno Electronic (2020) [MP3|320 Kbps] <Techno, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3873AA0C64A9AA61071FA0BDDAB08DD3A7BEFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742657   (979162) от 06.01.2014
-
-VA - Lounge At The Seashore 2 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979162.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Smoker Lab - Coffe Break
-002. Placid Larry - Over The Skyscrapers Into The Desert
-003. Sundance - Morning Glory
-004. The Beater - Miami Beach(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759B39A456D818536A947CAB641C08F94AB96C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612038   (978873) от 07.02.2013
-
-VA - Drum and Bass Pro V.6 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultima C - Cry Another Day (Original Mix)
-02. Scott Allen - Every Time (Original Mix)
-03. John B - Love Again feat. Jillian Ann (Original Mix)
-04. Skyweep - Need To Feel Loved (ft. Durrant & UnClubbed) (Original Mix)
-05. Seven Lions - Days To Come (Dead Battery DnB Remix)
-06. SynthForce - Hear You Calling (Original Mix)
-07. Phil Tangent - Hindsight (Original Mix)
-08. Bcee & Bladerunner - Fatal Attraction (Original Mix)
-09. Primal Therapy - Screamshot (Original Mix)
-10. Subformat feat. Charli Brix - More (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD067DA4063AD48FBD0A1DD05D812E1EC95C266F
 ```
 
 https://mybot314.ru/tekegram_catalog/

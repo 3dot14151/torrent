@@ -1,3 +1,90 @@
+###  Публикация: 1597789   (165082) от 16.12.2022
+
+Thermal Noise - Legends (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stronger than the Night [00:04:32]
+02. Legends [00:04:41]
+03. Object From Outer Space [00:03:37]
+04. Misfits [00:04:19](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49EFE03EA89FB6EB814BB10AAAC29F196ECE48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516898   (163548) от 14.12.2021
+
+Siouxsie And The Banshees - Once Upon A Time/The Singles (1981) Remaster, 1992, Geffen Records [FLAC|Lossless|tracks + .cue] <New Wave, Goth Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hong Kong Garden [2:55]
+02.Mirage [2:49]
+03.The Staircase (Mystery) [3:06]
+04.Playground Twist [3:02](   Читать дальше...   )Жанр: New Wave, Goth RockПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3694C4FA0F112320775D160952279714EF07B1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674222   (162328) от 04.11.2023
+
+††† (Crosses) - Goodnight, God Bless, I Love U, Delete (2023) [FLAC|Lossless|tracks + .cue] <Synthpop, Experimental, Electronic Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pleasure (04:16)
+02. Invisible Hand (03:54)
+03. Found (03:25)
+04. Light as a Feather (03:09)(   Читать дальше...   )Жанр: Synthpop, Experimental, Electronic RockПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389CC70E4A9E1D10F7A92D47394756AF33874D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433124   (161989) от 19.12.2020
 
 VA - Pure Synthwave Vol. 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Synthpop, Electronic>
@@ -657,93 +744,6 @@ VA - Space Holidays Vol. 10 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31774A27BFDC81338726C5686647AF06A4169C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272102   (145500) от 26.12.2018
-
-BELLATRIX - I Love KOTO - Covers and Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acknowledge
-02. Chinese Revenge
-03. Dragon's Legend
-04. Jabdah(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3E8B5DF77B75A198DA0F26DFC816596B412F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272474   (144630) от 27.12.2018
-
-SZMC - Dark Energy (The Album) (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Energy (6:23)
-02. Out Of Nowhere (6:56)
-03. Asteroid Discovery (5:40)
-04. Enjoy Yourself (5:40)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 01:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7032F92746780A7832C3F0191C1B9E7FAD4060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087877   (142558) от 29.12.2016
-
-Visage - The Face (The Very Best Of Visage) (2010) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fade To Grey (Michael Gray Remix 2009) (7:45)
- 02. Mind Of A Toy (Dance Mix) (5:16)
- 03. We Move (Remix) (3:46)
- 04. Tar (3:33)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C99266D31C72FAB9C1D7BFCDAA0BDAB44DEA0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

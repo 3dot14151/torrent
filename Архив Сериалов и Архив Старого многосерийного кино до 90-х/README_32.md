@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_710922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_710922.jpg" />
 </div>
 
 

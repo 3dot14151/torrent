@@ -1,3 +1,73 @@
+###  Публикация: 550850   (445966) от 27.09.2012
+
+Stanley Clarke, Lenny White and Hiromi Uehara - Jazz In The Garden (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradigm Shift (Election Day 2008) [07:44]
+02. Sakura Sakura [05:33]
+03. Sicilian Blue [04:49]
+04. Take the Coltrane [03:30]
+05. 3 Wrong Notes [05:48]
+06. Someday My Prince Will Come [04:56]
+07. Isotope [05:28]
+08. Bass Folk Song No. 5&6 [04:03]
+09. Global Tweak [03:44]
+10. Solar [05:14](   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552278   (445848) от 27.09.2012
+
+VA - Jazz vocal - Favorites Collection (1994) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Armstrong - Hello, Dolly! [02:26]
+02. Ella Fitzgerald - Like Someone in Love [03:11]
+03. Sarah Vaughan - The Girl From Ipanema [02:32]
+04. Nat King Cole - It's Only a Paper Moon [03:09]
+05. The Four Freshmen - Day by Day [01:59]
+06. Frank Sinatra - As Time Goes by [03:17]
+07. Nat King Cole - Sweet Lorraine [04:37]
+08. Johnny Hartman - Charade [02:37]
+09. Chet Baker - Travelin' Light [03:12]
+10. Frankie Laine - Georgia on My Mind [03:05](   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552229   (445773) от 27.09.2012
 
 Chie Ayado - 3 альбома (2000-2007) [FLAC|Lossless]<Jazz Vocal>
@@ -696,64 +766,6 @@ Kenny Burrell - Giants of Jazz (2004) Savoy Jazz [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EC8659F11A14579FB68A545DC6B08F4F1C0ABCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409683   (443338) от 18.09.2020
-
-June Christy - The Ballad Collection (50-e - 60-e) 2000, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interlude [4:44]
-02. My One and Only Love [2:47]
-03. Lonely House [4:07]
-04. Softly as in a Morning Sunrise [2:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0F8FF252EB3011CFD0DC8747A36D5087EF045A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944268   (443117) от 06.10.2015
-
-Art Pepper - Gettin' Together! (1960) /1997, Victor/ [FLAC|image+.cue]<Bop, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Whims Of Chambers [07:00]
-02.Bijou The Poodle [06:03]
-03.Why Are We Afraid ? [03:40]
-04.Softly, As In A Morning Sunrise [07:00](   Читать дальше...   )Жанр: Bop, West Coast JazzПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCA423A1F94C04C90467EFB46E2CE4371FF7FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,22 @@
-###  Публикация: 1403991   (684277) от 23.08.2020
+###  Публикация: 791301   (687601) от 13.06.2014
 
-VA - Concord Dawn: Hard Rock Core Anthology (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
+Лего. Фильм / The Lego Movie (2014) BDRemux 3D [1080p] [3D/2D]
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Мультфильмы
+>>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Video Nasties - Viva Death
-002. Naat - The Moth
-003. Crafter - Rupture
-004. Disembodied - Bloodshed Rain(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 09:05:23
+Обычная лего-фигурка соглашается присоединиться к походу против злого лего-диктатора, планирующего склеить вместе всю вселенную…Производство: Австралия, США, Дания / Animal Logic, LEGOЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Фил Лорд / Phil Lord, Кристофер Миллер / Christopher MillerАктеры: Крис Прэтт, Уилл Феррелл, Элизабет Бэнкс, Уилл Арнетт, Лиам Нисон, Морган Фриман, Крэйг Берри, Элисон Бри, Дэвид Берроуз, Энтони ДэниелсПеревод: ДублированныйЯзык субтитров: Русский (forced, full), украинский (forced, full), английский (SDH)Продолжительность: 01:40:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F18208A55D9D55A3059AFA732C68E0DCBD46C3F2
+magnet:?xt=urn:btih:A2C889CA9F1B6C1AEE5499BF22732F85CDC5C74C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,228 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404035   (684276) от 23.08.2020
+###  Публикация: 1134372   (687598) от 16.05.2017
 
-Себастьян Фитцек | Тот, кто виновен (2020) [MP3, Белка]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_684276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс Роде – писатель-неудачник, но вполне законопослушный гражданин, чего не скажешь о его брате Космо, который отбывает превентивное заключение в психиатрической больнице. Макс ни разу в жизни не нарушал закон, но через несколько дней ему предстоит совершить одно из самых ужасных преступлений, на какие только способен человек. Правда, сегодня он еще не подозревает (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:45:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403988   (684275) от 23.08.2020
-
-VA - Candy Beach: Deep House Tropical Theme (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684275.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gruw Frequency - Another Day
-002. Giuseppe Gatti - Talk With Me
-003. Supertons - S Man
-004. Chrisoper Torres - Prodigious(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 12:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0C4FC452655DF8ABA303E8455E84F6302C8FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403992   (684274) от 23.08.2020
-
-VA - EDM Electro Vibe (2020) [MP3|320 Kbps] <EDM, Club, Dance, House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684274.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Benn And Mervius - No Mercy
-002. Cale Jera - Feel The Force
-003. Harry Hard - Be Free
-004. Armin Van Buuren - Blah Blah Blah(   Читать дальше...   )Жанр: EDM, Club, Dance, House, TechnoПродолжительность: 10:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08D31C80CC21281C27A26397D6745C40D82EF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404140   (684273) от 23.08.2020
-
-Анна Вальгрен | Бестселлеры детской психологии. Наши дети спят всю ночь (2015) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы не высыпаетесь? Вы переутомлены? Вы чувствуете, что постоянное недосыпание начинает сказываться на ваших взаимоотношениях?
-Но ни вам, ни вашему малышу это больше не грозит.
-Проведя курс «Спать Всю Ночь», вы поможете своему малышу спать спокойным, крепким, продолжительным сном.
-Как только вы решитесь провести курс «Спать Всю Ночь», для вас начнутся новые времена. (   Читать дальше...   )Жанр: Педагогика/Воспитание детейПеревод: Лена ЛеонФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF45267C9BBB5ABCC1EDB2047B00A1364AB310E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403928   (684272) от 23.08.2020
-
-Lionheart - 3 Studio Albums (1984-2020) 3xCD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа LIONHEART - Была основана в конце 1980 года гитаристом Деннисом Стреттоном (экс-IRON MAIDEN), Стивом Мэнном (MICHAEL SCHENKER FEST) и Рокки Ньютоном (ex-MSG), а Клайв Эдвардс (ex-UFO) завершил состав немного позже. Группа начала играть постоянные живые концерты, включая регулярные аншлаговые концерты в лондонском клубе Marquee. В период с 1981 по 1984 год (   Читать дальше...   )Альбомы :
-1984 - Hot Tonight
-2017 - Second Nature
-2020 - The Reality Of MiraclesЖанр: Hard RockПродолжительность: 02:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E68D2748B6CF9B2DA95D32716B6A3C28DE67C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403981   (684271) от 23.08.2020
-
-VA - Beatport Future House: Electro Sound Pack #151 (2020) [MP3|320 Kbps] <Future House, Electro, Progressive>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_684271.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Antoxa Project - Space (Original Mix)
-002. Fabio Orru - Dreamer
-003. Athanasy - Lost
-004. Martin Schulz - Get Up(   Читать дальше...   )Жанр: Future House, Electro, ProgressiveПродолжительность: 09:48:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404107   (684270) от 23.08.2020
-
-Jah Khalib - Баха и Дмитрий Карантино (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:03:02]
-02. На своём вайбе (feat. Гуф) [00:02:59]
-03. Ooh La La [00:02:35]
-04. Havana [00:03:07](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30F879DF7A6EEE4D81505C7DF64C9214AC2AEBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404181   (684269) от 23.08.2020
-
-Midnight Danger - Chapter 2: Endless Nightmare (2020) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Darksynth, Synthwave>
+VA - Chill Trackz 2017 [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_687598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Visions (1:49)
-02. The Eyes of Darkness (4:15)
-03. Back From the Dead (4:07)
-04. Night Escape (4:43)(   Читать дальше...   )Жанр: Retrowave, Darksynth, SynthwaveПродолжительность: 00:46:26
+01. Vienna Sky - Spring Garden
+02. French Skies - Fluorescence - Vechigen Lights of Ambient Remix
+03. The Rex-Factor - Dog Ate My Shoe - Chill Mix
+04. Stars Over Foy - At the End of the Ocean(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:02:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F6343B130A06D868E9277E1648261A3AF1D60B9
+magnet:?xt=urn:btih:63EABCC199454ACFADD9EE63B11BD1789A0BAF56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404158   (684268) от 23.08.2020
+###  Публикация: 1134717   (687596) от 16.05.2017
 
-VA - Beatport Club House: Electro Sound Pack #154 (2020) [MP3|320 Kbps] <Club, Dance House>
+Duke Ellington - Live from the 1956 Stratford Festival (1989) Music and Arts Programs of America [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_684268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Maxriven - Astronomia
-002. Bonhaus And Holy Pig - La Botella
-003. Nicolas Giordano - Low & Desert
-004. Stanley Edwards - There Is A Rhythm(   Читать дальше...   )Жанр: Club, Dance HouseПродолжительность: 14:24:06
+01. Hark, the Duke's Trumpets! [03:47]
+02. Harlem Air Shaft [03:36]
+03. Clarinet Melodrama [05:52]
+04. Theme Trambene [03:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:54:29
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:612CC213D14ECE87FAFD54A6F45F2A2867D0707A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,26 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404173   (684267) от 23.08.2020
+###  Публикация: 1134726   (687594) от 16.05.2017
 
-Людмила Куцакова | Энциклопедия творческого развития. Рисуем, лепим, мастерим (2012) [PDF]
+Dorothy Donegan - One Night with the Virtuoso (1957 - 1960) 2CD, 2012, Jasmine Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главная цель книги — помочь родителям развить творческие способности ребенка, обогатить его знания об окружающем мире, повысить интеллектуальный уровень, развить память, внимание и речь.
-Выполняя задания, ребенок овладеет азами рисования, научится делать своими руками аппликации, игрушки из бумаги и природных материалов, лепить из пластилина и теста, самостоятельно (   Читать дальше...   )Жанр: Досуг и творчество детейФормат: PDF
+CD1:
+01. That Old Black Magic [03:46]
+02. Over the Rainbow [02:30]
+03. Sweet Georgia Brown [02:52](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 02:39:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0A0072EC28FEE67508AA8124FF2DC6F7F3A4D3A
+magnet:?xt=urn:btih:5EFE2890F7A6A6CD42B33A9DD0D052BFDFF03088
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,159 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404019   (684266) от 23.08.2020
+###  Публикация: 1222131   (687592) от 28.04.2018
 
-Морские паразиты / Sea Fever (2019) BDRip [1080p] ATV3
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирландия. Студентка Шеворн - настоящий интроверт. Девушка изучает морскую биологию, и ей интереснее смотреть в микроскоп, чем общаться с сокурсниками. Она отправляется проходить практику на небольшом рыболовецком судне, что сулит новые впечатления и богатый материал для научных исследований, хотя команда и не в восторге от пассажирки, так как её рыжие волосы являются (   Читать дальше...   )Производство: Ирландия, США, Великобритания, Швеция, Бельгия, Bright Moving Pictures, Creativity Capital, Fantastic Films, Flexibon Films, Makar ProductionsЖанр: Ужасы, фантастикаРежиссер: Ниса ХардиманАктеры: Гермиона Корфилд, Даг Малмберг, Джек Хикки, Олуэн Фуэре, Дюгрей Скотт, Конни Нильсен, Ардалан Эсмаили, Эли БуаказеПеревод: Дублированный, АвторскийСубтитры: Русские (Full, SDH), Английские (Full, SDH)Продолжительность: 01:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D8789554B8D2272A7E45E671D94222BBA7CC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404162   (684265) от 23.08.2020
-
-VA - Rock Songs: Essentials Collection (2020) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Broken Field Runner - Test Everything
-002. Vulture Party - Mayday Cockerel
-003. Neufundland - Liebe (Radio Edit)
-004. Bersuit Vergarabat - Vuelos(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C958F0AECCE5A418C90F7F3546A018CAC019A115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404120   (684264) от 23.08.2020
-
-Николай Леонов, Алексей Макеев  | Мотель смертников (2020) [MP3, Фенид Ладосский]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684264.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Пензенской области неподалеку от мотеля «Над Сурой» застрелен глава московского банка «Амальгама» Кирилл Сотский. Убийцу быстро ловят; мотив преступления – ревность. Дело уже практически закрыто, но… почти в том же месте два месяца спустя погибает новый директор банка Глеб Арбенин – его машину раздавил груженый лесовоз. Несчастный случай – или все-таки есть связь (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D42D4F791EA29F91B437D8E6FD591FDD5C64173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404010   (684263) от 23.08.2020
-
-Уильям Мейкпис Теккерей | Ярмарка тщеславия (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сам автор назвал своё лучшее произведение «Ярмарку тщеславия» – романом без героя. Он противопоставил этот роман всем канонам современной ему классической английской литературы, где предполагался ярко выраженный главный герой, действовавший из ясных побуждений. Теккерей считал, что гораздо интереснее изучать и описывать зло, а не добро; пороки и мелочность, а не (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 34:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48DBCD06846A3851CA6B9993D1CAA6158DAE1FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289756   (684242) от 17.03.2019
-
-Дидье Декуэн | Англичанка на велосипеде (2019) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в Южной Дакоте происходит кровавая резня индейских племен, трехлетняя Эмили остается без матери. Путешествующий английский фотограф забирает сиротку с собой, чтобы воспитывать ее в своем особняке в Йоркшире. Девочка растет, ходит в школу, учится читать. Вся деревня полнится слухами и вопросами: откуда на самом деле взялась Эмили и какого она происхождения? (   Читать дальше...   )Жанр: Современная зарубежная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA7799C2BBA90406E5865C3CA700007B5CE82E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289708   (684241) от 17.03.2019
-
-Direct Mail 5.5 [Multi/Ru]
+Хоккей. Юниорский Чемпионат мира 2018. 1/4 финала. Финляндия U18 — Беларусь U18 (26.04.2018) IPTV [H.264/1080p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Direct Mail - Лучшее приложение для управления и отправки писем для Mac OS.
-Direct Mail обладает интуитивно понятным интерфейсом и мощным почтовым движком, который позволит с легкостью поддерживать связь со своими контактами не заморачиваясь сложными настройками.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2018Разработчик: e3 SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Мультиязычный, включая русский
+26 апреля 2018 года, четверг. 13:30 МСК
+20-й Чемпионат мира по хоккею с шайбой среди юниорских команд 2018 года
+Плей-офф. 1/4 финала.
+Финляндия U18 — Беларусь U18(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCFA99885BFE93F4DA64BC2C797D9189D363397C
+magnet:?xt=urn:btih:1F8D311E726EDC4039D8AB1FC7F89BE4D7BCACDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,28 +140,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289944   (684240) от 17.03.2019
+###  Публикация: 1134876   (687591) от 16.05.2017
 
-VA - Pop Giganten - Schlager (2019) [MP3|320 Kbps] <Schlager>
+SVNTY6 - Universal (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Instrumental Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HellloStar (3:01)
+02. TheMourrrning (1:23)
+03. MaeLondrrres (4:05)
+04. Astrrral (3:11)(   Читать дальше...   )Жанр: Hip-Hop, Beats, Instrumental HopПродолжительность: 00:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376F2DD1CA1E0BEEF720CBAC8BBB11F7CA772E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221979   (687590) от 28.04.2018
+
+Баскетбол. Евролига 2017-2018. Женщины. "Финал 4-х". Шопрон (Венргия). Финал. УГМК (Россия) – БК Шопрон (Венгрия) (22.04.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687590.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 апреля 2018 года
+Евролига 2017-2018. Женщины. "Финал 4-х". Шопрон (Венргия)
+Финал
+УГМК (Екатеринбург, Россия) – БК Шопрон (Шопрон, Венгрия)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F0EE9683F6BEE057260783ABE7B49ECD014B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134821   (687588) от 16.05.2017
+
+Георгий Зеленцов | Артель клубничников (1928) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02AFCC56765F4F4457187AFED71E5AF73D26132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 351235   (687587) от 13.06.2014
+
+В поисках капитана Гранта (1985) DVDRip (7 серий из 7)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687587.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Жюля Верна "Дети капитана Гранта". Капитан Грант пустился в опасное плавание, чтобы основать вольное шотландское поселение на островах Тихого океана. Его корабль терпит крушение и лишь полуразмытая записка в бутылке доносит обрывочные сведения о Гранте. Лорд Гленарван на свой страх и риск отправляется на поиски, взяв с собой детей капитана - Мэри (   Читать дальше...   )Производство: СССР, Болгария / Киностудия «Бояна», Гостелерадио СССР, Одесская киностудияЖанр: приключенияРежиссер: Станислав ГоворухинАктеры: Владимир Смирнов, Лембит Ульфсак, Марина Влади, Николай Ерёменко мл., Тамара Акулова, Олег Штефанко, Руслан Курашов, Галина Струтинская, Анатолий Рудаков, Борис Хмельницкий и др.Продолжительность: 07:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927DB4B5A7603FA07238D7EB34AA6A763042A4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222263   (687586) от 28.04.2018
+
+Folk & Røvere - Kaustisksoda (1998) Sonet Grammofon AS [MP3|320 Kbps] <Breaks, Trip Hop, Synth-pop>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 01:
-01. Kerstin Ott - Regenbogenfarben (Bassflow Remix)
-02. Michelle - Nicht verdient
-03. Ben Zucker - Na und_!(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:35:43
+Тот самый случай, когда яблоко упало прямо под яблоней: Беате - дочь польского джазового скрипача Здзислава Леха и норвежской преподавательницы музыки. Родилась и выросла в Норвегии. Уже во время учёбы в университете Осло познакомилась с будущим мужем, музыкантом Мариусом Рексо. С ним они сначала учавствовали в группах "Insertcoin" и "Folk og Røvere", (   Читать дальше...   )01. Cowboy & Indianer 4:48
+02. Prozac 5:19
+03. Bris 5:48
+04. Banemesterkhan 3:52(   Читать дальше...   )Жанр: Breaks, Trip Hop, Synth-popПродолжительность: 00:46:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:894853C671316E4626E170D8D4B25D6812E8D49D
+magnet:?xt=urn:btih:69D28632F227545F70C7C7B819F00AA5F55D37CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,26 +279,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289808   (684239) от 17.03.2019
+###  Публикация: 1134204   (687585) от 16.05.2017
 
-Журнал | Вкусно и просто. Лучшие рецепты [Украина] №2 (2019) [PDF]
+VA - Trance Anthems Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Журналы
->>Кулинарные журналы
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кулинарный журнал, в котором каждый найдет для себя интересные рецепты: закуски и салаты, супы и каши, блюда из мяса и рыбы, разнообразных овощей и грибов, соусы, напитки, торты и десерты - все, что нужно для вкусного обеда, завтрака или ужина, на каждый день или для праздничного стола, а также полезные советы, тонкости и хитрости кулинарного мастерства.
-* Блюда (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+01.  NoMosk - Duel (Radio Edit)  3:55
+02.  Farhad Mahdavi & Kiran M Sajeev - Higher (Radio Edit)  3:50
+03.  Michael Li - Infinity (Original Mix)  3:28
+04.  Ozo Effy - Cassiopeia (Original Mix)  4:04(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:59:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00FCF4733C32B79AD82C11D40B696AEBC6E10C8D
+magnet:?xt=urn:btih:B6B4FEED9F071BC16C71E759180233163462F9DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,25 +308,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289792   (684238) от 17.03.2019
+###  Публикация: 795898   (687584) от 13.06.2014
 
-Журнал | Уютная квартира №1 (февраль - март 2019) [PDF]
+VideoHive – Photo Slideshow - 5255231 [AEP]
 
->>Журналы
->>Домоводство (журналы)
+>>След.
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уютная квартира - это, прежде всего практические советы и рекомендации по благоустройству и реконструкции вашей квартиры, лучшие примеры дизайна и планировки, комфорт на каждый день, приятные мелочи, цветы в доме, элементы декора.Жанр: Дизайн интерьеровФормат: PDF
+Проект простого и строгого слайдшоу.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B98E667E94DA3CC7A7B41C1EE2B358AAF31054B
+magnet:?xt=urn:btih:F978A3ECB7ACC27B3B8BCDA5FAB1DA54D274C658
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,28 +334,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289455   (684237) от 17.03.2019
+###  Публикация: 1222196   (687583) от 28.04.2018
 
-Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Мужчины. Гонка преследования 12,5 км (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+AzTek - Summit (2018) Courteous Family [FLAC|Lossless|WEB-DL|tracks] <Abstract, Drum n Bass, IDM, Experimental, Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That’s a Dead Guy (04:00)
+02. Gastown (01:21)
+03. CrumblyBumpkin’s Demise (02:33)
+04. Over There is Water (01:39)(   Читать дальше...   )Жанр: Abstract, Drum n Bass, IDM, Experimental, BassПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C920C8869A5DC4F28171501575B6F7740207E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134535   (687582) от 16.05.2017
+
+VA - Total Trance Selections Vol.04 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rodrigo Deem - You Said It All (feat. Karra) (Extended Mix)  7:52
+02.  Fabio XB & Marell - Can't Let Go (feat. Christina Novelli) (Extended Mix)  5:47
+03.  Alexandre Bergheau & Mohamed Ragab - At Night (Original Mix)  3:45
+04.  ReOrder - Spirit Of Ecstasy (Original Mix)  3:50(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A88E5092368376E9A3138E99F95E031000F4A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134584   (687581) от 16.05.2017
+
+Monster Energy NASCAR Cup Series 2017. Этап 11 - Kansas. Гонка (2017) HDTVRip [H.264/720p-LQ] [VO]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 марта 2019 года, воскресенье. 18:30 МСК
-53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
-Мужчины. Гонка преследования 12,5 км (полная трансляция)
-Церемония награждения на "Медаль Плаза"(   Читать дальше...   )Телекомпания: Первый Канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:18
+11 этап Monster Energy NASCAR Cup Series Go Bowling 400, Kansas Speedway (267 laps, 400.5 miles).Телекомпания: FS1Жанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийПродолжительность: 03:46:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1932127B46EA64B0574D9D336DBADBFBCC6E5F8
+magnet:?xt=urn:btih:EF786B5585060C1C88F2A0D1F9B009A070398951
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,28 +418,137 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289458   (684236) от 17.03.2019
+###  Публикация: 795726   (687580) от 13.06.2014
 
-Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Мужчины. Гонка преследования 12,5 км (2019) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+22 минуты (2014) Blu-ray [1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Морпех — первогодок Саня Ежов оказывается среди пиратов на захваченном танкере. Он знает — товарищи не бросят. Ему нужно выжить и помочь своим, когда начнется штурм. Фильм основан на реальных событиях 5 мая 2010 года, когда морские пехотинцы БПК «Маршал Шапошников» освободили захваченный в водах Аденского залива российский танкер «Московский университет». У них было (   Читать дальше...   )Производство: Россия, Централ ПартнершипЖанр: БоевикРежиссер: Василий СериковАктеры: Макар Запорожский, Денис Никифоров, Виктор Сухоруков, Екатерина Маликова, Гаэль Камилинди, Александр Галибин, Владислав Демин, Ибрагим Тооре, Софья Козко, Иван ПородновПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB17BA3361FA6A68661A2929F6C80ACCCFF86BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222230   (687579) от 28.04.2018
+
+NX1, Stephanie Sykes, Jay Quentin - ://About Blank 004 (2018) ://about blank [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_687579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NX1 - AB1 (07:10)
+ 02. Stephanie Sykes - Blur (05:08)
+ 03. Jay Quentin - Information Superhighway (07:40)Жанр: TechnoПродолжительность: 00:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613572E020C514ED75DADE2880C1C0C39CB9082D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134875   (687578) от 16.05.2017
+
+SVNTY6 - Unlimited (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Instrumental Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamiiily (2:13)
+02. ApriiilComes (2:57)
+03. RaiiinGentle (2:52)
+04. YouForrrget (3:17)(   Читать дальше...   )Жанр: Hip-Hop, Beats, Instrumental HopПродолжительность: 00:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39C2E02CFDC9F375325F592F596FFD6824042B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795926   (687577) от 13.06.2014
+
+VideoHive - Epic Logos Pack - 6860521 [AEP]
+
+>>След.
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект, для Эпичного демонстрация вашего логотипа. Имеет три разных варианта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7121A9A7770F5ACBFFEB1DA21C465D957A2C6051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222141   (687576) от 28.04.2018
+
+Хоккей. Юниорский Чемпионат мира 2018. 1/4 финала. Россия U18 – США U18 (26.04.2018) IPTV [H.264/1080p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 марта 2019 года, воскресенье. 18:30 МСК
-53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
-Мужчины. Гонка преследования 12,5 км
-Стадион:  Национальная биатлонная Арена "Эстерсунд" (Эстерсунд, Швеция)Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:54:40
+26 апреля 2018 года, четверг. 17:30 МСК
+20-й Чемпионат мира по хоккею с шайбой среди юниорских команд 2018 года
+Плей-офф. 1/4 финала.
+Россия U18 – США U18(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F981C836A036AB6C0AD03DB0915FF8597EE89B4
+magnet:?xt=urn:btih:E5306CB349F25BE0D0FB081CA9167113DC15EC99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,26 +556,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289822   (684235) от 17.03.2019
+###  Публикация: 1134649   (687575) от 16.05.2017
 
-Wondershare Recoverit 7.4.5 [En]
+VA - Just For Fun: Spring Deep House Party (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687575.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Davu - Sociopath (Original Mix)
+002. Tommy Harmond - Stay Together Forever (Extended Mix)
+003. Archi Nova - At A Depth (Original Mix)
+004. Esra Kahraman - Ex Love (Regard Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9DE5A027CCB861419B2F0E5CA169B379D97825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222238   (687574) от 28.04.2018
+
+Георгий Балл | Малышка (1960) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D15C1456961A1A354CA0DC2307C24EEA3129245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134879   (687572) от 16.05.2017
+
+SVNTY6 - SheMovesMe (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Instrumental Hop>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 12.03.2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+01. RiiightWithMe (3:26)
+02. IfIHadYouuu (2:11)
+03. BelievvveYou (2:37)
+04. LoveSeeeds (2:05)(   Читать дальше...   )Жанр: Hip-Hop, Beats, Instrumental HopПродолжительность: 00:31:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43F62698BDE642934CD70C633713C44BDFAB4D95
+magnet:?xt=urn:btih:516F33507DB36AFFC9FF59B959594EF21742F9BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,28 +640,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289465   (684234) от 17.03.2019
+###  Публикация: 795912   (687571) от 13.06.2014
 
-Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Женщины. Индивидуальная гонка 15 км (2019) WEB-DLRip [H.264/720p-LQ] [hand made 50fps]
+Кухня в Париже (2014) Blu-ray [1080p]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 марта 2019 года, вторник. 17:30 МСК
-53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
-Женщины. Индивидуальная гонка 15 км
-Стадион:  Национальная биатлонная Арена "Эстерсунд" (Эстерсунд, Швеция)Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:21:56
+Модный столичный ресторан «Клод Моне» процветает. Именно здесь, в родном заведении Вика и Максим хотят отпраздновать долгожданную свадьбу. Но планы меняются, когда в ресторане назначают переговоры Президентов России и Франции! Команда ресторана терпит фиаско и вынуждена отправиться в «изгнание» — в Париж. Там Шеф с Максом сталкиваются с опасными конкурентами: Шеф (   Читать дальше...   )Производство: Россия / Yellow, Black & WhiteЖанр: КомедияРежиссер: Дмитрий ДьяченкоАктеры: Дмитрий Назаров, Марк Богатырев, Елена Подкаминская, Дмитрий Нагиев, Олег Табаков, Венсан Перес, Михаил Тарабукин, Сергей Лавыгин, Никита Тарасов, Виктор ХоринякПеревод: Не требуется (Русский язык)Субтитры: ОтсутствуютПродолжительность: 01:46:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA98E973E7CBD35ED8CF998FC7A4C1C39C0BB362
+magnet:?xt=urn:btih:F5EED9DC88D9F4393EA23CA348423F8E51EF71EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,25 +666,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289744   (684233) от 17.03.2019
+###  Публикация: 1222356   (687570) от 28.04.2018
 
-Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks (2018) [En] (1.0) Unofficial
+Нора Аргунова | Сынок (1968) [FB2]
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Глубоко внизу, на дне моря Лагуна, назревает проблема. Мэр Финн исчез, и теперь Леону и Тео предстоит разобраться с подлыми уловками нового мэра Пибоди самостоятельно. Доброжелательные жители подводного царства снова нуждаются в Вашей помощи. Готовы ли Вы к новым приключениям и многочисленными загадкам? Заработайте сотни достижений, трофеев и бонусов и спасите парк (   Читать дальше...   )Тип издания: UnofficialРазработчик: Playcademy GamesЖанр: Квест, Поиск предметовЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+Рассказ для детей о маленьком дельфинёнке, попавшем в беду.Жанр: Детская прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3915BFA57E7928C07DFEB08FCBFB7168DD19742E
+magnet:?xt=urn:btih:E54E0FA4C94357A67FD6AC8AA668342737D90906
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +692,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289732   (684232) от 17.03.2019
+###  Публикация: 1134258   (687569) от 16.05.2017
 
-Limbonic Art - Spectre Abysm (2017) [MP3|320 Kbps] <Symphonic Black Metal>
+VA - Time Piano And Relax (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Demonic Resurrection (10:21)
- 02. Ethereal Traveler (7:06)
- 03. Omega Doom (7:46)
- 04. Requiem Sempiternam (2:44)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:47:10
+01.  DeepCosmo - Silent  2:22
+02.  Arsen Movsisyan - Remember  4:05
+03.  Tiikk - Broken Piano  4:01
+04.  Nikolay Mikryukov - Happiness Island  6:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3343B6100181E07A9D617C6EEBB22F588AC57297
+magnet:?xt=urn:btih:35F124E631FE39A682ED881D0A199B03CDB31A1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

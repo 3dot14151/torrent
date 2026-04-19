@@ -1,3 +1,107 @@
+###  Публикация: 905472   (650779) от 05.06.2015
+
+Проекты - VideoHive - Ramadan Logo Pack 2 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа в стиле"арабика". Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADC47712DDBFBB5D0CB88EB2F0BA6C722BCD592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904739   (650768) от 05.06.2015
+
+Проекты - VideoHive - Logo Constructor-Alphabet Builder With Characters [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания строительного логотипа. Проект предназначен для редактирования в АЕ.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABE14B4942394149FBF31FED5D2DBFA80D48474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904651   (650767) от 05.06.2015
+
+Проекты - VideoHive - Architect and Architecture Company Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Проект предназначен для редактирования в АЕ.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12AD432DD537F541288BD25516168891049BC55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799063   (649767) от 24.06.2014
+
+VideoHive - Logo In Nature Bundle - 4263373 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш лого в поле, на фоне гор и облаков.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E6C4D0D31B1C8139A64F1C22CBF4F0918D1FEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 678103   (649437) от 13.07.2013
 
 Проекты - VideoHive - Wonderous Logo Reveal [AEP]
@@ -569,113 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57CD54BA4B1EB2A7F4B8D4D66E2E179CC57AA248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908113   (635298) от 13.06.2015
-
-Проекты - VideoHive - Temple Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2799A13C267D017807E31F5A043B39C7EA13629E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908403   (633335) от 14.06.2015
-
-Проекты - VideoHive - Glitch Logo Opener [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glitch Logo Opener - Интересный вариант открывания вашего логотипа в форме цифровых глюков.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876B2500CB3B8DD976033615BF7E46B68C009322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801743   (632398) от 03.07.2014
-
-VideoHive - Burn Destroy - 7238297 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощная эпическая анимация в которой ваш логотип или текст разрушается огненным шквалом.
-Отличное Интро  для игры, фильма в стиле "Экшн" или документалистики.
-Превью, видеоурок, шрифты - в раздаче.Формат: AEPРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE7187F6DB606CA8AF01DF4B72A95A86BD5C4556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801691   (632391) от 03.07.2014
-
-VideoHive - Magic Book - 6961644 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересный проект.Порывом ветра перелистываются  страницы и захлопывается книга с вашим лого на обложке.
-Просто вставьте свой лого и проект готов к рендеру.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B913ADC4BC7A2EA1E9C0C6D4A2FFC62BBF120529
 ```
 
 https://mybot314.ru/tekegram_catalog/

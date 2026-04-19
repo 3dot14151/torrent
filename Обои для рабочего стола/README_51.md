@@ -1,3 +1,33 @@
+###  Публикация: 543689   (493067) от 06.09.2012
+
+[Wallpapers] Mega Pack Full HD 4 (1920x1080)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493067.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Mega Pack Full HD 4 (1920x1080)
+Название: Mega Pack Full HD 4 (1920x1080)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: До нескольких сидов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47919468D364D9FAC4DB726F4890EE68C0514412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404473   (492982) от 25.08.2020
 
 Обои - Кошачьи [JPG]
@@ -643,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8BB329FF7B9347CBB0A52CF29CB99AA9C76C2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243945   (486070) от 30.08.2018
-
-Обои - Desktop Wallpapers Full HD. Part (274) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099FAAE58948EED99E1CF4C427796CD2ECD02E6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1582962   (314378) от 13.10.2022
+
+Cosmograf - 9 Albums (2011-2022) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Recall [00:02:58]
+02. Heroic Materials [00:13:13]
+03. Industry [00:00:40]
+04. British Made [00:05:42](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD19119F5C43AE96075CDF91E544D822644062B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076326   (314189) от 25.11.2016
 
 Boneyard Dog - Bluesbound Train (2016) [MP3|320 Kbps] <Rock, Blues Rock>
@@ -722,35 +751,6 @@ Final Conflict - The Rise Of The Artisan (2020) [MP3|320 Kbps] <Progressive Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00AD25E103EE61301940FEAEB5DCC223F9632A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333719   (301586) от 26.10.2019
-
-Syrinx - Meteora (1980) LP [MP3|320 Kbps] <Electronic, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syringendrom (5:33)
-02. Metamorphosis (2:49)
-03. Steingarten (5:26)
-04. Pantokrator (3:15)(   Читать дальше...   )Жанр: Electronic, KrautrockПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0961EBEBE6FC5638EA6ED754DE7B412A4306FB0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

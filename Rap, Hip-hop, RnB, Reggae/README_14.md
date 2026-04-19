@@ -1,3 +1,32 @@
+###  Публикация: 1283856   (731822) от 18.02.2019
+
+UB40 - UB40 (1988) Reissue [FLAC|Lossless|image + .cue] <Electronic, Synth-pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance With The Devil
+02. Come Out To Play
+03. Breakfast In Bed
+04. You're Always Pulling Me Down(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475252E1163360CA1BF8A05AB8753D24828D57FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285152   (724776) от 24.02.2019
 
 Nyctophiliac - Dark Side of the Mental (2016) [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Trip Hop, Dark Jazz>
@@ -714,35 +743,6 @@ Sting & Shaggy - 44/876 (2018) [MP3|320 Kbps] <Reggae, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BFCCFAE87FEFC59F3F740A7CC581B81BC3D74AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220663   (702334) от 20.04.2018
-
-Horus - Прометей роняет факел (2018) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Земля мертвых
-02. Желтая стрела (feat. Зараза)
-03. Гири
-04. Огонек (feat. Murda Killa)(   Читать дальше...   )Жанр: RapПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA0E6CE1C88E7315A1742ED67E3C29AD77CF362
 ```
 
 https://mybot314.ru/tekegram_catalog/

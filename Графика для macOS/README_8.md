@@ -245,7 +245,7 @@ onOne Software Plug-In Suite 5.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_747175.jpg" />
 </div>
 
 

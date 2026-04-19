@@ -59,7 +59,7 @@ Driver: San Francisco / Driver: Сан-Франциско (2011) [PS3] [EUR] 3.6
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_798582.jpg" />
 </div>
 
 

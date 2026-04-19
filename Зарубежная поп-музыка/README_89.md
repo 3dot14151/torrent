@@ -1,3 +1,73 @@
+###  Публикация: 463191   (80695) от 07.03.2012
+
+ABBA - Collected (2011) [MP3|320 кб/с]<Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80695.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Продолжительность:00:55:52
+1. Ring Ring (English Version) (3:08)
+2.  People Need Love (2:45)
+3.  Love Isn't Easy (But It Sure Is Hard Enough) (2:56)
+4.  She's My Kind Of Girl (2:44)
+5.  Waterloo (English Version) (2:46)
+6.  Honey, Honey (2:56)
+7.  Dance (While The Music Still Goes On) (3:13)
+8.  Sitting In The Palmtree (3:40)(   Читать дальше...   )2011Жанр: Pop, DiscoПродолжительность: 03:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0689E137817D4648BBCB1F122EF11CD6BFAD868F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462123   (80282) от 05.03.2012
+
+Mylene Farmer - 8 альбомов (1986-2010) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1986-2010Жанр: PopПродолжительность: 00:48:52
+
+01. Oui mais... non
+02. Moi je veux...
+03. Bleu noir
+04. N'aie plus d'amertume
+05. Toi l'amour
+06. Lonely Lisa
+07. M'effondre
+08. Light Me Up(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462513   (80156) от 05.03.2012
 
 Stevie Wonder - World Ballads Collection (1999) [MP3|320 кб/с]<Pop, Soul, Jazz, Funk>
@@ -694,64 +764,6 @@ VA - Billboard Top Hits 1978 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ACF89801BAF9CE8D134B63201B47860DFA251C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781908   (70111) от 26.02.2025
-
-VA - Modern 80's - The Best Of Discopop Vol.4 (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - Atlantis is Calling (S.O.S. for Love)
-02. Rick Astley - Together Forever
-03. Kylie Minogue - Got to Be Certain
-04. Fancy - Flames of Love(   Читать дальше...   )Жанр: Electronic, Rock, Pop, Italo-DiscoПродолжительность: 02:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED35A712A961F0D317F7EA75F90C875DBF158C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782313   (70033) от 28.02.2025
-
-VA - Top Hits Only Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N-Trance - Electronic Pleasure
-02. Masterboy - Anybody ( Movin' On )
-03. Culture Beat - Inside Out
-04. M.People - Itchycoo Park(   Читать дальше...   )Жанр: Electronic, Pop, Eurodance, Euro HouseПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434C7D110C624680F3AC953EA784B1A1AA24CD40
 ```
 
 https://mybot314.ru/tekegram_catalog/

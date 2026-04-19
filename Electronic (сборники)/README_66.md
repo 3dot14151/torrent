@@ -1,3 +1,61 @@
+###  Публикация: 1015798   (773265) от 12.05.2016
+
+VA - Trance Desire Vol. 69 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sied Van Riel feat. Alicia Madison - Gravity 7:11
+02. David Forbes, Emma Gillespie - Hurricane (Original Mix) 7:01
+03. Julie Thompson with Super8 & Tab - Your Secrets Safe 7:44
+04. Andain - What It's Like (Sneijder Remix) 6:10(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722BF522051CC756C4A1D5A803AE09246345C76E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391705   (773245) от 21.06.2020
+
+VA - Beatport Disco House: Sound Pack #108 (2020) [MP3|320 Kbps] <Funky, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Zoran - Black Dance
+02. Mflex Sounds - Burned By The Fire
+03. DJ Expertise - Quite
+04. Stranger Danger - Chuggy Lovebottoms(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 06:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDE1FA517725AB5745427A45C46107FDC28E605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015857   (773161) от 12.05.2016
 
 VA - Wоrld Withоut Wаrs (2CD) (2016) [MP3|192-320 кб/с] <Spасеsуnth & Spасеdisсо>
@@ -699,64 +757,6 @@ VA - Cajmere - Wheels Of Steel Vol.1 (1998) авторская раздача [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABB091F7393BD117ECEED8EE5C0E81102328E03C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392429   (769222) от 26.06.2020
-
-VA - Ibiza Warm Time Trance (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769222.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Litchfield Project - Prime Mover
-002. Shedona - Infusions (Extended Mix)
-003. John Aleph - Always Forward
-004. Lydia Delay - Dance The Night Away(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 11:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3521D15B9C073F573D814F0331E4193756A740DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392434   (769186) от 26.06.2020
-
-VA - Trance Mission: Fantasy (2020) [MP3|320 Kbps] <Trance, UpliftingTrance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769186.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ferry Corsten & Ciaran McAuley - Mo Chara (Extended Mix) 6:42
-002. Maria Healy - Clouds 3:31
-003. Leroy Moreno - Aetheria (Original Mix) 6:31
-004. Nikolauss - We Are Not Alone 3:53(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveПродолжительность: 11:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B81239E80A7D249C0B73D4C9778009BC16AE9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

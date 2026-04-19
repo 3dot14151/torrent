@@ -1,22 +1,25 @@
-###  Публикация: 1486241   (1004883) от 30.07.2021
+###  Публикация: 1483645   (1006785) от 14.07.2021
 
-Люмены Лиона / Lyon Lumens (2021) WEBRip [VP9/2160p]
+BLNDR - Callopsis (2021) Kizen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
 
->>Документалистика и Телепередачи
->>Релакс / Relax
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лион — это динамичный мегаполис, который максимально использует своё уникальное архитектурное, культурное и гастрономическое наследие, а также стратегическое положение между Северной и Южной Европой.Производство: ФранцияЖанр: Документальный, видовойРежиссер: Эрик ТарритПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:05:18
+01. Ulearum (04:47)
+ 02. Callopsis (05:57)
+ 03. Protarum (06:31)
+ 04. Gorgonidium (06:14)Жанр: Ambient, TechnoПродолжительность: 00:23:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FDB6C0CDB63BE75D34C646D60313A75E138CD97
+magnet:?xt=urn:btih:86141BD6EDC4445C58EF46D23C97F0A36FD266EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,489 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486133   (1004882) от 30.07.2021
+###  Публикация: 1483649   (1006784) от 14.07.2021
 
-Heaven & Earth - V (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+Sincere Trade - Between You And Me (2007) Sublight Records [FLAC|Lossless|tracks+.cue] <IDM, Glitch, Experimental>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn (03:07)
+ 02. Forsas (06:12)
+ 03. Creeping Serif (04:52)
+ 04. Extract Exume (04:24)(   Читать дальше...   )Жанр: IDM, Glitch, ExperimentalПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483461   (1006783) от 14.07.2021
+
+VA - Best New Hype Techno (2021) [MP3|320 Kbps] <Techno, Minimal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006783.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Briarcliff - One Direction
+002. Obstructor - Recession
+003. Chris Lehmann - Drive
+004. Dhalgren - Bad Trip(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 11:54:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483343   (1006782) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 4 (2020) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillson, Marc Hartman - Smiling Faces (Original Mix) (4:09)
+02. Mo'jardo, Tim Gelo - Midnight in Paris (4:43)
+03. Florzinho, Euphonic Traveller - Like the First Moment (Original Mix) (5:33)
+04. Martin Liege - Balearic Jazz (Original Mix) (3:43)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483640   (1006781) от 14.07.2021
+
+Potlatch - On The Cloud (2021) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Cloud (02:25)
+ 02. The Old Mirrorball (02:32)
+ 03. Glass Shoes (02:21)
+ 04. Water Trip (02:18)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 00:19:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483344   (1006780) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 5 (2020) [AAC|~330 Kbps] <Chillout, Lounge, Downtempo>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patiotic - Late Night Neon (Original Mix) (3:39)
+02. CaPa - Time Is All We've Got (4:32)
+03. Tigerforest - Azure (4:02)
+04. Kevin Paczesny, Jani R. - Winter Lights (5:33)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483476   (1006779) от 14.07.2021
+
+Истоки анимации. Басня о полной женщине. Басня о неудавшемся романе / The Phable of the Phat Woman. The Phable of a Busted Romance (1916) DVDRip
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две коротенькие мультипликационные басни. Ничего особенного, просто две незатейливые шутки, типичный пример анимации тех лет.Производство: США, International Film ServiceЖанр: Рисованная анимация, короткометражныйРежиссер: Том Э. Пауэрс, Рауль БаррПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:02:20 - часть (2 части)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483456   (1006778) от 14.07.2021
+
+VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006778.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peetu S - Afterlife
+002. Human Force - Sun Rising High
+003. Green Court - Silent Heart
+004. Wavetraxx - Lost Transition(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15575E00776F7C701B1013DD65AF3A8D40B4CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483341   (1006777) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 3 (2019) [AAC|~338 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vincent Boot - Code (Original Mix) (6:00)
+02. Weathertunes - Take It Easy (Original Mix) (4:08)
+03. Marga Sol - Night Sky (Original Mix) (4:17)
+04. Michael e - With Each Passing Moment (Guitar Mix) (4:13)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C529261DA3619FBBCD05FA6521E656B102E90579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483349   (1006776) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 7 (2020) [AAC|~327 Kbps] <Chillout, Lounge, Downtempo>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk, Storm Marrero - On the Line (Main Mix) (5:08)
+02. Roberto Bronco, The One Lavic - Day After Day (Original Mix) (3:42)
+03. Chillson, Marc Hartman - With You (4:36)
+04. Roberto Bronco - Come Together (Original Mix) (4:47)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:45:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483347   (1006775) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 6 (2020) [AAC|~326 Kbps] <Chillout, Lounge, Downtempo>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage Of Deep - Forbidden Perfume (5:28)
+02. Dellasollounge - Show Me the Stars (Original Mix) (4:47)
+03. Chillson, Marc Hartman - Crash & Burn (4:08)
+04. Peter Pearson - Lead Me On (Original Mix) (4:27)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:49:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483648   (1006774) от 14.07.2021
+
+Blochemy - Aithem (2021) whitelabrecs [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Field Recording>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guis (04:54)
+ 02. Feal (04:31)
+ 03. Ange (04:52)
+ 04. Lues (04:18)(   Читать дальше...   )Жанр: Ambient, Field RecordingПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483334   (1006773) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 2 (2019) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - I Did You Wrong (Original Mix) (3:26)
+02. Dreamhunter - Boarding Gate (Original MIx) (4:27)
+03. Marc Hartman - Leave the World Behind (Original Mix) (5:30)
+04. Pier-O - Lady Fantasy (The Next Summer) (5:37)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BE3D545334FCBACC805E36F46E4A0CF477DD0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483439   (1006772) от 14.07.2021
+
+41 South - Are We There Yet? (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Rocks 07:14
+02. Night Creatures (It Is Time!) 02:31
+03. Night Creatures - Come On My Children (Let's Dance) 08:30
+04. Who Left The Gate Open? 04:32(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483485   (1006771) от 14.07.2021
+
+Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sliding Doors (00:03:10)
+02 - 1961 (00:03:42)
+03. Aftermath (00:03:46)
+04. Wildflowers (00:03:04)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483328   (1006770) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 1 (2019) [AAC|~348 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Ibiza Blue (Original Mix) (5:02)
+02. Solar Music Club - It's All Right (Original Mix) (5:04)
+03. Marga Sol - Butterflies (Project Blue Sun Rmx) (7:30)
+04. Sky Spirit - Beautiful Day (Original Mix) (4:58)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75041E6DD28FC5BAB2090BA839FB0068D8006652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483352   (1006769) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 8 (2021) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weber & Weber - Frozen in Time (4:32)
+02. Simply Chill - Fire (Costa del Mar edit) (5:22)
+03. Patiotic - Timeless (Original Mix) (4:06)
+04. J. R. Haim - Wanderlust (4:47)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3E7347E800A1A8E26EE1CD7A47A8C0ABCEC865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483436   (1006768) от 14.07.2021
+
+Goad - La Belle Dame (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Drive
-02. Beautiful
-03. Never Dream Of Dying
-04. Ship Of Fools(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:59
+01. The Haunted Palace In The Poe' Land
+02. The Queen Of The Valley
+03. The Man In The Dreamland
+04. Magic Stairway pt. 1(   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 00:58:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27CFDD21388A4C4C3BDB9826D0C63233215A6E35
+magnet:?xt=urn:btih:9CFB0ADC653CAA745F7571FF8CC14638703D1154
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +517,157 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486245   (1004881) от 30.07.2021
+###  Публикация: 1483585   (1006767) от 14.07.2021
 
-Дарья Донцова | Амулет Добра (2019) [MP3, Надежда Винокурова]
+Mozilla Thunderbird 78.12.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43562F00524A0380602EFB855CD680160D67B5F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483573   (1006766) от 14.07.2021
+
+IObit Uninstaller 11.0.0.40 RC [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006766.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F22CE2D05015325FB15313337BE84FE275B294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483560   (1006765) от 14.07.2021
+
+CodeLobster IDE 1.12.0 [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006765.jpg" />
+</div>
+
+
+###  Подробнее
+
+CodeLobster IDE – данный продукт является продолжением известного программного обеспечения у web разработчиков CodeLobster PHP Edition (который теперь платный).
+   Изменения не коснулись условий использования CodeLobster IDE. Программа так и осталась бесплатной в стандартной редакции (профессиональная версия программы поддерживает большее количество плагинов).
+   Свободно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483606   (1006764) от 14.07.2021
+
+Opera 77.0.4054.254 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9D1FC504AE261A8799AE4EDB691BB8D2D469B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483565   (1006763) от 14.07.2021
+
+SIV (System Information Viewer) 5.60 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006763.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIV (System Information Viewer) - мощнейшая утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B9BA0D2252D1F3DB4735DE0500FE965EEBA425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483557   (1006762) от 14.07.2021
+
+Роберт Дж. Маккензи | Упрямый ребенок: как установить границы дозволенного (2021) [MP3, Антон Макаров]
 
 >>Аудио для детей и родителей
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Амулет добра» открывает новую авторскую серию книг для детей «Сказки Прекрасной Долины». Это история бездомной собаки по кличке «Пошлавон», которая благодаря новому другу попадает в волшебный мир Прекрасной Долины, где она обретает не только новых друзей, но и семью. Но на пути к счастью им предстоит преодолеть немало трудностей. Юные читатели вместе со сказочными (   Читать дальше...   )Жанр: Сказка, Проза для детейЯзык озвучки: РусскийПродолжительность: 04:32:33
+С детским упрямством и своеволием так или иначе сталкиваются все родители. Как быть, если ребенок ведет себя плохо, игнорируя или отвергая ваши требования? Что делать, если вы исчерпали все средства, чтобы добиться послушания, или если «конфликт поколений» так вас утомил, что кажется: проще махнуть на все рукой, чем добиваться своего? Читать эту книгу! С помощью (   Читать дальше...   )Жанр: Психология, Воспитание детейПродолжительность: 07:41:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B239A5B831769FD8F1EDBC14399478FAB37AD2DC
+magnet:?xt=urn:btih:3D49447258722E7CCA9EDACBF11BAE0DF2CD1F02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,99 +675,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486243   (1004880) от 30.07.2021
+###  Публикация: 1483584   (1006761) от 14.07.2021
 
-Золотой Глобус: Йемен / Golden Globe: Yemen (2009) HDRip [H.264]
+Sandboxie 5.50.8 [Multi/Ru]
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легендарные сокровища царицы Савской, волшебные города с глиняными дворцами, экзотика Востока, источающего ароматы мирра и ладана, — Йемен на протяжении сотен лет искушал путешественников западного мира, но не впускал их, оставаясь Терра Инкогнита. Древние греки и римляне называли этот край «Арабиа Феликс» («Счастливая Аравия»). Расположенный на торговом пути между (   Читать дальше...   )Производство: Германия, Komplett-MediaЖанр: Документальный, познавательный, путешествияРежиссер: Вольвганг ВингенбахПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38D2C3EDBBCBA7956BB02E21E668B4A6EF39E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486335   (1004879) от 30.07.2021
-
-Wise Disk Cleaner 10.6.1.796 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72284844DB1E379149064B2B13FEDEBC7F8189FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486356   (1004878) от 30.07.2021
-
-Microsoft Edge 92.0.902.62 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B8209B55EFD8328E658F053D07F3942EFAD79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486242   (1004877) от 30.07.2021
-
-Наша планета моими глазами / Our Planet My Eyes (2020) WEBRip [VP9/2160p]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция моментов путешествий и воспоминаний со всей нашей планеты моими глазами и камерой.Производство: ЮАРЖанр: Документальный, видовойРежиссер: Мистер БриннортПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:05:25
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -183,519 +701,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486254   (1004876) от 30.07.2021
+###  Публикация: 1483438   (1006760) от 14.07.2021
 
-Павел Астахов | Адвокат Артем Павлов (Книга 12). Судья. Тайная сторона правосудия (2021) [MP3, 128 Kbps, supersan]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могущественные тайные силы ведут беспощадную борьбу за полный контроль над судебной системой. В этой войне применяются самые подлые и страшные методы: от провокации взятки до открытого похищения ребенка и убийства. Невидимый всесильный противник пытается заставить закон молчать, уничтожая основополагающее правило: «Все равны перед законом и судом».Жанр: ДетективПродолжительность: 08:51:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486363   (1004875) от 30.07.2021
-
-Geezer Butler - Manipulations of the Mind: The Complete Collection (2021) [MP3|320 Kbps] <Heavy Metal>
+King Weed - Conquerors Of The Light "Collection Part IV" (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Впервые собранный вместе, «Manipulations Of The Mind - The Complete Collection» объединяет все сольные произведения основателя Black Sabbath, басиста и лирика Гизера Батлера на четырех компакт-дисках, доступных через BMG. Включая альбомы 'Plastic Planet' (с участием Бертона С. Белла из Fear Factory) (1995), 'Black Science' (1997) и 'Ohmwork' (2005) с бонусным 4-м (   Читать дальше...   )CD1:
- 01 - Catatonic Eclipse (06:12)
- 02 - Drive Boy, Shooting (04:17)
- 03 - Giving Up the Ghost (05:14)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 03:28:01
+01. Conquerors Of The Light - 06:27
+02. Envy - 05:32
+03. Spirits Over Us - 07:18
+04. Bounded By Chains - 04:45(   Читать дальше...   )Жанр: Psychedelic, Stoner RockПродолжительность: 00:52:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A157CCA9179AE33E4A335FCF777AFF43755ABB09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486389   (1004874) от 30.07.2021
-
-AVG Clear (AVG Remover) 21.6.6446.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004874.jpg" />
-</div>
-
-
-###  Подробнее
-
-AVG Clear - утилита для полного удаления с компьютера всех следов установки антивирусных программ AVG. Поможет очистить записи реестра, пользовательские настройки, установочные файлы и прочее.
-Это приложение пригодится в том случае, когда стандартный метод удаления продуктов AVG был завершен с ошибками.
-
-AVG Clear удаляет все версии AVG Internet Security, AVG AntiVirus (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B77BF6DEA3ADC05A0512507682D8E13FEC7534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486393   (1004873) от 30.07.2021
-
-doPDF 11.1.181 Free [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004873.jpg" />
-</div>
-
-
-###  Подробнее
-
-doPDF — программа для преобразования документов в формат PDF. Поддерживается работа со многими форматами файлов, включая Microsoft Excel, документы Word или PowerPoint, сообщения почты и веб-страницы.
-После установки doPDF в папке "Принтеры" появится новый виртуальный принтер, через который и будет происходить процесс преобразования. Таким образом, для (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3C7290364A31F0AE45B2E644B1E704925D11A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486270   (1004872) от 30.07.2021
-
-Axel Rudi Pell - Diamonds Unlocked II (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Schwarze Abt
-02. There’s Only One Way To Rock (Sammy Hagar cover)
-03. Lady Of The Lake (Rainbow cover)
-04. She's A Lady (Paul Anka cover)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486403   (1004871) от 30.07.2021
-
-Чемпионат по дрэг-рейсингу NHRA 2021. 9 этап. Сонома / NHRA Drag Racing Championship 2021. Round 9. Sonoma (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра (1/4 мили). Реже проводятся заезды на 1/2 мили (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути драг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 02:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28A7D548F47BB5DDA462B51B173A41DACA61C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486330   (1004870) от 30.07.2021
-
-Q-Dir 9.81 + Portable [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
-Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486263   (1004869) от 30.07.2021
-
-Reflections of Life 10: Meridiem (2021) [En] (1.0) Unofficial [Collector's Edition]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много лет назад Богиня Звёзд ради спасения измерения Меридием отдала своё сердце. В благодарность за её жертву люди заменили его искусственным. Теперь каждые сто лет Богиня спускается в Меридием, и жители трёх миров наполняют её сердце искрами, которые поддерживают её жизнь. На одну из церемоний нисхождения Богини Вас приглашает Ваша кузина. Но в результате несчастного (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486286   (1004868) от 30.07.2021
-
-VA - Beat, Bass, Melody vol.2 (mixed by Dj V) (2021) [MP3|320 Kbps] <Bass House, Club House, Electro House>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Steff Da Campo & David Puentez - Fresh (Extended Mix)
-02-JP Candela & Sansixto - Big Up!
-03-Brooklyn Bounce - The Real Bass (Alex Marvel Remix)
-04-DJ Kuba & Neitan x Bounce Inc. - Cream (Extended Mix)(   Читать дальше...   )Жанр: Bass House, Club House, Electro House, Progressive HouseПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486264   (1004867) от 30.07.2021
-
-Allavsoft Video Downloader Converter 3.23.7.7873 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486347   (1004866) от 30.07.2021
-
-VA - Music News vol.119 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004866.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lia - Танцуй (02:09)
- 002. Afrojack & David Guetta - Hero (Dubvision Remix) (03:52)
- 003. Afrojack & David Guetta - Hero (Mick Mazoo Remix) (02:55)
- 004. Albina - La La Love (02:48)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:00:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486319   (1004865) от 30.07.2021
-
-Calibre 5.24.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9B395098800EA86739FF42F06E3A223F859DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486391   (1004864) от 30.07.2021
-
-Solid State Logic - LMC+ 1.0.0.11 VST, VST3, AAX (x64) RePack by RET [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подключаемый модуль LMC+ предоставляет вашему DAW новую и значительно улучшенную версию классического микрофонного компрессора SSL Listen, который изначально находился в центральной части легендарной консоли SL 4000E, а также ряд новых творческих инструментов для художников, продюсеров и инженеров.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3BE297C86AE9F264B9AA3581377C17EFFA2B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486375   (1004863) от 30.07.2021
-
-Терри Пратчетт | Мерцание экрана. Сборник (2021) [MP3, Егор Серов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дьявол нанимает рекламщика, чтобы популяризировать Ад. Писатель убивает опостылевшего персонажа, но следующим утром тот объявляется на пороге его дома. Незадачливые путешественники попадают в мир оживших рождественских открыток – и видят там то, что Лавкрафту не снилось. Волшебники Незримого Университета думают, как пережить проверку лорда Витинари, а капитан Моркоу (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27103E9C5144285D50B51D8C14876B385F3CAED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613321   (1004862) от 30.07.2021
-
-Mullmuzzler - Keep It To Yourself (1999) [WavPack|Lossless|image + .cue]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. His Voice [03:44]
-02. Statued [03:23]
-03. Shores Of Avalon [07:51]
-04. Beelzebubba [05:20](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572F39B99803813B4D23C87AB5DB221D6D309A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486376   (1004861) от 30.07.2021
-
-Нерон (Нерон или падение Рима) / Nerone (Nero or Fall of Rome) (1909) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004861.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме представлены некоторые эпизоды из жизни римского императора Нерона. Очередное (правда, одно из первых) краткое кино-жизнеописание императора Нерона: жене изменял и убил, мамашу прикончил, христиан гнобил, Рим сжег и сам плохо кончил. Однако в Истории - остался. Как и многие другие подонки.Производство: Италия, Società Anonima AmbrosioЖанр: Драма, короткометражный, немое киноРежиссер: Луиджи МаджиАктеры: Альберто Капоцци, Lydia De Roberti, Мирра Принципи, Луиджи Маджи, Ernesto Vaser, Ercole Vaser, Serafino Vite, Leo Ragusi, Paolo Azzurri, Mario Voller-BuzziПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99C068C49FB88F608E604E1DD048751B3140C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486188   (1004860) от 30.07.2021
-
-George Harrison - All Things Must Pass (2021) 50th Anniversary, Super Deluxe [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004860.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Main Album:
-01 - I'd Have You Any Time (2020 Mix) (02:58)
- 02 - My Sweet Lord (2020 Mix) (04:41)
- 03 - Wah-Wah (2020 Mix) (05:38)(   Читать дальше...   )Жанр: RockПродолжительность: 04:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E99B2E9AA5D89E4F98014AA493902C7E981637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486387   (1004859) от 30.07.2021
-
-Avast Clear 21.6.6446.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avast Clear (утилита для удаления Avast) - инструмент для ручного полного удаления антивирусных программ Avast в Безопасном режиме. Иногда не представляется возможным удалить Avast стандартным способом, с помощью компонента панели управления «Установка и удаление программ». В этом случае вы можете воспользоваться утилитой для удаления Avast Clear.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2908F6F78682EC63F145047C6E3B81AD323D5827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486230   (1004858) от 30.07.2021
-
-VA - veLvETОвый движ (Vol. 1) (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004858.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ёлка - Мальчик-красавчик (2021)
-2. Мари Краймбрери - По волнам (Cover)
-3. Звонкий - Прованс (Cover)
-4. DAASHA - Нарисуй мне небо (Cover)(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614D8FF208873457342239D473B2055D2DC9FA29
+magnet:?xt=urn:btih:B23D095B1F5E9E2BA9FB7A1F142F4FEB1BAAEDD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

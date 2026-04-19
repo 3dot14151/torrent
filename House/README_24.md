@@ -1,3 +1,90 @@
+###  Публикация: 1212765   (775213) от 13.03.2018
+
+VA - You Gotta Work For This Body (2018) [MP3|320 Kbps] <Deep, Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ungert - Sidebar 3:08
+02. Trump - Laptop 3:08
+03. Troy Mandalon - Input 3:08
+04. Tom Dolby - Interface 3:08(   Читать дальше...   )Жанр: Deep, Minimal, Tech HouseПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69661D62C8885D90DD54833CE86CFCD5DC7D94B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277847   (775155) от 22.01.2019
+
+VA - Winter Sun 01 (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Numedian - Balearic Winter (Original Mix) [08:07]
+02. ZGOOT - Hopefulness (Original Mix) [06:25]
+03. L_DG - Toronto (Original Mix) [07:41]
+04. Ellunate - Twinkle (Original Mix) [06:04](   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9E7A3E5BC907B47290AF32A89D8BC19F6EDE6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015069   (775081) от 10.05.2016
+
+VA - 3 Years 3rd Avenue (2016) [MP3|320 кб/с] <House, Progressve House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomas Gagliardo - Empress Quena (Original Mix) 7:33
+02. Alex Villanueva & David Salazar - Wannabe (Original Mix) 8:00
+03. OMB & Ogawa - Zipangu (Napalm & D-Phrag Remix) 7:04
+04. Marcelo Paladini - Cigarette Smoker (Matt Black Remix) 8:36(   Читать дальше...   )Жанр: House, Progressve House, Deep HouseПродолжительность: 04:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7AE1693EE6EB62FC24A2F2D4CF1A46042281DE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015092   (775077) от 10.05.2016
 
 VA - Maximum House Expressions Vol.1 (2016) [MP3|320 кб/с] <House, Electro House, Club>
@@ -658,93 +745,6 @@ VA - Sport Music 2020 [MP3|320 Kbps] <House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49ACA535FEB914FC59D6E481229F0B0A28D1620B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393443   (767646) от 30.06.2020
-
-VA - Balkan Connection Summer 2020 (2020) [MP3|320 Kbps] <Progressive-House, Deep-House, Melodic-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volkan Erman & Ugur Pato - Memories (Rick Pier O'Neil & Anthony G Remix) 6:58
-02. GMJ - Oranai (DJ San Remix) 7:05
-03. B Selekt - Raum (Original Mix) 9:17
-04. Mangata & Gabriel Filip - Elicit Spirit (Fabri Lopez Remix) 8:44(   Читать дальше...   )Жанр: Progressive-House, Deep-House, Melodic-HouseПродолжительность: 09:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7D174042CCF55C99DFA3A25DF28A26670C8B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213887   (767360) от 18.03.2018
-
-VA - Running Beats Vol.16 - Musik Zum Laufen (Inkl. 5 KM & 10 KM Mix) (2018) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lost Frequencies & Zonderling  -  Crazy  2:33
-02.  Boogie Pimps  -  Somebody to Love (Rework) (Audax Remix)  4:39
-03.  Sound Of Legend  -  Push The Feeling On (Radio Edit)  3:03
-04.  EDX  -  Runnin'  3:26(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC50D5DD0FF18FB7CD73EECB90E26B54B6226C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393601   (766945) от 01.07.2020
-
-VA - Powerwalk 2020 [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alesso, Tove Lo - Heroes (we could be) (03:35)
-02. ZEDD, Foxes - Clarity (04:28)
-03. Alexander Oscar - Bad Intentions (Faustix Remix) (02:37)
-04. Sebastian Ingrosso, Tommy Trash, John Martin - Reload (Radio Edit) (03:50)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:986E6B3C6D4F5E109B3AD7817E47BCCB8FEBE4D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

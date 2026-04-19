@@ -1,3 +1,32 @@
+###  Публикация: 1607829   (1043853) от 28.01.2023
+
+Jack Teagarden - Meet Me Where They Play The Blues (1954) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Porter Stomp [4:18]
+02. Eccentric [3:11]
+03. Davenport Blues [4:13]
+04. Original Dixieland One Step [3:24](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE08E97A09807654A7DC66F843AAD72D3F7B36AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608370   (1043655) от 30.01.2023
 
 Chick Corea With Trondheim Jazz Orchestra & Erlend Skomsvoll - What Game Shall We Play Today (2018) MNJ Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -716,35 +745,6 @@ CD1 - Ladies in Love:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C3DBEE66A27C071F80C0FD66A0235ED4F576D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438088   (1041496) от 07.01.2021
-
-VA - Jazz On Broadway: The Greatest Musicals (1956 - 1962) 10CD, 2019, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041496.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - Miles Davis-Porgy And Bess:
-01. Miles Davis - Buzzard Song [4:09]
-02. Miles Davis - Bess, You Is My Woman Now [5:13]
-03. Miles Davis - Gone [3:40](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, CoolПродолжительность: 11:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27E4B145A49BE31D38CDD1883377BABAD23560F
 ```
 
 https://mybot314.ru/tekegram_catalog/

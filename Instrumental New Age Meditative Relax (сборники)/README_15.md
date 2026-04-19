@@ -1,3 +1,29 @@
+###  Публикация: 273213   (276918) от 20.12.2010
+
+VA - The lounge Legends Ballroom Collection (2010) [MP3|320 kbps]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 04:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A7C2B18982D193025A8F8AE5C18572531D07BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083397   (274706) от 15.12.2016
 
 VA - Relax & Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -707,32 +733,6 @@ VA - Инструментальная музыка (2012) vol. № 43 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:757E3998B0CA4C5ADF51E6EC47B9F7AB0E4AEB77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496967   (253432) от 16.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 41 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CC9B16D137A91B8543EE688FC071C5ED79405F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -56,7 +56,7 @@ https://mybot314.ru/tekegram_catalog/
 A Better Finder Attributes 7 v7.04 [En]
 
 >>macOS (Apple/Hackintosh)
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227234.jpg" />
@@ -108,7 +108,7 @@ https://mybot314.ru/tekegram_catalog/
 App Cleaner & Uninstaller Pro 7.8.2 [Multi/Ru]
 
 >>macOS (Apple/Hackintosh)
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210234.jpg" />

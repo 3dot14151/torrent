@@ -1,3 +1,211 @@
+###  Публикация: 1234072   (574417) от 03.07.2018
+
+Deep Forest, Gaudi - Epic Circuits (2018) [MP3|320 Kbps] <New age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellar (04:50)
+02. Taiyo (05:21)
+03. Brassy Sunrise (06:01)
+04. Ghostly Disco (05:16)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BEE267885DFF2B710F0E677FE589CFEFE5834F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233878   (574254) от 03.07.2018
+
+Shinnobu - The Enigma V (Masterminds) (2018) [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of His Eyes the Peace V (7:05)
+02. After of Your Life (6:34)
+03. Mea Maxima Culpa (6:24)
+04. The Man V (9:33)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26EC4359CF115E8443CF54FA85531C5A276570AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921823   (573699) от 26.07.2015
+
+Catherine Duc - Voyager (2015) [MP3|320 кб/с]<New Age, Ambient, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owen's Boat
+02. Inishowen Dawn
+03. Vardo
+04. Mantra(   Читать дальше...   )Жанр: New Age, Ambient, CelticПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5408E3A8BE17A9659E2AD7BDECB020C09BF7143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921611   (573592) от 26.07.2015
+
+Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573592.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Parameshwara Mantra (Deep in Love) - 14:03
+2. Sarveshaam Mantra - 6:37
+3. Ganapati Mantra (Strong My Roots) - 7:20
+4. Karuna - 4:38(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A941B857E4FAA4506D831795656F682C5C866C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920759   (573573) от 26.07.2015
+
+Andrew Lockington - Землетрясение в Сан - Андреас / Разлом Сан-Андреас / San Andreas: Original Motion Picture Soundtrack (2015) [FLAC|tracks+.cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Andreas Main Theme (1:42)
+02. Natalie's Rescue (5:17)
+03. Caltech (2:06)
+04. Divorce Papers (3:28)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A5E1D27C772AE4E142AE7A574C61E89C4BC42D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527922   (573300) от 28.07.2012
+
+X Cultures - One World, One People (1999) [MP3|320 кб/с]<New Age, Ethnic, Folk, Trans-Global Mix>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573300.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Welcome To Crossing Cultures
+2. Dreams of Happiness
+3. Sufi Mali
+4. Baganda / Dance Of Life
+5. Temptations
+6. Sudanese Dance
+7. Waterfalls
+8. One World One People
+9. Larissa
+10. Free Your Mind(   Читать дальше...   )Жанр: New Age, Ethnic, Folk, Trans-Global MixПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A171A0C7A8B4E93EE8A94CAA344ECFA7210C3078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303446   (572750) от 21.05.2019
+
+Ilyin - EP-0002. Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572750.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Faith
+2. Conscience
+3. WordЖанр: Instrumental, Neo-Classic, MetalПродолжительность: 00:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE38AEB34C5FB197F2665D5E2B402EACC2097AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043147   (572709) от 16.08.2016
 
 VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -548,237 +756,6 @@ Jean Michel Jarre - Cities In Concert Houston Lyon (2014) Live [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04B5D6E16D10E1C169AD52FCC221461F1CCB762F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528069   (569357) от 30.07.2012
-
-Medusa - Exploration (2000) [MP3|320 кб/с]<New age,Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning (3:48)
-02. More... (4:32)
-03. Area 51 (9:12)
-04. Dream Is Real (5:07)
-05. Fishing (5:31)
-06. The Tower Of Babel (4:50)
-07. Give Me A Chance (7:27)
-08. Don't Hold Back (6:04)
-09. Navigator (4:28)
-10. Out Of This World (4:14)Жанр: New age,EnigmaticПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFDFC63864EEF328D8606DC33132D9E6649BF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528653   (568839) от 30.07.2012
-
-Erotic Moods - Эротические настроения (2004) [MP3|256 кб/с]<New age , Enigmatic, Chillout, Lounge, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pacifica (3:34)
-02. Sahara Sun (4:28)
-03. Midnight Clear (6:07)
-04. The Yeart Given (4:48)
-05. Hush (5:18)
-06. Tha Awakening (4:58)
-07. Tranquil Shelter (5:09)
-08. Spring Song (4:34)
-09. The Sound Of Love (5:12)
-10. In Your Arms (5:06)(   Читать дальше...   )Жанр: New age , Enigmatic, Chillout, Lounge, DowntempoПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8AC90EA649453CB4EE6595A916CB69FD3E415C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529103   (568809) от 30.07.2012
-
-101 Strings Orchestra - Audiophile Movie & Love Classic (2CD) (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568809.jpg" />
-</div>
-
-
-###  Подробнее
-
-101 Strings Orchestra - Оркестр 101-ой Скрипки
-Этот оркестр почти неизвестен в нашей стране. В отличие от часто звучащих оркестров Поля Мориа и Джеймса Ласта услышать его можно было только в передаче "Поющие меридианы", которую вел В.Сиверов.
-По данным Wikipedia оркестр был создан Дэвидом Миллером на основе Гамбургского оркестра Германского радио. В 1957 году выпустил свой первый альбом.
-101 Скрипка - это рекламная фишка. Реально музыкантов было больше.
-По своему составу это был, наверно, самый большой оркестр исполнявший музыку easy listening. Большое количество струнных создавало очень плотный приятный звук. Оркестр исполнял музыку в различной аранжировке, но, как правило, это была спокойная музыка.1. Quando, Quando, Quando (2:53)
- 2. Besame Mucho (3:53)
- 3. Fly Me To The Moon (3:42)
- 4. The Blue Danube (2:16)
- 5. Piano Sonata No. 8 (2:42)
- 6. Andante From Violin Concerto In E Minor (3:06)
- 7. Serenade (3:30)
- 8. Chopin's Nocturne (4:46)
- 9. Brahms' Lullaby (3:58)
- 10. Nocturne in E Flat Major, Op. 9, No. 2 (4:07)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9105CEA4D15D5D2EDC3D42E48C48A787E25121E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554691   (568748) от 04.06.2022
-
-Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|image + .cue] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Summer In Your Heart (radio version)
-02 Summer In Your Heart (rock house - radio mix)
-03 Summer In Your Heart (oceanal blue house mix)
-04 Do You Believe In LoveЖанр: Enigmatic, New AgeПродолжительность: 00:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BCC62B104EC74FFB3CD8D860FE6055B63CEA14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555559   (568733) от 04.06.2022
-
-Blue Flower - Songs Celestial (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amar Ashru Hasi
-02. Maner Jatana
-03. Mangal Hok
-04. Shunite Chahina(   Читать дальше...   )Жанр: World, Mantras, MeditativeПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2067B101F7C821A390A80C23889646F3F82FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529177   (568236) от 30.07.2012
-
-Ennio Morricone - The Best World Instrumental Hits (2CD) (2009) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Э́ннио Моррико́не (итал. Ennio Morricone)1. Chi Mai (5:05)
- 2. Cockeye`s Song (4:22)
- 3. Le Vent, Le Cri (5:20)
- 4. Bye Bye Colonel (2:03)
- 5. La Tragedia Di Un Uomo Ridicolo (2:15)
- 6. Orient Express (4:12)
- 7. Once Upon a Time In Revolution (4:15)
- 8. Dimenticare Palermo (2:55)
- 9. Mille Ecchi (3:21)
- 10. Ricatto (3:02)(   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63774FD3282C2A93AA2FAC8896919809EE55A4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921850   (568196) от 29.07.2015
-
-James Newton Howard - Snow White & The Huntsman (2012) [FLAC|tracks+.cue]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snow White
-02. I'll Take Your Throne
-03. Tower Prayers
-04. Something for What Ails You(   Читать дальше...   )Жанр: OSTПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D098ED511B015CD638CF4B885C106951F3A98C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,202 @@
+###  Публикация: 1595090   (176750) от 03.12.2022
+
+Nuclear Idiots - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titan [00:01:30]
+02. Cult [00:03:01]
+03. Damn [00:03:56]
+04. Flame (feat. cacophony) [00:03:43](   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 2 CD, 01:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2255EAC8842385BB1CBEBEC6DCA71387C68DCC9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669392   (172067) от 20.10.2023
+
+Babymetal - Babymetal Begins - The Other One - Black Night & Clear Night (2023) The One Limited Edition, 2023, BMD Fox Records [FLAC|Lossless|tracks + .cue] <J-Metal, Modern Metal, Kawaii Me ...
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Black Night (DISC 01)
+Black Night (DISC 02)
+Clear Night (DISC 03)(   Читать дальше...   )Жанр: J-Metal, Modern Metal, Kawaii MetalПродолжительность: 4CD, 02:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097E95C7E8D7FE5299B56FB4C5FAFB8CA680F7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596779   (169071) от 11.12.2022
+
+Dragon Guardian - Destiny of the Sacred Kingdom (2012) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OvertureЖанр: Symphonic Power MetalПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379E5A9DD79B420D6128A68DCDCE5DD8BBDDA133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597410   (166743) от 14.12.2022
+
+Eizo Sakamoto - Speed Metal Show (1999) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 蜘蛛伯爵 3:52
+02. ハローワーク'99 2:28
+03. 文京恋歌 5:06
+04. 我SOSー空想Cityー 1:43(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B65DF738996C0D4DBAC5AF28B810B28B0E1DB34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597301   (166740) от 14.12.2022
+
+Marge Litch - Fantasien (1991) [WavPack|Lossless|image + .cue] <Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part1 14:46
+02. Part2 20:59
+03. Part3 24:20Жанр: Power MetalПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D163A73762CD42B01FD716E7FB04267179E3FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597290   (166724) от 14.12.2022
+
+Eizo Sakamoto - Shout Drunker (2002) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DR. HEAVY METAL 3:50
+02. ON FIRE 2:53
+03. EVIL POWER II 1:29
+04. READY FOR LOVE 3:36(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E96EEF1CF0D1090354DB4172368E939AD741FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597291   (166719) от 14.12.2022
+
+Eizo Sakamoto - Metal icchokusen (2000) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guten Tag 2:39
+02. Metal Daze 4:22
+03. Cry Baby Cry 4:56
+04. Mr. Lonely 5:26(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791BCFB1B6E80BA951D2518EA1CEF4012F5A7291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597411   (166716) от 14.12.2022
 
 Eizo Sakamoto - Another Face (1998) [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -547,221 +746,6 @@ Electric Asturias - Dimensions (2023) [FLAC|Lossless|tracks + .cue] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D662FFDF77D14E7B6F189D17C520D3896CD7D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694177   (121301) от 23.01.2024
-
-Ryujin - Ryujin (2024) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hajimari / instrumental
-02. Gekokujo
-03. Dragon, Fly Free
-04. Raijin & Fujin(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02289F145027592019CB96FFCCD3EA2B16370AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720600   (110186) от 05.05.2024
-
-Concerto Moon - Back Beyond Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. THE GOLD DIGGER [00:03:34]
-02. HOPE SEEKER [00:04:42]
-03. STORY OF MY LIFE [00:04:52]
-04. REACHING OUT FOR MERCY [00:05:04](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E720B7B43AFAA8E1C47AA20697BDE1CD803FD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725617   (108923) от 25.05.2024
-
-Tears Of Tragedy - Trinity And Overture 15th Anniversary Special (2024) [MP3|320 Kbps] <Symphonic, Melodic Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vorspiel (Live at CLUB CITTA'/October2023) [00:00:45]
-02. Silence Ocean (Live at CLUB CITTA'/October2023) [00:05:27]
-03. Euclase (Live at CLUB CITTA'/October2023) [00:05:04]
-04. Astrea (Live at CLUB CITTA'/October2023) [00:04:10](   Читать дальше...   )Жанр: Symphonic, Melodic Power MetalПродолжительность: 3 CD, 02:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7AD3B84DB6CF65017A63E7E7FA9CBB346F27957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739923   (105969) от 30.07.2024
-
-Concerto Moon - Back Beyond Time (2024) 2 x CD [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105969.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Gold Digger
-02. Hope Seeker
-03. Story of My Life(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936EC4B53FEB326DB1A6355AFF24CC3E4AA8A7AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750366   (104220) от 19.09.2024
-
-Defiled - Horror Beyond Horror (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke and Mirrors (2:35)
-02. Horror beyond Horror (4:01)
-03. Syndicate (3:59)
-04. The Alchemy (2:47)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FF24D36BAE0B88665290CBB3D5BCD4950604C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486055   (90017) от 22.04.2012
-
-Yoshida Kiyoshi - Warriors (2011) [MP3|320 кб/с]<New age, Ethnic>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90017.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:57) 01. Warriors
-(5:01) 02. Moment
-(4:17) 03. Brilliance of Edo
-(1:20) 04. Collage 1 - Bush Warbler
-(4:55) 05. Frontier
-(4:33) 06. Blinking Out
-(4:56) 07. The Sword
-(1:15) 08. Collage 2 - The Aftermath
-(4:47) 09. Like the Wind
-(3:58) 10. Zen(   Читать дальше...   )2011Жанр: New age, EthnicПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F1FD30DB9520391D5C85AB822C13296A34F989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483276   (88778) от 16.04.2012
-
-Lai Muang - The Spirit Of Lanna (2008) [MP3|320 кб/с]<New age, Ethnic>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88778.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:06) 01. Chiang Saen Luang
-(3:16) 02. Long Mae Ping
-(4:24) 03. Khang Khao Kin Kluay / Khamen Lai Kwai
-(2:14) 04. Por Khru
-(6:24) 05. Pee Mot
-(4:23) 06. Mon Lampang
-(4:16) 07. Tang Chiangmai
-(4:10) 08. Lao Duang Duen
-(2:20) 09. Kulap Chiangmai
-(2:19) 10. Low Peejum Solo(   Читать дальше...   )2008Жанр: New age, EthnicПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78D86B09A1E5E5ABC8AB3AFAFC64888B8507307
 ```
 
 https://mybot314.ru/tekegram_catalog/

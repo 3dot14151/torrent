@@ -1,3 +1,32 @@
+###  Публикация: 1198729   (804413) от 13.01.2018
+
+VA - Awesome 80's Volumes One, Two & Three (2004) 3CD, Compilation [MP3|320 Kbps] <Pop Rock, Soul, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Culture Club - Do You Really Want to Hurt Me (4:25)
+02. Bros - Drop the Boy (3:42)
+03. Spandau Ballet - Through the Barricades (5:48)
+04. Deniece Williams - Let’s Hear It for the Boy (4:20)(   Читать дальше...   )Жанр: Pop Rock, Soul, Synth-popПродолжительность: 03:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CE8D3CE1B2CD813D5D7AF8579FC1D569DEAC8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120140   (803565) от 30.03.2017
 
 OCN (Ocean) - Wojna Swin (2011) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ Faces - The First Step (1970) Reissue, 1990, Warner Bros. Records [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EC3A28EA9336ED9E4A7EFEFA19B923206CB0078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122474   (798831) от 05.04.2017
-
-Faces - A Nod Is As Good As A Wink...To A Blind Horse (1971) Reissue, 1990, Warner Bros. Records [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798831.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Miss Judy's Farm
-2. You're So Rude
-3. Love Lives Here
-4. Last Orders Please(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAECE1BFED6A683D3F144FDB728947B61BDD6BDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

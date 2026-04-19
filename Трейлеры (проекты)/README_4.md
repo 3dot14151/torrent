@@ -1,3 +1,29 @@
+###  Публикация: 926062   (534930) от 09.08.2015
+
+Проекты - VideoHive - Urban Destruct #2 of the Cinematic series - 45644 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания превью к фильму. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9A0DD9AC0E17D6DD3259E95E60797D2409232EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155204   (532900) от 03.08.2017
 
 Проекты - VideoHive - Shatter Wind Epic Trailer - 11780022 [AEP]
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E98E4650A7AA8DAC0E063404BC5188C55D3CCF72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067502   (386589) от 29.10.2016
-
-Проекты - VideoHive - Inky Freeze Frame - 18442738 [AEP]
-
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inky Freeze Frame - Вы можете использовать это в качестве презентации, тизера или кинематографического трейлера к фильму.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2B78CD5C621DB63462585CDFD9C2D5DDAAEE6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

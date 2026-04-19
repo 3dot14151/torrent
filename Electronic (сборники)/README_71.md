@@ -1,3 +1,61 @@
+###  Публикация: 1216093   (753062) от 29.03.2018
+
+VA - No Stress Relaxing Beats (2018) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Art Of Noise - Robinson Crusoe 3:49
+02 The Grid - Floatation (Single Version) 4:04
+03 Christian Falk feat. Jevetta Steele - Calling You 4:33
+04 William Orbit`s Strange Cargo - Million Town 5:32(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611FC21428E7B0122D261193345D4DFB2AA98530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216242   (753058) от 29.03.2018
+
+VA - Deep House Collection Vol.161 (2018) [MP3|287-320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753058.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2fox feat. Nandi - Motion (Original Mix)
+002. 2fox feat. Nandi - Zulu Suite (Original Mix)
+003. A-Mase feat. Rave CHannel - Just Be  (Original Mix)
+004. A. Rassevich - Hate Me Tonight (QRVZH Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCBA2E810E5F83E6CEA44CAE9E16B50E0D188D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216075   (753056) от 29.03.2018
 
 VA - Deep House - Slow Motion (2018) [MP3|320 Kbps] <Deep House>
@@ -688,64 +746,6 @@ VA - Record Super Chart 644 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97328CE8338802DA5B3542898ACF1DF928577F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396300   (748680) от 14.07.2020
-
-VA - Soft Emotion: Background Music (2020) [MP3|320 Kbps] <Lounge, Downtempo, Background>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748680.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Martin Vogel - Heaven Can’t Wait
-002. Back 2 U - Morning Sun
-003. The Soul Crusaders - Sway
-004. Funky Valley - Merefa(   Читать дальше...   )Жанр: Lounge, Downtempo, BackgroundПродолжительность: 08:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF51C01D833898109E396377640B41A09E68472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019723   (748655) от 24.05.2016
-
-VA - Blue Skies: The Uplifting Chillout Album (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twin Peaks - Breath of Air - Blue Skies Mix
-02. Jay Stapley - Sunrise - Blue Skies Mix
-03. Solace A Tu - The Eyes of Mona Lisa - Blue Skies Mix
-04. Twin Peaks - Isle of Lament - Blue Skies Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5820E67FE0CD6C8B2470A28B5CE9BDF08B83B806
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1579461   (336611) от 27.09.2022
+
+VoidOath - 2 Albums (2020-2022) [MP3|320 Kbps] <Doom, Death, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orion-Cygnus Descent [00:15:55]
+02. Festered Sepsis Lacerations [00:06:29]
+03. A Flare in Emptiness [00:00:35]
+04. Alabaster Ruminations [00:13:21](   Читать дальше...   )Жанр: Doom, Death, Sludge MetalПродолжительность: 2 CD, 01:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53760E3AE7ACAFDF25F7753D639783142A621CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579263   (336608) от 27.09.2022
+
+Eye of Void - Eye of Void (2022) [Mp3|320 kbps] <Stoner Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dwarves & Giants [00:06:27]
+02. Chains of Change [00:04:25]
+03. Blue Tears [00:06:15]
+04. Apocalyptic Funeral [00:05:15](   Читать дальше...   )Жанр: Stoner Doom MetalПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FFB4516EBDD67BF3BE0C16204C938BBA4B918C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478069   (336420) от 27.09.2022
+
+Another Now - 5 Albums (2020-2022) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parallax [00:04:09]
+02. Cascade (feat. Xavier Kleuters) [00:03:41]
+03. Trojan [00:03:16]
+04. Colors [00:03:34](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 5 CD, 02:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB7F0556ECBEB0294018529E1DFFE363632E309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074657   (336237) от 20.11.2016
 
 Unison Theory - Arctos (2016) [MP3|320 Kbps] <Technical Death, Thrash Metal>
@@ -658,93 +745,6 @@ Ancillotti - Hell On Earth (2020) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3D0B99CAA8664E71EDC521827E5516A98053D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580072   (329996) от 02.10.2022
-
-The Project Hate MCMXCIX - 9 Albums (2003-2021) [MP3|320 Kbps] <Industrial Death Metal, Melodic Death, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where He Walks, Death Walks [00:13:44]
-02. Day of the Asinine [00:13:02]
-03. Omega [00:13:47]
-04. Purity [00:12:07](   Читать дальше...   )Жанр: Industrial Death Metal, Melodic Death, Symphonic MetalПродолжительность: 9 CD, 11:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576206CD62489293CB366E8344A3059204AE741E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580613   (329911) от 02.10.2022
-
-Реанимация - 5 Albums (2006-2022) [MP3|320 Kbps] <Power Metal, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воздух свободы [00:04:57]
-02. Рубай козак [00:04:42]
-03. Жатва [00:04:40]
-04. Искусственный интеллект [00:04:51](   Читать дальше...   )Жанр: Power Metal, Pagan MetalПродолжительность: 5 CD, 03:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A86D6E04CF8EB8EDDC66ACC162BE124E0DD5F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957143   (328403) от 16.11.2015
-
-Trans-Siberian Orchestra - Letters From The Labyrinth (2015) [MP3|320 кб/с]<Symphonic Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time And Distance
-02. Madness Of Men
-03. Prometheus
-04. Mountain Labyrinth(   Читать дальше...   )Жанр: Symphonic Progressive MetalПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1619A5B57C9FA2164F1EDDD105736549B1CF20
 ```
 
 https://mybot314.ru/tekegram_catalog/

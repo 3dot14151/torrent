@@ -528,6 +528,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 347192   (637177) от 09.06.2011
+
+Shogo Hamada - selected discography[9 albums] (1982-2005) [FLAC|Lossless]<JRock,Rhythm and Blues>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_637177.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 光と影の季節
+ 2. この夜に乾杯!
+ 3. 旅立ちの朝
+ 4. Thank You
+ 5. デスク越しの恋
+ 6. 誰かどこかで
+ 7. I Am A Father
+ 8. 花火
+ 9. 初恋
+ 10. 君と歩いた道(Album Ver.)(   Читать дальше...)Жанр: JRock,Rhythm and BluesПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035198   (628274) от 16.07.2016
 
 Band-Maid - Brand New MAID (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal, J-Rock>
@@ -721,35 +756,6 @@ One Ok Rock - Ambitions (2017) English Version [FLAC|Lossless|tracks] <Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:629117DFF360AF43014FA08F08555938ECE20A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548913   (596271) от 04.05.2022
-
-Nocturnal Bloodlust - Argos (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596271.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Devastated World
-2. Red Soil
-3. Straight to the sky (feat. Luiza)
-4. Life is Once(   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85E29CB8A917A63EB5D610857C12B046F8A12A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

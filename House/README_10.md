@@ -1,3 +1,90 @@
+###  Публикация: 1106856   (870144) от 21.02.2017
+
+VA - Melbourne Bounce Sound Selection Vol.2 (2017) [MP3|320 Kbps] <House, Melbourne Bounce, Dutch>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bsharry - I Like It  3:54
+02.  James Black Pitch - Teclo  5:15
+03.  Dob & Visco - Dark Curse (feat. Nathan Brumley)  4:23
+04.  Massimiliano Stangoni - Titan  2:38(   Читать дальше...   )Жанр: House, Melbourne Bounce, DutchПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DB3BC640E79BD8200DF5F16F6B244827327A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496810   (869925) от 19.09.2021
+
+VA - Best Fall Hits For Aerobic & Cardio 2021 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyria - Girl from Rio (Fitness Version 135 Bpm) (04:23)
+02. Blue Minds - Higher Power (Fitness Version 135 Bpm) (04:23)
+03. D'Mixmasters - Chain My Heart (Fitness Version 135 Bpm) (04:20)
+04. Boyz Boyz Boyz - Permission to Dance (Fitness Version 135 Bpm) (04:23)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8B9E609BDC0DDAE4169F2E6EB9077B61F855F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997855   (868643) от 20.03.2016
+
+VA - Various Artists - Horenswert Vol. 10 (2016) [MP3|320 кб/с] <Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third Son - Oedipus
+ 02. Alex Neri - Desert Rose (Burnski Remix)
+ 03. Philip Bader - The Vibe
+ 04. Martinez - Honey Lips(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89013E0056B8C4B46F6556C6057DF540EDAE6652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998612   (868590) от 20.03.2016
 
 Flash Cartel - Elevate (2012) [MP3|320 кб/с] <Progressive House, Drum & Bass, Electro House>
@@ -656,93 +743,6 @@ VA - Don't Let Daddy Know - Amsterdam (The Official 2017 Compilation) (2017) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ED48DB3D792B4C96EE6F5FFF9927A27AC47C00D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376126   (860499) от 17.04.2020
-
-Tim Dash - Afterlight 001 (2020) unmixed [MP3|320 Kbps] <Deep Techno, Progressive House, Melodic Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novakk - Hela (Ivory Hypnotic Treatment) (5:40)
-02. Booka Shade - Atlantic Beam (5:56)
-03. Enamour & Nox Vahn - Sleep Paralysis (5:39)
-04. Nico Morano & Radeckt - Resilio (Night Talk Remix) (6:44)(   Читать дальше...   )Жанр: Deep Techno, Progressive House, Melodic TechnoПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98D38DCE1D8E16B3E4A9E11722E35E93B02CBB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376302   (860485) от 17.04.2020
-
-VA - Body Building Music Hits 2020 Fitness Session (2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860485.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Speedmaster - We're Not Gonna Take It Anymore (Fitness Version) (3:56)
-2.Speedmaster - Pour Some Sugar on Me (Fitness Version) (3:09)
-3.DJ Kee - This Club Is Closed Forever (Fitness Version) (3:45)
-4.Speedmaster - You Wreck Me (Fitness Version) (3:53)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E16A72ABFFD379297139AF0624B254D33568C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109463   (859164) от 27.02.2017
-
-Ron Trent - Prescription: Word, Sound & Power (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C. Damier & R. Trent – Morning Factory (Dubplate) (10:41)
-02. Ron Trent – Prescription (10:45)
-03. Ron & Chez D – Don't Try It (05:58)
-04. Ron Trent – Seduction (13:21)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC42E2BB6C51E594C6AD4F78C124AC32C55D12FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

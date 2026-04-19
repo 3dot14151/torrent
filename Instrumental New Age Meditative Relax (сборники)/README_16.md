@@ -1,3 +1,29 @@
+###  Публикация: 496967   (253432) от 16.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 41 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CC9B16D137A91B8543EE688FC071C5ED79405F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496421   (253425) от 16.05.2012
 
 VA - Инструментальная музыка (2012) vol. № 39 [MP3|320 кб/с]<Instrumental>
@@ -692,35 +718,6 @@ VA - Music For The Winter Interior (2022) [MP3|320 Kbps] <Lounge, Chillout, Rela
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CEC481067747E825E3624A8B6B5C640C5EE4B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643613   (209934) от 02.07.2023
-
-George Kopaliani - This Is George Kopaliani (2023) [MP3|320 Kbps] <Easy Listening, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above the clouds (6:34)
-02. My freedom (6:25)
-03. Distant (6:17)
-04. Somewhere no one knows (6:10)(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 04:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1CEAA3492465D38B74F5643E621B91C477D9D51
 ```
 
 https://mybot314.ru/tekegram_catalog/

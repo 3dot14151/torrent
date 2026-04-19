@@ -1,49 +1,22 @@
-###  Публикация: 1337889   (271658) от 13.11.2019
+###  Публикация: 1337445   (275005) от 10.11.2019
 
-Q-Dir 7.94 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
-Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1133E4DD908DBF4B831C6C9CECE888A512CD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337988   (271657) от 13.11.2019
-
-Wondershare Filmora 9 v9.2.10.5 [Multi/Ru]
+Elimisoft App Uninstaller 2.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Elimisoft App Uninstaller разумно находит ВСЕ оставшиеся файлы (кеши, журналы, настройки, отчеты о сбоях) приложения и очищает ваш Mac. Освободите это ценное дисковое пространство.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Elimisoft Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1697F23AB96E33A892DFFE461A57505148CD801
+magnet:?xt=urn:btih:3910DCA08DCA5B675424187354456CD162F4B771
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,157 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337958   (271651) от 13.11.2019
+###  Публикация: 1188643   (275000) от 02.12.2017
 
-European Rally Championship (ERC) 2019. Rally Hungary / Этап 8. Венгрия. День 3 (12.11.19) IPTV [H.264/1080i-LQ] [RU, EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271651.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 этап European Rally Championship (ERC) Rally Hungary в Венгрии. День 3.Телекомпания: Eurosport 1 HDЖанр: Автоспорт, РаллиЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6D128B771B7E5F0DD0ACF0DE25DFC0B61E3796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337949   (271650) от 13.11.2019
-
-Allavsoft Video Downloader Converter 3.21.0.7255 RePack (& Portable) by elchupacabra [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AE1E7C02A57D3F4A1006393A442519F7E33105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337877   (271647) от 13.11.2019
-
-Bandicam 4.5.1.1597 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C0300EAE41E87561453C919DDD9538060083CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265932   (271634) от 30.11.2018
-
-Waltr 2 v2.6.15 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271634.jpg" />
-</div>
-
-
-###  Подробнее
-
-WALTR 2 — революционный способ передачи файлов в любых форматах на iPhone, iPad и iPod
-Одним из постоянных упреков в адрес iOS является «сложность» передачи на устройства медиаконтента. Сложность эта, конечно, изрядно преувеличена, не надо быть семи пядей во лбу для того, чтобы выполнить обычный drag-n-drop, а в случае покупки лицензионного контента в iTunes — все (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Softorno IncПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CC27B235D280514301704003221D4FE9441748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265974   (271633) от 30.11.2018
-
-iMazing 2.8.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271633.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3581924308F233B691D1E7FB0916BE5E72B093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273879   (271605) от 25.12.2010
-
-Mekkanikka - Indoor (EP) (2010) [MP3|320 kbps] <Full On, Psytrance>
+To Travel Without Any Certain Destination - Traveling For The Pleasure Of It (2013) SEALT [FLAC|Lossless|tracks] <Tribal, IDM, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mekkanikka - Channel
+A1. Traveling For The Pleasure Of It (03:08)
+A2. And Then She Lied Again (03:14)
+A3. Scared To Say Farewell (04:50)
+A4. Brave At Life (04:42)(   Читать дальше...   )Тип издания: Vinyl, CompilationЖанр: Tribal, IDM, AmbientПродолжительность: 00:42:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64F7DC906DA897010AB5AF2CB4FFFA4C79A6519F
+magnet:?xt=urn:btih:9521512F106A01570DB55DCDB98CB9007723C7AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 274740   (271602) от 25.12.2010
+###  Публикация: 273938   (274993) от 22.12.2010
 
-VA - House Vip [23.12.2010] (2010) [MP3|320 kbps]<Electro House>
+VA - Зимний Best Hits (2010) [MP3|256 kbps]<Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Electro HouseПродолжительность: 00:59:01
+Жанр: PopПродолжительность: 06:18:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:403540FBA7A07457A800BEAECC52753A6DF6184A
+magnet:?xt=urn:btih:46833141315FBB48E83F7AE54E8ED7BE33233221
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,27 +79,189 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337951   (271593) от 13.11.2019
+###  Публикация: 1083354   (274989) от 15.12.2016
 
-DaisyDisk 4.8.1 [Multi/Ru]
+VA - Trance Asylum 2 (2016) [MP3|320 Kbps] <Uplifting Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DaisyDisk - утилита которая весьма необычным образом подскажет какие громоздкие файлы и папки присутствуют на вашем Mac, если сказать точнее, то это визуализатор дискового пространства, который помогает быстро выявить проблемные зоны на накопителе и в два щелчка мыши, удалить все лишнее.
+01. Hoyaa & Joakim Sjoberg - Stardust (Rene Ablaze Radio Re 03:01
+02. Skyvol - Werewolf's Heart (Radio Cut) 03:55
+03. Michael Milov - Voice of an Angel (Radio Cut) 03:36
+04. Manida - Always Alone (Radio Cut) 03:33(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30AB51DFF6CFA2E0AA585FC6835C908925FF9C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273939   (274988) от 22.12.2010
+
+VA - Новогодний Музыкальный Коктейль (2010) [MP3|256 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A124C6AF7DB099FA1854DCFDDF35C294B58A619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273686   (274987) от 22.12.2010
+
+VA - JOOF Anthology - Volume 3 (2010) [MP3|320 kbps] <Psytrance, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Soul - Devotion (The Digital Blonde Remix)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4315512FC0BDA3666A93F5047EBB22B64E2C0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082769   (274984) от 15.12.2016
+
+VA - Best Vocal Trance (2016) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W.L.C. Project - Like Forever Day (Original Mix) 4:31
+02. Muza & Daedra - Life Is Only A Game (Original Mix) 5:20
+03. Korenevskiy & Maijena - Free Voice (Original Mix) 5:34
+04. DJ Quadradex - Me Would (Progressive Future Mix) 5:54(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD612AFDA876846FF0D92507BC8BDA82E374D25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273972   (274979) от 22.12.2010
+
+VA - Новогодняя вечеринка Mуз TV (2010) [MP3|256 kbps]<Pop/Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/DanceПродолжительность: 06:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C79FFE1044C32FE70A80FF021FD585F08D45549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273887   (274974) от 22.12.2010
+
+VA - Топ 200 Музыкайф Зарубежный 7 (2010) [MP3|128 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E0E63232E5A026BC222D22AB2890B36423F444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083446   (274969) от 15.12.2016
+
+KCNcrew Pack 12-15-16 + Bonus [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274969.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack  -  это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и периодически обновляется!
 
-Нерегулярно, но иногда бывает так, что вчера у вас на диске свободно было еще (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Software Ambience Corp.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+База серийных номеров проекта KCNcrew по состоянию на декабрь 2016 года.Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2016Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C21ED1FD9820C9A051B518BDC5A8473E7A0E5169
+magnet:?xt=urn:btih:350CF8634F9B16BFBA0792952B1F6A091FF84470
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,25 +269,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337882   (271591) от 13.11.2019
+###  Публикация: 1083353   (274967) от 15.12.2016
 
-4K Stogram PRO 2.8.1.1970 RePack (& Portable) by TryRooM [Multi/Ru]
+Downie 2.6 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Stogram - это программа для просмотра и скачивания файлов из Instagram для PC. Скачивайте фотографии, видео, stories из публичных и приватных аккаунтов ваших друзей, выполняйте резервное сохранение своих постов и импортируйте список Instagram-подписок.Язык интерфейса: Русский, Английский и другие
+Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+
+Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14 декабря 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCC724EDD899C04469D36642976E5E6CACA912F3
+magnet:?xt=urn:btih:8F07AA7C0C283A9C2053BE9EE88C5B0D6C4F9294
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -289,28 +297,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337903   (271586) от 13.11.2019
+###  Публикация: 273901   (274920) от 22.12.2010
 
-Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
+VA - Поцелуй меня, удача! Праздничный зимний (2010) [MP3|128 kbps]<Шансон>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome To Merrymaker (01:19)
-02. Better Days Past (01:57)
-03. The Merrymaker Murderer (01:17)
-04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
+Жанр: ШансонПродолжительность: 11:56:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A00E640E60CE96161B351044CFA4CE36CA199D00
+magnet:?xt=urn:btih:BD32F0B56C795663A96F9D0CEB4A1D937F59AC67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,186 +323,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337943   (271585) от 13.11.2019
+###  Публикация: 273981   (274916) от 22.12.2010
 
-PTE AV Studio Pro 10.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271585.jpg" />
-</div>
-
-
-###  Подробнее
-
-PTE AV Studio Pro - дальнейшее развитие программы PicturesToExe Deluxe.
-Используя PTE AV Studio вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск.
-К каждому слайду можно добавить текстовый и звуковой комментарий (wav, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A322874D92A7BC70CCAB39DE1250006A49C98977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337881   (271584) от 13.11.2019
-
-GoldWave 6.47 RePack (& Portable) by TryRooM (x64) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271584.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoldWave — звуковой редактор который легко проигрывает, редактирует, смешивает и анализирует звуковые файлы. Программа поддерживает множество форматов MP3, WAV, AU, IFF, VOC, SND, MAT, AIFF, raw, data, а также конвертирует с одного формата в другой.
-Умеет работать с большими файлами и записывать файлы с audio CD.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27B35B8DE755B97ABBD4350ADDDA27CEA79B79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338059   (271583) от 13.11.2019
-
-Exposure X5 5.0.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактор фотографий для творческих людей, который обрабатывает каждый шаг вашего процесса. От передачи  к организации и редактированию,  упрощает выполнение повседневных задач и предоставляет богатый набор инструментов для разработки красивых фотографий. Exposure  вписывается в любой рабочий процесс. Exposure легко интегрируется с Photoshop и Lightroom, а со своей новой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Exposure Software, LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0318D7D02167D2F6398C740B9134F3BB3B732113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337960   (271581) от 13.11.2019
-
-Jump Desktop (RDP, VNC, Fluid) 8.3.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jump Desktop (RDP & VNC) - программа, которая делает доступной возможность подключиться к вашему удаленному рабочему столу используя протокол RDP и VNC!
-Существует множество приложения для удаленного управления рабочим столом вашего компьютера, однако многие из них не подходят рядовым пользователям по ряду причин. Какие — то слишком простые, работают некачественно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Phase Five SystemsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FF99ECE7C3E2BDEB20D19E8A51D9A9F9FBB2D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337880   (271580) от 13.11.2019
-
-Sketch 60 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch от Bohemian Coding — один из лучших векторных редакторов под macOS!
-Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2019Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA258BE21E0A866F1D2BBD1D4B17B9C429ACEAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338022   (271577) от 13.11.2019
-
-GoodSync Enterprise 10.10.12.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271577.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoodSync - программа из серии высоконадежного, удобного и простого в использовании программного обеспечения от компании Siber Systems - разработчика RoboForm. Программа автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09538530704B0200C5E3D412349EFD3F7D7FC914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273888   (271564) от 25.12.2010
-
-Psychonaut - Free Rider (Promo) (2010) [MP3|320 kbps]<Psytrance>
+VA - С Новым годом, Крошка ! (2010) [MP3|192 kbps]<Pop, Dance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tune In
+Жанр: Pop, DanceПродолжительность: 06:08:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3DFA0E0D577775D0C12932C36095431B281C296
+magnet:?xt=urn:btih:FDBF6E04CB880FA0C5B7FE5FCA33F9D2ED04E7EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,21 +349,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 426343   (271540) от 24.12.2011
+###  Публикация: 272785   (274912) от 22.12.2010
 
-Похищение (Новогоднее похищение) (1969) DVD9 (серии 1-2 из 2)
+VA - Raise The Bar LP (2010) [MP3|320 kbps]<Drum n Bass>
 
 >>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В пожарной части готовятся к встрече Нового года. Трое активистов художественной самодеятельности решают похитить для новогоднего концерта профессиональных артистов. Капитан милиции расследует похищение и выслушивает жалобы от "непохищенных" артистов.Жанр: комедия, музыкаРежиссер: Юрий СааковАктеры: с участием М. Пуговкина, О. Анофриева, С. Крамарова, Е. Стеблова, М. Плисецкой, Ю. Тимошенко и Е. Березина, Т. Шмыги, М. Мироновой, Р. ЗеленойПродолжительность: 03:22:00
+01. DLR & Ruckspin - Safe Secure
+02. Felon & Displaced - Onwards & Upwards
+03. Mindmapper - Resurrection Hub
+04. Amoss & Thorne - CRTN
+05. Thorne - Stare
+06. K-Dan - Final Fight
+07. War - Shapeshifter
+08. Flatliners - Bad Operate
+09. Pessimist - Ganesha
+10. Cohere - Hydro(   Читать дальше...)Жанр: Drum n BassПродолжительность: 01:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04C7E5261DE87AFF041E50A3B686A3EE4995325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273002   (274908) от 22.12.2010
+
+Various Artists - Super Black Blues (1969) [MP3|320 kbps]<Blues>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: BluesПродолжительность: 00:37:04
 
 ## Скачать торент
 ```bash
@@ -531,168 +410,321 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083712   (271535) от 18.12.2016
+###  Публикация: 1337464   (274905) от 10.11.2019
 
-Биатлон. Кубок Мира 2016/2017. 3-й Этап. Нове-Место (Чехия). Мужчины. Спринт 10 км (15.12.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271535.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 декабря 2016 года, четверг. 19:30 МСК
-Кубок Мира 2016/2017. 3-й Этап. Нове-Место (Чехия)
-Мужчины. Спринт 10 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5327B385AF6CA7B9DBE9EDE6157D97AF2E9E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083947   (271534) от 18.12.2016
-
-Биатлон. Кубок Мира 2016/2017. 3-й Этап. Нове-Место (Чехия). Женщины. Спринт 7,5 км (16.12.2016) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271534.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 декабря 2016 года, пятница. 19:30 МСК
-Кубок Мира 2016/2017. 3-й Этап. Нове-Место (Чехия)
-Женщины. Спринт 7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский,  ИнтершумПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50231A45C7BCCE2D3784B19889A5E91E4EADCB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084323   (271533) от 18.12.2016
-
-Биатлон. Кубок Мира 2016/2017. 3-й Этап. Нове-Место (Чехия). Мужчины. Гонка преследования 12,5 км (17.12.2016) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271533.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 декабря 2016 года, суббота. 17:00 МСК
-Кубок Мира 2016/2017. 3-й Этап. Нове-Место (Чехия)
-Мужчины. Гонка преследования 12,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский,  ИнтершумПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803FCF890957173F25758CDFF32A2EB97FBF3159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084338   (271532) от 18.12.2016
-
-Биатлон. Кубок Мира 2016/2017. 3-й Этап. Нове-Место (Чехия). Женщины. Гонка преследования 10 км (17.12.2016) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271532.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 декабря 2016 года, суббота. 19:40 МСК
-Кубок Мира 2016/2017. 3-й Этап. Нове-Место (Чехия)
-Женщины. Гонка преследования 10 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский,  ИнтершумПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB732612174723FE2BFBBC1A83EBAF00DAB0C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084407   (271529) от 18.12.2016
-
-VA - Revitalia Vol. 1 (Mixed By Manuel Rocca) (2016) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. pureNRG - Secret Of The Sahara (Radio Edit) (3:52)
-02. Illitheas - Last Forever (Original Mix) (7:46)
-03. Ben Nicky - Anywhere (Radio Edit) (4:19)
-04. Prototype - Come Together (Manuel Rocca Radio Edit) (2:59)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FE4511652B8FA5E3CE0AC935BACF57BB42006E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084487   (271526) от 18.12.2016
-
-TokenLock 4.69 [En]
+Wondershare Recoverit 8 v8.2.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональный класс Bluetooth / USB / HotKey Блокировка и разблокировка для вашего Mac ... с кучей опций.
-
-Если вы дорожите своей безопасностью, то должны постоянно думать не только о безопасных каналах и протоколах передачи данных, но и знать, что к включенному компьютеру никто, кроме вас, не имеет физического доступа. Если вы работаете за ноутбуком, то достаточно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 декабря 2016Разработчик: Map-Pin SoftwareПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCE523D7AA3D11877626DE69B5A810652734671D
+magnet:?xt=urn:btih:E210540D863656FFC545536EF83E3EDCEC9D7972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273191   (274904) от 22.12.2010
+
+VA - Russian XXL Night (2010) [MP3|320 kbps]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Maar - Ночной город
+02. Lexa feat. DJ A Newman - Es ist alles vorbei
+03. Слава - Одиночество
+04. Quest Pistols - Я твой наркотик
+05. De Maar - Встретимся с тобой (DJ A-Newman & DJ Stormm Remix)
+06. Градусы - Кто ты
+07. De Maar - Цыганка
+08. D.I.P Project - Верни мне небо
+09. Aslan feat. Marina - Где ты (Radu Sirbu Rmx)
+10. Пропаганда - Знаешь(   Читать дальше...)Жанр: Pop, DanceПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2974DC6AD5DAF32A20E8997CD12E2F5ACF811B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273548   (274899) от 22.12.2010
+
+Aeoliah - Elixir Immortale (2010) [MP3|320 kbps]<New age, Meditative>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274899.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grounding Unified Essence (8:08)
+2. Tantrika - Awakening Kundalini (8:32)
+3. Anchoring Inner Peace Through Fluid Motion (8:24)
+4. Innocence and Purity of the Heart (9:10)
+5. Empowerment (9:08)
+6. Consecration & Seeing Beyond Illusion (8:10)
+7. Illumination & Universal Consciousness (10:04)Жанр: New age, MeditativeПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593377C7584CC7FF647B6A788064B1D7B98AAEE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188444   (274891) от 02.12.2017
+
+Black Earth - 20 Years Of Dark Insanity: Japan Tour 2016 (2017) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MCMXCVI (Live)
+02. Bury Me An Angel (Live)
+03. Dark Insanity (Live)
+04. Eureka (Live)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A6C2777389DCCA68D3D053C2E39ED8511D730D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337314   (274881) от 10.11.2019
+
+BetterTouchTool 3 v3.209 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274881.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterTouchTool удобное приложение, которое позволяет в продвинутом режиме настроить режимы сенсорной панели, многие другие жесты, не предусмотренные инженерами Apple, но отлично распознаваемые самими устройствами. BetterTouchTool-позволяет настраивать множество различных жестов для MagicMouse и MagicTrackpad, дает возможность настраивать действия на тапы в углах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Andreas HegenbergПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E402BD8378E351993AD4DED5961A7619E1957C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273709   (274878) от 22.12.2010
+
+Falco - Verdammt wir leben noch (1999) [MP3|320 kbps]<Pop/Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274878.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Verdammt Wir Leben Noch -         00:05:15
+2. Die Koenigin Von Eschnapur  -     00:04:29
+3. Que Pasa Hombre             -     00:04:14
+4. Europa                       -    00:05:08
+5. Fascinating Man             -    00:04:00
+6. Poison                      -     00:04:23
+7. Ecce Machina                 -    00:05:31
+8. We Live For The Night          -  00:03:52
+9. Krise                          -  00:03:45
+10.From The North To The South   -   00:03:11(   Читать дальше...)Жанр: Pop/RockПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B64EA487F5F7D1175E13C9E76A7052639DDA1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188486   (274874) от 02.12.2017
+
+iFinance 4.3.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274874.jpg" />
+</div>
+
+
+###  Подробнее
+
+iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2017Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A260385ED261C5005A6224639978446F70ED942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337323   (274873) от 10.11.2019
+
+Duplicate Photos Fixer Pro 2.16 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
+
+Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2019Разработчик: Systweak Software Private Ltd.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Японский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9590B03BA9966A3457666511F8A1F81BB35B88E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337443   (274871) от 10.11.2019
+
+Хоккей. НХЛ 2019-2020. Чикаго Блэкхокс - Питтсбург Пингвинз (09.11.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274871.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 ноября 2019 года, воскресенье 03:00 МСК
+Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 653 зрителя (100 % при вместимости 18 673)
+Главный судья: Грэм Скиллитер (Канада); Главный судья: Кевин Поллок (Кинкардин, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A099836FB33EF2864CFD67E22F2C28968A34F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188480   (274870) от 02.12.2017
+
+Футбол. Чемпионат Мира 2018. Финальный турнир. Жеребьевка (01.12.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 декабря 2017 года, пятница. 18:00 МСК
+Чемпионат мира по футболу 2018 — 21-й чемпионат мира по футболу ФИФА, финальная часть которого пройдёт в России с 14 июня по 15 июля 2018 года. Россия в первый раз в своей истории станет страной-хозяйкой мирового чемпионата по футболу, кроме того, он впервые будет проведён в Восточной Европе. Проведение чемпионата запланировано (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: Церемония, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2C77A596F2CEDDD9173F9295E745D29821FA68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188533   (274866) от 02.12.2017
+
+Pact Infernal - Discography 6 Releases (2015-2017) Horo, Samurai Horo [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <Experimental, Techno, Ambient, Tribal, Dark Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle VII (Violence) (Svreca Remix) (07:13)
+ 02. Circle VIII (Fraud) (Pris Remix) (09:25)
+ 03. Circle V (Anger) (Nastika Remix) (07:14)
+ 04. Circle VIII (Fraud) (Ancestral Voices Remix) (06:36)Тип издания: CD, WebЖанр: Techno/ExperimentalПродолжительность: 00:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4340B0491A896EB8572C015338C0B960416C753
 ```
 
 https://mybot314.ru/tekegram_catalog/

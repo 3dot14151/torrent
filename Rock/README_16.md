@@ -1,3 +1,32 @@
+###  Публикация: 1376415   (860261) от 17.04.2020
+
+Paul McCartney & Wings - Wings Greatest (1978) Remastered, 2020, Paul McCartney Catalog [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Day (3:45)
+02. Silly Love Songs (5:55)
+03. Live And Let Die (3:14)
+04. Junior’s Farm (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D1E55FE6BBE750E4C87AD694452291FE62B396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 189962   (859599) от 07.04.2010
 
 Mephisto Walz - Discography (8 albums) (1986-2004) [MP3|192-320 kbps] <Gothic Rock, Deathrock>
@@ -447,7 +476,7 @@ ZZ Top - Дискография (1971-2008) [MP3|320 kbps]<Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_847073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_847073.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Nuggets (Original Artyfacts From The First Psychedelic Era 1965-1968) (1998
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7FE475765CA41F8F43AE2717B68A4DD2AC51357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500784   (839822) от 07.10.2021
-
-Robert Palmer - Riptide (1985) Reissue, 2021, Universal Music Group [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Riptide (02:27)
- 02 - Hyperactive (05:10)
- 03 - Addicted To Love (06:03)
- 04 - Trick Bag (03:05)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383FEE62A4787A0B6EAAE4EFDF3822679F2F7011
 ```
 
 https://mybot314.ru/tekegram_catalog/

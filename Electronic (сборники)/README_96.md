@@ -1,3 +1,96 @@
+###  Публикация: 516114   (654659) от 27.06.2012
+
+VA - Sexy Trance #40 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Drost & DK Project - Always Connected (Original Mix) [08:03]
+ 02. Faruk Sabanci - As Faces Fade (Alexander Popov Remix) [06:50]
+ 03. Heatbeat feat. Josie - Because Of You (Original Mix) [07:08]
+ 04. Danilo Ercole feat. Marcie - Broken Wings (Original Mix) [08:06]
+ 05. Fadios & Raneem - Chromium (Max Graham Remix) [06:47]
+ 06. Dayzanst - Double Bind (Light On Remix) [07:09]
+ 07. Claessen & Martens - El Dorado [07:54]
+ 08. Cymatics - Empire Of The Sun (Original Mix) [06:23]
+ 09. Ikerya Project - End Of Begining (Original Mix) [08:51]
+ 10. John Askew - Fade To Black (Sean Tyas Remix) [07:33](   Читать дальше...   )Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C2A9A751C7885DD8D5471D32D8A5F6CC40591D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226469   (654421) от 21.05.2018
+
+VA - Club Dance Ambience Vol.148 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654421.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #2Маши - Красное Белое (Rakurs & Ramirez Radio Edit)
+002. Addal vs. Mida feat. KiFi - 405 (Ramirez & Mike Prado Radio Edit)
+003. Afterman - Runnin' (Sunshine Mix)
+004. Alok, Bhaskar, Jetlag Music - Bella Ciao (Extended Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736FC9A96C6C318908550D5916D0198D4CAC5FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904602   (654380) от 03.06.2015
+
+VA - Extra House (episode 2) (2015) [MP3|320 кб/с]<House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654380.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. FictiOne - 123 (Techtower Remix) (07:49)
+002. Da Funk - You Got Me (Telekollektiv Remix) (07:33)
+003. Deep Active Sound - Feeling (VieL Remix) (07:07)
+004. Flow & Zeo, Nytron, Tea Lyrics - Inside (Original Mix) (08:03)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 02:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FA7C417C4A49F3DAA0649F66AF574C045E76CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140940   (653937) от 08.06.2017
 
 VA - Beatport Top 100 Big Room May (2017) [MP3|320 Kbps] <House, Trance, Big Room>
@@ -667,93 +760,6 @@ VA - Record Super Charts # 443 (2016) [MP3|320 Kbps] <House, Electro House, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38785F1ECD3DAA15048EA8819BAD960822B6F891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031611   (651792) от 04.07.2016
-
-VA - Uplifting Trance Free Producer (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel & Adara -  Brace For Impact (Original Mix) 4:55
-02. Andrew Rayel -  Rise Of The Era (Extended Mix) 5:26
-03. Gareth Emery Ft Janet Devlin -  Lost (Ferry Corsten Remix) 5:31
-04. Alexander Spark -  Influence (Extended Mix) 5:47(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 09:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8291E44A6D06E55CDBAE7ADF3C8E756EDEA7762E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904951   (651740) от 05.06.2015
-
-VA - Acoustic Chill Playlist 2 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Acoustic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Sex on Fire
-02. Max Tanner - Budapest
-03. Zara James - Everybody's Got to Learn Sometime
-04. Jessie Reeves - Somebody That I Used to Know(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1BEE1F20007AABB79CDCD22D9D4BDBA59538B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031579   (651668) от 04.07.2016
-
-Альберт Артемьев - Око Сахары (2016) [MP3|320 Kbps] <New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651668.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Око Сахары
-2. Надвигающаяся буря
-3. Чёрные скалы
-4. Жара(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C75E5C861B216A9507086B227FEE8A40488B4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1237574   (551475) от 24.07.2018
+
+Обои - Desktop Wallpapers Full HD. Part (242) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403E4234542BC368DB33BB1965875C2F88948D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237569   (551474) от 24.07.2018
 
 Обои - Desktop Wallpapers Full HD. Part (243) [JPG]
@@ -644,33 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85C1F8809DB0F265606B618CDD221E0B0FC515C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048555   (546305) от 02.09.2016
-
-Обои - LIFEstyle News MiXture Images. Wallpapers Part 1041-1045 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
-В данный пак вошли выпуски из серии 1041-1045.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C777AF92CAEFD9720B6ADD6520947F126AA42F85
 ```
 
 https://mybot314.ru/tekegram_catalog/

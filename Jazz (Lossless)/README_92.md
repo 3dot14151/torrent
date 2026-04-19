@@ -1,3 +1,32 @@
+###  Публикация: 1396858   (744200) от 17.07.2020
+
+Elvin Jones - And Then Again (1965) 2017, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azan [3:38]
+02. All Deliberate Speed [7:36]
+03. Elvin Elpus [5:53]
+04. Soon After [3:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756F5350BB7779CBE5176C0C3BEF570C4A4DCDAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396861   (744199) от 17.07.2020
 
 Chick Webb & Ella Fitzgerald - The Quintessence: New York City (1929-1939) 1995, 2CD, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
@@ -716,35 +745,6 @@ Carmen McRae - You're Lookin' At Me (1983) 1986, King Record [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F823DDDCD4C255CF4EF58CA92AFA4BCA52E5B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282859   (741237) от 15.02.2019
-
-Count Basie - Basie Boogie (1959) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Mellotone [6:01]
-02. The Midgets [9:25]
-03. Whirly-Bird [4:07]
-04. Basie Boogie [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C0136BB8D91CB72688942A610153DEE92889FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

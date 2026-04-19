@@ -1,3 +1,32 @@
+###  Публикация: 1353689   (990691) от 19.01.2020
+
+Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Slow   (3:25)
+02.   Almost Like The Blues   (3:28)
+03.   Samson In New Orleans   (4:39)
+04.   A Street   (3:33)(   Читать дальше...   )Жанр: Contemporary folk, Soft rock, Singer/SongwriterПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E595AC3E693FD766F63A049757B867C37C352168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 658858   (987773) от 22.01.2020
 
 Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <Flamenco, Latin>
@@ -714,32 +743,6 @@ Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:466B0A73BF4AE7527A6573317AB19D84E2E77735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645083   (867140) от 17.04.2013
-
-Deep Forest - Deep Africa (2013) /Promo CD/ [APE|Lossless]<World, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: World, New AgeПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

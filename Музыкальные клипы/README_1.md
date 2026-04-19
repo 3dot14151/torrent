@@ -1,3 +1,201 @@
+###  Публикация: 1473797   (1012993) от 02.06.2021
+
+The Beatles: Вся моя любовь / All My Loving (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Битлы продолжают отдыхать в кафе, слушая свою музыку.
+Клип из фильма полностью колоризован - каждый кадр в отдельности.
+Этот клип - продолжение релиза: https://nnmclub.to/forum/viewtopic.php?p=11104503#torrentПроизводство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: Мюзикл, комедия, музыкаРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA579FEECE3D40D5040A940E37BBE782AC9D8D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344629   (1012930) от 02.06.2021
+
+Артур Пирожков - 30 Music Videos (2010-2021) WEB-DL [H.264/720p/1080p/2160p-LQ] <Russian Pop Music>
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур Пирожков - Видеоклипы (2010-2021)2010 - Quest Pistols Show ft. Artur Pirozhkov - Революция _1080
+2011 - Artur Pirozhkov - Плачь, детка! 720p
+2013 - Artur Pirozhkov - Я Звезда _1080
+2014 - Artur Pirozhkov - Пэрэдайс 720p(   Читать дальше...   )Жанр: Russian Pop MusicПродолжительность: 02:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9264E79A7D929B6A297E7D1CAA6ABC43DAB305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357794   (1012926) от 02.06.2021
+
+Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL [H.264/1080p/2160p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012926.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2015 Lindemann - Fish On (Official Video) (by Rob Myers) [1080] (256 kb/s)
+002 2015 Lindemann - Praise Abort (Official Video) (by Rob Myers) [1080] (256 kb/s)
+003 2018 Lindemann - Mathematik ft. Haftbefehl (Official Video) [1080] (128 kb/s)
+004 2019 Lindemann - Ach so gern (Official Video) [1080] (128 kb/s)(   Читать дальше...   )Жанр: Industrial Ural MetalПродолжительность: 01:32:08 hrs (19 Files)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD85FF46AE910724B3851FE0087B45EE865A1C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475315   (1011947) от 09.06.2021
+
+The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Битлы исполняют песню на концерте.
+Клип из фильма A Hard Day's Night полностью колоризован - каждый кадр в отдельности.
+Предыдущий клип: https://nnmclub.to/forum/viewtopic.php?p=11164480#torrentПроизводство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: Мюзикл, комедия, музыкаРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB11F3F2AF4B5BC85559D684B183AE99C133E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475847   (1011274) от 13.06.2021
+
+Little Big - Everybody (Little Big Are Back) (2021) WEB-DLRip [VP9/2160p-LQ] <Raprave, Electronicmusic, Pop>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Little Big - Everybody (Little Big Are Back)Производство: Warner Music RussiaЖанр: Rave, Raprave, Electronicmusic, PopПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8616DE83D26378B4923774FBF5FBE9C99CCEC54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485367   (1004926) от 29.07.2021
+
+Mylene Farmer. Les clips - L'integrale (1999-2020) DVDRemux [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'ame-stram-gram
+02. Je te rends ton amour
+03. Souviens-toi du jour...
+04. Optimistique-moiЖанр: PopПродолжительность: 04:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C309EC08D6F4541AA9D431B946A8B718A8447C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486163   (1004797) от 30.07.2021
+
+Сборник клипов - Music 80s Video Collection от ALEXnROCK часть 5 (2021) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004797.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Music 80s 5 - Intro
+01. Kim Wilde - Never Trust A Stranger
+02. Janet Jackson - Love Will Never Do (Without You)
+03. A-ha - You Are The One(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF369B93D27F288E823FC7B27EB0EEB180F97973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597472   (1000377) от 02.01.2013
 
 DVJ Bazuka - Happy Vodka Bithez (2012) [H.264/720p] WEBRip
@@ -528,211 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95AAA22B4811144D8911AD5E22BC06E7F182F8D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605384   (995809) от 19.01.2013
-
-Лучшие клипы / The best videos of all time (Country) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carrie Underwood - Cowboy Casanova
-02. Caitlin Rose -  Own Side
-03. Chad Brownlee - Carried Away
-04. Chris Cagle -  What A Beautiful Day(   Читать дальше...   )Жанр: Музыка, CountryПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334837832A4569BF43B28D1E8CAAB4232D137AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604785   (995794) от 19.01.2013
-
-Лучшие клипы / The best videos of all time (Blues) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alvin Youngblood Hart - Illinois Blues
-02. B.B. King - Rock Me Baby
-03. Blues Brothers & Ray Charles - Shake a tailfeather
-04. Big Bad Blues -  Furthur(   Читать дальше...   )Жанр: Музыка, Blues, Blues-rockПродолжительность: 01:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B17F7A6C30583BD1AE734FC6E026A4B3A2ACE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605457   (995789) от 19.01.2013
-
-Лучшие клипы / The best videos of all time (Glamrock) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Accept - Teutonic Terror
-02. Aerosmith - Crazy
-03. Alice Cooper - Bed of nails
-04. Antony Bellicourt - Glam Rock(   Читать дальше...   )Жанр: Музыка, GlamrockПродолжительность: 01:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720963E7CE5D0B53030A6C78FCEBF540E7424B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604523   (995702) от 19.01.2013
-
-Сборник клипов - DJ VJ Magrao - Full Video Collection (2003-2012) 15хDVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995702.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ VJ Magrao (настоящее имя- Luis Eduardo) - известный Бразильский радио ди джей, ви джей - один из пионеров музыкального, клубного направления - видеомикс - является одним из самых известных ви джеев мира, совладелец Бразильского музыкального лейбла - "Uberaba MG".
-Magrao - один из пионеров видеомикс-направления.
-Отличительной чертой его миксов является (   Читать дальше...   )001 - DJ Magrao - Intro
-002 - Dr.Alban - Look Who's Talking
-003 - Dr.Alban - Away From Home
-004 - Ace Of Base - The Sign(   Читать дальше...   )Жанр: Pop, Club, Dance, HouseПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B890491763E41EEB25FD1E2BB4BE403E75DF50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605410   (995498) от 20.01.2013
-
-ABBA - ABBA (Deluxe Edition) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ABBA In Australia (Television Special)
-a. Mamma Mia
-b. Hasta Mañana
-c. Ring Ring(   Читать дальше...   )Жанр: Pop, DiscoЯзык субтитров: Шведские, английские, французкие, немецкие, испанские, португальскиеПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AD1BE57D6D8FD79C4B9B056196E26E24213D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605831   (995443) от 20.01.2013
-
-Лучшие клипы / The best videos of all time (Enigmatic) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Era  - Come Into My World
-02. Messiah project -  Insomnia
-03. Enigma - Sadeness
-04. Devaldi - Indian Sunrise(   Читать дальше...   )Жанр: Музыка, EnigmaticПродолжительность: 01:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDA46B161AA648515988428CC1A1EC60D5B318D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605938   (995439) от 20.01.2013
-
-Лучшие клипы / The best videos of all time (Disco) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - He Is Your Brother
-02. Donna Summer - I feel love
-03. Arabesque - Friday Night
-04. Bad Boys Blue - Come Back And Stay(   Читать дальше...   )Жанр: Музыка, DiscoПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F657D92D66FAF09AB783F0705A1966CBC4FC7BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

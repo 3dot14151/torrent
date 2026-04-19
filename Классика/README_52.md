@@ -1,3 +1,38 @@
+###  Публикация: 467879   (82113) от 14.03.2012
+
+Jon Schmidt & Steven Sharp Nelson - The PianoGuys: Hits Volume I (2012) [MP3|320 кб/с]<Piano, Cello, Instrumental>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Meets Mozart (5:17)
+02. Moonlight (3:27)
+03. Without You (3:37)
+04. The Cello Song (3:17)
+05. Rolling In The Deep (3:52)
+06. Cello Wars (Radio Edit) (3:09)
+07. O Fortuna (Carmina Burana) (3:20)
+08. Bring Him Home (Les Miserables) (4:16)
+09. Charlie Brown Medley (3:01)
+10. Rock Meets Rachmaninoff (3:20)(   Читать дальше...   )Жанр: Piano, Cello, InstrumentalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227A174307500D1D72FDBC2CC982FC589DA35F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466603   (81872) от 13.03.2012
 
 Иоганн Себастьян Бах - Месса си минор | Mass in B minor BWV 232	(1986) [MP3|192 кб/с]<Classic>
@@ -736,35 +771,6 @@ VA - The Essentials: Classical Crossover (2024) [FLAC|Lossless|WEB-DL|tracks] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17765DFA5EFED270B60973D57F46512548917916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728332   (54154) от 06.06.2024
-
-VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:37)
-02. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
-03. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryu (4:38)
-04. Sergey Bryukhno - Sonnet in C Major (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEF7036112792DE82F8C0453008E94729E12FD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

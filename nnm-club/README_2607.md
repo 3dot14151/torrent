@@ -1,22 +1,22 @@
-###  Публикация: 1353779   (990538) от 19.01.2020
+###  Публикация: 607463   (994571) от 23.01.2013
 
-Adobe Photoshop Touch 2.0.0 Mod by Normik [Ru/En]
+Фотография - Фотограф Igor Vasiliadis
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Photoshop Touch на Андроид – скачайте и установите программу, и вперед фантазировать, создавать и комбинировать изображения, применяя профессиональные эффекты. Не забудьте поделиться с друзьями и с семьей через Facebook и еще много чего интересного.Тип издания: Пиратка (Mod: поддерживает Android 10)Релиз состоялся: 04.01.2020Разработчик: AdobeПоддерживаемая ОС: Android 3.1+Язык интерфейса: Русский, Английский
+Фотография - Фотограф Igor VasiliadisРазрешение файлов: ~  500x750 ~ 800x800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F01516B35C300CC47B146638F7821D9F22396ED
+magnet:?xt=urn:btih:AFA9273E41CD0344C6A5A553703F5B99343CA8C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353700   (990537) от 19.01.2020
+###  Публикация: 607496   (994570) от 23.01.2013
 
-Кисти - Creative Market - Inktober 2019 Photoshop Brushes - 4168136 [JPG, ABR]
+Мыс Канаверал / The Cape (1963) DVDRip[EN]
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рад представить вам мою коллекцию кистей для фотошопа, подготовленных специально для мероприятия Inktober 2019!.Формат: JPG, ABRРазрешение файлов: 3000x3000
+Фильм про главный космодром СШАЖанр: ДокументальныйРежиссер: не известноПеревод: ОтсутствуетПродолжительность: 00:26:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:770A9F623B9665F2E514869E4A304521233BED5C
+magnet:?xt=urn:btih:BBD9D2960E3D40DF7AC9A5A1BC6C29B458612248
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353717   (990536) от 19.01.2020
+###  Публикация: 606844   (994567) от 23.01.2013
 
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (295) [JPG]
+Dust to Dust - Dust to Dust (2001) [MP3|320 кб/с]<Hard Rock>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+1. Mr. Doe
+2. New Low
+3. If I Was God
+4. Submission
+5. Pottersfield
+6. Breathe
+7. Dead Inside
+8. Supadope
+9. Then You Die
+10. Hate Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E79EB77C0CCFBB4073FB542CB36F33668F997A6B
+magnet:?xt=urn:btih:C853777EC4147B9711269F4BD0B4EB60A9B5FC0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,27 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353870   (990535) от 19.01.2020
+###  Публикация: 607465   (994565) от 23.01.2013
 
-И. П. Куклина | Сказки и рассказы о животных. Книга для чтения на английском языке (2016) [PDF] [En]
+Фотография - Фотограф Britalicus
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник рассказов и сказок о животных с упражнениями адресован детям младшего школьного возраста.
-Упражнения, составленные в игровой форме, позволяют не только помочь учащимся усвоить трудные грамматические явления английского языка, но и развить творческие способности детей.
-Лексический минимум, использованный при составлении упражнений (150 лексических единиц), (   Читать дальше...   )Жанр: Английский язык, Детская познавательная и развивающая литература, Учебная литератураФормат: PDF
+Фотография - Фотограф BritalicusРазрешение файлов: ~  500x750 ~ 800x800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:249DDE4E9658DAC4F7D08F5EC37BC796281D82F9
+magnet:?xt=urn:btih:464273F0EF66C92C2BC0190F2116A6D5E7D59FC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,450 +111,152 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353756   (990534) от 19.01.2020
+###  Публикация: 606860   (994564) от 23.01.2013
 
-Ольга Найденова | Дорога в подсознание. Техники. Практики. Медитации (2020) [EPUB]
+Цена славы / Price of Glory (2000) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994564.jpg" />
+</div>
+
+
+###  Подробнее
+
+1977 год. Молодой боксер Артуро Ортега терпит сокрушительное поражение на ринге, после этого его спортивная карьера заканчивается. Проходит 13 лет и у Артуро замечательная семья: красавица-жена и трое сыновей. Он любит их, но важнее всего для него то, что дети воплотят в жизнь его несостоявшиеся мечты. Вся жизнь семьи посвящена боксу и только боксу.
+
+Но старшие сыновья Санни и Джимми хотят жить своей жизнью и уходят. С отцом остается младший — Джонни, самый талантливый и непобедимый, но он трагически гибнет. А Санни готовится к бою с чемпионом мира, но тренировки идут без успеха. И Джимми едет к отцу с просьбой помочь брату. Сможет ли семья Ортего преодолеть все обиды и сможет ли Санни победить несокрушимого Дейви Лейна?...Жанр: Драма, СпортРежиссер: Карлос Авила / Carlos АvilaАктеры: Джимми Смитс / (Jimmy Smits), Мария Дель Мар / (Maria del Mar), Джон Седа / (Jon Seda), Клифтон Коллинз мл. / (Clifton Collins Jr.), Эрнесто Эрнандес / (Ernesto Hernández (в титрах: Ernesto Hernandez)), Рон Перлман / (Ron Perlman), Луис Мэндилор / (Louis Mandylor), Сэл Лопес / (Sal Lopez)
+>>Создатели фильма<<Перевод: Профессиональный многоголосыйПродолжительность: 01:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00255E86206188428F00100771313662EE9D14BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607467   (994563) от 23.01.2013
+
+Фотография - UnholyBeauty
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - UnholyBeauty
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16437D146180CBCFA4E699A03E1F674765CAD243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607507   (994562) от 23.01.2013
+
+Moth - Endlessly In Motion (2013) [MP3|320 кб/с]<Progressive Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Structure (04:59)
+ 02. Dissolved (03:43)
+ 03. Vision (04:15)
+ 04. Reverse (03:44)
+ 05. Vast Expansion (05:16)
+ 06. The Dark Sea (03:23)
+ 07. Drifting (03:12)
+ 08. Endlessly In Motion (05:13)Жанр: Progressive DeathПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536E2F722E58FC0433F00E046DDDD4F26389D5F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607514   (994559) от 23.01.2013
+
+Fall Of Mankind - Frolic Among Remnants (2012) [MP3|320 кб/с]<Brutal Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brainscan 00:46
+ 02. Fallen Mankind 07:36
+ 03. Massocide 04:18
+ 04. Bloody Journal 05:13
+ 05. Devocion Por Torturar 04:01
+ 06. Massacre 04:45
+ 07. Matadero (Hungry's Home) 06:01
+ 08. Cut From The Womb 03:35
+ 09. I'm Gonna Play With Your Guts 04:31
+ 10. Nocturnal Crucifixion (Dying Fetus Cover) 03:23Жанр: Brutal DeathПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81556F4569A36C7A5DA86B0B0DBA3930D76B6985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606872   (994557) от 23.01.2013
+
+Галина Исакова | Салют, Варварята! [2008] [FB2]
 
 >>Разное (категория книг)
->>Эзотерика
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Дорога в подсознание» – книга, которую ждали. Квинтэссенция опыта и авторских практик, которые станут для каждого его персональной дорогой к себе настоящему, к тому, кто спит в каждом из нас и в ком заключен огромный потенциал для построения жизни мечты.
-Вы узнаете о сознательной и бессознательной сторонах психики, многогранности нашей души, значениях сновидений, (   Читать дальше...   )Жанр: Эзотерика, ПарапсихологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2348CA66DBCB5DB516CAB5499D0E1F1E3FDD8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 158695   (990530) от 06.01.2012
-
-Дикость / Wild Things (1998) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семнадцатилетняя Келли влюбляется всвоего учителя Сэма. Она использует всевозможные способы, чтобы привлечь его внимание, но безрезультатно. А когда девушка не получает желаемого, она начинает мстить. Несостоявшаяся любовница обвиняет Сэма в изнасиловании.
-Улик явно недостаточно, пока на помощь Келли не приходит ее подруга, которая готова давать показания. Но вскоре (   Читать дальше...   )Жанр: Детектив, Триллер, ЭротикаРежиссер: Джон МакНотон (John McNaughton)Актеры: Мэтт Диллон, Кевин Бэйкон, Нив Кэмпбелл, Тереза Расселл, Дэнис Ричардс, Дафна Рубин-Вега, Роберт Вагнер, Билл Мюррэй, Кэрри Снодгресс, Джефф Перри, Марк Макколей, Дэннис Нил, Эдуардо Янез, Дайан Адамс, Дженнифер Бини Тейлор, Виктория Басс, Леонор ЭнтониПеревод: ДублированныйПродолжительность: 01:43:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432214   (990529) от 06.01.2012
-
-В Швеции копирование информации признано религией
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведская группа, выступающая за свободный обмен цифровой информацией, получила официальную регистрацию в качестве религиозной организации, передает Би-би-си.Группа, которая называет себя "Церковью Копимизма" (от англ. copy и me - "скопируй меня"), говорит, что официальное признание со стороны государства даст ей правовую защиту и свободу "священнодействия".Шведские СМИ отмечают, что "Церковь Копимизма" тесно связана с "Пиратским движением" Швеции, которое выступает за свободное распространение информации и против защиты авторских прав.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432466   (990526) от 06.01.2012
-
-Календарь 2012 Sexy Disco Excelsior [2012] [JPEG]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасные испанские красотки на страницах очередного календаря на 2012 год.Формат: JPEG
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610735   (990513) от 29.01.2013
-
-VA - Sunset Sounds Vol.1 (2013) [MP3|320 кб/с]<Downtempo, Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Sol - Blue Morning (Original Mix)
-02. Schwarz & Funk - The Dawn (Original Mix)
-03. Sunburn In Cyprus - Eye of Reason (Original Mix)
-04. Maria Luisa Lafiandra, Ruggero Campese - Sunset At Cafe Del Mar (Original Mix)
-05. Roberto Sol, Florito - Love Finds You (feat. Martine) (Original Mix)
-06. Chris Le Blanc - Si Vous Voulez (feat. Paris Bizarre) (Original Mix)
-07. Latin League - Mind & Soul (feat. Chris Nukwami) (Original Mix)
-08. Lenny Mac Dowell - Solar Energy Solution (Original Mix)
-09. Xemplify - Naughty Secret (Original Mix)
-10. Pianochocolate, Alfida - Flight (Vocal Edition)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F25C966E98C321DF23EFEFA3BAB7D308657715F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610460   (990512) от 29.01.2013
-
-Seb Dhajje - Leeknath / Calista Nantes (2012) [FLAC|Lossless]<House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leeknath (8:06)
-02. Calista Nantes (9:11)Жанр: HouseПродолжительность: 00:17:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610272   (990511) от 29.01.2013
-
-VA - Zirkus Zirkus Vol.1: Elektronische Tanzmusik (2013) [MP3|320 кб/с]<House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Schories - Archipel
-02. Marc De Vole & Patrick Muschiol - Ein Tag Im Herbst (feat Charly - Rodriguez Jr remix)
-03. Oliver Schleenvoigt - Gerissene Rolle (Neurotron remix)
-04. David Durango - Speak Time
-05. Till von Sein - Injoy
-06. BarBQ - My Pink Motor Boat
-07. Matzak - African Roots (Rodriguez Jr remix)
-08. Quinto - It Is What
-09. Satoshi Fumi - Asiantam (Takaaki Tsuchiya remix)
-10. Dave Pad - Going Nowhere(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8926424D5D1911E00F08D4C03AA97233B9B5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609373   (990509) от 29.01.2013
-
-VA - Drum and Bass Pro v.1 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SuddenDef & Wickaman - Destruct
-02. Komatic & Technicolour - Dickinson's Rocket (Original Mix)
-03. Teddy Killerz - New Drums
-04. dRamatic & dbAudio - Flex Through The Solar System
-05. The Upbeats - Undertaker
-06. Prolix - Over You
-07. Mos - Blue Moon (Original Mix)
-08. B4sstee - My Way
-09. Mob Tactics - Prang
-10. S.P.Y - Hammer In My Heart (Feat Diane Charlemagne)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67115FD23A61DDADCFB8FA81837D775E0E7F8356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610484   (990508) от 29.01.2013
-
-Enthrallment - People from the Lands of Vit (2012) [MP3|320 кб/с]<Brutal Death Metal / Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Chronicle Of Sorrow [00:02:34]
- 02 - Devoted To Delusion [00:02:43]
- 03 - Psychological Storm [00:03:17]
- 04 - A Full Land Of Worms... From The River To The Void [00:02:53]
- 05 - Chemical Romance [00:02:12]
- 06 - Obsessed By Just Anger [00:03:34]
- 07 - Walking Through The Thorns [00:03:13]
- 08 - Fruits Of Pain And Blue Sky [00:03:16]
- 09 - Punishment For Baneful [00:02:46]
- 10 - Unholy Diviners [00:05:14]Жанр: Brutal Death Metal / GrindcoreПродолжительность: 00:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF52435AC68FC4C69680DCF5712E0F8C7DCBE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610738   (990507) от 29.01.2013
-
-VA - Armada Beach Festival-Argentina 2013 (25-01-2013) [MP3| ~166-182 кб/с]<Trance,Progressive Trance.>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990507.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: Trance,Progressive Trance.Продолжительность: 06:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9957B47C23991DE657BE349AB6E47992EF76CC01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610578   (990505) от 29.01.2013
-
-Фотография - Фотосессия Аврил Лавин часть 2 [JPG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990505.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной подборке представлены фотосессии Аврил Лавин с 2007 года по 2012 года.Разрешение файлов: 300х300-3800х5600Формат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEB50431A4EF6B38543D240EC0C722D4B078691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610216   (990501) от 29.01.2013
-
-Dreamshade - The Gift Of Life (2013) [MP3|320 кб/с]<Melodic Death Metal/Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Photographs (4:01)
-02. Your Voice (3:42)
-03. The Gift Of Life (4:02)
-04. Sandcastles (4:00)
-05. Consumed Future (3:24)
-06. Our Flame (2:26)
-07. Late Confessions (4:37)
-08. Sincere (3:35)
-09. Elisabeth (4:02)
-10. Wants & Needs (3:55)Жанр: Melodic Death Metal/MetalcoreПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5588318F4DCAADA9AB3EF25561586E671EA47368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608308   (990498) от 29.01.2013
-
-Jamie Stevens - The Night Before (2003) [FLAC|Lossless]<Progressive House, Progressive Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Before (Original Mix) 09:30
-02. The Night Before (Momu Remix) 09:34Жанр: Progressive House, Progressive BreaksПродолжительность: 00:19:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610621   (990497) от 29.01.2013
-
-VA - Клубная Zона №3 (2013) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Никита - Танец В Темноте (Andrey Keyton Official Remix) (Radio Edit)
-02. Слава - Люди Любят (Dj Vengerov Remix)
-03. Нюша - Ты Слишком Сильный (Ural Djs Dance Mix)
-04. Женя Вилль - Ты Для Меня (Alexey Frolof Remix)
-05. Martin Solveig - The Night Out (Madeon Remix)
-06. Rico Bernasconi - Hit The Dust '12 (Official Video Version)
-07. Амина - Дни-Недели (Dj Nariman Mix)
-08. Global Deejays - Hardcore Vibes (Club Edit)
-09. Karmin - Hello (Laidback Luke Radio Edit)
-10. Voodoo & Serano feat. Ceresia & Ron Carroll - Louder (Club Mix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9607608857BB6CF0394E2059AC292A361E165133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610728   (990495) от 29.01.2013
-
-Wallpapers - Large collection of wallpapers vol.8 [JPEG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Large collection of wallpapers vol.8
+Тридцатилетняя журналистка Галина Исакова после развода задумала завести собаку. И завела. Да не простую, а годовалую суку английского мастифа, звать Варварой, весом к 80 килограммам. Собака оказалась почти на 20 кг тяжелее новой хозяйки, да и ростом почти с нее. Если на задних лапах. При таком соотношении сил наладить отношения не так-то просто. Но они справились и стали вместе жить, радуясь всяким радостям, но и не без проблем, конечно, неприятностей или там болезней. В дружбе и любви друг к другу и к форуму К-9, где с завидной регулярностью появлялись «Варваркины рассказы». Теперь эти полюбившиеся форумчанам рассказы стали книгой, вернее двумя книгами. Первая «Мы с Варварой ходим парой» (вышла в феврале 2008 г.) Вторая — «Салют, Варварята!» — сейчас перед вами.
 
-Релиз от:Разрешение файлов: 1680х1050 - 2560х1600Формат: JPEG
+ Обе книги изумительно, с юмором написаны, легко и с интересом читаются, и Галина, и Варвара демонстрируют недюжинные знания жизни вообще и психологии собак и людей в частности.
+
+ Вот поэтому книги предназначены для широкого круга читателей.Формат: FB2.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CF67435254628E17544767ECAFCAD10B1C7A603
+magnet:?xt=urn:btih:B02122D32DA0472983FA3743FBCC6DD8522A04D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,25 +264,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353720   (990493) от 19.01.2020
+###  Публикация: 607512   (994554) от 23.01.2013
 
-Обои - 8K UltraHD wallpaper (Pack 17) [JPG]
+Earthmass - Ancients (2012) [MP3|320 кб/с]<Psychedelic Progressive Stoner>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка красивых и качественных обоев на разные темы в (8K) Ultra HD формате.Формат: JPGРазрешение файлов: 7680x4320
+01. Ancients 8:33
+
+02. Lunar Dawn (Keep, Relic & Ritual) 20:45Жанр: Psychedelic Progressive StonerПродолжительность: 00:29:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D5000C42C13CB9DE6D5EA408F4AB45394B215BA
+magnet:?xt=urn:btih:CABCAA0506AF3CD6DE7CD6C8F6EB635A1A3F5CFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,25 +292,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353777   (990492) от 19.01.2020
+###  Публикация: 607431   (994551) от 23.01.2013
 
-Смешанные единоборства. UFC 246: МакГрегор – Серроне / McGregor vs. Cerrone (19.01.2020) IPTV [H.264/1080i-LQ] [hand made 50fps]
+Anime Wallpapers vol.1
 
->>Спорт и активный отдых
->>Единоборства, Бои без правил
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бои турнира UFC 246, главным событием которого стал поединок в полусреднем весе между Конором МакГрегором и Дональдом Серроне.Телекомпания: UFC ТВ HDЖанр: Спорт, ЕдиноборстваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:38 - 02:37:08
+[Wallpapers] Anime Wallpapers vol.1 
+Название: Anime Wallpapers vol.1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х800 - 2560х1600
+Расширение (тип) файлов: jpg, pngСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6A6854757D53098686A2454F04BFEC2F6B8F1E4
+magnet:?xt=urn:btih:E64171A1B6C541ED71CC2FFFA370FE44D241A3E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,25 +322,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353899   (990491) от 19.01.2020
+###  Публикация: 607464   (994550) от 23.01.2013
 
-Холодное сердце 2 / Frozen II (2019) DVDScr [UKR] [Line]
+Фотография - фотографии от ЛЕНИНа
 
->>
->>
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Анна, Эльза, Кристоф, его верный олень Свен и никогда не унывающий снеговик Олаф должны будут покинуть уютное королевство Эренделл и отправиться ещё дальше на север, в путешествие, которое приведет их к истокам древних легенд и поможет раскрыть тайны, касающиеся прошлого их родной страны.Производство: США / Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Крис Бак, Дженнифер ЛиАктеры: Идина Мензел, Кристен Белл, Джонатан Грофф, Джош Гад, Стерлинг К. Браун, Эван Рэйчел Вуд, Альфред Молина, Марта Плимптон, Джейсон Риттер, Рэйчел МэттьюзПеревод: ОтсутствуетЯзык озвучки: УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:43:13
+Фотография - фотографии от ЛЕНИНаРазрешение файлов: ~  500x750 ~ 800x800
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CAD6BFC78EC2B06CCD1EFF37C0CEC1A4829DD0A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,25 +348,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353730   (990490) от 19.01.2020
+###  Публикация: 607441   (994546) от 23.01.2013
 
-Звуковые библиотеки -  Splice Sounds - Sounds of KSHMR Vol.3 [WAV]
+Anime Wallpapers vol.2
 
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пройдите сквозь бесконечность жанров, изучите мир звуков и погрузитесь в легендарное возвращение KSHMR в Splice - более 4000 сэмплов и лупов инструментов, ударных, эффектов и многого другого.Формат: WAV
+[Wallpapers] Anime Wallpapers vol.2 
+Название: Anime Wallpapers vol.2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х800 - 2560х1600
+Расширение (тип) файлов: jpg, pngСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0467E0400589DF357B3E20571FD6069C7B5377C0
+magnet:?xt=urn:btih:F9179F313569922D026D82BB07E35D28AE043DDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,77 +378,373 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 164374   (990489) от 19.01.2020
+###  Публикация: 607532   (994545) от 23.01.2013
 
-Скоро в школу. Развиваем музыкальные способности [5+] (L) [Русский] (2009)
-
->>Детские PC Игры
->>Развивающие Игры для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш ребенок любит музыку, у него хороший слух и прекрасная музыкальная память? Кто знает, может быть, его ждет блестящая карьера знаменитого скрипача или пианиста! Как можно скорее раскрыть способности малыша позволит новый диск популярной серии «Скоро в школу»! Яркий, красочный и увлекательный, он откроет для детей таинственный мир нотной грамоты, расскажет интереснейшие (   Читать дальше...   )Тип издания: LРазработчик: ID COMPANYЖанр: Обучающие и развивающие игрыЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6F0DE3063ECD7581AD1B71AC0384FAF8E486B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353738   (990488) от 19.01.2020
-
-Аладдин и смертельная лампа / Aladdin and the Death Lamp (2012) HDTVRip [H.264/1080p-LQ] [MVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990488.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках сокровищ Аладдин и его друг Лука расхищают неизвестную гробницу. Столкнувшись в гробнице с чудовищным испытанием, они заполучают карту, которая приведет их к волшебной лампе…Производство: США, Канада / Chesler/Perlmutter Productions, Sony Pictures Television, Vesuvius ProductionsЖанр: ужасы, фэнтези, приключенияРежиссер: Марио АццопардиАктеры: Даррен Шалави, Ноам Дженкинс, Кэндис МакКлюр, Юджин Кларк, Суреш Джон, Джордж Гали, Али Ризви, Миф, Тиг Фонг, Ник АлачиотисПеревод: Многоголосый профессиональный, Одноголосый любительскийСубтитры: русские, английскиеПродолжительность: 01:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A603A937C969AEE81A5317115BC0EB286E8D6EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353885   (990487) от 19.01.2020
-
-NetLimiter Pro 4.0.59.0 [Multi/Ru]
+WinISO Standard 6.3.0.4770 [Multi/Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+WinISO Standard - программа для работы с образами CD и DVD дисков. WinISO работает с форматами BIN и ISO, может редактировать эти форматы и конвертировать из одного в другой. С помощью WinISO вы сможете с легкостью добавлять / удалять / переименовывать / извлекать файлы из образов. Программа имеет очень удобный и понятный интерфейс, который еще сильнее облегчит и без того простую работу в этой программе. Предназначенная для работы с образами BIN и ISO программа WinISO является лидером в ряду софта, разработанного для клонирования и создания образов оптических носителей информации.Название программы: WinISO StandardЯзык интерфейса: Multi/Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23A3095DC67EBED88F257FFA43FAEA8FD64C7119
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607546   (994542) от 23.01.2013
+
+qBittorrent 3.0.8 Stable Portable by PortableApps [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994542.jpg" />
+</div>
+
+
+###  Подробнее
+
+QBittorrent 3.0.8 - абсолютно бесплатный, мощный и простой при работе клиент файлообменной сети BitTorrent. Несмотря на кажущуюся простоту, программа обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, встроенный менеджер ограничения скорости, фильтрация по IP, удаленное управление через веб-интерфейс, а также наличие опции последовательной закачки.Название программы: qBittorrent PortableЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607602   (994540) от 23.01.2013
+
+[Wallpapers] Обои-разное №1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои-разное №1
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45CE22155F1DED321CDE6D6889A4805A6866827A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607195   (994539) от 23.01.2013
+
+Razorlight - Razorlight (2006) [MP3|320 кб/с]<Инди-рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994539.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  In The Morning (3:42)
+2.  Who Needs Love? (3:32)
+3.  Back To The Start (3:12)
+4.  Hold On (3:26)
+5.  In The Morning (3:42)
+6.  Before I Fall To Pieces (3:22)
+7.  Kirby's House (2:51)
+8.  America (4:10)
+9.  Los Angeles Waltz (4:39)
+10. Pop Song 2006 (2:41)Жанр: Инди-рокПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C90054432BE66944C24A7015B68905483DCAB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607759   (994534) от 23.01.2013
+
+Газета | Сезон у дачи. Спецвыпуск №1 Тепличные томаты (январь 2013) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сезон у дачи - номер посвящен выращиванию тепличных томатов. Тепличное выращивание дорогостоящее и трудоёмкое занятие, но оно с лихвой окупается. Во первых - в теплице мы получаем более высокие урожаи. Во вторых - даже в не обогреваемых теплицах плодоношение начинается уже в середине июня (в средней полосе), а заканчивается в октябре. В третьих - только в теплице (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607552   (994532) от 23.01.2013
+
+Katalepsy - Autopsychosis (2013) [FLAC|Lossless]<Slamming Brutal Death Meta>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lurking in the Depth
+02. Evidence of Near Death (E.N.D.)
+03. Body Bags for the Gods
+04. Cold Flesh Citadel
+05. The Pulse of Somnambulist
+06. Unearthly Urge to Supremacy
+07. Gore Conspiracy
+08. Amongst Phantom Worlds
+09. Needles of Hypocrisy (interlude)
+10. Knifed Humility(   Читать дальше...   )Жанр: Slamming Brutal Death MetaПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607687   (994530) от 23.01.2013
+
+IObit Uninstaller 2.4.6.322 Portable [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994530.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller поможет вам быстро и без усилий удалить ненужные программы и папки с вашего компьютера. Там, где встроенный неповоротливый диалог «Установка и удаление программ» не справляется с возложенной на него задачей, IObit Uninstaller принимает эстафету, эффективно выполняя свою работу. Более того, это бесплатная утилита для деинсталляции программ, сама по себе не требующая установки.
+В отличие от многих других программ для удаления приложений, IObit Uninstaller позволяет удалять любое приложение и все его файлы без установки. Это на 100% чистый деинсталлятор.Название программы: IObit UninstallerЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607677   (994529) от 23.01.2013
+
+Рудольф Баландин | Знаменитые морские разбойники. От викингов до пиратов [2012] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слово «пират» появилось в Древней Греции. Слова, имеющие с ним общий корень, означают; испытание, опыт; покушение, опасное предприятие; нападение, схватка; подвергаться искушению. Действительно, пиратский промысел привлекал искателей удачи, готовых подвергнуться трудным испытаниям, нападать, вступать в схватки, осуществлять опасные предприятия. Конечно же, этих людей искушала возможность богатой добычи.
+Образ пирата прочно вошел в приключенческую литературу, а затем в кинематограф. Моряками-разбойниками, флибустьерами, каперами, викингами, витальерами, корсарами и прочими «джентльменами удачи» (которым она улыбалась далеко не всегда) порой восхищались, но чаще
+рассказывали о них страшные истории...
+О самых знаменитых морских разбойниках рассказывает очередная книга серии.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AB60D3ABA0EB236D197EDAC1993B9FEB0FB8CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607559   (994526) от 23.01.2013
+
+Patricia Barber - Smash (2013) [FLAC (tracks+.cue)|Lossless]<Contemporary Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Code Cool
+02. The Wind Song
+03. Romanesque
+04. Smash
+05. Redshift
+06. Spring Song
+07. Devil's Food
+08. Scream
+09. The Swim
+10. Bashful(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607636   (994525) от 23.01.2013
+
+Растровый клипарт -  Детки [PNG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детки на прозрачном фоне  для Вашего творчества.Разрешение файлов: от 500x500 до 600х600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B95DE239C640BF20D19AC7A2CB8548419E09A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607597   (994524) от 23.01.2013
+
+Алан Дин Фостер  | Утрата и обретение [2012] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оптовый торговец Маркус Уокер не догадывался, как дорога ему планета, на которой он родился и вырос, пока не оказался на огромном космическом корабле пришельцев, похитивших его с неизвестной целью. Среди других пленников он обнаружил еще одного землянина - лохматого говорящего пса, ставшего ему надежным и преданным другом. Корабль стремительно уносил своих обитателей в межпланетное пространство, а неугомонный Уокер не терял надежды вернуться на Землю. Он умудрился завязать дружбу с самыми опасными и необщительными существами на корабле и организовать заговор. Теперь он знал цель похитителей: все пленники будут проданы как экзотический товар заказчикам с разных планет...Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D128867CB2516577B0F00EF18C1BB6D79ABE882A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607449   (994521) от 23.01.2013
+
+Anime Wallpapers vol.3
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994521.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Anime Wallpapers vol.3 
+Название: Anime Wallpapers vol.3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х800 - 5108х3340
+Расширение (тип) файлов: jpg, pngСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B6DE72F86E180D01FC4140573EB797B83A2785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607671   (994520) от 23.01.2013
+
+Е. Белаш | Мифы Первой мировой [2012] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая мировая война на фоне последовавших за ней войн, революций, атомных взрывов, космических полетов и всемирной сети кажется чем-то симпатично-архаичным, но забытым, как королевская карста или прабабушкин граммофон. А ведь в свое время эта война была таинственной и загадочной, но ожидаемой.
+Автор рассказывает читателям о наиболее интересных фактах из истории (   Читать дальше...   )Жанр: Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D383C8F8C842377FB167AD8A11006347B6160C23
 ```
 
 https://mybot314.ru/tekegram_catalog/

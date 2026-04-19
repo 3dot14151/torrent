@@ -1,3 +1,32 @@
+###  Публикация: 1682142   (130780) от 09.12.2023
+
+VA - 120 Best Slow Songs For Relax [part II] (2023) [MP3|320 Kbps] <Blues-Rock, Country, Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130780.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Buddy Guy feat. Jason Isbell - Gunsmoke Blues [03:09]
+002. Larry Miller - Blues Forever [05:26]
+003. Danielle Nicole - Take It All [02:58]
+004. Kenny Wayne Shepherd - Blue On Black [05:30](   Читать дальше...   )Жанр: Blues-Rock, Country, BalladПродолжительность: 11:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C2F9128F9BB79AB1574327C981ED926E392762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684319   (127834) от 15.12.2023
 
 VA - Best Jazz Songs of 2023 (2023) [MP3|320 Kbps] <Jazz>
@@ -716,35 +745,6 @@ VA - Jazz Blues (2024) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FC71576AE6426859E7FE5CF06FD6778195E0EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722402   (56551) от 14.05.2024
-
-VA - Good Women in Good Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anne & the Blues Diggers - Still Left in Your Heart [02:57]
-002. Anni Piper - Mystery of Love [03:30]
-003. Nora Jean Bruso - Things Done Changed [04:39]
-004. Pristine - The Blind [05:24](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EBF484641F379A55A269F3A84E357C5D20477E
 ```
 
 https://mybot314.ru/tekegram_catalog/

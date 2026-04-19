@@ -1,3 +1,234 @@
+###  Публикация: 1582723   (230094) от 14.10.2022
+
+Kirtan Raga - Longing (2016) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maha Mantra raga Gunakri (Live)
+02. Om Namo Bhagavate Vasudevaya (Live)
+03. Maha Mantra raga Dhanashri (Live)
+04. He Govinda He Gopal (Live)Жанр: MantrasПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5747E5092ED7BB27006F32988D8365C90D7F800C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962959   (229967) от 12.12.2015
+
+Fausto Papetti - Isn't it Saxy? (1988) 2CD [FLAC|image + .cue]<Jazz, Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hill Street Blues (03:26)
+02. Sleepy Shores (02:56)
+03. Feelings (03:34)
+04. Ode To Billy Joe (02:49)(   Читать дальше...   )Жанр: Jazz, Easy Listening, InstrumentalПродолжительность: 01:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7FCB3A5D7C25492D0A08A4C2B28B99ABF9FB8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268005   (229768) от 09.12.2018
+
+OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moniker - Makutekahu [2:09]
+ 02. Moniker - Ricky Runs [1:46]
+ 03. Moniker - Cloak of the Sky [2:58]
+ 04. Rima Te Wiata & Julian Dennison - Ricky Baker Birthday Song [0:51](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A38B1A2DC7F0128D5A707E14F7601B59756ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266859   (229679) от 09.12.2018
+
+Dolly Parton - Dumplin' (2018) Original Motion Picture Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Am (feat. Sia) (04:32)
+02. Holdin' On to You (feat. Elle King) (03:27)
+03. Girl in the Movies (04:34)
+04. Red Shoes (02:58)(   Читать дальше...   )Жанр: Blues, Country, FolkПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967414EE276D683EC90D15F7A1CC234CF87E7FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512622   (229245) от 26.11.2021
+
+Звонкий Янтарь - Коллекция (2019) 2альбома [MP3|320 Kbps] <Ethnic, Folk, Electronic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Связь
+02. Джунгли
+03. Индийский ОкеанЖанр: Ethnic, Folk, ElectronicПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA5DF96BC51CB37964A0AD7BD84DCF3A10913B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424269   (228782) от 16.11.2020
+
+VA - The Best Christmas Album In The World...Ever! (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Thank God It's Christmas (2011 Remaster) 4:18
+02. Brenda Lee - Rockin' Around The Christmas Tree (Single Version) 2:05
+03. Justin Bieber - Mistletoe 3:02
+04. Katy Perry - Cozy Little Christmas 3:01(   Читать дальше...   )Жанр: Christmas MusicПродолжительность: 02:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6963576D16E96152F62B6923FE3D40A8FD03377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341800   (228780) от 29.11.2019
+
+White String Orchestra - Aktuelle Hits im modernen Streichersound Vol. 2 (1996) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover, Cover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me Softly (4:14)
+02. I Cant Help Myself (3:17)
+03. Where Do You Go (4:17)
+04. My Love (4:06)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, CoverПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2E3A66FA537C9433430E07B0658444A54EAADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341804   (228730) от 29.11.2019
+
+White String Orchestra - Traumhafte Balladen im modernen Streichersound - Vol.3 (1997) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Believe I Can Fly (4:18)
+02. Lonely (3:51)
+03. Time To Say Goodbye (4:05)
+04. When I Die (4:34)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2DE4D18573BEC545054E8B6888B149057DAA0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586391   (228439) от 08.12.2012
 
 Дидюля - Орнаментальный (2012) [MP3|320 кб/с]<Instrumental, Flamenco, World>
@@ -525,238 +756,6 @@ Kevin Braheny - Secret Rooms (1990) [FLAC|Lossless|tracks + .cue] <Electronic, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2195668545B1D3FB7C60F5B46DDBFA65722C061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342381   (223796) от 02.12.2019
-
-Dr. Jeffrey Thompson - Theta Meditation System 2.0 (1999) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Impressions (32:02)
-02. Mind's Eye (31:58)Жанр: New Age, Meditative, HealingПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB4D8B2C3682C332E833D3F6A690A144430ECEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625987   (223659) от 19.11.2020
-
-Karamazov Twins - Шапито-Шоу (2011) [FLAC|Lossless|image + .cue] <OST, Art-Pop, Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Karamazov Twins — российская рок-группа, созданная в Майкопе Жаком Поляковым. Сейчас группа перебралась в Москву и уже успела войти в топ-листы совершенно разных людей от режиссера Сергея Лобана до Петра Мамонова. Наибольшую известность группе принесла работа над музыкой к фильму Шапито-шоу (2011).
-
-Сами музыканты говорят, что их задачей является сочетание несочетаемого, (   Читать дальше...   )01. 3-15-9-20 (3:11)
-02. Мама (2:08)
-03. Песня Баретского (1:57)
-04. Песня Веры и Киберстранника (1:57)(   Читать дальше...   )Жанр: OST, Art-Pop, RockПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116218F92F4AAFF91D39742717EE05BB2E9331AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470460   (223407) от 19.11.2020
-
-Yanni - Live at The Acropolis (1994) [APE|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yanni - Santorini (6:59)
-02. Keys to Imagination (7:35)
-03. Until The Last Moment (6:38)
-04. The Rain Must Fall (7:25)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D951B4D52FBCB31F90BFA6F9770B20FE998FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292092   (223319) от 19.11.2020
-
-James Last - Gold: Greatest Hits (2003) [APE|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biscaya (4:05)
-02. Der Einsame Hirte (5:43)
-03. Traumschiff Thema (2:38)
-04. Der Landarzt (3:25)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536AABFD080414880B1D9285C804CF7626BE903D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268988   (223270) от 13.12.2018
-
-Pam Asberry - Thankful Heart, Joyful Mind (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Gesu Bambino
-02 – Sing We Now of Christmas
-03 – Wexford Carol
-04 – White Christmas(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486150F05F9D4FBC6B7569AF925B6F2417671017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268367   (223237) от 13.12.2018
-
-Painted Water - Forever With You (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Neo-Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223237.jpg" />
-</div>
-
-
-###  Подробнее
-
-02. Forever with You
-03. Last of Its Kind
-04. Rabbit of Glen Coe Hills
-05. Highland People(   Читать дальше...   )Жанр: New Age, Instrumental, Neo-ClassicalПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C7CA5D461F6B88783F3B5516CCE73F9CF8AE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651158   (223211) от 05.08.2023
-
-Spiritual Front - The Queen Is Not Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Dark Cabaret, Nihilist, Suicide Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Ill [00:03:23]
-02. Ask [00:03:25]
-03. There Is A Light That Never Goes Out [00:04:04]
-04. How Soon Is Now? [00:04:56](   Читать дальше...   )Жанр: Neofolk, Dark Cabaret, Nihilist, Suicide PopПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CCAD6B6F05A0E9840734500201043684ADF53F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342386   (221561) от 04.12.2019
-
-Serial Cleaner - Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob Zahn - Music to Hide Corpses To (Main Menu Theme)
-02. Robert Purzycki - No Sweat
-03. Jan Sanejko - Sucker Punch
-04. Jan Sanejko - Horoscope Date(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730133466277A06E9A1261695214BED2E6B51CFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 908116   (634258) от 14.06.2015
+
+Johnnie "Geechie" Temple - The Essential (2003) 2CD[MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lead Pencil Blues (3:06)
+02.  New Vicksburg Blues (2:48)
+03.  When The Breath Bids Your Girlfriend's (2:41)
+04.  Big Boat Whistle (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42C205FCFFD8B683169F6670226BA06811B5C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908132   (634243) от 14.06.2015
 
 Kokomo Arnold - The Essential (2003) 2CD[MP3|320 кб/с]<Blues>
@@ -748,35 +777,6 @@ Brilleaux - Pictures Of The Queen (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50DDDAC2B8EFEA08D8259A4DA662396AD926CF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144958   (623794) от 24.06.2017
-
-Thornetta Davis - Honest Woman (2016) [MP3|320 Kbps] <Detroit Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When My Sister Sings the Blues (01:24)
-02. I Gotta Sang the Blues (feat. Kim Wilson) (05:09)
-03. That Don't Appease Me (04:26)
-04. Set Me Free (feat. The Larry McCray Band) (03:35)(   Читать дальше...   )Жанр: Detroit BluesПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79A54D533A8C25E3FB5F911EC4BBBE38CAF5D02
 ```
 
 https://mybot314.ru/tekegram_catalog/

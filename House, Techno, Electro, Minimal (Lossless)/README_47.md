@@ -1,3 +1,205 @@
+###  Публикация: 1176434   (371924) от 21.10.2017
+
+Satori - Maktub (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, World>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sherazade And Her Never Ending Stories (3:42)
+ 02. Umama (5:33)
+ 03. Dive Into The Mystic (5:19)
+ 04. Shotgun (5:23)(   Читать дальше...   )Жанр: Deep House, Downtempo, WorldПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE88C69A8D3834FA66B6AEFA372725CE61EC850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327859   (370251) от 27.09.2019
+
+VA - Ethereal Techno #007 (2019) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clawz SG - Xanax (original mix) (6:31)
+02. EarthLife - India (original mix) (8:55)
+03. Lost Soul (CH) - Maze (original mix) (6:52)
+04. Martin Dubiansky - Element 5 (original mix) (9:46)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 02:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9E49FFBE06E12A9D435725A44A2690CA08E8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327861   (370243) от 27.09.2019
+
+deadmau5 - mau5ville - Level 3 (2019) [FLAC|Lossless|WEB|tracks] <Progressive House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadmau5 - Polyphobia (7:30)
+02. Deadmau5 - Glivch (5:15)
+03. Deadmau5 & Shotty Horroh - Are You Not Afraid (3:11)
+04. Deadmau5 & Shotty Horroh - Are You Not Afraid (J. Worra F No Remix) (5:00)(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6968387ED21592E93CD71DC2BAB2FAB85903D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069858   (369138) от 06.11.2016
+
+Mario Hammer And The Lonely Robot - L’esprit De L’escalier Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, IDM>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369138.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mono No Aware/L’esprit De L’escalier (Extrawelt Redux) (9:33)
+2. Mono No Aware/L’esprit De L’escalier (Extrawelt Tool) (8:22)
+3. Sirimiri/Hammersche Modularverschaltung (Thyladomid/Jonas Mantey Retouch) (9:02)
+4. Misodoctakleidist (Mario Hammer & The Lonely Robot edit) (5:19)(   Читать дальше...   )Жанр: Techno, Tech House, IDMПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E711EC66708EE587E3A6538E9CCDA965A1CDE794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255020   (368312) от 16.10.2018
+
+An-i - 2 EP (2014-2015) Cititrax [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gutz (09:37)
+ 02. Rut (05:47)
+ 03. Save Us (06:51)Тип издания: WEB •Жанр: Techno •Продолжительность: 00:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD9A5F4ED416520ED044155C16B046F492AE58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327967   (368169) от 28.09.2019
+
+VA - Steyoyoke Black Onyx Vol. 5 (2019) [FLAC|Lossless|WEB|tracks] <Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Devon - Innerverse (Lost Soul remix) (7:08)
+02. Veles (LB) - Broken Promises (Erly Tepshi remix) (5:25)
+03. Darko Milosevic & Nick Devon - Void (original mix) (7:45)
+04. Clawz SG & Darko Milosevic - Secretum Secretorum (original mix) (7:42)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666D86C122C9339C7CBFD593A0C419DBDECF03AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416599   (367666) от 16.10.2020
+
+Bronson - BRONSON Remixes N°.1 (2020) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Bassline>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367666.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Know Me (Cassian Remix) (feat. Gallant) (05:13)
+2. Vaults (O'Flynn Remix) (06:25)
+3. Know Me (Skream Remix) (feat. Gallant) (06:48)
+4. Heart Attack (Offaiah Remix) (feat. LAU.RA) (06:18)(   Читать дальше...   )Жанр: Progressive House, BasslineПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6301030130CE3C9BC08BF14390DAD1381A000CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416427   (367178) от 16.10.2020
 
 Zenker Brothers - Cosmic Transmission (2020) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Electro, Dub, Techno, Ambient>
@@ -538,207 +740,6 @@ VA - I Love Mukke, Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCFDFCF303BE9244BD2593710F7C54509E748040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329500   (352367) от 05.10.2019
-
-Benny Benassi Presents The Biz - Love Is Gonna Save Us (2004) [FLAC|Lossless|WEB-DL|tracks] <Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352367.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love Is Gonna Save Us (Radio Edit) [03:23]
-2. Love Is Gonna Save Us (Benny Extra Long Mix) [06:34]
-3. Love Is Gonna Save Us (Benny Extra Long Mix - Instrumental) [06:34]
-4. Love Is Gonna Save Us (LP CD Version) [05:07](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40EB316DC217762E71F97E5AFB993CD4EB64130E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256712   (352110) от 23.10.2018
-
-Bodyrox Feat. Luciana - Yeah Yeah (2006) [FLAC|Lossless|tracks + .cue] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Radio Edit) (2:45)
-02. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Vocal Club Mix) (8:19)
-03. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Instrumental) (6:57)
-04. Bodyrox feat Luciana - Yeah Yeah (Electro Radio Edit) (2:37)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: : 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8480E2B794D14AADDBD689203DB470B9DB39638A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418166   (351373) от 23.10.2020
-
-Ela Minus - acts of rebellion (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N19 5NF (2:06)
- 02. they told us it was hard, but they were wrong. (6:01)
- 03. el cielo no es de nadie (4:22)
- 04. megapunk (3:12)(   Читать дальше...   )Жанр: Electronic, Tech House, Minimal, AmbientПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1678C9A79B433DA888F85CE37C8F9DF84D15E3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418077   (351104) от 23.10.2020
-
-Faithless - All Blessed (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poetry (feat. Suli Breaks) (3:39)
- 02. Gains (feat. Suli Breaks) (3:27)
- 03. I Need Someone (feat. Nathan Ball & Caleb Femi) (4:54)
- 04. Remember (feat. Suli Breaks & LSK) (7:05)(   Читать дальше...   )Жанр: Progressive House, Downtempo, Trip-HopПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3CA99C2DBF81B79155DEAC7D8C71989CE265010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418778   (346802) от 25.10.2020
-
-Tchami - Year Zero (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Bassline, Dancefloor>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartless (2:52)
- 02. Proud (4:02)
- 03. Toxic Love (3:30)
- 04. Buenos Aires (4:20)(   Читать дальше...   )Жанр: EDM, Deep House, Bassline, DancefloorПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FFD9F05322BD3FBC354777CD035FE76DFA65C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330096   (345745) от 08.10.2019
-
-Ahmad - Under The Dust (2019) Tech Cycle [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Halfstep>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Comes At Night - Intro (03:12)
- 02. Poison (05:24)
- 03. Octagon (05:22)
- 04. Protoplasm (04:57)(   Читать дальше...   )Жанр: Techno, Ambient, HalfstepПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A3AE33E6CD1BD20A6331DF708D1E6292F6542A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419156   (342200) от 27.10.2020
-
-David Moufang & Jordan Czamanski - Live in Seattle (2015) Further Records [FLAC|Lossless|tracks+.cue] <Techno, Ambient, Electro, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live In Seattle (Part 1) (49:15)
-02. Live In Seattle (Part 2) (49:58)Жанр: Techno, Ambient, Electro, AcidПродолжительность: 01:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2EF08E9900D2988DB2441B4C4278C1A67EB825
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1690972   (123693) от 09.01.2024
+
+Symphonic Landscapes - Works By Mozart, Brahms, Schubert & Mendelssohn (2023) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfgang Amadeus Mozart
+1. Symphony no.38 in D major K.504 'Prague' - I. Adagio
+2. Piano Concerto no.25 in C major K.503 - III. Allegretto
+(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB27734A62AABE5A4FC3C1D91E715D675FDFD72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691646   (123101) от 13.01.2024
 
 VA - Calming Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -706,35 +735,6 @@ VA - Peaceful Piano Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF62763859EDC1D6BC57C47FAFD3E4E1BD4F7237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713861   (111835) от 07.04.2024
-
-VA - Piano Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glenn Natale - The Unseen (1:59)
-02. Erjos - Interlude (1:53)
-03. Dario Crisman - Waves on Sand (3:04)
-04. Joaqino Bianco - Fly with Me (2:39)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6375EB5494F96DF4EB763D035BB9D1AC27049DCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

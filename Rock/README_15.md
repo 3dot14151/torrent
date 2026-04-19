@@ -1,3 +1,32 @@
+###  Публикация: 997515   (873281) от 17.03.2016
+
+Led Zeppelin - Ballads (2014) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Baby I'm Gona Leave You (06:46)
+02 - Thank You (04:51)
+03 - Since I've Been Loving You (07:27)
+04 - Stairway To Heaven (08:02)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43998707B1E01E2374CAE79861B9C9B8B8D36286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 186869   (873239) от 30.03.2010
 
 VA Rock Ballads - Сборник (2009) [MP3|320 kbps]<Classic Rock>
@@ -734,35 +763,6 @@ David Bowie - ChangesNowBowie (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9FC9D26A66DCB195AE3B013C7F5D11E78F09006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376415   (860261) от 17.04.2020
-
-Paul McCartney & Wings - Wings Greatest (1978) Remastered, 2020, Paul McCartney Catalog [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Day (3:45)
-02. Silly Love Songs (5:55)
-03. Live And Let Die (3:14)
-04. Junior’s Farm (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D1E55FE6BBE750E4C87AD694452291FE62B396
 ```
 
 https://mybot314.ru/tekegram_catalog/

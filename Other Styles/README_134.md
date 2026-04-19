@@ -1,3 +1,206 @@
+###  Публикация: 961021   (303247) от 30.11.2015
+
+VA - Master & Mistress  Tango 50 Original Favourites (2010) [MP3|192 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Di Sarl - El Pollito
+02. Tania Con Orquesta - Yuyo Verde
+03. Rosita Quiroga - Apologia Tanguera
+04. Alfredo Di Angelis - El Choclo(   Читать дальше...   )Жанр: TangoПродолжительность: 02:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF296D69DEB2D27BF92E468FFC17A0FAEE33941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960352   (303228) от 30.11.2015
+
+VA - Road House (The Original Motion Picture Soundtrack) (1989) [FLAC|image + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jeff Healey Band/Roadhouse Blues
+02. Bob Seger/Blue Monday
+03. The Jeff Healey Band/I'm Tore Down
+04. Otis Redding/These Arms of Mine(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4998A896658F6519A8E85F2AD2CCD946B88EAD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261583   (303128) от 11.11.2018
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 2 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303128.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pathetique / Nutcracker - Tchaikovsky Romeo ans Juliet - Symphonic Rock Orchestra
+   2. Ave Maria - Bach-Gounod - Orchestra Charles Monet
+   3. Ave Verum – Mozart - Wave's Computer Orchestra
+   4. Waltz in A Flat Major – Brahms - Philharmonics of London(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805C197E0565551272415A2D05EB7A6BAF2035BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960437   (303089) от 30.11.2015
+
+VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Soundtrack>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emmanuelle In The Mirror
+02. Bachelet, Pierre / Emmanuelle Song (French Vocal Version)
+03. Emmanuelle In Thailand
+04. Emmanuelle Steps Out(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E58A7A69521ABB59350F3F15EB7BEAFBF71D437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077697   (302838) от 30.11.2016
+
+VA - Spa Relaxation Ambient Music, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Balearic, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manifestation - Chillout Piano [00:04:21]
+02. Wolfgang Ohmer - Vanya Sulie [00:04:46]
+03. Rocco Muller - Victim's Song [00:08:00]
+04. Niefelsen - Deep in the Space [00:08:22](   Читать дальше...   )Жанр: Downtempo, Balearic, MeditationПродолжительность: 04:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323FE427DA5059EC055DA1A14A43FC27D192D8E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261565   (302765) от 11.11.2018
+
+Richard Clayderman - Super Best (2015) [FLAC|24/192|Lossless|WEB-DL|tracks] <Easy Listening, Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto pour une jeune fille nommée je t'aime
+02. Ballade Pour Adeline
+03. Couleur Tendresse
+04. Concerto Des Etoiles(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C0FF8A3F91C29150A5D55E0A89DFAEA3561EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078120   (302656) от 30.11.2016
+
+Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Television Soundtrack) (2015-2016) [MP3|320 кб/с]<Soundtrack, Folk>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outlander - The Skye Boat Song (French Version) (feat. Raya Yarbrough) (01:36)
+02. Leave the Past Behind (05:15)
+03. Wrath of the Comte (02:27)
+04. Versailles (02:54)(   Читать дальше...   )Жанр: Soundtrack, Score, Folk •Продолжительность: 03:13:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3450BF1DA0919F5BD7C6A91FE23C95E7D39E2DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078011   (302640) от 30.11.2016
 
 Баттувшин (Battuvshin) - Душа кочевника - Nomad's Soul (2010) [FLAC|Lossless|image + .cue] <Ethnic, Instrumental>
@@ -540,209 +743,6 @@ Llewellyn - Ancient Lands (2015) [MP3|320 кб/с]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0358E3FB3A9DF7EF06D001CD0E2133D5FD3A5AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333631   (298743) от 27.10.2019
-
-VA - Sleep & Massage Music (2019) [MP3|320 Kbps] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298743.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Spa Music - Sleeping Waves (5:51)
-2.Karushanti, Deep Sleep - Tao of Sleep (6:04)
-3.Musica Relajante - Two Flames (6:00)
-4.Vi-Starrs, Namaste - Echoes from the Wreck (8:27)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362C8C8FE33127A2FF63D3C8936B65EE3EAB46DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334027   (298732) от 27.10.2019
-
-Ultimate Pop Hits and Piano Tribute Players - New Pop Covers on Piano (2019) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Girls Like You (Instrumental Version)	 03:02
-2. Love Someone (Instrumental Version) 04:40
-3. You Say (Instrumental Version) 04:13
-4. Breathless (Instrumental Version) 03:13(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F635E249E283F1BEBA6691279DB1A2E9CBECE68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333747   (298731) от 27.10.2019
-
-VA - New Instrumental Ballads vol.2 (2002) [FLAC|Lossless|tracks + .cue]<Instrumental, New Age, Ballads>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Hours - Rain 06:57
-02. Light Orchestra - Ocean Breathe 05:29
-03. Sun Collection - Lounge Bomb 04:45
-04. Andrew Moldon - Clounds 02:52(   Читать дальше...   )Жанр: Instrumental, New Age, BalladsПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C7FF414C35790BC5A3D797749D6C601DD3FA4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261667   (298681) от 13.11.2018
-
-Silent nook - С.О.М.А (2018) [MP3|320 Kbps] <Trip-Hop, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2069
-02. С.О.М.А.
-03. Искренне
-04. Блики(   Читать дальше...   )Жанр: Trip-Hop, AmbientПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA0C09E0D4C15F18E8D98DFF90A1280BE7CAD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333744   (298578) от 27.10.2019
-
-VA – Super Instrumental Vol.3 (2002) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F. Goya - Historia De Un Amor
-02. R. King - Love Story
-03. Space - Secret Dreams
-04. F. Duval - Mandala(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCEBCFACA884D7FA89177392596FB5B72494FEA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961732   (298553) от 02.12.2015
-
-Gregorian - Masters of Chant X: The Final Chapter (2015) [FLAC| (tracks + .cue)]<New-Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masters Of Chant (feat. Amelia Brightman)
-02. Cry Softly (feat. Narcis)
-03. Angel
-04. Strong(   Читать дальше...   )Жанр: New-Age, EnigmaticПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629A420F2B4B1B099C556D135F96C1C4148AC67F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 416798   (298177) от 09.12.2011
-
-Catherine MacLellan - Silhouette (2011) [FLAC|Lossless]<Acoustic/Indie/Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stealin'  03:26
-02. Keep On Fighting  05:19
-03. Now And Then  02:58
-04. Eastern Girl  04:18(   Читать дальше...   )Жанр: Acoustic/Indie/FolkПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

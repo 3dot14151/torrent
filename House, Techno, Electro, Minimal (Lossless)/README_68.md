@@ -1,3 +1,200 @@
+###  Публикация: 1714697   (60128) от 10.04.2024
+
+VA - Dance Covers 2024 - The Best Party Hits Only! [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. French Fri3S - Call on Me (4:30)
+02. nari - Sunshine Day (Original Mix) (5:05)
+03. Jay-Are - China Girl (Original Mix) (4:21)
+04. Lissat - Forget Me Nots (Nu Disco Mix) (5:06)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612ADF48A35ACC344ED4307D01C785B3F560A480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725798   (55301) от 26.05.2024
+
+Vintage Culture - Promised Land (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96281DE4FC39AA3443A6F18A47C060A611FE71A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728056   (54243) от 05.06.2024
+
+VA - The Deep Collective: Another Planet (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M-Sol DEEP - Amor Del Mar (7:52)
+02. Ismail Kizil - Glare (6:38)
+03. Darles Flow - The Future (5:22)
+04. Matías Delóngaro - Phegornis (7:04)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47842D9EF7A61CE6B384B3393CDF7A13124C325E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729734   (53438) от 13.06.2024
+
+Booka Shade - 13 Albums (2004-2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Booka Shade - 2004 - Memento (Blaufield Music 2017)
+Booka Shade - 2006 - Movements
+Booka Shade - 2008 - The Sun & the Neon Light (Blaufield Music 2017)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 13 CD, 13:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC52DD3072AFF929A281E43E65FA0BC6882C470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732597   (52025) от 25.06.2024
+
+LazyboyProactive - Runaway (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Chill Out, Trip-Hop, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway (Single Mix) [00:03:52]
+02. Runaway (Robodop Snei Remix) [00:06:45]
+03. Runaway (Arcane Trickster Remix) [00:07:20]
+04. Runaway (Ming One Remix) [00:04:08](   Читать дальше...   )Жанр: Electro, Chill Out, Trip-Hop, LoungeПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A0C01AE6284E6B2CC70EB60B19E20969C776A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733506   (51605) от 29.06.2024
+
+Radio Slave - Venti (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strobe Queen
+02. Wait A Minute (feat. Nez)
+03. Can't Get You (feat. Michael Love Michael)
+04. Wild Life(   Читать дальше...   )Жанр: HouseПродолжительность: 01:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D84A6734525F98C775E031F2435D562BDB9B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733513   (51590) от 29.06.2024
+
+Kasbo - The Learning of Urgency (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Vocal, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kasbo – AliveЖанр: Tech House, Deep House, Vocal, ProgressiveПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF430FD912DC47E553B0126B4DADF6968CE2D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734593   (50759) от 07.07.2024
 
 Scatman John - Take Your Time (Japan Edition) (1999) [FLAC|Lossless|tracks + .cue] <Disco, Jazzdance, Euro House>
@@ -540,209 +737,6 @@ VA - Sahara Beats (The Hottest Arab Music from the Hottest Desert) (2023) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:391E3CA496D50BD1AC9B95A87134DF391DBD0088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751237   (42605) от 23.09.2024
-
-VA - Arabic Ethnic Deep House Mix 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rachid El Esseily - Camel Shoes (4:38)
-02. Khaled Youssef - Twilight Silhouette (5:02)
-03. Ajram Al Jawad - Arab Toy (4:38)
-04. Azula - Bedouin (5:40)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3459F9FDBE9AA4D8BC9DF7E791CA9CA3E731C05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751277   (42536) от 24.09.2024
-
-VA - Arabic Ethnic Deep House Mix 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanjay Lamjarred - Min Awel Dekika (5:45)
-02. Rachid Fairuz - Habiby Da (4:30)
-03. Burak Abulso'oud - Guli Mata (5:18)
-04. Mohammed Haifawi - Mal Hbibi (6:30)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05101C358C57D4442556132A1636FADB6F4CEEB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751386   (42499) от 24.09.2024
-
-VA - Arabic Ethnic Deep House Mix 2022 [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claude Ravin - Ichnite (Ethnic Deep House Mix) (6:10)
-02. Reza Farahani - Indigenous (Ethnic Mix) (5:49)
-03. Hakim Assaf - Habiba Mi Amore (6:15)
-04. Mohamed Bahaoui - Shisha Lounge (Hookah Mix) (6:32)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF8F290C7015954868E985E7F94D4A70D41A2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751439   (42404) от 25.09.2024
-
-VA - Arabic Ethnic Deep House Mix (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mo-Omar - Balearic Harem (5:31)
-02. Profesor Esteban - Bay Nikola (Ethno Deep Mix) (5:33)
-03. Ahmed Al Enizy - Oh Oo (5:59)
-04. Sam & Claude - Arab Money (Original Mix) (6:24)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9202B6E63FF165A981CF7F0E69D42AF261581F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751540   (42401) от 25.09.2024
-
-Siri Umann, Aradia Voice - Arabic Deep House (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siri Umann - Essence Of Istanbul (4:09)
-02. Siri Umann - Oasis (4:14)
-03. Aradia Voice - Como Beethoven (Vocal Mix) (4:22)
-04. Siri Umann - Secret Desert (4:24)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B6DC1389DE60AA32C8BB0E7E37C6936B669FF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751847   (42227) от 27.09.2024
-
-Луч - Звёздная колыбель (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Первый полёт [00:01:15]
-02. Звёздная колыбель [00:04:07]
-03. Дети Земли [00:02:56]
-04. Салют-5 [00:03:25](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72DA60E244EA6C566C5A946D5BB5B090DCBA70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751793   (42200) от 27.09.2024
-
-VA - Arab Lounge Grooves (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rachid El Esseily - Camel Shoes (4:38)
-02. Sam & Claude - Arab Money (Original Mix) (6:24)
-03. Davide Angiuli - Jarena (4:34)
-04. Tarik El Yahyaoui - Mosaic (6:32)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5417EE8657D33D187B401B84AF4DC131EEAA406A
 ```
 
 https://mybot314.ru/tekegram_catalog/

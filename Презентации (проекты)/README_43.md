@@ -1,3 +1,111 @@
+###  Публикация: 829019   (437040) от 07.10.2014
+
+VideoHive - Fashion City - 7364076 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильный проект для демонстрации ваших фото или видео.
+Превью, файл помощи - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E336F109A62183CFD1769433A8919E5C76B039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 706161   (436993) от 05.10.2013
+
+VideoHive - Night club 3 - 2597195 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436993.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора: Hello friends  This project is well suited for advertising, presentations, website, video and photos. (Этот проект хорошо подходит для рекламы, презентаций, веб-сайта, видео и фотографии.)
+
+ Project features:
+ - Attention! Plug in Trapcode Form, Optical Flares required;(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518EA3B6339A214C22F41FF00AD9E14D7CE44820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707311   (436705) от 05.10.2013
+
+VideoHive - Starlight Promo - 3854874 [AEP]
+
+>>След.
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный проект отлично подходит для промо вечеринок, ночных клубов и любых мероприятий. Вы можете легко добавить больше сцен и также легко изменить цвета.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202128027B23F1219C4D2C6CC6E3579892882337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062960   (436601) от 15.10.2016
+
+Проекты - VideoHive - Barber Shop Presentation - 17723242 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо-ролика, рекламы товаров и услуг.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A0895F5C68357F3B43BC0E481B896392DB031D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063553   (434215) от 16.10.2016
 
 Проекты - VideoHive - Corporate Sticker Cartoon with Kinetic Typo - 5108526 [AEP]
@@ -569,111 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1D45749189E07A8EADA07E2FB98750B3A476F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167538   (416628) от 20.09.2017
-
-Проекты - VideoHive - Car Slideshow - 9811496 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Car Slideshow - это очень классный проект для презентаций автомобилей или для продажи вашего авто. Вставьте ваши медиа файлы и наслаждайтесь результатом.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC656456D442C7AB560AFC9884AE3D939CD01EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167295   (416447) от 20.09.2017
-
-Проекты - VideoHive - 4K Restaurant Product Promo - 19509987 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстраций цен и меню в ресторане, кафе и пр. Так же подойдет для вашего канала в YouTube и оформления различных кулинарных передач.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EB183731A1C1A1C9132C75D9C32ADE3A8F6486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947807   (415316) от 18.10.2015
-
-Проекты - VideoHive - Corporate Financial Presentation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания презентации "Корпоративные финансы".
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25385132607E9A8B344CE2E03C3BAC3185E3F751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251787   (415156) от 02.10.2018
-
-Проекты - VideoHive - Urban TV wall - 239196 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень интересный и забавный шаблон. В нарисованном на кирпичной стене телевизоре показываются видео-ролики. Проект подойдет для различного рода телевещаний или презентаций.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59AC7DDA0D53CD5DC7E1F4E1E01D95A71C29D0C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

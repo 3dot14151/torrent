@@ -1,3 +1,182 @@
+###  Публикация: 683131   (623461) от 26.07.2013
+
+Rihanna - Good Girl Gone Bad Live (2008) Blu-Ray [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R'n'B, PopСубтитры: Английские, Французские, Немецкие, Португальские, ИспанскиеПродолжительность: 01:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97990EBBC331AD48051D31789C1360EAC85941E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523041   (618538) от 15.07.2012
+
+Jimi Hendrix: Jimi Plays Berkeley (2012) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это особое, расширенное издание Jimi Plays Berkey, демонстрирует одни из лучших выступлений, снятых в течение двух концертов в Berkeley Community Theatre 30 мая 1970 года.Жанр: Psychedelic RockАктеры: Джими ХендриксПеревод: Не требуетсяПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523211   (618337) от 15.07.2012
+
+Duran Duran - A Diamond In the Mind (2011) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся  в центре Манчестера, одиннадцатиметровая арена .была черной, когда начался концерт. Очень эффектным стал выход группы на сцену в струях белого дыма  струйка белого дыма, Duran Duran
+Великолепные визуальные эффекты и и инсталляции на протяжении всего концерта  и приглашенные звезды сделали шоу поистине незабываемым.
+Ле Бон  написал позднее в  Twitter: ""Я просто люблю музыку, здесь мы все на одной стороне!"
+
+...01. Return to Now
+02. Before the Rain
+03. Planet Earth
+04. View to a Kill
+05. All You Need Is Now
+06. Blame the Machines
+07. Safe (In the Heat of the Moment)
+08. The Reflex
+09. Man Who Stole a Leopard
+10. Girl Panic!(   Читать дальше...   )Жанр: RockФормат: BDMVПродолжительность: 01:35:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544832   (618302) от 17.04.2022
+
+Квартирник у Маргулиса. Екатерина Яшникова (16.04.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще в школе будущая российская певица, поэт и музыкант Екатерина Яшникова начала писать стихи. В 2014 году она дала свой первый концерт в составе группы Kanoka, а вот широкую популярность приобрела спустя два года, в 2016, — тогда Екатерина выпустила песню «Я останусь одна». С тех пор прошло чуть больше пяти лет, а в копилке Яшниковой уже три студийных альбома, ротации (   Читать дальше...   )00:00:06 Я останусь одна
+00:04:35 Песня о себе
+00:13:47 Песня для соседа
+00:20:50 Доширак(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39411F8F6B1219AA89D77751D586686D4D882BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911048   (617902) от 22.06.2015
+
+In Flames - Rock Am Ring (2015) HDTVRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rock am Ring — один из крупнейших рок-фестивалей, ежегодно проходящий в Германии в первый выходной июня.01. Bullet Ride
+02. Where the Dead Ships Dwell
+03. Paralyzed
+04. Alias(   Читать дальше...   )Жанр: Melodic death metalПеревод: Не требуетсяПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A33976ECB4F767B9B14DE3001D96305532B153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911108   (617507) от 22.06.2015
+
+Бутырка - Свиданка (2015) HDTVRip [H.264/1080i]
+
+>>След.
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рады сообщить, в группе БУТЫРКА новый солист - Андрей Быков, с которым судьба свела в далеком 1999 году. Это прекрасный человек, талантливый музыкант и исполнитель, которого Олег Симонов приглашал работать в группу Бутырка в то время. Андрей Быков тогда жил в Пермском крае в городе Березники и по семейным обстоятельствам не смог работать в группе.
+Сейчас Андрей Быков (   Читать дальше...   )01. Свиданка - 00:02:12
+02. День свободы - 00:08:01
+03. Золотая свадьба - 00:12:06
+04. Дожди омывают кресты - 00:16:01(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F85A33BB3E4F9D6F4448D5F6608B1CF3E261E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523586   (616471) от 16.07.2012
 
 Robert Plant & The Band of Joy: Live from the Artists Den (2011) [1080i] Blu-Ray
@@ -572,180 +751,6 @@ Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14AA2CECFA94FB8725DC0737A497C60B241F094D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917649   (589019) от 12.07.2015
-
-Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kiss — американская рок-группа, основанная в Нью-Йорке в январе 1973 года и известная сценическими макияжами её участников, а также концертными шоу, сопровождающимися различными пиротехническими эффектами.01. Modern Day Delilah
-02. Cold Gin
-03. Let Me Go, Rock 'N'
-04. Firehouse(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3227C356DAC347206F8C31E6454636639B37F732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917927   (588621) от 13.07.2015
-
-Megadeth - Countdown To Extinction - Live  (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый концертный релиз американской группы Megadeth.  Концерт записан в Помоне (Калифорния, США) в декабре 2012.01. Intro: Prince Of Darkness
-02. Trust
-03. Hangar 18
-04. Public Enemy(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, Speed Metal, Hard RockПродолжительность: 01:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB5586C6861F47A19E9E318E729A3B900E85D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917945   (588607) от 13.07.2015
-
-Status Quo - Pictures - Live At Montreux (2009) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588607.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2009, Британская рок-группа Status Quo, дала концерт в Montreux (Швейцария). Группа привезла набор горячих хитов и классических произведений из всех эпох своей карьеры, включая не менее 18 - входивших в разное время в Top 20 UK. Тур "Pictures" - признаётся многими знатоками, как один из лучших в истории коллектива.01. Caroline
-02. The Wanderer
-03. Rain
-04. Don't Drive My Car(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F7147D3DA821740C80770816F1E048A289A2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357096   (587790) от 30.06.2011
-
-The Prodigy - World's on Fire (2011) [1080i] BDRemux
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587790.jpg" />
-</div>
-
-
-###  Подробнее
-
-World’s on Fire ( Мир в огне) — видеоконцерт и первый концертный альбом британской электронной группы The Prodigy, выпущенный на blu-ray 24 мая 2011 года. Фильм-концерт демонстрировался в кинотеатрах. Съёмки проходили на фестивале Warrior’s Dance, организованном участниками коллектива в городе Милтон-Кинс 24 июля 2010 года.1. Intro (Live)
-2. Breathe (Live)
-3. Omen (Live)
-4. Colours (Live)
-5. Thunder (Live)
-6. Warriors Dance (Live)
-7. Firestarter (Live)
-8. Run With The Wolves (Live)
-9. Weather Experience (Live)
-10. Voodoo People (Live)(   Читать дальше...)Жанр: Electronic, BreakbeatРежиссер: Liam HowlettАктеры: The ProdigyПеревод: Не требуется, нет диалогов и комментариевПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584615   (586673) от 15.07.2015
-
-Linkin Park - Rock in Rio (2012) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative - RockПродолжительность: 01:32:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300929   (586050) от 10.05.2019
-
-Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) Blu-ray [H.264/1080p] [EN]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586050.jpg" />
-</div>
-
-
-###  Подробнее
-
-The iconic duo's acclaimed production, first presented at the Royal Opera House in 2016 over four sold-out shows, was reprised at the venue for a further four nights in July 2018 as part of their 'Super' tour. Staged by long-term PSB designer Es Devlin and choreographer/director Lynne Page, the show was filmed by director David Barnard. Filmed on 27 and 28 July 2018, (   Читать дальше...   )Производство: Великобритания, Pet Shop Boys Partnership LimitedЖанр: Synth-pop, Dance-pop, New waveРежиссер: David BarnardПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:15 + 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21BCEB820F947EC0F658BF8B6BDE79D310B957C
 ```
 
 https://mybot314.ru/tekegram_catalog/

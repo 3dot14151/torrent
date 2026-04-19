@@ -172,6 +172,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138181   (665487) от 28.05.2017
+
+Style - 5 Albums (1983-1988) [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шведская поп - группа, получившая успех и признание в 1980-х годах. Сформировалась в составе: Christer Sandelin, Gigi Hamilton, Tommy Ekman в 1983 году. Приняли участие в шведском конкурсе Melodifestivalen 1986 с песней "Dover–Calais", заняв третье место, и в 1987 году с "Hand i hand" заняли шестое место. Распались в 1989 году из-за музыкальных (   Читать дальше...   )Список альбомов:
+1983 - So Chic
+1985 - Visioner
+1986 - Heaven №7(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345896B1960926073F8B7937289802322428AA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224539   (664863) от 11.05.2018
 
 VA - Beautiful Mornings - Mesmerizing Soulful Pop Vocals (2018) [MP3|320 Kbps] <Pop, Easy Listening>
@@ -722,35 +751,6 @@ VA - Ultimate 90s Playlist (2018) 5CD [MP3|320 Kbps] <Pop, Rock, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCEBDA49AC808D55617FA362F348E6A0DD4387AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539767   (656118) от 27.03.2022
-
-VA - The 80s (2022) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656118.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Everywhere (2018 Remaster) (3:43)
-002. Joy Division - Love Will Tear Us Apart (3:24)
-003. The Smiths - This Charming Man (2011 Remaster) (2:42)
-004. a-ha - Take On Me (3:49)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4111D10955AE143BD6B33B4DFE9DAC3F720A7B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

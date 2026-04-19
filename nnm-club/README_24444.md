@@ -1,18 +1,97 @@
-###  Публикация: 454066   (86065) от 02.04.2012
+###  Публикация: 455878   (94120) от 22.02.2012
 
-Лилехаммер / Lilyhammer (сезон 1 серии 1-8 из 8) (2012) WEB-DLRip (NovaFilm)
+VA - Wine Lovers Vintage (2010) [MP3|-V0 ~245 кб/с]<Lounge, Jazz, Soul>
 
->>3
->>След.
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тальяно сдал своего босса федералам, и теперь, в рамках программы по защите свидетелей, он переезжает в Лиллехаммер, небольшой норвежский городок, когда-то приютивший зимние олимпийские игры. Сам Фрэнк называет его Лилихэммером, отсюда и название сериала. Фрэнк мечтает о рае с «чистым воздухом, белым снегом и клевыми телками», вдали от соблазнов Нью-Йорка и от карателей (   Читать дальше...   )Жанр: Комедия, Драма, КриминалРежиссер: Симен АлсвикАктеры: Стив Ван Зандт, Тронд Фауса, Аурвааг Мариан, Саастад Оттесен, Steinar Sagen, Свен Нордин, Anne Krigsvol, l Фридтьов Сохейм, Mikael Aksnes-Pehrson, Карре Хеллум, Томми КарлсенПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45 :00 мин
+01.Sergio Mendes And The Black Eyes Peas - Mas Que Nada (4:27)
+02.Gabor Szabo - Breezin' (3:13)
+03.Andrй Previn, David Fnick Gershwin - Embraceable You (4:55)
+04.Wes Montgomery - Georgia On My Mind (2:48)
+05.Mark Murphy - My Foolish Heart (5:16)
+06.Ella Fitzgerald - My Funny Valentine (3:55)
+07.Tony Bennett - Isn't It Romantic (3:25)
+08.Johnny Hartman - Stairway To The Stars (3:08)
+09.Herbie Hancock - The Man I Love (5:59)
+10.Terry Callier - What Color Is Love (4:07)(   Читать дальше...   )2010Жанр: Lounge, Jazz, SoulПродолжительность: 02:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFA317FE5F68BFF2A189601E73B52958F521026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456059   (94114) от 22.02.2012
+
+Technicolour - FabricLive Bukem In Session (2012) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calibre - Windows (Signature)
+02. Komatic - Make The Most Of Now (Technicolour remix) (Spearhead)
+03. Technicolour - The Harp Tune (Fokuz)
+04. Pennygiles - Au Revoir Blackbird (GLR)
+05. Bungle - The Siren (feat. Ayah) (Bladerunner remix) (Spearhead)
+06. dRamatic & dbAudio - 6 Degrees (Mars)
+07. Calibre - Hummer (Samurai Red Seal)
+08. Technicolour & Komatic - Those Feelings (Shogun LTD)
+09. Level 2 - No Time VIP (Liquid V)
+10. Atom - Dolly (Lynx remix) (Sonorous)(   Читать дальше...   )2012Жанр: Drum and BassФормат: Mp3, mixedПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0B8C3F67E76CE9C5C9C28E1D1DE39CF0FC5CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455888   (94101) от 22.02.2012
+
+Nick Colionne - Keepin' It Cool (2006) [FLAC|Lossless]<Smooth Jazz>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can You Feel It (4:00)
+02. Keepin' It Cool (3:37)
+03. Always Thinkin' Of You (4:11)
+04. If You Ask Me (3:38)
+05. You Were There For Me (5:16)
+06. This Is The Song (3:59)
+07. John L (4:54)
+08. From Me to You (4:03)
+09. A Moment With You (4:02)
+10. Liquid (3:27)(   Читать дальше...   )2006Жанр: Smooth JazzПродолжительность: 00:54:32
 
 ## Скачать торент
 ```bash
@@ -24,21 +103,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476512   (86064) от 02.04.2012
+###  Публикация: 455896   (94094) от 22.02.2012
 
-Воин / Warrior (2011) [720p] BDRip
+Toronzo Cannon - Leaving Mood (2011) [APE|Lossless]<Blues>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Младший сын спившегося боксера возвращается домой, чтобы отец тренировал его для предстоящего турнира по боевым искусствам. Однако, на этом пути бойцу придется столкнуться со своим старшим братом.Жанр: Боевик, Драма, СпортАктеры: Джоэл Эдгертон, Том Харди, Ник Нолти, Дженнифер Моррисон, Фрэнк Грилло, Кевин Данн, Максимилианно Эрнандез, Брайан Коллен, Сэм Шеридан, Фернандо ЧиенПеревод: Профессиональный многоголосый, Авторский одноголосый закадровый (Продолжительность: 02:20:22
+01. She Loved Me (3:48)
+02. Chico's Song (4:06)
+03. Come Home (3:40)
+04. I Believe (5:10)
+05. Hard Luck (5:36)
+06. Open Letter (To Whom It May Concern) (4:18)
+07. I Can't Take Her Nowhere (4:18)
+08. Leaving Mood (3:42)
+09. She's Too Much (3:56)
+10. You're A Good Woman (4:14)(   Читать дальше...   )2011Жанр: BluesПродолжительность: 01:00:18
 
 ## Скачать торент
 ```bash
@@ -50,26 +138,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476988   (86063) от 02.04.2012
+###  Публикация: 456083   (94093) от 22.02.2012
 
-Мамы (2012) BDRip [H.264/720p-LQ]
+VA - Words Matter LP (2012) [MP3|320 kbps]<Drum and Bass>
 
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый год в день 8-го марта телефонные сети России передают миллионы звонков и смс-сообщений. Трудолюбивые аналитики подсчитали, что абсолютное большинство телефонных звонков адресовано самым главным женщинам в жизни каждого человека — мамам.
-Мы выросли, и заготовленные заранее аппликации и букеты цветов, купленные до маминого пробуждения, — давно забытые детские (   Читать дальше...   )Производство: Россия / Enjoy MoviesЖанр: Мелодрама, КомедияАктеры: Сергей Безруков, Дмитрий Дюжев, Михаил Пореченков, Егор Бероев, Гоша Куценко, Петр Федоров, Федор Добронравов, Иван Добронравов, Игорь Верник, Александр Олешко, Елена Корикова, Ольга Волкова, Лия Ахеджакова, Светлана Ходченкова, Людмила АртемьеваПеревод: ОригиналПродолжительность: 01:41:14
+01. Motta - Let Me Know [06:00]
+02. Celerity & DBR UK - Sonic Step [05:42]
+03. Undersound - Meet Me In My Shadow [06:52]
+04. Rene LaVice - Maintain [05:30]
+05. 2ndCityBlue - Bermudaz [06:55]
+06. Flatliners - Human Beings [06:25]
+07. SoliD - Blue Grooves [05:30]
+08. Grimm - Hunters March [06:20]
+09. Soultec Ft. Grimm - Last Call Of The Sun [06:12]
+10. Pouyah - Fooled [07:05](   Читать дальше...   )2012Жанр: Drum and BassФормат: WEBПродолжительность: 01:32:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F61744685763E20B031ADC46A57205F3B1ED0C7
+magnet:?xt=urn:btih:11B8DCEADEC99BC0CD0A52F44D8083A7CEA093B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,101 +173,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477227   (86062) от 02.04.2012
+###  Публикация: 455925   (94092) от 22.02.2012
 
-Рататуй / Ratatouille (RePack) [Ru] 2007 | R.G. Element Arts
+Mark May Band - Release My Soul (2011) [APE|Lossless]<Blues>
 
->>След.
->>Детские Игры
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Игра по сюжету одноименного фильма, в которой молодому крысу Реми предстоит постигать тайны поварского искусства, исследовать парижские закоулки и создавать произведения гастрономического искусства.
-Рататуй – типичное провинциальное блюдо французской кухни. В переносном смысле означает «плохая еда» или «жратва», но может переводиться и как «рагу из баклажанов и овощей». Такой вот многозначный французский язык.
-Игра рассказывает о приключениях юного крыса Реми – гурмана, балагура и лучшего повара Парижа. Парижские катакомбы, дворы, рынок и шикарный ресторан в качестве места действия прилагаются.Тип издания: RePackЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476997   (86061) от 02.04.2012
-
-Кот Леопольд: Учим русский язык [5+ лет] (L) [Ru] (2009)
-
->>Детские PC Игры
->>Развивающие Игры для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уж если мышей, Серого и Белого, и учили чему-то в школе, то точно не грамотности! Пытаясь подшутить над Леопольдом, они пишут на асфальте свою коронную фразу, а Леопольд только смеется, ведь мыши допустили столько смешных ошибок в таком маленьком предложении! Мышам совсем не стыдно, но не могут же они быть хуже, чем кот! Вот они и соглашаются на предложение Леопольда поучиться русскому языку, ведь у кота столько разных интересных игр, которые помогут неграмотным мышатам писать правильно. Маленькие хулиганы поиграют (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Electronic ParadiseЖанр: Семейная\Для детейЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E12FB8CCFFF967BD619E47B774A7855C9A59E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477047   (86057) от 02.04.2012
-
-Экстрасенс / The Awakening (2011) HDRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие картины происходит в 1920 году. Ученый-скептик приезжает в загородную школу-интернат, где, по слухам, наблюдается повышенная спектральная активность. Сначала она уверена, что сможет развенчать этот миф, но затем пугающая встреча со сверхъестественным заставляет ее изменить свое мнение...Жанр: Триллер, УжасыРежиссер: Ник МерфиПродюсер: Сара Кертис, Джулия Стэннард, Дэвид М. ТомпсонАктеры: Ребекка Холл, Доминик Уэст, Имелда Стонтон, Люси Коху, Джон Шрэпнел, Дайана Кент, Ричард Дерден, Элфи Филд, Тилли Восберг, Йен ХанморПеревод: ДублированныйПродолжительность: 01:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFE736EA400E04B53F710EE1550648D77B7E33B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444473   (86056) от 02.04.2012
-
-Спартак: Месть / Spartacus: Vengeance (2012) [720p] HDTVRip [Полный 2 сезон] (LostFilm)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенда о фракийском воине Спартаке, попавшем в рабство к римлянам, ставшим гладиатором и возглавившим одно из самых массовых восстаний рабов в Древнем Риме - известна всем ещё со школьной скамьи. Создатели сериала дают нам возможность вновь окунуться в атмосферу античности и помогают древней легенде буквально заиграть новыми красками, с применением новейших технологий (   Читать дальше...   )Жанр: Боевик, Драма, Приключения, Биография, ИсторияРежиссер: Майкл Херст, Рик Джейкобсон, Джесси УарнАктеры: Лиам МакИнтайр, Ману Беннетт, Вива Бьянка, Люси Лоулесс, Крэйг Паркер, Ник Тарабэй, Питер Менса, Катрина ЛоПеревод: Многоголосый закадровый, профессиональныйПродолжительность: ~00:55 мин серия
+01. Six Strings or Two Legs (6:28)
+02. Move On (5:16)
+03. I Gotta Know (6:23)
+04. Eyes of India (6:35)
+05. Release My Soul (7:02)
+06. World of Suffering (7:13)
+07. Drifter (5:53)
+08. Vindablues (6:57)
+09. Devils Playpen (6:03)
+10. She Don't Shine (6:31)(   Читать дальше...   )2011Жанр: BluesПродолжительность: 01:06:21
 
 ## Скачать торент
 ```bash
@@ -183,25 +208,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476890   (86055) от 02.04.2012
+###  Публикация: 455003   (94091) от 22.02.2012
 
-Call of Duty: Black Ops AlterOps (2010) [Ru] (7.0.164) Rip Canek77 [Multiplayer]
+VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
 
->>3
->>След.
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Call of Duty®: АlterOps вам придется сражаться с врагами прямо в тылу, выполняя миссию члена элитного отряда специальных вооруженных сил, участвуя в «скрытой» войне, секретных операциях и проявляя себя в самых горячих точках по всему земному шару. Используя эксклюзивное вооружение и снаряжение, вы сможете сильно повлиять на ход боевых действий, происходящих в самые опасные времена, которые только знало человечество.Тип издания: RipРазработчик: TreyarchЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+01. Aiho - Purple Haze (Giuseppe Visciano Psychedelic Remix) (6:05)
+ 02. Artem Abdrakhmanov - Fire Blood (Original Mix) (7:33)
+ 03. Bodyscrub - Resolution (Original Mix) (8:42)
+ 04. Ciaran Osborne - Don't Hold Back (Original Club Mix) (6:59)
+ 05. Danase - Come On, We Play (6:25)
+ 06. Dani Sbert - Otherside (Original Mix) (7:01)
+ 07. Deep Inside Sistem - Violence (Original Mix) (7:11)
+ 08. Diamandy - Breezer (Original Mix) (8:07)
+ 09. Doubleton - Diluente (Original Mix) (6:20)
+ 10. Dubfloor - Tropa Tropa (Original Mix) (6:50)(   Читать дальше...   )18.02.2012Жанр: MinimalПродолжительность: 02:19:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC80B26CB4F879CE6485EF37E53C041434FEA6B7
+magnet:?xt=urn:btih:EEE05E1089EA0849955044BA64E2D8CAC0A261CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,21 +243,100 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 473159   (86052) от 02.04.2012
+###  Публикация: 454669   (94087) от 22.02.2012
 
-Adobe Photoshop CS6 13.0 Beta [Английский + Русификатор]
+VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
 
->>3
->>4
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Photoshop CS6 - программа для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, трансформации графики, цветоделения и т.д. Adobe Photoshop располагает всеми методами работы с точечными изображениями, при этом имеет возможность работы со слоями и использует контуры. Программа является безусловным лидером среди профессиональных графических редакторов за счет своих широчайших возможностей, высокой эффективности и скорости работы. Adobe Photoshop предоставляет все необходимые средства для коррекции, монтажа, подготовки изображений к печати и высококачественного вывода.Название программы: Adobe PhotoshopЯзык интерфейса: Английский + Русификатор by Painter
+01. AC Slater & Xaphoon Jones - Believe Me (Botnek Remix) (5:50)
+ 02. Angelo Dore, Minimal Law - Experimental (Original Mix) (6:03)
+ 03. Atix - Divagation (Original Mix) (7:15)
+ 04. Audiowomb - Zoophyta (Original Mix) (7:56)
+ 05. Avrosse, Louie Cut - Double Trouble (Original Mix) (6:06)
+ 06. Danalog - Baked Beams (Original Mix) (8:13)
+ 07. On the Train (Derrick Carter Remix) (5:59)
+ 08. Deep Voice - I'm Freak (Andrea Roma Rmx) (6:56)
+ 09. Dima German - 2012 (D-Quattro Remix) (7:26)
+ 10. Emrah Celik - Let's Get Dangerous (Daniele Petronelli Remix) (6:05)(   Читать дальше...   )11.02.2012Жанр: MinimalПродолжительность: 02:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E581143ED7E60AEE91BFF68673F08AC316E8B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454998   (94083) от 22.02.2012
+
+VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afonso Maia - D Rather (Original Mix) (6:42)
+ 02. Andres Guerra - Bheis (Original Mix) (6:38)
+ 03. Brunno Santos - I'm Done With You (Juliano Silva Remix) (7:10)
+ 04. Cryteque - Sunny Flash (Original mix) (7:01)
+ 05. Daniele Petronelli and Steve Russell - Kat-I (Original Mix) (6:45)
+ 06. Domshe – Temptation (Tobias Hertz & Stefan Rieger Remix) (7:38)
+ 07. Hakan Ludvigson & Joachim Broeckers - Audiovit (Original Mix) (7:14)
+ 08. Ian F - Coming Back (Original) (7:15)
+ 09. Jill Bellac & Suspect One - Shaped (Min & Mal Remix) (6:11)
+ 10. Joel Fletcher & JDG - China Town (Original Mix) (7:03)(   Читать дальше...   )16.02.2012Жанр: MinimalПродолжительность: 02:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2B6992696D22FBF66562B0F79D2F2A677FE610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455928   (94076) от 22.02.2012
+
+VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jimmy Lunceford & his Orchestra - Call The Police (2:59)
+02.Louis Prima & his Orchestra - Robin Hood (3:05)
+03.Harry James & his Orchestra - Tuxedo Junction (3:02)
+04.Earle Warren & his Orchestra - Tush (2:52)
+05.Jimmy Lunceford & his Orchestra - Cement Mixer (Put-Ti Put-Ti) (2:45)
+06.Harry James & his Orchestra - Hodge Podge (3:00)
+07.Jimmy Lunceford & his Orchestra - Margie (3:01)
+08.Ray McKinley & his Orchestra - Down The Road Apiece (2:58)
+09.Jimmy Lunceford & his Orchestra - Water Faucet (2:40)
+10.Harry James & his Orchestra - Boog It (3:22)(   Читать дальше...   )2003Жанр: Jazz, Swing, Big BandПродолжительность: 00:59:43
 
 ## Скачать торент
 ```bash
@@ -235,25 +348,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477369   (86050) от 02.04.2012
+###  Публикация: 454675   (94067) от 22.02.2012
 
-Большой куш / Snatch (2000) [H.264] BDRip
+VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
 
->>След.
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Четырехпалый Фрэнки должен был переправить краденый алмаз из Англии в США своему боссу Эви. Но вместо этого герой попадает в эпицентр больших неприятностей. Сделав ставку на подпольном боксерском поединке, Фрэнки попал в водоворот весьма нежелательных событий. Вокруг героя и его груза развертывается сложная интрига с участием множества колоритных персонажей лондонского (   Читать дальше...   )Жанр: Приключения, Триллер, КомедияРежиссер: Гай РитчиАктеры: Джейсон Стэтхэм, Брэд Питт, Джейсон Флеминг, Винни Джонс, Бенисио Дель Торо, Дэннис Фарина, Эд, Юэн Бремнер, Раде Шербеджия, Уильям Бек, Энди Бекуив, Сэм Дуглас, Адам Фогерти, Стивен Грэм, Ленни Джеймс, Дэвид Леджено, Эрик МейерсПеревод: Одноголосый закадровый, авторский одноголосый (Дмитрий Пучков - Гоблин) - (оба варианта перевода, 2001 и 2004 гг.)Язык субтитров: Русские (Гоблин), Русские (Позитив), АнглийскиеПродолжительность: 01:42:47
+01. Acid Lupe - Orchestra (Original Mix) (7:10)
+ 02. Chabud - Souk (Mad Raf Tom Zenith Remix) (6:00)
+ 03. Dani San - Clikity Clack (Original Mix) (6:44)
+ 04. David Prap & Willy Real - Burnout (Manel Diaz Crazy Drum Mix) (6:09)
+ 05. David San & Richie Dane – Colotina (Original David Mix) (6:17)
+ 06. Edoardo Spolaore - Bastard Clap (Original Mix) (8:16)
+ 07. Emanuele Millozzi & Claudio Petroni - Rauco (Manel Diaz Remix) (6:12)
+ 08. Leeks - Amoeba (Original Mix) (7:17)
+09. Lowboys - Hall Of Panic (7:30)
+ 10. MCJ - Pooomp (Manu Sami Remix) (6:09)(   Читать дальше...   )12.02.2012Жанр: MinimalПродолжительность: 02:15:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69D449B157983CB300F048A94D4FC2DC215AB12C
+magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -261,436 +383,482 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476971   (86047) от 02.04.2012
+###  Публикация: 455981   (94063) от 21.02.2012
 
-Джордж С. Клейсон | Самый богатый человек в Вавилоне [2007] [DOC]
+Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №2 (2012) [PDF]
 
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые в этой книге рецепты спасения от тощего кошелька могут стать основой для понимания финансовых законов. Собственно, в этом и состоит цель: предложить тем, кто стремится к успеху, проникнуть в тайну денег, с тем чтобы накопить капитал, сохранить его и заставить работать на прибыль.
+Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB12F93F5D6C9FA36FA77476ED5E083A60A1AE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455673   (94058) от 21.02.2012
+
+VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitry Globa - La Aurora Boreal
+02. John '00' Flemming - The Astrophysical Nebula
+03. Paul Oakenfold & Robert Vadney - Pop Star (Yahel Remix)
+04. Matisse & Sadko - Amulet
+05. Limbo - Paradox
+06. Solarstone feat. Alex Karweit - Breakaway (Solarstone's Phuture Mix)
+07. Talpa - The Moon (Flegma & Nerso Remix)
+08. Aggresivnes - Futurasia (Blazer Remix)
+09. Oakenfold feat. Tamra Keenan - Maybe It's Over (Organ Donors Perfecto Mix)
+10. Tim Jirgenson - Get Ready(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455992   (94037) от 21.02.2012
+
+Albert King & Otis Rush - Door To Door (1998) [FLAC|Lossless]<General Electric Blues>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albert King - Searchin' For A Woman (2:49)
+02. Albert King - Bad Luck (3:06)
+03. Otis Rush - So Close (3:03)
+04. Albert King - Callin' For My Darlin' (2:47)
+05. Otis Rush - I Can't Stop (3:06)
+06. Albert King - Won't Be Hangin' Around (2:17)
+07. Otis Rush - I'm Satisfied (2:57)
+08. Otis Rush - All Your Love (2:26)
+09. Otis Rush - You Know My Love (2:56)
+10. Albert King - Merry Way (2:43)(   Читать дальше...   )1998Жанр: General Electric BluesПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455849   (94013) от 21.02.2012
+
+Журнал | Автомир [Россия] №8 [февраль 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94013.jpg" />
+</div>
+
+
+###  Подробнее
+
+АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455058   (94011) от 21.02.2012
+
+Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94011.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Too Lazy (6:01)
+2. Play (5:51)
+3. Sweet Nothings (4:55)
+4. Fluffy Cloud (8:13)
+5. Endless Games (3:31)
+6. The Sun Come Up (7:16)
+7. Razorskit (1:52)
+8. Berlin Summer Nights (5:56)
+9. Take These Scissors (5:42)
+10. Backyard (4:33)(   Читать дальше...   )2012Жанр: Tech-houseПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455910   (93995) от 21.02.2012
+
+Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_93995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life On The Line (5:01)
+02. Mercy (4:00)
+03. Bound To Roll (3:59)
+04. How Could Iґve Been So Blind (4:36)
+05. Shadow Play (4:40)
+06. Swamplands (4:14)
+07. 30 Days In The Hole (3:25)
+08. The Blues Wonґt Stay (4:19)
+09. Tear It Up (3:08)
+10. Burninґ Brides (5:15)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455256   (93994) от 21.02.2012
+
+[Wallpapers] Обои для рабочего стола.
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола,на любой вкус(280 шт.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454996   (93989) от 21.02.2012
+
+VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adelmo - Angela (Oscar And Chester Remix) (7:08)
+ 02. Anton Ishutin - April 12 (Original Mix) (7:17)
+ 03. Damolh33 - Sweep (Original Mix) (6:27)
+ 04. David Temessi – De Ja Vu (Zareh Kan Remix) (7:05)
+ 05. Dich - Erza Fire (Dub Dummies Remix) (8:21)
+ 06. Droplex - Descript (Mr. Wise Remix) (6:30)
+ 07. Edoardo Spolaore - Hope (Original Mix) (7:10)
+ 08. Emrah Celik - Let's Get Dangerous (Gokhan Guney, Emrah Celik Remix) (6:08)
+ 09. Gianni Ruocco – Caribean Week (Original Mix) (6:45)
+ 10. Marcel Knopf - Blood Smell (Dapayk Remix) (7:19)(   Читать дальше...   )15.02.2012Жанр: MinimalПродолжительность: 02:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455001   (93985) от 21.02.2012
+
+VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afonso Maia - Playhead (Original Mix) (6:03)
+ 02. Cristian Glitch - One (Alessandro Grops Remix) (6:24)
+ 03. Destructo - Technology feat. Oliver (Original Mix) (5:09)
+ 04. Insect Elektrika - Man In Love With Fish (Original Mix) (6:43)
+ 05. Johnny Kaos – Lsd (7:40)
+ 06. Keira - Sguitara (Min & Mal Remix) (6:01)
+ 07. Was Bleibt (Jimpster Vocal Remix) (8:01)
+ 08. Kontak - Triangle (Minimal Law Remix) (6:00)
+ 09. Kriece - Ginger Explosion (Original Mix) (7:45)
+ 10. Lazy M - Stranger (Dani Sbert Big Bully Remix) (7:01)(   Читать дальше...   )17.02.2012Жанр: MinimalПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C9E3BF5BF53918349DE66079E0DEB9A40E73D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454665   (93983) от 21.02.2012
+
+VA - Minimal Art v.1 (09.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.K.O - Rolling (Original Mix) (8:11)
+ 02. Artem Abdrakhmanov - Back Flip (Original Mix) (6:26)
+ 03. Bedoya - Minimetrico (Original Mix) (7:03)
+ 04. Bricklake - Reaktor (Chris Lawyer Remix) (6:07)
+ 05. Caiwo - Playing Games (Caiwo aka Music Supervisor ReWork) (7:38)
+ 06. D-Funkshion - Bim Bam (Original Mix) (7:11)
+ 07. Daniel Mehes - Highend (Andy Notalez Niaz Arca Remix) (6:37)
+ 08. Glitter - Vigilante (Original Mix) (6:09)
+ 09. Hertzman - Gift (Original Mix) (6:17)
+ 10. Jey Pee Razz - No Melody (Gaga Remix) (6:34)(   Читать дальше...   )09.02.2012Жанр: MinimalПродолжительность: 02:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C4CF8D9E190CCEDDEEBDDAC3EA4247698424E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454668   (93979) от 21.02.2012
+
+VA - Minimal Art v.2 (10.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abcdavid - No Chance (Original Mix) (6:32)
+ 02. Anna - Down Under (7:49)
+ 03. Aquabeat - Whisky (Louie Cut Remix) (5:48)
+ 04. Avrosse - Droplet (Original Mix) (6:01)
+ 05. Disco Dancer (Felix Bernhardt Remix) (7:52)
+ 06. Cristian Glitch - El Pito (Zeitspule Remix) (7:11)
+ 07. Cryteque - Acid Rainbow (original mix) (6:16)
+ 08. Damolh33 - Red Beauty (Original Mix) (6:01)
+ 09. Dani San - Clikity Clack (Marco Raineri Remix) (5:00)
+ 10. Desto feat. Kitt Kidoxx - Element (Talstrasse 3-5 Remix) (6:56)(   Читать дальше...   )10.02.2012Жанр: MinimalПродолжительность: 02:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2FBE53AD32B0B7372FDB419C7BCF234998E1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455443   (93960) от 20.02.2012
+
+Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe It`s You (05:13)
+02. Close My Eyes (05:51)
+03. Space Trip (05:12)
+04. Dons You (05:07)2012Жанр: Drum & BassПродолжительность: 00:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455166   (93957) от 20.02.2012
+
+DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah - Falling Away (Protoculture Remix) (ARMADA)
+02. DJ Feel feat Loona - Ill Find Myself (Original Mix) (ALTER EGO)
+03. Orjan Nilsen - Legions (Original Mix) (ARMIND)
+04. Mike Foyle feat. Refeel - Universal Language (Original Mix) (SOUNDPIERCING)
+05. Cold Blue - Coconut (Original Mix) (MONSTER TUNES)
+06. alexander popov - elegia (original mix)
+07. Robbie Rivera - Dance Or Die Series 2 - Makes Me Feel Good (JUICY)
+08. Marcel Woods - Everything (Marcel Woods 2nd Treatment) (MUSICAL MADNESS)
+09. Ferry Corsten feat Ben Hague - Aint No Stoppin (Original Extended) (FLASHOVER)
+10. Cosmic Gate & Arnej - Sometimes They Come Back For More (Stoneface & Terminal Remix) (BLACK HOLE)(   Читать дальше...   )25 Of January 2012Жанр: TranceПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B7CC9D64C5D6DAF3180429FF1EB8FB67A69C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455478   (93953) от 20.02.2012
+
+Газета | Сад, огород – кормилец и лекарь №4 (февраль 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93953.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABFBFEA25E9FB8ADD378F1D7F1639251024E6736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454581   (93950) от 20.02.2012
+
+Журнал | Вестник арды [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вестник Арды - это литературно-публицистический журнал, посвященный творчеству писателя Дж. Р. Р. Толкина, работам, вдохновленным этим творчеством, а также жанру фэнтези, который благодаря ему возник.
 
-Последующие страницы книги перенесут нас вФормат: DOC
+Тут публикуются:
+Исследовательские статьи об Арде.
+Исследовательские статьи кроссфентезийной тематики (например, о мифических существах, магии и т.п.).
+Статьи о различных мифологических системах.
+Творчество по мотивам текстов Дж. Р Р. Толкина.
+Переводы (в частности статей из Tolkien Studies).
+Авторские рисунки.
+Юмор.(   Читать дальше...   )2011Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D75BCC2357FB4483D2EDDA706B7FBA1B1AB9F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477065   (86045) от 02.04.2012
-
-Windows 7 SP1 x86 x64 WPI By StartSoft v 17.4.12 [Русский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на базе оригинальных образовНазвание программы: Windows 7 SP1 x86 x64 WPI By StartSoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477144   (86043) от 02.04.2012
-
-Экстрасенс / The Awakening (2011) HDRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие картины происходит в 1920 году. Ученый-скептик приезжает в загородную школу-интернат, где, по слухам, наблюдается повышенная спектральная активность. Сначала она уверена, что сможет развенчать этот миф, но затем пугающая встреча со сверхъестественным заставляет ее изменить свое мнение…Жанр: Ужасы, триллерРежиссер: Ник МерфиАктеры: Ребекка Холл, Доминик Уэст, Имелда Стонтон, Люси Коху, Джон Шрэпнел, Дайана Кент, Ричард Дерден, Элфи Филд, Тилли Восберг, Йен ХанморПеревод: ДублированныйПродолжительность: 01:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C7BA65652DE80CF312C6C8528F87573069E763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477302   (86042) от 02.04.2012
-
-Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бешеные кролики, твои приключения в тележке!
- Бешеные кролики хотят вернуться домой. Так берите тележку, собирайте вещи, свалите все в гигантскую кучу и помогите им добраться до луны!
- Соберите все что можете в 16 миссиях.
- Сражайтесь с врагами и сейте хаос в человеческом мире.
- Используйте абсолютно сумасшедшие средства передвижения:
- Прокатись верхом на реактивном двигателе!
- Летайте на больничных койках!
- Отскакивайте от стен на шине!
- Дайте волю Вашему внутреннему кролику!(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / 3DЯзык озвучки: СказочныйЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D9BCACD4FB338EC4CCD6D55ED4916B0EF18A25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476963   (86041) от 02.04.2012
-
-Total Commander PowerUser v58
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощнейший инструмент для системных администраторов и продвинутых пользователей.
-Основной критерий сборки - максимум функциональности за каждый лишний мегабайтНазвание программы: Total Commander PowerUser v58Язык интерфейса: русский + английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477267   (86040) от 02.04.2012
-
-Экстрасенс / The Awakening (2011) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие картины происходит в 1920 году. Ученый-скептик приезжает в загородную школу-интернат, где, по слухам, наблюдается повышенная спектральная активность. Сначала она уверена, что сможет развенчать этот миф, но затем пугающая встреча со сверхъестественным заставляет ее изменить свое мнение…Жанр: Ужасы, ТриллерРежиссер: Ник МерфиПродюсер: Сара Кертис, Джулия Стэннард, Дэвид М. ТомпсонАктеры: Ребекка Холл, Доминик Уэст, Имелда Стонтон, Люси Коху, Джон Шрэпнел, Дайана Кент, Ричард Дерден, Элфи Филд, Тилли Восберг, Йен Ханмор, Кэл Макэнинк, Исаак Хемпстид-Райт, Анастасия Хилл, Эндрю Хавилл, Джозеф Моул, Шон Дули, Николас Амер, Стивен Кри, Бен Гривз-Нил, Сидни Джонстон, Чарли Каллахэн, Спайк Уайт, Джеймс Киркхэм, Феликс Сопер, Дэниэл Пайрри, Ивэн Эндрю Уолкер, Энди Каллахэн, Эндрю Фостер, Кэти Харт, Адам Томас Райт, Нил Брум, Терри Своффер, Сара УэлдонПеревод: Профессиональный (полное дублирование)Язык субтитров: Русский, АнглийскийПродолжительность: 01:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61695F806D76735EA6A41663380B509BC57837AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476603   (86037) от 02.04.2012
-
-Спасти рядового Райана / Saving Private Ryan (1998) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Джон Миллер получает тяжелое задание. Вместе с отрядом из восьми человек Миллер должен отправиться в тыл врага на поиски рядового Джеймса Райана, три родных брата которого почти одновременно погибли на полях сражений.
-Командование приняло решение демобилизовать Райана и отправить его на родину к безутешной матери. Но для того, чтобы найти и спасти солдата, (   Читать дальше...   )Производство: СШАЖанр: Боевик, Драма, ВоенныйРежиссер: Стивен СпилбергАктеры: Том Хэнкс, Том Сайзмор, Эдвард Бёрнс, Барри Пеппер, Адам Голдберг, Вин Дизель, Джованни Рибизи, Джереми Дэвис, Мэтт Дэймон, Тед Дэнсон, Пол Джаматти, Деннис Фарина, Джорг Стэдлер, Макс Мартини, Дилан Бруно, Дэниэл Серкера, Деметри Горицас, Йен Портер, Гари Сефтон, Джулиан Спенсер, Стив Гриффин, Уильям МаршПеревод: ДублированныйСубтитры: Русские + АнглийскиеПродолжительность: 02:48:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476903   (86036) от 02.04.2012
-
-Руины / Ruin (2012) HDRip [H.264/720p-LQ]
-
->>След.
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается отличная, динамичная короткометражка о постапокалиптическом мире, снятая известной студией "Oddball Animation". Очень атмосферное видео - потрясающие виды, отличный саундтрек и безумная скорость, передающие весь драматизм разрушения и хаоса после конца цивилизации...Производство: АвстралияЖанр: короткометражка, боевик, драма, мелодрамаРежиссер: Клементайн ХитВ ролях: Дэниэл Фьюрриджел, Клементайн Хит, Кейт Агиус, Люк Бовино и др.Перевод: Без перевода / Не требуется (музыкальное сопровождение, речь отсутствует)Продолжительность: 00:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47DCDF58CBCAB5748B2289B7C889FA1A0D163215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477011   (86035) от 02.04.2012
-
-Экстрасенс / The Awakening (2011) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие картины происходит в 1920 году. Ученый-скептик приезжает в загородную школу-интернат, где, по слухам, наблюдается повышенная спектральная активность. Сначала она уверена, что сможет развенчать этот миф, но затем пугающая встреча со сверхъестественным заставляет ее изменить свое мнение…Жанр: Ужасы, триллерРежиссер: Ник МерфиАктеры: Ребекка Холл, Доминик Уэст, Имелда Стонтон, Люси Коху, Джон Шрэпнел, Дайана Кент, Ричард Дерден, Элфи Филд, Тилли Восберг, Йен ХанморПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFCB9758ADE241CBC25EADBCE62B6E4E89DA647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476946   (86034) от 02.04.2012
-
-Рапунцель: Счастлива навсегда / Tangled Ever After (2012) HDRip
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86034.jpg" />
-</div>
-
-
-###  Подробнее
-
-В волшебном королевстве грандиозный праздник: Рапунцель идет под венец! Все затаив дыхание ждут торжественной минуты. Но свадебная церемония грозит обернуться катастрофой: конь Максимус и хамелеон Паскаль теряют подвенечные кольца. У них остается всего несколько минут, чтобы найти пропажу.Жанр: Мультфильм, КороткометражкаРежиссер: Нэйтан Грено, Байрон ХовардПерсонажи: Закари Левай, Мэнди Мур, Марк Аллан СтюартПеревод: ДублированныйПродолжительность: 00:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452D799DFF1B0A84176AE169566C67429B0148F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477219   (86032) от 02.04.2012
-
-Грозовой перевал / Wuthering Heights (2011) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86032.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме рассказывается история двух поколений семейных кланов Эрншо и Линтон, — история о сложном переплетении их жизней и судеб и о роковом проклятии двух возлюбленных — Хитклиффа и Кэти…Жанр: Драма, МелодрамаРежиссер: Андреа АрнольдПродюсер: Роберт Бернштейн, Кевин Лоудер, Дуглас РэйАктеры: Кая Скоделарио, Никола Берли, Джеймс Хаусон, Оливер Милберн, Эми Рен, Стив Эветс, Пол Хилтон, Джеймс Норткот, Шеннон Бир, Соломон ГлэйвПеревод: Двухголосый закадровый, профессиональныйОзвучка: NowfilmsПродолжительность: 02:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D6C26CA07EDA9F7AC348FCFFC053A3DD332870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476993   (86031) от 02.04.2012
-
-Кот Леопольд: Учим английский язык [5+ лет] (P) [Ru] (2009)
-
->>Детские PC Игры
->>Развивающие Игры для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мышата узнают невероятную новость - кот Тим из Англии приглашает Леопольда в гости! И дело даже не в том, что им будет некому мешать, пока кота не будет дома, просто им тоже очень хочется поехать в Англию. Кот Тим передал Леопольду самоучитель, азбуку английского языка и англо-русский словарь. Мыши решают воспользоваться полезной литературой и выучить  иностранный язык не хуже Леопольда. Мышатам предстоит выучить английскую азбуку, множество новых слов и даже придется вести диалог. Но ведь учить английский язык (   Читать дальше...   )Разработчик: Electronic ParadiseЖанр: Семейная\Для детейЯзык озвучки: Русский и АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE65722CDFB0BC7C0DAC83EA6D98635153710C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477017   (86029) от 02.04.2012
-
-Школьные предметы на 5. Домашняя лаборатория по физике [7+] (L) [Ru] (2010)
-
->>Детские PC Игры
->>Развивающие Игры для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Физика – наука не из простых: все эти правила, законы и формулы кого угодно поставят в тупик. Особенно если ты совсем не понимаешь, что с ними делать и для чего все это нужно… Пора «оживить» скучный школьный предмет, сделать его понятным и интересным. Добро пожаловать в нашу веселую виртуальную лабораторию! Новая программа познакомит ребят с физикой на увлекательных реальных примерах. Как работает наш глаз? Почему летают самолеты? Как и когда возникла наша Вселенная? Почему бьет молния? На эти и многие другие вопросы о природе явлений ответит знаменитый профессор Разумовский! А вместе с любознательным Альбертом и его верным псом Энштейном ребята смогут провести простые и интересные физические эксперименты, научатся отвечать на вопросы и делать выводы. Все обязательно получится – подсказки профессора помогут справиться со всеми трудностями. Супербонус игры – видеотека с потрясающе интересными опытами! Учиться на пятерки теперь будет легко и весело!Тип издания: ЛицензияЖанр: Обучающие и развивающие игрыЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23A2CB32B7F8E8FC4F1060D261FD4C1C2C0F906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477226   (86027) от 02.04.2012
-
-Экстрасенс / The Awakening (2011) DVD9
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие картины происходит в 1920 году. Ученый-скептик приезжает в загородную школу-интернат, где, по слухам, наблюдается повышенная спектральная активность. Сначала она уверена, что сможет развенчать этот миф, но затем пугающая встреча со сверхъестественным заставляет ее изменить свое мнение…Жанр: Ужасы, ТриллерРежиссер: Ник МерфиАктеры: Ребекка Холл, Доминик Уэст, Имелда Стаунтон, Люси Коху, Джон Шрэпнел, Дайана Кент, Ричард Дерден, Элфи Филд, Тилли ВосбергПеревод: ДублированныйЯзык субтитров: Русский, УкраинскийПродолжительность: 01:42:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476724   (86026) от 02.04.2012
-
-Кукрыниксы - Myself (2012) [FLAC|Lossless]<Рок,Пост-панк>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SOS (03:48)
-02. Полжизни (04:07)
-03. Колокола (03:16)
-04. Хрустальный мир (04:15)
-05. Страхи (03:30)
-06. Как твои дела (03:54)
-07. Я объявляю войну (03:38)
-08. Здесь и сейчас (04:15)
-09. Жизнь бывает разная (03:12)
-10. Режиссер (02:36)(   Читать дальше...   )2012Жанр: Рок,Пост-панкПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477358   (86022) от 02.04.2012
-
-Photo Objects Eraser 1.0 [Rus] Portable
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Object Eraser это инструмент для удаления нежелательных объектов с фотографий и ретуширования фото. Вы можете использовать эту программу, чтобы удалить царапины с фотографий, линии проводов или рекламные щиты. Также можно дополнить отсутствующие края в панорамных фотографиях. Программа считывает файлы форматов BMP, PNG, TIFF, JPEG, записывает - TIFF. Входные и выходные файлы - в цветовой модели RGB, RGBA, CMYK, Greyscale. Поддерживаются TIFF файлы с LZW сжатием. Не поддерживаются файлы TIFF, содержащие более 4 слоев.Название программы: Photo Objects EraserЯзык интерфейса: Rus
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:7F51E6C1DF18B6E75B4F9889C3960E76B23CDDE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

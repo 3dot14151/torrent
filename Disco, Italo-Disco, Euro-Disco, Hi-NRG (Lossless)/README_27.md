@@ -1,3 +1,146 @@
+###  Публикация: 1740129   (48298) от 31.07.2024
+
+VA - Italo Disco Dance Party Collection Part 1 (2023) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AlimkhanOV A. - The City Never Sleeps (Vocal Mix) (5:53)
+02. Mancol - Angel Of Love (Extended) (5:43)
+03. Marc Fruttero & Tiziana Rivale - Time On Your Mind (Modern Mix) (3:39)
+04. Magic System D.J. - Without Your Love (Also Playable Mono Remix) (6:14)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747F2262A7D69B805D276DC0F394101F5B28E590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740309   (48063) от 02.08.2024
+
+Systems In Blue - Anthology 2003-2023 (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Mystery (Extended Mix) (5:11)
+02. Sexy Ann (3:44)
+03. Winner (3:42)
+04. Point Of No Return (Maxi Version) (5:59)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601B2CEA90CA1E0F4AEFB5B49C5B2DA2F561E74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741351   (47657) от 06.08.2024
+
+Digital Emotion - Arcade Serenade (2024) Unofficial [FLAC|Lossless|image + .cue] <Italo Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galaxy
+02. Arcade Serenade
+03. Supernova
+04. Moving To The Top(   Читать дальше...   )Жанр: Italo Disco, Hi NRGПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E796CA86057AF3123B378E101DF3973578549A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742184   (47214) от 10.08.2024
+
+Gazebo - From Pasha with Love (Vinyl Release) (2024) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Pasha With Love
+02. From Pasha With Love (Dance Opera)
+03. From Pasha With Love (Dance Opera Radio)
+04. From Pasha With Love (Pure Italo)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E681AB613545AC7B57DFB7FFBEC34B099A115D65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742699   (47023) от 12.08.2024
+
+Niel De One - Retrospectiva (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niel De One - Retrospectiva (Original Mix)
+02. Niel De One - Retrospectiva (Funk Mix)Жанр: Nu Disco, DiscoПродолжительность: 00:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9962CA6627B4A17676B39DB3E96C0B8C191F625A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743068   (46807) от 14.08.2024
 
 Loni Cash - The Album (2013) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Synthpop>
@@ -600,152 +743,6 @@ Daro-X - After The Rain (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5349BCEA83F3C00B106921990921295C6F9C1860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779346   (27822) от 12.02.2025
-
-Village People - Gold (2019) 3 x CD [FLAC|Lossless|image + .cue] <Disco, Pop, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Village People – американская диско-группа, образованная в 1977 году французским композитором Жаком Морали. Группа прославилась своими легко запоминающимися композициями, весёлыми текстами песен, а также неординарными костюмами: полицейского, индейца, ковбоя, строителя, байкера и морского пехотинца.
-Жак Морали плодотворно сотрудничал с другой диско группой The Ritchie (   Читать дальше...   )CD1:
-01. YMCA (3:44)
-02. In The Navy (3:43)
-03. Go West (3:34)(   Читать дальше...   )Жанр: Disco, Pop, FunkПродолжительность: 03:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87AB506043A001DD1B51895C6D31435A53B6106A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782788   (25929) от 02.03.2025
-
-Dschinghis Khan - Mexico , Maxi And Singles Collection (2025) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mexico
-02. Moskau (12" Version)
-03. Rome (English Version)
-04. Rocking Son Of Dschinghis Khan (12" Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798DEC3DE5BC6C426324230FBEFCAF659790CAB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784642   (24888) от 12.03.2025
-
-Maxi Talo - Emotions (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run To The Sun (6:05)
-02. Say You Love Me (5:02)
-03. Sea And You (5:43)
-04. Among Millions Of Stars (6:04)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D4E4C73FEE688D1A076BBB96722AC76F2868BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786500   (23965) от 21.03.2025
-
-VA - 80's Dance Rarities (1989) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi-NRG, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tempo Rubato - Don't Stop The Classics (4:20)
-02. Overdrive - Beat It Up (7:56)
-03. Diana Pamelay - Groove Me (3:47)
-04. Twiggy Bop - Manolito (3:52)(   Читать дальше...   )Жанр: Disco, Hi-NRG, PopПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E00E71E84B609F5FB5B33F1BB321D43E5078505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786656   (23946) от 21.03.2025
-
-VA - The Modern Mix, Vol. 1 - 80's Dance Rarities (mixed by Steve Masters) (2000) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When In Rome - The Promise (4:48)
-02. L.A.C. - The Fuzz (3:50)
-03. Secession - The Magician (4:08)
-04. The Hurricanes - Only One Night (4:50)(   Читать дальше...   )Жанр: Italo-Disco, Euro-HouseПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E882AD8BA6B8B139AD11ADC90062B4027FFAE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

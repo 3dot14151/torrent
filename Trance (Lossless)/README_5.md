@@ -1,3 +1,32 @@
+###  Публикация: 1406910   (470563) от 05.09.2020
+
+VA - Beautiful Vocal Trance: Chapter 5 (2020) [FLAC|Lossless|tracks] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa feat. Ana Criado - The Secret Garden (Original Mix)
+02. Aurosonic feat. Stine Grove - In Euphoria We Rise (Original Mix)
+03. Dark Matters feat. Jess Morgan - I Don't Believe In Miracles (Shogun Remix)
+04. Beat Service feat. Cathy Burton - Love Is Your Home (Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175EC7247BD86FAB8F1D28DC89C6963806C787C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245825   (469962) от 07.09.2018
 
 Paul van Dyk - My World (In The Mix) (2002) [FLAC|Lossless|image + .cue] <Trance>
@@ -708,35 +737,6 @@ Markus Schulz - Escape (2020) [FLAC|Lossless|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69534C33871843EFE8C9AC607FB002511B14F309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411424   (427474) от 25.09.2020
-
-Tiesto feat. Kirsty Hawkshaw - Just Be (2004) [FLAC|Lossless|tracks + .cue] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto feat. Kirsty Hawkshaw - Just Be (Antillas Radio Edit)
-02. Tiesto feat. Kirsty Hawkshaw - Just Be (Antillas Club Mix)
-03. Tiesto feat. Kirsty Hawkshaw - Just Be (514 Mix)
-04. Tiesto feat. Kirsty Hawkshaw - Just Be (Wally Lopez La Factoria Vocal Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4992A098CD0E97E04060C8D4E11F673637F5E5C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

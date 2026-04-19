@@ -1,3 +1,29 @@
+###  Публикация: 1481801   (1008010) от 05.07.2021
+
+PDF Office Max: Acrobat Expert 6.5.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008010.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Office Max - это приложение для повышения производительности, которое предлагает многофункциональный способ работы с документами PDF. Используя PDF Office Max, вы можете загружать неограниченное количество PDF-файлов в iCloud и получать доступ к данным с любого iPhone, iPad и Mac.Тип издания: macOS SoftwareРелиз состоялся: 02.07.2021Разработчик: heytopiaПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC23C454C7FB13767B2A74F95732BDA65DAAC42E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481821   (1008007) от 05.07.2021
 
 SnapGene 5.3.1 [En]
@@ -654,33 +680,6 @@ SounceSource позволяет настроить прямо из строки 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47825171381C7EC22E730669E069E3BC735B3380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487309   (1003864) от 04.08.2021
-
-Wifiry: Wi-Fi Signal Strength 2.0 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wifi Signal Strength - отображение состояния уровня Wifi сигнала в строке меню.
-Программа также позволяет узнать мощность сигнала и другие параметры, такие как: Ваш IP-адрес, MAC-адрес, другие доступные сети, открытые или защищенные, BSSID, RSSI, Noise, Transmit Rate, PHY, Interface mode, Security type и тд.Тип издания: macOS SoftwareРелиз состоялся: 02.08.2021Разработчик: Appyogi SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59E6140251901D27FC7E9015E6ED1BD26DE77F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

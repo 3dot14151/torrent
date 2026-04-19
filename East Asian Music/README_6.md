@@ -1,3 +1,211 @@
+###  Публикация: 347192   (637177) от 09.06.2011
+
+Shogo Hamada - selected discography[9 albums] (1982-2005) [FLAC|Lossless]<JRock,Rhythm and Blues>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_637177.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 光と影の季節
+ 2. この夜に乾杯!
+ 3. 旅立ちの朝
+ 4. Thank You
+ 5. デスク越しの恋
+ 6. 誰かどこかで
+ 7. I Am A Father
+ 8. 花火
+ 9. 初恋
+ 10. 君と歩いた道(Album Ver.)(   Читать дальше...)Жанр: JRock,Rhythm and BluesПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034467   (634041) от 13.07.2016
+
+Mari Natsuki - 13 Chansons (1998) [FLAC|Lossless|tracks + .cue] <Bossa Nova, Contemporary Jazz>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All About Me
+02. Gorilla
+03. Les Musiciens
+04. My Favorite Things(   Читать дальше...   )Жанр: Bossa Nova, Contemporary JazzПродолжительность: 0:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB0C4DD718C578E775D161F80074954BFA554D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229067   (631817) от 03.06.2018
+
+Susheela Raman - Ghost Gamelan (2018) [FLAC|Lossless|WEB-DL|tracks] <Ethnic, Folk, Jazz>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanpa Nama (feat. Samuel Mills & Gondrong Gunarto)
+02. Beautiful Moon (feat. Samuel Mills & Gondrong Gunarto)
+03. Annabel (feat. Samuel Mills & Gondrong Gunarto)
+04. Sphinx (feat. Samuel Mills & Gondrong Gunarto)(   Читать дальше...   )Жанр: Ethnic, Folk, JazzПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C6FC5F9904F7A6FF8227F57B428DC419ACB314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908449   (631705) от 15.06.2015
+
+Vallendusk - Homeward Path (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631705.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Windswept Plain
+2. Earth Serpent
+3. The Anchors
+4. The Wayfarers(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8251B8871B86B98F5FFE1FF8E1DF203B8280F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035198   (628274) от 16.07.2016
+
+Band-Maid - Brand New MAID (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal, J-Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. the non-fiction days [0:04:43.74]
+02. LOOK AT ME [0:03:59.41]
+03. ORDER [0:03:23.49]
+04. Brand-New Road [0:03:54.70](   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, J-RockПродолжительность: 0:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C8A869A8FD74A84C670BCF2EAEC51F3BB6F57F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294480   (627882) от 08.04.2019
+
+Yoko Oginome - Dancing Hero The Archives (2017) Single [MP3|320 Kbps] <j-pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627882.jpg" />
+</div>
+
+
+###  Подробнее
+
+ダンシング・ヒーロー(Eat You Up) <オリジナル・ヴァージョン> (3:47)
+ダンシング・ヒーロー(Eat You Up)-Modern Version- (4:04)
+ダンシング・ヒーロー(Eat (   Читать дальше...   )Жанр: j-popПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A37DE258E1A008274307D6761D8FAB4C48E96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035609   (626238) от 17.07.2016
+
+Loudness - Samsara Flight: 35th Anniversary (2016) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Doctor
+02. Crazy Nights
+03. In The Mirror
+04. S.D.I.(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:51 + 01:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D69FC9AEFD4DE556B4398179CAEA3429D4F1932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 339258   (621198) от 17.06.2011
 
 UVERworld - 7 albums + 16 singles (2005-2011) [FLAC|Lossless]<JRock, Pop Rock>
@@ -548,204 +756,6 @@ Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97BCC97D99151BA07BC70232E8D352AC7DF5B4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148194   (604213) от 05.07.2017
-
-One Ok Rock - Ambitions (2017) English Version [FLAC|Lossless|tracks] <Alternative Rock, Power Pop>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambitions (Introduction)
-02. Bombs Away
-03. Taking Off
-04. We Are(   Читать дальше...   )Жанр: Alternative Rock, Power PopПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629117DFF360AF43014FA08F08555938ECE20A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231266   (604100) от 19.06.2018
-
-The GazettE  - Дискография (9 альбомов, 6 мини-альбомов, 3 сборника, 24 сингла) [MP3|320 Kbps] <J-Rock, Visual kei, Metal>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604100.jpg" />
-</div>
-
-
-###  Подробнее
-
-The GazettE (ガゼット) -  Гадзэтто - образована в 2002 году, cостоящая из пяти человек, одна из наиболее популярных групп на лейбле PS Company. Несмотря на то, что основа их музыки — рок, они не боятся экспериментировать со своим звучанием, исполняя как легкую музыку, так и агрессивные песни с элементами панк-рока и иногда даже хип-хопа.
-  The (   Читать дальше...   )Жанр: JRock, Visual kei, Metal, AlternativeПродолжительность: 18:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29729DBAA76912BA9FF599C688AA1E522C8C44A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232219   (602233) от 23.06.2018
-
-Logic System (Hideki Matsutake) - Orient Express (1982) CD, Album, 1983, Express [FLAC|Lossless|tracks] <Easy Listening, Electronic, Synthpop>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture 0:48
-02. Orient Express 4:13
-03. Simoon 4:14
-04. Armistice 4:32(   Читать дальше...   )Жанр: Easy Listening, Electronic, SynthpopПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681957BE7BBD22E2B1C06A727B2F850F35B329A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356051   (598537) от 28.06.2011
-
-Flavor of Classical Chinese Music - Passion Of Guzheng (2009) [FLAC|Lossless]<Ethnic, Folk, Pop-Folk>
-
->>East Asian Music
->>Asian Traditional, Ethnic (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_598537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tune Of Purple Bamboo
-02. Flowing Creek
-03. For The Perfect Couple
-04. Please Stay My Dear Guest(   Читать дальше...   )Жанр: Ethnic, Folk, Pop-Folk |Продолжительность: 00:52:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548913   (596271) от 04.05.2022
-
-Nocturnal Bloodlust - Argos (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596271.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Devastated World
-2. Red Soil
-3. Straight to the sky (feat. Luiza)
-4. Life is Once(   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85E29CB8A917A63EB5D610857C12B046F8A12A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358923   (583865) от 04.07.2011
-
-The Hi-Fi Of Chinese - Coffee Parlor 1 (2CD) (2011) [FLAC|Lossless]<Pop-Folk>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop-Folk |Продолжительность: 01:08:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301793   (583137) от 13.05.2019
-
-Mitch Murder - Selection 5 (2018) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Synth-pop>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Presents (0:23)
-02.The Line (6:08)
-03.Time Paradox (feat. Satellite Young) (3:18)
-04.Pole Position (3:42)(   Читать дальше...   )Жанр: Electronic, Synthwave, Synth-popПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64ADC2120CE5430124D62A4116FBC824FE103B28
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 602731   (997588) от 13.01.2013
+
+VA - The Art Of Fighting! Vol.1 (2013) [MP3|320 кб/с]<Deep House, Nu Disco, Indie Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Re Dupre - Get Down & Dirty! (Original Mix)
+02. Marcello V.O.R., Dashdot - B-Side (Original Mix)
+03. Velkro - HighWay (Original Mix)
+04. Re Dupre, Angelo Fracalanza - Kiss Me (Original Mix)
+05. Gabe - Truly Fucked Feat. M.Adam (Original Mix)
+06. Dashdot - Senseless Static Thing Feat. Zz (Original Mix)
+07. Sex Shop - Renascenca (Original Mix)
+08. Angelo Fracalanza - Long Time (Original Mix)
+09. Marcello V.O.R., Facing Odds - Street Rules (Original Mix)
+10. Andre Marques, Pattern2 - The Chamber (Original Mix)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Indie DanceПродолжительность: 01:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FD7811558D52CF9A9F15154A0356D1FCD65583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602619   (997555) от 13.01.2013
+
+VA - Best Of Electronique 2012 (2013) [MP3|320 кб/с]<Deep House, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997555.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bubba – Nudenight (Original Mix) 6:04
+2. F3 – What You Need (Downtown Party Network Remix) 5:56
+3. Finnebassen – If You Only Knew (Original Mix) 6:22
+4. Finnebassen Gundelach – When It Rains (Digital Exclusive) (Original Mix)8:36
+5. Flow & Zeo Marcello V.O.R – N.Y Candy (Original Mix) 6:52
+6. Jobe – This Feeling (Original Mix) 6:19
+7. Jobe – My Life (Max Belobrov Remix) 8:04
+8. Lula Circus – Light Outside (Original Mix) 7:20
+9. Made To Move – Shaman (Cera Alba Remix) 7:56
+10. Markus Eden – With Me (Original Mix) 7:08(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B33CBB03148513BB0B72D066ABDB2FDB299430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603621   (996472) от 17.01.2013
+
+VA - Electro House 2012 Best Of (2012) [MP3|320 kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laidback Luke Feat Wynter Gordon - Speak Up (Jay Style Remix) (05:41)
+02. Dj Sakin - Beverly Hills Cop (Club Mix) (05:54)
+03. Mykel Mars - Scream (Album Version) (06:59)
+04. Davie Terry - Vibe (House Kartel Reebost Remix) (07:06)
+05. Danky Cigale And Mykel Mars - Feel So High (Kevin Hills Remix) (05:54)
+06. Br!k Ft Philly - Get It Poping (Luis Gutierrez Remix) (03:42)
+07. Djerem, Chris Willis & Xenia - So Beautiful (Djerem Electro Edit) (03:09)
+08. Lissat & Voltaxx - Like Dis Like Dat (Chris Kaeser Remix) (08:05)
+09. Chris Kaeser - Montpellier Of Course (Fx & Sting B Mix) (06:05)
+10. Dj Absinth - Diva (Original) (06:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 06:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CA835113468D3B5C285DF205A0B71088B7BA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603187   (995951) от 19.01.2013
 
 VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <House>
@@ -712,93 +817,6 @@ VA - Hit Sexy Groove (2020) [MP3|320 Kbps] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67A09678CC89214CA6B155330C76A5599FBC9E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356712   (975543) от 02.02.2020
-
-VA - Hot Ibiza Groove (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975543.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SPACE 3 - Make Me Move (Yves' Remix) 2:00
-2. Modus Medusae - Chester One (Chester Mix) 2:51
-3. Fashion Rhythms;Kania - Feels Right (Vox Mix) 3:05
-4. Ronald Jefferson - Rynorse (Ronald Jefferson House Mix) 3:11(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928D7156168FCF801077020D3E52AFD9A5B8D5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357139   (975538) от 02.02.2020
-
-VA - When House Goes Deep (2020) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tobias Rauch feat. Jessy - Alpha Horizon (Alex From Jack Re-Work Edit) 4:43
-02. Martin Bro - He Wants To Escape (Original Mix) 4:42
-03. Angels From Jupiter - Anonymous Soul (Drama Kids Loco Remix) 6:41
-04. Robbie Pallasch - Marks & Angels (Original Mix) 6:49(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F68173D55373D422AB2796B09D2A803B20E0BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357167   (974389) от 03.02.2020
-
-VA - Uphill Workout (2020) [MP3|320 Kbps] <Melodic House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974389.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Redentor - Turn Me Up Redentoriously (9:13)
-2.Kivema - Day Off (6:11)
-3.Phil Baenz - Time (6:15)
-4.Goose Tann - Eden (6:02)(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 03:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2630DFC510A2EBD7C0D2553B16F23DC6BD402D
 ```
 
 https://mybot314.ru/tekegram_catalog/

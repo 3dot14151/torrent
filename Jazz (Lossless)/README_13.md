@@ -1,3 +1,32 @@
+###  Публикация: 1461081   (1022093) от 08.04.2021
+
+VA - Best Of Green Hill Music: The Jazz Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beegie Adair - The Way You Look Tonight (3:17)
+02. Stephen Kummer - Let's Fall In Love (3:46)
+03. Jack Jezzro - Night And Day (3:34)
+04. Pat Coil - Softly As In A Morning Sunrise (3:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E3FAA364C0A4CA494C106ADF17EAB3EA7373D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461008   (1022088) от 08.04.2021
 
 Donald Byrd and The Blackbyrds - The Jazz Funk Collection (2020) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Soul>
@@ -716,35 +745,6 @@ Ghost Train Orchestra - Book Of Rhapsodies (2013) Accurate [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:582CE45E564874072192EC8D1C9879F55F4214AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465471   (1019150) от 26.04.2021
-
-Bill Evans - The Complete Fantasy Recordings (1973 - 1979) 9CD, 1989, Fantasy [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019150.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Mornin' Glory [5:48]
-02. Up with the Lark [6:48]
-03. Yesterday I Heard the Rain [6:33](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 10:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0768CFE112A72E2C530F8FB747DE1804656B7E57
 ```
 
 https://mybot314.ru/tekegram_catalog/

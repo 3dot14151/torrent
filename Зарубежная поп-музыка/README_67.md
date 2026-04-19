@@ -1,3 +1,61 @@
+###  Публикация: 1838191   (257987) от 21.11.2025
+
+VA - Formel Eins - Double Fun (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Europop, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depeche Mode - Enjoy The Silence
+02. David A. Stewart feat. Candy Dulfer - Lily Was Here
+03. Marc Almond - A Lover Spurned
+04. They Might Be Giants - Birdhouse In Your Soul(   Читать дальше...   )Жанр: Electronic, Pop, Europop, Synth-pop, DiscoПродолжительность: 02:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92787E37CF21FAA4D225FAC9E317EAA3880A996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838060   (257745) от 20.11.2025
+
+VA - Always And Forever (1987) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris De Burgh - The Lady In Red     04:18
+ 02. Atlantic Starr - Always     03:59
+ 03. Janet Jackson - Let's Wait A While     04:37
+ 04. Peter Cetera - Glory Of Love     04:21(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft Rock, BalladПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0216A683427E86E62F5BC6F5D3ACF6BB475CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837615   (257697) от 18.11.2025
 
 VA - Wow! 91 International (1991) 2 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soul, Funk, Disco>
@@ -714,64 +772,6 @@ VA - Let's begin from the start (2023) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECC487A93E1D9412878F528C3A001B82194240EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620702   (246016) от 21.03.2023
-
-VA - Italo Dance Classics Volume 1 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop, 	Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Silver Pozzoli - Around My Dreams
-02 - Ivan - Fotonovela
-03 - Steve Allen - Letter From My Heart
-04 - Moses - We Just(   Читать дальше...   )Жанр: Electronic, Pop, 	Italo-DiscoПродолжительность: 01:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589D8F9B8F1AA3C8FB550A6F2A92B0CA095D79CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565881   (245927) от 25.07.2022
-
-VA - TikTok Pop (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smyles - Running up That Hill (A Deal with God)
-02. Lizzo - About Damn Time
-03. Panic! At The Disco - House of Memories
-04. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 03:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004C7BCF7F4DA02D4E610A5C8502404624D748C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

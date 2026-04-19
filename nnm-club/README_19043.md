@@ -1,31 +1,22 @@
-###  Публикация: 495948   (251644) от 13.05.2012
+###  Публикация: 1626002   (255240) от 12.04.2023
 
-Sherazade - La Loungerie (2006) [MP3|320 кб/с]<Ethno-Lounge, New age>
+Аватар: Путь воды / Avatar: The Way of Water (2022) WEB-DL [H.264/1080p]
 
->>Electronic
->>Easy listening
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(2:54) 01. Fly Away
-(5:00) 02. La Dolce Vita
-(5:57) 03. Belanna
-(5:12) 04. Mon Palais De Solitude
-(4:02) 05. Amoroso
-(5:53) 06. Tomae
-(3:35) 07. Lola
-(2:04) 08. Leja Men Dewai
-(6:19) 09. Distance Love
-(3:33) 10. Buddha Reggae(   Читать дальше...   )2006Жанр: Ethno-Lounge, New ageПродолжительность: 01:07:10
+После принятия образа аватара солдат Джейк Салли становится предводителем народа на’ви и берет на себя миссию по защите новых друзей от корыстных бизнесменов с Земли. Теперь ему есть за кого бороться — с Джейком его прекрасная возлюбленная Нейтири. Когда на Пандору возвращаются до зубов вооруженные земляне, Джейк готов дать им отпор.Производство: США, 20th Century Studios, Lightstorm Entertainment, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс КэмеронАктеры: Сэм Уортингтон, Зои Салдана, Сигурни Уивер, Стивен Лэнг, Кейт Уинслет, Клифф Кёртис, Джоэль Мур, Си Си Эйч Паундер, Иди Фалько, Брендан КоуэллПеревод: Дублированный (MovieDalen), Многоголосый профессиональный (TVShows, HDRezka Studio, Lostfilm)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 03:12:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A08ABE43B0185B9FDB225A17A9D899F54719B715
+magnet:?xt=urn:btih:51C3FB414C8035E040FBAEF1637C2DD4D8162A1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,600 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 495770   (251643) от 13.05.2012
+###  Публикация: 1626265   (255239) от 13.04.2023
 
-[Wallpapers] The Best Wallpapers (12.05.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3754AC4A466A5AF630584FB241761CF38D35B4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495343   (251641) от 13.05.2012
-
-VA - 5 Years Of Noir Music (2012) [MP3|320 кб/с]<Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kolombo - Shape Your Life (feat. Vince L - Martin Dawson Remix)
-02. Hot Since 82 - Let It Ride (Nicolas Masseyeff Remix)
-03. Larse - So Long (Manuel Tur Remix)
-04. Johan Ilves & Migova - Femme Desire (Adana Twins One Night In Paris Remix)
-05. Noir Westboy - Shes Got My Heart (Larse Remix)
-06. Los Suruba - Spanish Pantalones (Hot Since 82 Remix)
-07. Tiger Stripes - I Found U (Kellerkind Remix)
-08. Superhero - It's Not For You (feat. C Layne - The Mekanism Remix)
-09. Noir - Times Of My Life (feat. Alexander Perls - Noir Habischman Remix)
-10. Pirupa & Pigi - Sweet Devil (Amine Edge & DANCE Remix)(   Читать дальше...   )2012Жанр: Tech House, Deep HouseПродолжительность: 01:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1543DC36791DC6E7CF97DA6DA872E1A59BAFD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496021   (251640) от 13.05.2012
-
-VA - Hits Of The Moment (10.05.2012) (2CD)[MP3|320 кб/с]<House, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251640.jpg" />
-</div>
-
-
-###  Подробнее
-
-10.05.2012Жанр: House, Club, DanceПродолжительность: 01:16:56
-01.SoulKey Feat. Yaniv Gezz - My Heart Shouting
-02.Chino Y Nacho Ft. Jay Sean - Bebe Bonita (Techno Remix)
-03.Bingo Players Feat. Heather Bright - Dont Blame The Party
-04.Papajam - Do What I Wanna Do
-05.Mohombi - Say Jambo
-06.Ocean's Four Feat. Adam Clay - Beautiful Life 2012 (Marchesini & Farina Rework)
-07.Dirty Kidz Feat.Shalya Don Seydina - Ole Ola
-08.Bogdan Ioan - With You (Summer Edit)
-09.Antonie De Mornak - Live 1.0(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D03CD44A47F033725D5D3B8F818DA86BD1676A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496103   (251639) от 13.05.2012
-
-VA - Soul of Ibiza Volume 32 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251639.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aly & Fila - 200 - FSOE 200 Anthem (Original Mix) (8:12)
-2. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) (5:28)
-3. Sied van Riel - Audio 52 (5:45)
-4. Van Dresen - Back To Start (Orjan Nilsen ReChunk Mix) (7:50)
-5. David Forbes feat. Antonia Lucas - Because of You (Pulser Remix) (5:26)
-6. Andrew Rayel - Believe (Original Mix) (7:06)
-7. Beat Service feat. Neev Kennedy - But I Did (Extended Mix) (6:04)
-8. Indecent Noise - Civitanova (Nick Callaghan & Will Atkinsons Dark Sessions Remix) (7:30)
-9. Richard Beynon - Close To You (Extended Mix) (7:46)
-10. NatLife - Don't Kill The Nature (Original Mix) (9:40)2012Жанр: Vocal TranceПродолжительность: 04:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943CC705D9EE3A6D1EDA34854199DEB7A24879E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496288   (251638) от 13.05.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (13.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0EA3C36D48DE8A9E373F738AD8557CB3BD7FACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496168   (251633) от 13.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 31
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1600х1200 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B29AE58D75D5447227E929480EC4C84F47A49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496271   (251631) от 13.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (13.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E333A8C75FE13DD84B0A0886E73CF59BB94A1DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496072   (251629) от 13.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Pack (13.05.2012)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251629.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Computer Desktop Wallpapers Pack (13.05.2012)
-Название: Computer Desktop Wallpapers Pack (13.05.2012)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpg / pngВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AA19BFBE26DD5304633DE8DDA369D33846ECC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496108   (251628) от 13.05.2012
-
-[Wallpapers] Cars Desktop Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251628.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Cars Desktop Wallpapers Pack 4
-Название: Cars Desktop Wallpapers Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB8FD2751D4D401DF824E769B4E5FB40981C007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495768   (251627) от 13.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (12.05.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4341E514AF19CCC4421B646F2FA6F75D857BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496074   (251625) от 13.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Pack 24
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251625.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Computer Desktop Wallpapers Pack 24
-Название: Computer Desktop Wallpapers Pack 24
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCB4A881E7258514157A0D9C162DF754E28C5C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495769   (251624) от 13.05.2012
-
-[Wallpapers] Best HD Wallpapers Pack (12.05.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E2CB8901F8E2C5EEBAF85E10A85E1894B06F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495674   (251623) от 13.05.2012
-
-Бампер - 2 альбома (2010 - 2011) [Mp3|320 kbps] <Ska - Punk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ключ к успеху (2:15)
-02. Малый адронный коллайдер (2:27)
-03. Свобода выбора (ft. Миша Bojarski, Сережа Turbolax, Илья Kollektor) (2:29)
-04. You suck (0:59)
-05. Наша сила (2:27)
-06. Повороты судьбы (3:40)
-07. Вперед быстрей (2:52)
-08. Это нормально (2:11)
-09. Полиция (1:29)
-10. На летнем отдыхе (3:22)(   Читать дальше...   )Жанр: Ska - PunkПродолжительность: 00:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E2543730A194CB0B1AED6FD345BDC5AB5A02A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496289   (251618) от 13.05.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (13.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3500x2333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6875668BFA27C346168F90E01B250033DF3B3FF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496071   (251617) от 13.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 29
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBFFF8F82B451B1AA14BC0357CDC417FC54C191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495781   (251616) от 13.05.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (12.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1440х900 - 4985х3297
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFBDBFCC722A786C05CFCD1D63B0154C9CF0DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495780   (251615) от 13.05.2012
-
-[Wallpapers] Girls Wallpapers (12.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B248D9FC9014FEC9929406A6D5FEB1D48C3A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488539   (251606) от 12.05.2012
-
-[RePack] The Walking Dead: Episode 1 {1.0} [Ru/En] 2012 l R.G. UniGamers {Обновлено 11.05.2012}
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251606.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Walking Dead: The Game – адвенчура с элементами «хоррора».
-Cюжет освещает приключения новой группы «выживших», которые резонно вознамерились сбежать из Атланты в свете нашествия зомби.Посмотрите на то, что творилось в первые дни неожиданно нагрянувшего апокалипсиса, и примите участие в событиях, которые так или иначе пересекаются с похождениями шерифа Рика Граймса.Тип издания: RePackРазработчик: Telltale GamesЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2715C7DB38247010C5CFE8D2CF92161B80ECE38F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400389   (251602) от 12.05.2012
-
-Две девицы на мели / Две разорившиеся девочки / 2 Broke Girls (2011) HDTVRip (Сезон 1 полный (24)) (BraveSound)
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедия о двух девушках, которые работают официантками в забегаловке, и которых объединяет общая мечта – открыть успешный бизнес. Конечно, как только они найдут деньги для этого. Колкая, знающая жизнь Макс работает на двух работах только чтобы свести концы с концами. Одна из этих работ – ночная смена в ретро-закусочной Вильямсбург. Утонченная Кэролайн – бывшая принцесса (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Джон Фортенберри, Джеймс БерроузПеревод: Любительский одноголосый закадровый - BraveSoundПродолжительность: ~00: 21:00 мин серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 391228   (251601) от 12.05.2012
-
-Касл / Castle (2011) WEB-DLRip [720p] (весь 4 сезон) [LostFilm]
-
->>Зарубежные сериалы
->>Касл / Castle
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый нью-йоркский писатель Ричард "Рики" Касл получает личное разрешение от мэра города участвовать в расследованиях убойного отдела, чтобы черпать вдохновение для своих книг из работы детективов и реальной полицейской хроники. Касл пытается доказать надменному детективу Кейт Беккет, что в расследовании убийств его блестящий ум и умение думать как (   Читать дальше...   )Жанр: детектив, драма, комедияРежиссер: Rob BowmanАктеры: Nathan Fillion, Stana Katic, Jon Huertas, Seamus Dever, Molly C. Quinn, Susan Sullivan и др.Перевод: Многоголосый закадровый, профессиональный (LostFilm)Продолжительность: 23 ~ 00:43:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495486   (251599) от 12.05.2012
-
-Windows 7 Ultimate SP1 (x64) [The DNA7 Project v.1.6] (русская версия)
+BurnAware Professional 16.5 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новая сборка DNA. Этот выпуск системы обеспечивает усовершенствованную бизнес-ориентированную инфраструктуру,  производительность при мобильной работе и специализированные средства развлечения для домашнего использования в одной системе.
-The DNA7 Project x64 прежде всего предназначен для 'чистой' установки с загрузочного компакт диска
-(в Bios в меню Boot выставить, First boot device-CDROM)
- Контрольные суммы образа:
- CRC32: FBC0766E
- MD5: AF39CCA9E1084E24F151CEB1643D7010
- SHA-1: 178102DE7237AFFD0765325CEBFEFA347A3ECEB2Название программы: Windows7Язык интерфейса: русский
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:23D0BF53CD70A169B783485FAB4C18EC61FF1F5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,24 +50,561 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 459588   (251598) от 12.05.2012
+###  Публикация: 1626135   (255238) от 13.04.2023
 
-Kingsoft PC Doctor Lite 3.7.0.47 [Английский + русификатор]
+Fort Firewall 3.8.7 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE954A2F5ABEB587DFD8961C9E54C60A233D66C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626100   (255237) от 13.04.2023
+
+Нил Деграсс Тайсон | На службе у войны: негласный союз астрофизики и армии (2022) [MP3, Вадим Пугачев]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга известного американского астрофизика Нила Деграсса Тайсона, написанная в соавторстве с писателем Эвис Лэнг, посвящена исследованию многолетних отношений науки и армии. Что объединяет астрофизиков и военных специалистов, в чем точки их пересечения, как наука служит войне? Как выясняется, многие открытия и достижения астрофизики, такие как, например, многоспектральное (   Читать дальше...   )Жанр: Астрономия, Научно-популярная литератураПродолжительность: 18:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19C8AB9F63DEEEC0C40D59923CDEBE5E7136C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626301   (255236) от 13.04.2023
+
+Powerwolf - Interludium (2023) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolves Of War (3:58)
+02. Sainted by the Storm (3:44)
+03. No Prayer At Midnight (3:41)
+04. My Will Be Done (3:43)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91CF76224BCFD0865D44DB79B8576F0384143489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626205   (255235) от 13.04.2023
+
+Magnus Karlsson’s Free Fall - Hunt the Flame (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunt the Flame (6:00)
+02. You Can't Hurt Me Anymore (5:32)
+03. Thunder Calls (5:18)
+04. Break of Dawn (5:11)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAF25ACC96C6258027BCCA3461268951DE877D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626240   (255234) от 13.04.2023
+
+П.Е. Ахмадулин | Счастье для всех (2023) [MP3, Puffin Cafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255234.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Магия, блудницы, предательство. Чего-то из этого здесь нет." (с)Жанр: ФантастикаПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E64537EC980C5B4CC98ECB72B0B89B23167E3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626263   (255233) от 13.04.2023
+
+Тур Хейердал | Мальдивская загадка (2021) [MP3, Илья Дементьев]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255233.jpg" />
+</div>
+
+
+###  Подробнее
+
+До середины ХХ века никто из европейских археологов не вел раскопки на Мальдивах и эта страна оставалась terra incognita даже для своих собственных жителей. Но норвежский исследователь Тур Хейердал начинает новое приключение – он проникает в джунгли пустынного атолла Гааф-Гана и открывает руины ступенчатой, ориентированной по солнцу каменной пирамиды, стены которой (   Читать дальше...   )Жанр: документальная литература, путешествияПродолжительность: 12:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6803EE1D159652B1FDB825104BA3639276ACC8CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626180   (255232) от 13.04.2023
+
+VA - Old Rock 90s (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Temple Pilots -- Interstate Love Song (3:14)
+02. Alanis Morissette -- Hand in My Pocket (3:42)
+03. Red Hot Chili Peppers -- Under the Bridge (4:24)
+04. Green Day -- When I Come Around (2:58)(   Читать дальше...   )Жанр: RockПродолжительность: 02:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EE8173F8B12C84E9E8E548878CCAED49BB2936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626187   (255231) от 13.04.2023
+
+VA - Rock Workout Hits 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons -- Enemy (from the series Arcane League of Legends) (2:53)
+02. Coin -- Cutie (3:04)
+03. Easy Life -- ocean view (2:55)
+04. renforshort -- wannabe (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 03:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D255F5DA13D8C9FFFE916037EE9421750A136CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626226   (255230) от 13.04.2023
+
+R-Wipe & Clean 20.0.2400 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255230.jpg" />
+</div>
+
+
+###  Подробнее
+
+R-Wipe & Clean - программа для невосстановимого удаления данных с жесткого диска с широкими возможностями. Среди возможностей: очистка файла подкачки и файлов .dat (в т.ч. используемых системой), удаление записей в MFT и многое другое, что требуется для уничтожения следов деятельности за компьютером. Кроме очистки свободного места на диске (включая удаление кластеров, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D89698B3EA4E59E4FF2950333312CAC2CFF61B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626253   (255229) от 13.04.2023
+
+Тур Хейердал | Путешествие на «Кон-Тики» (2020) [MP3, Илья Дементьев]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь переплывали океан? А на плоту из бальсовых бревен, на которых тысячи лет назад совершали морские путешествия поленизийцы? Норвежский первооткрыватель Тур Хейердал приглашает нас именно в такую экспедицию. И если вы не боитесь оттолкнуться от берега Южной Америки и отправиться на поиски приключений, то у вас нужная аудиокнига. Желаем вам попутного (   Читать дальше...   )Жанр: документальная литература, путешествияПродолжительность: 07:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C4EB42192F674651AC8C5BE3E2DA50977B5864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626154   (255228) от 13.04.2023
+
+VA - Luxury Bar Grooves Vol. 1 (2022) [MP3|320 Kbps] <Chillout, Downtempo, Balearic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aiemo - Only Illusion [03:44]
+02. Marco Moli - My Shelter [06:09]
+03. Guenter Haas - Mad Maren [03:47]
+04. Sunset Boulevard Project - Home Sweet Home [05:31](   Читать дальше...   )Жанр: Chillout, Downtempo, BalearicПродолжительность: 02:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967B0FE9154C43A029605F84C1C27EF0C7868D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626159   (255227) от 13.04.2023
+
+Emurasoft EmEditor Professional 22.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255227.jpg" />
+</div>
+
+
+###  Подробнее
+
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода. Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A9C5ACA91F9A8E5C88BC8B8DACCD2D2651FCB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626162   (255226) от 13.04.2023
+
+Кира Уайт | Точка. Книга 2 (2023) [MP3, Елена Вольт]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Место, ставшее мне домом, уничтожено. Погоня дышит в затылок. Но я не опускаю руки, потому что больше я не одна. Организация ARO не успокоится, ведь во мне скрывается ключ к решению главной проблемы. Психи становятся умнее, и в этом отчасти моя вина. Понимаю, что не смогу это исправить, но в решающий момент появляется призрачная надежда на спокойную жизнь. А прежде (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 09:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D21F8199BD99EA8BC09358F96DA3FCC97FD71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626157   (255225) от 13.04.2023
+
+VA - Luxury Bar Grooves Vol. 2 (2023) [MP3|320 Kbps] <Chillout, Downtempo, Balearic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - The Choice [04:35]
+02. Marco Moli - Give Me Dreams [04:48]
+03. Nexus 5 - No Sleep [04:53]
+04. Sunset Boulevard Project - Life´s on Hold [04:14](   Читать дальше...   )Жанр: Chillout, Downtempo, BalearicПродолжительность: 02:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70A658BEC684023F85AC2CFB3F985D00129DD60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626117   (255224) от 13.04.2023
+
+Солнце моё / Aftersun (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Софи вспоминает каникулы у моря, которые она провела с отцом двадцать лет назад, когда ей было 11. История взросления, сложные для подростка отношения с разведенным отцом, первый бунт, первая любовь и бесконечное счастье.Производство: Великобритания, США / BBC Film, British Film Institute (BFI), Screen ScotlandЖанр: драмаРежиссер: Шарлотта УэллсАктеры: Пол Мескал, Фрэнки Корио, Селия Роулсон-Холл, Салли Мессэм, Айс Парлак, София Ламанова, Бруклин Тулсон, Спайк Ферн, Гарри Пердиос, Фрэнк КориоПеревод: Дублированный (Paragraph Media), Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8186E59519215C0559DA21EC884BEB25EA7CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626217   (255223) от 13.04.2023
+
+Kaspersky Small Office Security 8.9 21.9.6.465 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Small Office Security обеспечивает комплексную защиту от различных видов информационных угроз, сетевых и мошеннических атак, а также спама. Для решения задач комплексной защиты в составе Kaspersky Small Office Security предусмотрены различные функции и компоненты защиты.Каждый тип угроз обрабатывается отдельным компонентом защиты. Вы можете включать и выключать (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F65DCE2251A78628AB898D7E03A6A9AAB3AA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626272   (255222) от 13.04.2023
+
+Foxit PDF Reader 12.1.2.15332 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foxit PDF Reader - профессиональное приложение для чтения PDF-файлов. Foxit PDF Reader обладает всеми необходимыми функциями для полноценного просмотра PDF-файлов. Программа поможет выбрать и скопировать содержание текста с файлов PDF, произвести поиск по тексту, оперативно распечатать документ. Есть поддержка Javascript и плагинов.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE47679FB93F2E3CC885A7982CCBE05297335A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575919   (255221) от 13.04.2023
+
+RustDesk 1.1.9 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255221.jpg" />
+</div>
+
+
+###  Подробнее
+
+RustDesk – программное обеспечение для удаленного рабочего стола, работает "из коробки", не требует настройки – отличная альтернатива TeamViewer и AnyDesk. Вы полностью контролируете свои данные, не беспокоясь о безопасности. Протокол и клиентская часть RustDesk доступны с открытым исходным кодом.
+Вы можете использовать публичный rendezvous/relay сервер (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2B7EECCFCE7C170B95EBB9B7AC1CFBB6CCBEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626250   (255220) от 13.04.2023
+
+Mailbird Pro 2.9.74.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mailbird - это простой, удобный и главное быстрый клиент электронной почты для вашего ПК. Mailbird упакован приложениями, функциями, горячими клавишами и обновлениями для оптимизации производительности, тем самым вы сможете сэкономить несколько часов в Вашем почтовом ящике.
+Интерфейс программы минимально прост, но красив. Слева представлены все папки и ярлыки вашего (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63256598E52930C17417F3DB937D5720E745FCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525749   (255219) от 13.04.2023
+
+Области тьмы / Limitless (2011) HybridRip [H.264/1080p-LQ] [Theatrical Cut] [Open Matte] [handmade remastered AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-йоркский писатель Эдди, желая преодолеть чёрную полосу в жизни, принимает засекреченный препарат под названием NZT. Таблетка выводит мозг парня на работу в нереальной мощности. Этот творческий наркотик меняет всю жизнь Эдди, за короткий срок он зарабатывает кучу денег, но скоро начинает страдать от зловещих побочных эффектов препарата. А когда пытается найти (   Читать дальше...   )Производство: США / Relativity Media, Virgin ProducedЖанр: фантастика, триллер, детективРежиссер: Нил БёргерАктеры: Брэдли Купер, Роберт Де Ниро, Эбби Корниш, Эндрю Ховард, Анна Фрил, Джонни Витуорт, Томас Арана, Роберт Джон Бёрк, Даррен Голдштейн, Нед ЭйзенбергПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5BB3AE7AB379B9863DC787EA6AA257B3FDA4CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626107   (255218) от 13.04.2023
+
+В России создали первую отечественную базовую станцию 5G
 
 >>3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для очистки компьютера от:
-- ненужных файлов, созданных в результате активной деятельности пользователя и системы;
-- неверных записей в реестре, оставшихся после удаления программ;
-Ускорение:(   Читать дальше...   )Язык интерфейса: Английский+русификатор
+Общий бюджет разработки составил 342 млн рублейПервая отечественная базовая станция пятого поколения связи (5G) разработана институтом "Сколтех" при поддержке Фонда НТИ. Планируется, что до конца 2023 года объем выпуска отечественной разработки составит 100 единиц, а несколько дружественных стран уже проявили интерес к разработке. Об этом ТАСС сообщили (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -663,23 +616,47 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 415019   (251597) от 12.05.2012
+###  Публикация: 1625620   (255217) от 13.04.2023
 
-Хорошая жена / The Good Wife (2011) (Сезон 3 полный, серии 01-22 из 22) WEB-DLRip [Newstudio]
+Counter-Strike Source v92 (2004) [Ru] (b6630498/pv24/v92) Repack twileck
 
->>
->>
+>>Win Игры
+>>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Благополучное существование Алисии Флоррик, счастливой жены и матери двух детей, было разрушено, когда её муж, чикагский прокурор Питер Флоррик, оказался в центре секс-скандала. Осуждённый за коррупцию Питер отправился в тюрьму, а на плечи Алисии легла забота о семье.
-
-Пришлось вспомнить свои навыки адвоката. Старый друг взял Алисию к себе в фирму - младшим сотрудником, (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Michelle King, Robert KingАктеры: Джулианна Маргулис (Алисия Флоррик), Крис Нот (Питер Флоррик), Джош Чарльз (Уилл Гарднер), Кристин Барански (Дайан Локхарт), Мэтт Зукри (Кэри Эгос), Арчи Панджаби (Калинда Шарма), Макензи Вега (Грейс Флоррик)Перевод: Двухголосый закадровыйФормат: aviПродолжительность: ~ 00:43:00 серия
+Counter Strike Source выпущена в 2004 году. Это продолжение легендарной серии CS. Огромное количество игроков являются поклонниками этой популярной серии. Принцип игры остался неизменным: Существуют две игровые команды: Спецназ и Террористы. Задача спецназа и террориста зависит от игровой карты, то ли освободить заложников, то ли заложить бомбу и т.д. Counter Strike (   Читать дальше...   )Тип издания: RepackРазработчик: Valve Corporation & Barking Dog StudiosЖанр: MMO Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B8A345811AF83FC8BE41B103E4ADCE3A6A2B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625959   (255216) от 13.04.2023
+
+Представлен 25-килограммовый ноутбук a-X2P — до 192 ядер AMD Zen 4, до 3 Тбайт DDR5 и шесть дисплеев
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mediaworkstations обновила конфигурацию монструозной портативной рабочей станции a-X2P — теперь она поставляется с двумя процессорами AMD EPYC 9654, что в сумме даёт 192 ядра и 384 потока, а также может предложить до 3 Тбайт оперативной памяти DDR5.Хотя подобный компьютер и можно считать ноутбуком, но всё же правильнее называть его портативной рабочей станцией. Производитель (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -691,51 +668,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466797   (251594) от 12.05.2012
+###  Публикация: 1626267   (255215) от 13.04.2023
 
-Подборка книг | "Женский детектив" (4631 книга) [2012] [FB2,DOC]
+Игорь Чиркунов | Пенсия для морского дьявола (2023) [MP3, Юрий Мироненко]
 
->>След.
->>Многоавторские серии и сборники
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Литературной мамой" детективного жанра считается Агата Кристи, но ее , по праву, можно назвать и создательницей новой разновидности детектива - женского, который "расцвел" в России во второй половине 90-х годов 20 века. Он оттеснил на второй план любовный роман, но при этом сохранил черты родового сходства с ним, т.к. наличие "любовной линии "- обязательное условие данного жанра.2012Жанр: Детектив, Триллер, Остросюжетный любовный романФормат: FB2,DOC
+Герой не был «падшим богом», «мега-магом, плевком тушащим звезды» или «крутым киллером» – обычный офицер спецназа ВМФ СССР, честно дослуживший до пенсии. И «попал» он, не в «магическую академию для боярЪских недоумков», а на тропический остров, к аборигенам. Не в «наследника рода», а в тощего паренька из презираемой здесь касты земледельцев…Жанр: Фантастика, попаданцыПродолжительность: 11:19:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE4484F4F2D3756294F56FEF85BFF41289D329FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493453   (251593) от 12.05.2012
-
-Image-Line - FL Studio 10.0.9c Signature Bundle by AIR x86[английский + русификатор]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251593.jpg" />
-</div>
-
-
-###  Подробнее
-
-FL Studio 10 - это законченное решение для создания музыки, версия является квинтэссенцией двенадцатилетнего вдумчивого развития. Всё для создания треков в одном пакете. FL Studio 10 самый быстрый способ воплощения идей. Что же может FL Studio 10? Обработка аудио включая редактирование питча, гармонизацию, подгонку материала под темп проекта, определение битов и продвинутая система нарезки аудио. Автоматизация интерфейса большинства плагинов и всех параметров посредством записи, рисования кривых автоматизации, использования генераторов автоматизации. FL может быть управляема с другой DAW, как VST, или подключена по ReWire. Идеальна для живых выступлений включая великолепную визуализацию и видео эффекты. Делайте миксы и ремиксы, используя эффекты как то дилей, ревер, фильтры и многое другие. Мультитрековая запись. Заливайте и управляйте MIDI с вашей клавиатуры или иных миди контроллёров. Уникальная в своём классе система аранжирования композиции и продвинутый секвенсор. FL может являться и хостом для ваших любимых (   Читать дальше...   )Язык интерфейса: английский + русификатор
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:5CAD27AF167A638EB09537FAF815A60BD4CF83D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

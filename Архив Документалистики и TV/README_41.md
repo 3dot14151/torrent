@@ -1,61 +1,3 @@
-###  Публикация: 990399   (912357) от 25.02.2016
-
-Футбол. Лига Чемпионов 2015-2016. 1/8 финала. Первый матч. ПСВ (Голландия) - Атлетико (Испания). (24.02.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912357.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 февраля 2016, среда. 22:45 МСК
-1/8 финала. 1-й матч
-
-Стадион: Филипс (Эйндховен, Нидерланды) , 34 948 зрителей (100 % при вместимости 35 119)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 01:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AE136791CE9027E9D612D55EA3600B43D87F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990348   (912352) от 25.02.2016
-
-Хоккей. КХЛ 2015-2016. Плей-офф. 1/4 финала - Восток. Сибирь - Адмирал. 2-й матч. (24.02.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912352.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 февраля 2016, среда. 16:30 МСК
-1/4 финала - Восток. 2-й матч
-
-Стадион: Сибирь (Новосибирск, Россия) , 7 400 зрителей (100 % при вместимости 7 400)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортПродолжительность: 02:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC26602F9968E13FC3E6C2B5C9203792558AC7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990296   (912347) от 25.02.2016
 
 Хоккей. КХЛ 2015-2016. Плей-офф. 1/4 финала - Восток. Салават Юлаев - Ак барс. 2-й матч. (24.02.2016) HDTVRip [H.264/720p-LQ]
@@ -175,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_912110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912110.jpg" />
 </div>
 
 
@@ -253,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_910838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910838.jpg" />
 </div>
 
 
@@ -309,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_910720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910720.jpg" />
 </div>
 
 
@@ -336,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_910719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910719.jpg" />
 </div>
 
 
@@ -709,6 +651,63 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13573F7657549930BF3EE000029837AB3CAA87A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098451   (909037) от 30.01.2017
+
+Фигурное катание. Чемпионат Европы 2017. Острава (Чехия). Мужчины. Произвольная программа (28.01.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909037.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 января 2017 года, суббота. 19:50 МСК
+Чемпионат Европы 2017. Острава (Чехия)
+Мужчины. Произвольная программа
+(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 03:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F67EF4A70AFB0C080E6F624535CA871F7ED58A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098443   (909036) от 30.01.2017
+
+Биатлон. Чемпионат Европы 2017. Душники-Здруй (Польша). Одиночная смешанная эстафета (29.01.2017) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909036.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 января 2017 года, воскресенье. 12:00 МСК
+Чемпионат Европы 2017. Душники-Здруй (Польша)
+Одиночная смешанная эстафета (Супермикст)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: 1. Русский,   2. ИнтершумПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A1AA2101A01185E6CCCB727BECECDDCBCBFAF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

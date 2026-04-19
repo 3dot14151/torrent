@@ -1,3 +1,58 @@
+###  Публикация: 1184364   (301295) от 17.11.2017
+
+Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз содержит выступления группы на фестивалях Rock Hard 2007, Live Factory 2008 и пару клипов (Thicker Than Blood, Dethroned (uncensored))Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:19:01+01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD1ECC41A3740A3C945E652B451C2B0750B18F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184338   (301180) от 17.11.2017
+
+Dio - Evil Or Divine (Live in New York City) (2003) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт группы Dio записанный в Roseland Ballroom (New York City) 13 декабря 2002 и выпущенный на DVD в июле 2013. Релиз содержит сам концерт, интервью, фото, закулисные съемки и видеоклип Push1. Killing The Dragon
+2. Egypt/Children of the Sea
+3. Push
+4. Drum Solo(   Читать дальше...   )Производство: Eagle VisionЖанр: Heavy Metal, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BA54F00B3178D99CAD3FB939FBAA77AFA5E4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960998   (301135) от 01.12.2015
 
 New Order, Live In Glasgow (2008) DVD9 + DVD5
@@ -681,61 +736,6 @@ Bill Frisell / Solos - The Jazz Sessions (2008) DVD5
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276467   (266810) от 30.12.2010
-
-Кен Хенсли / Ken Hensley With Live Fire / in concert Norway (2007) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Marco Arndt at Membran A&RЖанр: RockПеревод: ОтсутствуетЯзык субтитров: ОтсутствуетФормат: DVD9Продолжительность: 01:32:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191396   (264100) от 14.12.2017
-
-Gary Moore - The Definitive Montreux Collection (2007) 2хDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Уильям Гэри Мур (англ. Robert William Gary Moore) — ирландский гитарист, певец, автор песен. Внёс заметный вклад в развитие блюз-рока. С 14 лет играл на стандартных гитарах, то есть для правшей, несмотря на то, что от рождения Гэри — левша. Представлена коллекция выступлений Гэри Мура на Montreux Jazz Festival с 1990 по 2001 годDisc 1
-1990:
-1. Midnight Blues
-2. Texas Strut(   Читать дальше...   )Производство: США, Eagle VisionЖанр: Блюз, рокПеревод: ОтсутствуетСубтитры: Отсутствуют
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EBCCAEC02AD1EAAA32FB63C4F1C7BCEC8ABEE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

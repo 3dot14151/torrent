@@ -1,24 +1,22 @@
-###  Публикация: 206208   (715863) от 01.05.2017
+###  Публикация: 892084   (719069) от 26.04.2015
 
-Апокалипсис / Апокалипто / Apocalypto (2006) [H.264/720p-LQ] BDRip
+Оз: Нашествие летучих обезьян / Guardianes de Oz (2015) BDRip [H.264/1080p] [Line]
 
->>След.
->>Зарубежные Фильмы (HD, FHD)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В фильме показана жизнь цивилизации майя до прихода испанских конкистадоров: жестокие войны с соседними племенами, человеческие жертвоприношения, загадочные мистические ритуалы.
-
-В один день рушится мир индейца по имени Лапа Ягуара. Его деревню захватывает соседнее племя, уничтожая хижины, забирая местных жителей в плен. Его ведут в город, чтобы принести в жертву (   Читать дальше...   )Жанр: Боевик, Драма, ПриключенияРежиссер: Мэл Гибсон.Актеры: Руди Янблад, Далия Эрнандез, Джонатан Брюэр, Моррис Бердйеллоухэд, Карлос Эмилио Баез, Рамирез Амилкар, Израэл Контрерас, Израэль Риос, Мария Изабель Диаз, Эспиридион Акоста Кэш и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 02:18:19
+Вы помните, как все начиналось? Давным-давно в страну Оз прилетела юная героиня, ее звали Дороти, она смогла победить Коварную Ведьму Запада и добрая волшебница Глинда помогла ей вернуться домой. А друзья Дороти — Страшила, Железный Дровосек и Смелый Лев — стали правителями страны Оз. И все в волшебной стране было хорошо, пока Глинда по своей доброте не решила дать (   Читать дальше...   )Производство: Индия, Мексика, Anima Estudios, Discreet Arts ProductionsЖанр: Мультфильм, Фэнтези, ПриключенияРежиссер: Альберто МарАктеры: Рауль Араиса, Раймундо Армихо, Ямил Атала, Бруно Коронел, Магда Хинер, Себастьян Льяпур, Мойсес Иван Мора, Лорето Пералта, Salvador Reyes, Хорхе Ван РанкинПеревод: Дублированный (Чистый звук)Продолжительность: 01:27:21
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:74B09C7CA4D0841863102D31565EB7CCE69B77EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130228   (715862) от 01.05.2017
+###  Публикация: 499800   (719067) от 26.04.2015
 
-RappaTools 3.41 [En]
+Забавные приключения Дика и Джейн / Fun with Dick and Jane (1976) DVD5
 
->>Мультимедиа и Графика
->>ПО для моделирования
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-RappaTools3 - это продвинутый инструментарий, который поставляется с большим разнообразием инструментов для художника, работающего в 3ds Max. Основное внимание уделяется ускорению рабочего процесса и сокращению количества кликов. Он предлагает широкий спектр инструментов, от инструментов выбора до инструментов рендеринга. Это может помочь вам в процессе создания (   Читать дальше...   )Язык интерфейса: Английский
+Дик и Джейн были обычной американской семьей среднего класса Америки. Дик работал в крупной аэрокосмической компании, а Джейн вела хозяйство и воспитывала сына. Они только что переехали в новый дом, и вдруг Дика увольняют с работы. Новой работы он найти не может и оказывается в очереди за пособием. За дом еще нужно выплатить 75 тыс. долларов. Джейн находит мало оплачиваемую (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: КомедияРежиссер: Тед КотчеффАктеры: Джордж Сигал, Джейн Фонда, Эд МакМахон, Ричард Готье, Аллан Миллер, Хэнк Гарсиа, Джон Денер, Уолтер Брук, Шон Фрай, Мэри ДжексонПеревод: Многоголосый закадровый (5-й канал СПб)Язык субтитров: Английские, французские, немецкие, итальянские, испанские, голландские, арабские, датские, финские, греческие, хинди, венгерские, исландские, норвежские, португальские, румынские, шведские, турецкиеПродолжительность: 01:31:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E85273F0841F48B2460AD840044BFC7303BB1DB9
+magnet:?xt=urn:btih:420AF8045C2DAD67E5CE00467E523BF58054C9D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,108 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130381   (715861) от 01.05.2017
+###  Публикация: 1285854   (719065) от 27.02.2019
 
-Персональный покупатель / Personal Shopper (2016) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая американка Морин, переехавшая в Париж, помогает знаменитостям подбирать наряды. С миром высокой моды она на ты. Её жизнь кажется мечтой, но всё усложняет паранормальная особенность — Морин умеет общаться с призраками.Производство: Франция, Германия / Arte France, arte France Cinma, Canal+Жанр: Триллер, Драма, ДетективРежиссер: Оливье АссайасАктеры: Кристен Стюарт, Ларс Айдингер, Сигрид Буази, Андерс Даниелсен Лье, Хамму Грайа, Нора фон Вальдштеттен, Бенжамин Биолэй, Одри Бонне, Паскаль РамбертПеревод: Профессиональный (многоголосый закадровый) (iTunes)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B4F50B86C5684FC0ECCD3B1E814503F657C342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130189   (715860) от 01.05.2017
-
-Windows 10 PE (x86/x64) v.4.9.2 by Ratiborus [Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009B131F0BC3D7A50F8CC13B49D083E9AF62CC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130492   (715859) от 01.05.2017
-
-Fear of Clowns (2017) [En] (1.01) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оно: Кошмар из прошлого - Игра в жанре ужасов от первого лица.
-"Ты проснулся посреди ночи от звонка в дверь своей квартиры.
-Кто же это может быть в столь поздний час? Ведь ты никого не ждал...
-Может ошиблись адресом? А может... Кто-то захотел поиграть с тобой?(   Читать дальше...   )Тип издания: RepackРазработчик: Mikhail NevskyЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA86D8C7D5ACC0B13265285FEBF2E114E910DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219281   (715858) от 13.04.2018
-
-Quirke - Whities 015 (2018) Whities [FLAC|Lossless|WEB-DL|tracks] <Techno, Illbient>
+VA - Digi Beat Ltd - Love Electronic Music (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vatied City (04:06)
- 02. ttransport craving (03:58)
- 03. Hydraulic Deer (05:28)Жанр: Techno, IllbientПродолжительность: 00:13:32
+01. Dj Amnesia - Maasi 03:18
+02. Dj President - Henderson 02:06
+03. Dj Amnesia - Mina 03:10
+04. Dj Amnesia - Mukuru 03:02(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:05:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B3B9268B72F9E25B23E22341CA1B801C5C96850
+magnet:?xt=urn:btih:32CCEBBD86CEC003339FB136AF5B6F9A9FA85354
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -161,392 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219171   (715857) от 13.04.2018
+###  Публикация: 1285721   (719064) от 27.02.2019
 
-VA - Markus Schulz - Global DJ Broadcast: Top 20 April (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick White - Reason (Extended Mix)
-02. Arkham Knights - Existence (Extended Mix)
-03. Elevation - Meridian (Extended Mix)
-04. Dark Matter - Future Sight (Extended Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1690848766C9A76776ABEF20B59D540D23ADE141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219157   (715856) от 13.04.2018
-
-Simon Cummings - 間 (2018) Crónica [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experimental, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. mightily forgetting all which will forget him (emptying our soul of emptiness) priming at every pore a deathless life with magic until peace outthunders silence (06:36)
- 02. }rest{ (05:10)
- 03. i see thee then ponder the tinsel part they let thee play (01:45)
- 04. from Silence; of Nothing (16:00)(   Читать дальше...   )Жанр: Abstract, Experimental, AmbientПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C351D82482FEC52D01B894D74B130DE8AC90511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219183   (715855) от 13.04.2018
-
-VA - Markus Schulz & Dennis Sheperd - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz
-01. Cosmic Gate and Super8 & Tab - Noom (Estiva Remix)
-02. Dylhen - Brouhaha (World Premiere)
-03. Ferry Corsten & DIM3NSION - Safe with Me(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DC380DD3EA3AA4CD14B3882F1F46F7F1A5C73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024667   (715854) от 09.06.2016
-
-Be Focused Pro (aka Pomodoro Time Pro) 1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Be Focused Pro - Создание задач, настроить перерывы и отслеживать ваши успехи в течение дня, недели или произвольный промежуток.
-«Помидорная техника» планирования В основе этой методики лежит принцип 25 минутной работы без прерываний. Но через 25 минут вы обязаны прерваться на 3-5 минут.
-Be Focused Pro: Сосредоточьтесь на производительности. Be Focused Pro поможет (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 апреля 2016Разработчик: Denys YevenkoПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25636E62E46E82F523CEE6C7F921AFC68A443720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219163   (715853) от 13.04.2018
-
-Н.В. Скоробогатько | Райская Лилия: Рассказы о Пресвятой Богородице для семейного чтения (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное иллюстрированное издание содержит описание земной жизни Пресвятой Богородицы, молитвы Божией Матери с пояснениями.
-
-При составлении книги использовалось 2-е издание труда С. Снессоревой «Земная жизнь Пресвятой Богородицы и описание чудотворных Её икон, чтимых Православною Церковью», подготовленного на основании Священного Писания и церковных преданий» (СПб., (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FF23A11ECD8700D6D60A8524511BC37C518703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024487   (715852) от 09.06.2016
-
-Г. Щербо (ред.) | Салаты. Как оформить, как подать (2016) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый повар в душе художник, но вместо холста у него - готовое блюдо, а краски и кисти заменяют разнообразные продукты, из которых получаются аппетитные картины. Салаты и закуски встречают гостей вместе с вами. Они красуются на столе, ими любуются, предвкушая изысканный ужин. Опытные хозяйки знают, что первое впечатление нельзя произвести во второй раз, поэтому (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A726BCDF7E866D118CD1A075B992AC1DC893F4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219261   (715851) от 13.04.2018
-
-Wise Registry Cleaner Pro 9.5.5.625 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E32DCF9AE06CD2BF9213EE5491E99A1792E2885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219234   (715850) от 13.04.2018
-
-Thyladomid - Interstellar Destiny (2015) Diynamic Music [FLAC|Lossless|tracks+.cue] <Deep House, Psychill, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intergalactic Spring (01:17)
-02. Generation Y (03:47)
-03. Brotherhood (06:55)
-04. Inner Space (05:50)(   Читать дальше...   )Жанр: Deep House, Psychill, AmbientПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58904E433E89F49239F34DB859C8EBE527FBC938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219274   (715849) от 13.04.2018
-
-AudioGrail 7.11.0.214 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715849.jpg" />
-</div>
-
-
-###  Подробнее
-
-KC Softwares AudioGrail - набор программ для работы с аудиофайлами в форматах MP3, OGG, MPC, APE, AAC, FLAC, WavPack и некоторыми другими. Позволяет автоматически переименовывать и сортировать файлы, редактировать теги по разным признакам, анализировать качество, нормализовать звук и т.д.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4D43326FA2BB7F9836A9B081E0E4D6402A862C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023947   (715848) от 09.06.2016
-
-eMail Address Extractor 1.9.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715848.jpg" />
-</div>
-
-
-###  Подробнее
-
-eMail Address Extractor - ищем и извлекаем email адреса
-eMail Address Extractor - приложение помогает извлекать корректные email адреса электронной почты, практически из любого текстового файла, при этом не требуется никаких настроек.
-
-Просто перетащите файл на главное окно приложения, выберите формат выходного файла и быстро получите список всех email адресов без (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06 июня 2016Разработчик: SweetPProductionsПоддерживаемая ОС: OS X 10.7.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C4294CE917F42BA46B970ACA4EC096439A9B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219175   (715847) от 13.04.2018
-
-VA - Black Hole Trance Music 04 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & JES - If Not Now (Extended Club Mix)
-02. Ferry Corsten & Paul Oakenfold - A Slice Of Heaven (Extended Mix)
-03. ACAYA - Evermore (Extended Mix)
-04. Dave Neven - Meraki (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56F1CED2AA7FA4712DB9FBD0BB62D34B04E7993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219292   (715846) от 13.04.2018
-
-VA - After Work Chillout Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Makia Blue - Thought Carousel [04:22]
-02. Dyodho - Eternity (extended Chillout mix) [07:30]
-03. The Big Break Lounge - Beautiful Time [04:52]
-04. Heisenwerk - Maximum Chillout [03:49](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D66DDAA8977BA316281F31E2A99CEEAEFA2A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219242   (715845) от 13.04.2018
-
-ActivePresenter Professional Edition 7.2.2 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715845.jpg" />
-</div>
-
-
-###  Подробнее
-
-ActivePresenter — программа для создания презентаций и интерактивных обучающих видеоуроков. С помощью её вы сможете осуществлять захват изображения с экрана и сохранять эту информацию в различные форматы файлов. Весь процесс записи происходит в режиме реального времени.
-Для максимального удобства в программе есть возможность создания интерактивного оглавления. С (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D961EE94D02483E688C2BF6D89ED82ED17C40B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219221   (715844) от 13.04.2018
-
-VA - Progressive & Psy Trance Pieces Vol. 20 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Psy-Trance>
+Side Liner - No Vember (2019) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Trip Hop, Downtempo>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Symphonix - Body Effect
-02.No Comment - Ooga (Christopher Lawrence Remix)
-03.Ghost Rider - Shamanic (Hyperflow Remix)
-04.Metronome - Sadhana (Twodelic Remix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Psy-TranceПродолжительность: 02:16:37
+01. Side Liner & Kerensa Stephens - That Beautiful Somewhere (Eguana Piano Remix) (04:50)
+02. Side Liner - No Vember (08:09)
+03. Side Liner - 56 (07:59)
+04. Maluns - Bloodline Hunter (Side Liner Remix) (07:49)(   Читать дальше...   )Жанр: Chill Out, Trip Hop, DowntempoПродолжительность: 01:02:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA2667372263BD655DD754FBD22B9D9B66F4C1A3
+magnet:?xt=urn:btih:ED3EB200FE1DF13E02200A2E4D5B3B2AEB83011C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,28 +108,257 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219296   (715843) от 13.04.2018
+###  Публикация: 1285833   (719063) от 27.02.2019
 
-VA - Melodious Chill Vol.1 (2018) [MP3|320 Kbps] <Chillout, Lounge>
+VA - Pure Energy Records Vol. 1 (Incl.Exclusive Mixed by Trance Arts) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Chloe Langley - Bring You Home (Ronski Speed Remix Edit)
+02. Nektarios with Kirsty Hawkshaw - Dawn (Cold Blue Remix Edit)
+03. Trance Arts & Hysteria! - Heaven In Disguise (Progressive Edit)
+04. Kirsty Hawkshaw & One Vision - Nostra Terra (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D190448CD3C6E6F9F0345CA3C6C9088A5B67988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285813   (719062) от 27.02.2019
+
+Voin Oruwu - Etudes From A Starship (2019) Kvitnu [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, IDM, Leftfield>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titan (02:14)
+ 02. Rising (03:12)
+ 03. Blur Planet (04:35)
+ 04. Source (02:12)(   Читать дальше...   )Жанр: Experimental, Ambient, IDM, LeftfieldПродолжительность: 00:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753B54A9A3B0D45A9B903DFE41093DBF76A2D2A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285763   (719061) от 27.02.2019
+
+Kinza Browser 5.3.1 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kinza Browser - японский браузер на базе Chromium с дополнительными настройками, такими как жесты мышью, супер перетаскивание, управление поведением вкладок, многофункциональная боковая панель (закладки, RSS, история).Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28342A79856FABE425AE4429F3AA85E068E3858D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285626   (719060) от 27.02.2019
+
+VA - LNG Music: Nick Skitz - Skitzmix 55 (2019) [MP3|320 Kbps] <House, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Skitz - Skitzmix 55 (Continuous Mix 1)
+02. Nick Skitz - Skitzmix 55 (Continuous Mix 2)
+03. Nick Skitz - SM55 Megamix
+04. Rocco - Everybody (Rob & Chris Edit)(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 05:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DE0DC230334BA52C3EC4C6F370BF2165509D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285647   (719059) от 27.02.2019
+
+Чемпионат мира по лыжным видам спорта 2019. Инсбрук-Зеефельд (Австрия). Лыжное двоеборье. Личное первенство по системе Гундерсена (2019) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719059.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 февраля 2019 года, пятница. 12:30 МСК
+Чемпионат мира по лыжным видам спорта 2019. Инсбрук-Зеефельд (Австрия)
+Лыжное двоеборье:
+1. Прыжки с трамплина. Большой трамплин  К-130(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:12:13 - 01:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B597943BBAA5F30D6E7B92ACBEF27557C0F3267C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285661   (719058) от 27.02.2019
+
+Чемпионат мира по лыжным видам спорта 2019. Инсбрук (Австрия). Прыжки с трамплина. Мужчины. Трамплин К-130. Квалификация (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719058.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 февраля 2019 года, пятница. 16:30 МСК
+Чемпионат мира по лыжным видам спорта 2019. Инсбрук (Австрия)
+Прыжки с трамплина:
+Мужчины. Большой трамплин К-130. Квалификация(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5256FB4686C7169F3F8CD6DCB983F4D784D72E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285746   (719057) от 27.02.2019
+
+VA - Ballermann on Snow - Apres Ski Hits 2019 Schlager (Party Kracher zum Feiern beim Karneval und Fasching) (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matty Valentino - Hurra die Gams
+02. Axel Fischer - Bella Ciao (Apres Ski Hits 2019 Schlager Mix)
+03. Partynator - Mama Laudaaa
+04. Ingo ohne Flamingo - Saufen morgens, mittags, abends(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 05:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453EAF4512FDAB65CA3BFB23B72034BCDF1D46B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285658   (719056) от 27.02.2019
+
+Чемпионат мира по лыжным видам спорта 2019. Инсбрук (Австрия). Прыжки с трамплина. Мужчины. Трамплин К-130. Квалификация (2019) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719056.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 февраля 2019 года, пятница. 16:30 МСК
+Чемпионат мира по лыжным видам спорта 2019. Инсбрук (Австрия)
+Прыжки с трамплина:
+Мужчины. Большой трамплин К-130. Квалификация(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F87AFECDBA7B43DC805F4D2EABD6AC9F0D055E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285451   (719055) от 27.02.2019
+
+VA - German Top 50 Party Schlager Charts 25.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kate-Margret - Cool Me Down
-02. Flunk - Petrified (Original Mix)
-03. Diamans - Echo (Original Mix)
-04. Seven24 & Soty Feat. Maria Opale - Don't You Cry (S.A.T Remix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:09:36
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Roland Kaiser - Stark(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E034B5528B7E2A7EDF6BFDAD3C11513F0234CDC8
+magnet:?xt=urn:btih:1A1B1BE63885ABCEECE6D175A0C6F5F5BDE4643B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,23 +366,327 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024602   (715842) от 09.06.2016
+###  Публикация: 1285766   (719054) от 27.02.2019
 
-Интересные факты. Выпуск 14 - Топ-15 малоизвестных и весьма занимательных фактов про свет
+Vivaldi 2.3.1440.57 Portable by Cento8 [Ru/En]
 
->>Поговорим
->>А знаете ли вы..
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специальный проект NNM-Club
-Интересные факты. Выпуск 14
-Топ-15 малоизвестных и весьма занимательных фактов про светО том, что жизнь на Земле возможна благодаря солнечному свету, знают, пожалуй, даже ученики младших классов. При этом далеко не многие взрослые знают об интереснейших фактах, которые связаны со светом, а многие сложные явления объясняются именно его (   Читать дальше...   )
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF0B644C5EA973E7B1700D690AA24818587FFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285644   (719053) от 27.02.2019
+
+VA - New Music Releases Week 8 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719053.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam Lambert - Feel Something
+002. Aldous Harding - The Barrel (Radio Edit)
+003. Alex Cuba - Yo No Sé
+004. Alma - Starlight(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 15:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015E8997896EA759A115BBACBDF73EBF6BE71BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285662   (719052) от 27.02.2019
+
+VA - Auralization (Mixed by OzzyXPM) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OzzyXPM - Khaleesi (Continuous Mix Version)
+02. Christian Monique - Take Me (Continuous Mix Version)
+03. Arctic Lake - Limits (Aurosonic Progressive Mix - Continuous Mix Version)
+04. Ataberk Onal - Smyrna (Continuous Mix Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D59425295DD5E8BAB4E02CEA6837322C50EBF771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285821   (719051) от 27.02.2019
+
+Random Fluctuations - Skyscraper (2019) Hybride Sentimento [FLAC|Lossless| Vinyl|tracks] <IDM, Techno, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natural (07:57)
+ 02. Phemal (06:33)
+ 03. Formal (09:58)
+ 04. Krotom (04:19)Жанр: IDM, Techno, AmbientПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754E9024C9DA647B4E2BF5562B3483427E1DBAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285666   (719050) от 27.02.2019
+
+VA - Uplifting Trance Sessions Vol.12 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tizer - With Got To Stars (Original Mix)
+02. Miroslav Vrlik - Coming Home (Extended Mix)
+03. Andy Kern - Float Away (Original Mix)
+04. Andy Blueman - Beyond The World We Know (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD453FF922FE08308C17C45B45CDB012289B3EB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285768   (719049) от 27.02.2019
+
+Opera 58.0.3135.79 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C927637430E6CCCA73C89D54FD41D7D74B321D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285674   (719048) от 27.02.2019
+
+Seasonality Core 2.6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seasonality Core - превращает ваш Mac в домашнюю метеостанцию, показывая вам, прогноз погоды с использованием спутниковых и радиолокационных изображений, с помощью которых вы сможете посмотреть облачность и где идет дождь или снег. Также можно посмотреть погоду на следующие 7 дней. Вы можете следить за погодой не только в вашем городе, но и по городам всего мира. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.02.2019Разработчик: Gaucho Software, LLC.Поддерживаемая ОС: macOS 10.7.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD929D7A96B48C962B7B67176A3C1152E76D443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285685   (719047) от 27.02.2019
+
+WinUtilities Professional Edition 15.48 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719047.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinUtilities - системный набор для настройки вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:235FFF48CB8122B0CA8AFC5B7A585D63C9F40885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285645   (719046) от 27.02.2019
+
+Журнал | Это вкусно! №1-2 (2019) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинарное приложение к журналу «Единственная» предлагает изысканные блюда для любителей приготовить что-то необычное и быстрые рецепты для тех, кто не любит долго стоять у плиты, десерты для сладкоежек и низкокалорийные блюда для желающих сбросить несколько лишних килограммов. Рецепты сопровождаются поэтапным описанием приготовления блюда и проиллюстрированы качественными (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D38B699C36D1181F913DA5DF02469A4EC6BD18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400458   (719038) от 05.08.2020
+
+VA - The 90s Music Generation Playlist (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mighty Metal Gods - One (07:54)
+02. Knightsbridge - Living on My Own (03:37)
+03. Knightsbridge - Miracle (04:53)
+04. Groovy-G - Fly Like an Eagle (04:16)(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C259483B93E5AAEE1C426CD283B2A358985D0AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399978   (719036) от 05.08.2020
+
+VA - Ibiza Lounge (2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lukas Grinys - Birds'n'Blues [06:12]
+02. Mizt3r - Close To You [05:31]
+03. Oris de Cueva - Amazon (Delacombe Playa Remix) [09:49]
+04. Lukas Grinys - Papers [06:09](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC1947E3444BDA1BAAD9D9023E11CFEBD561D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 208224   (719035) от 07.06.2010
+
+Привидение (Призрак) / Ghost (1990) [H.264] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_719035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Счастливая парочка возвращается домой после вечера в театре. На тёмной аллее на них нападает грабитель… Защищаясь, Сэм погибает. Теперь он только призрак, но всё еще может помочь своей возлюбленной! Сэм-привидение узнаёт, что его смерть не была случайной, а над Молли нависла смертельная опасность! Но для Молли он теперь «человек-невидимка», которого она не видит и не слышит. Как предупредить её об опасности?
+
+Единственный способ связаться с Молли и передать ей важное сообщение — воспользоваться сверхъестественными способностями неопытной женщины-медиума по имени Ода Мэй Браун. Ода не уверена в своих силах, но очень хочет помочь…Жанр: Триллер, Фэнтези, Комедия, Мелодрама, Драма, ДетективРежиссер: Джерри Цукер.Актеры: Патрик Суэйзи, Деми Мур, Вупи Голдберг, Тони Голдуин, Стэнли Лоуренс, Кристофер Дж. Кин, Сьюзен Бреслау, Мартина Дэйнан, Рик Клебер, Мэка Фоли и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 02:06:39
 
 ## Скачать торент
 ```bash
@@ -611,103 +698,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024715   (715841) от 09.06.2016
+###  Публикация: 207975   (719033) от 07.06.2010
 
-Display Driver Uninstaller 16.0.0.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, или когда нужно тщательно удалить драйверы видеокарты. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1607B4D3C3B43B0800A4FFA1AEC81CC64FFC77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024749   (715840) от 09.06.2016
-
-Проекты - VideoHive - Royal Exhibition [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото галереи. Идеально подойдет для семейного альбома, фото воспоминаний, память о свадьбе и многое другое.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618DAE686897148F6F558C1FEA3A6740147633AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024426   (715839) от 09.06.2016
-
-Стальная граница / Steel Frontier (1995) DVDRip [H.264] [AVO]
+13-й воин / The 13th Warrior (1999) DVDRip
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_719033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мир, каким мы его знали, был уничтожен. Колония выживших выстраивают новую жизнь. Их колония называется Новая Надежда, место где отчаяние превратилось в надежду. Группа бывших солдат, возглавляемая генералом Куантрелом, пересекает пустыню и захватывает Новую Надежду силой. Они убьют любого, кто не присоединится к ним, и возьмут всех женщин в рабство. И тут в городе (   Читать дальше...   )Производство: США / PM Entertainment Group Inc.Жанр: Фантастика, БоевикРежиссер: Джекобсен Харт, Пол Дж. ВолкАктеры: Джо Лара, Бо Свенсон, Стэйси Фостер, Брайон Джеймс, Кэйн Ходдер, Джеймс С. Виктор, Билли Л. Салливан, Брайан Хукиба, Джим Коуди Уильямс, Роберт О’РейлиПеревод: Авторский (А. Алексеев)Субтитры: ОтсутствуютПродолжительность: 01:37:12
+Ахмед Ибн Фадлан, придворный поэт, был изгнан из двора халифа за подозрение в адюльтере и отправлен послом на север. Караван, с которым путешествует Ахмед, подвергается нападению татар и после погони оказывается прижатым к реке. Неожиданно появившийся корабль викингов, спасает всех от неминуемой смерти. Ахмед и Мельхиседек прибиваются к кораблю викингов во главе (   Читать дальше...   )Жанр: Боевик, Фэнтези, ПриключенияРежиссер: Джон Мактирнан, Майкл Крайтон.Актеры: Антонио Бандерас, Омар Шариф, Владимир Кулич, Дэннис Сторхой, Миша Хауссерман, Клайв Рассел и др.Перевод: ДублированныйПродолжительность: 01:42:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:513163CAA239DFC237F76971E502636BB9510089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024616   (715838) от 09.06.2016
-
-Aiseesoft Video Converter Ultimate 9.0.20 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889B9068C6765206999988E067AA9427DA69ED64
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

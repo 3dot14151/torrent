@@ -1,3 +1,32 @@
+###  Публикация: 1023707   (719727) от 07.06.2016
+
+Brad Fiedel - The Terminator (Original MGM Motion Picture Soundtrack) (2016) Milan / Remastered [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Main Title 	2:40
+02. 	Terminator Arrival / Reese Chased / Sarah On Motorbike 	7:09
+03. 	Terminator Gets Guns / Search For Sarah 	1:13
+04. 	Reese Dreams Of Future War 	1:51(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671CE556654B703612F6A1D3D64EE453E1CC19AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530463   (718648) от 17.02.2022
 
 Anne Dudley - Искушение / Benedetta (2021) [MP3|320 Kbps] <Score>
@@ -713,35 +742,6 @@ VA - The Nice Guys / Славные парни (Original Motion Picture Soundtra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D61DD6A0689687CF3CA7132470A89EA9FE3FA35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027961   (692964) от 21.06.2016
-
-Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vietnam War IV (01:41)
-02. Trials of the Blood Dragon (03:37)
-03. Bullet Proof (01:51)
-04. Punch! (02:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4154764632BE58EDD4AF5ABACB35180B625C5C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

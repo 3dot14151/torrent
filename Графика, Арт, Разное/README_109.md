@@ -1,3 +1,29 @@
+###  Публикация: 1328302   (365365) от 29.09.2019
+
+Cyberpunk [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка картинок на тему киберпанкФормат: JPGРазрешение файлов: 1920x1080-10000x5625
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A1513F580821D25E79BDAED00D48B1C1475D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950851   (365346) от 28.10.2015
 
 Обои - Fantastic Wallpapers  Big Pack 1 [JPG]
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C167B54EA6DA8E6730C798F0971D8A55F2CAC7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952093   (358444) от 31.10.2015
-
-Обои - Любовь. 1920x1080 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему любвиФормат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE721BA7C9D9A0E4657B84729AC7C1808A8DC6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

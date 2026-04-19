@@ -1,3 +1,205 @@
+###  Публикация: 1041233   (583406) от 08.08.2016
+
+Vigilante 8 - 2nd Offense (2000) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип основан на основе оригинального образа игры01. V8 Theme
+02. V8 Theme (Remix)
+03. Chassey's Chase
+04. Convoy Country(   Читать дальше...   )Жанр: OSTПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3613831C9FC1A570956963092685F8F8CE6AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358801   (583103) от 05.07.2011
+
+Mel Sutton - Golden Dream (1995) [MP3|160-256 kbps]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583103.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Golden Dream (6:09)
+2. Eternal (7:12)
+3. Calm Before the Storm (9:16)
+4. Tempest of Peace (8:02)
+5. The Valley (8:43)
+6. Creation of Silence (6:15)Жанр: New age, RelaxПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62A08144546C8E49B542CADA075A96395375E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919678   (582944) от 19.07.2015
+
+Golana - Meditations for Two (2014) [MP3|320 кб/с]<New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditations For Two
+02. A Walk On The Beach
+03. Prayer For Our People
+04. Star Filled Sky(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE086DB00269F3C630F39DF15391F1D9F0103F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918644   (582851) от 19.07.2015
+
+VA - Cab Canavaral - Electro Swingster (2015) [MP3|320 кб/с]<Electro Swing, Broken beat, House, Electronic>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Swing Towers - Mr Saxo Phone (4:55)
+02. 5 In Love - Swing What You Got (extended Cab Canavaral remix) (4:07)
+03. Cab Canavaral - Missing Link (5:22)
+04. 5 In Love - Bubba Don't Forget Your Rubber (Cab Canavaral remix) (3:25)(   Читать дальше...   )Жанр: Electro Swing, Broken beat, House, ElectronicПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52856031F7F6A4B619E0AA1E36F8226EC55B2553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357764   (582664) от 05.07.2011
+
+Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 05:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCCF0FB945BA482625C8DBB21FFEC05A544BAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041510   (582423) от 09.08.2016
+
+Mike Pachelli - Acoustic Painting (2004) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally, Sun - 4:04
+02. Let The Children Frolic - 2:04
+03. Acoustic Painting - 4:02
+04. Young King David - 3:32(   Читать дальше...   )Жанр: Contemporary Jazz, Instrumental GuitarПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8BD8F26E77C8E03BF52637F40D951F3A6D6175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041521   (582244) от 09.08.2016
+
+Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Picture Score) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Task Force X (04:53)
+02. Arkham Asylum (03:24)
+03. I'm Going To Figure This Out (01:42)
+04. You Make My Teeth Hurt (02:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7824935393EF7E3F596AEDEBEC95B23B8B952C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041523   (582178) от 09.08.2016
 
 Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Picture Score) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack, Score>
@@ -539,214 +741,6 @@ VA - Romantic & SAX (2011) [MP3|320 kbps]<Instrumental / saxophone>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFD8EAF296C8490010521E5F9FE296BB20DFD790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234072   (574417) от 03.07.2018
-
-Deep Forest, Gaudi - Epic Circuits (2018) [MP3|320 Kbps] <New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellar (04:50)
-02. Taiyo (05:21)
-03. Brassy Sunrise (06:01)
-04. Ghostly Disco (05:16)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BEE267885DFF2B710F0E677FE589CFEFE5834F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233878   (574254) от 03.07.2018
-
-Shinnobu - The Enigma V (Masterminds) (2018) [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of His Eyes the Peace V (7:05)
-02. After of Your Life (6:34)
-03. Mea Maxima Culpa (6:24)
-04. The Man V (9:33)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26EC4359CF115E8443CF54FA85531C5A276570AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921823   (573699) от 26.07.2015
-
-Catherine Duc - Voyager (2015) [MP3|320 кб/с]<New Age, Ambient, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Owen's Boat
-02. Inishowen Dawn
-03. Vardo
-04. Mantra(   Читать дальше...   )Жанр: New Age, Ambient, CelticПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5408E3A8BE17A9659E2AD7BDECB020C09BF7143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921611   (573592) от 26.07.2015
-
-Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573592.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Parameshwara Mantra (Deep in Love) - 14:03
-2. Sarveshaam Mantra - 6:37
-3. Ganapati Mantra (Strong My Roots) - 7:20
-4. Karuna - 4:38(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A941B857E4FAA4506D831795656F682C5C866C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920759   (573573) от 26.07.2015
-
-Andrew Lockington - Землетрясение в Сан - Андреас / Разлом Сан-Андреас / San Andreas: Original Motion Picture Soundtrack (2015) [FLAC|tracks+.cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Andreas Main Theme (1:42)
-02. Natalie's Rescue (5:17)
-03. Caltech (2:06)
-04. Divorce Papers (3:28)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A5E1D27C772AE4E142AE7A574C61E89C4BC42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527922   (573300) от 28.07.2012
-
-X Cultures - One World, One People (1999) [MP3|320 кб/с]<New Age, Ethnic, Folk, Trans-Global Mix>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573300.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Welcome To Crossing Cultures
-2. Dreams of Happiness
-3. Sufi Mali
-4. Baganda / Dance Of Life
-5. Temptations
-6. Sudanese Dance
-7. Waterfalls
-8. One World One People
-9. Larissa
-10. Free Your Mind(   Читать дальше...   )Жанр: New Age, Ethnic, Folk, Trans-Global MixПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A171A0C7A8B4E93EE8A94CAA344ECFA7210C3078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303446   (572750) от 21.05.2019
-
-Ilyin - EP-0002. Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572750.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Faith
-2. Conscience
-3. WordЖанр: Instrumental, Neo-Classic, MetalПродолжительность: 00:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE38AEB34C5FB197F2665D5E2B402EACC2097AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

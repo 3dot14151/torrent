@@ -1,3 +1,212 @@
+###  Публикация: 396399   (437174) от 03.09.2019
+
+Anthony Ventura - Je t'aime - Traum-Melodien  (1973-1982) 10 CD [FLAC|Lossless] <Instrumental | Easy Listening>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернер Беккер (таково настоящее имя Энтони Вентуры) родился в Германии 4 декабря 1943 года. Музыка всегда была его главным увлечением, и тогда, когда он был учеником наборщика в типографии, и позднее, когда он стал работать художником-оформителем. В 1965 году он бросает все занятия и начинает карьеру музыканта. Долгое время Вернер выступал с различными ансамблями (   Читать дальше...   )01. Ne me quitte pas (3:32)
+02. La mer (2:18)
+03. Je l'aime a mourir - Les feuilles mortes (5:05)
+04. J'ai oublie de vivre - La maladie d'amour (5:29)(   Читать дальше...   )Жанр: Easy Listening, Instrumental, Hammond OrganФормат: FLAC (image + cue)Продолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767C8424EBE3154DECCC8FB7F55B004C9BCF949C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062942   (436935) от 15.10.2016
+
+Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436935.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Maybe Pain Can Save Us (03:03)
+02. Cerca Trova (03:18)
+03. I'm Feeling A Tad Vulnerable (02:09)
+04. Seek And Find (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2964D54A43DAD3E9B01D83AE4560B9EF69BD01A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062938   (436793) от 15.10.2016
+
+Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe Pain Can Save Us (03:03)
+02. Cerca Trova (03:18)
+03. I'm Feeling A Tad Vulnerable (02:09)
+04. Seek And Find (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBECEF838F5DACCE1FE811C420C9E2E55BAF499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554754   (436250) от 01.10.2012
+
+Blonker - Wellness (Musik Fur Die Seele) (1990) [FLAC|Lossless]<Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sidewalk Cafe
+02. Amazonas
+03. Fantasia
+04. In Balance
+05. Time To Remember
+06. Dragon Fly
+07. Morning Breeze
+08. Merlin
+09. Anak
+10. Inspired(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410426   (436080) от 21.09.2020
+
+VA - Still Like a Stone Structure: Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kurt Tepperwein - Dreaming Guitar (Long Version) (09:59)
+02. SanSouci - Silence (09:58)
+03. Antiphon - The Great Attractor (09:52)
+04. B-Less - Inner Journey (09:52)(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 04:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B782E63589E489AA02C6C82583C31B3D63E9F424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943982   (435851) от 09.10.2015
+
+Garden Of Delight - Back in Ireland (2015) [OGG| 482-555 кб/с]<Alternative, Irish Folk Rock, Celtic Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vagabondtown
+02. Enisgo
+03. Red Back Sheep
+04. Moon on the Highway(   Читать дальше...   )Жанр: Alternative, Irish Folk Rock, Celtic RockПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E516B82FA41A5A1FF822563946B5AD15806C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944369   (435686) от 09.10.2015
+
+Armik - La Vida (2015) [FLAC|Lossless|WEB-DL]<Instrumental, Nuevo Flamenco, New Age, Spanish Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Vida (4:42)
+02. Nueva Luz (4:20)
+03. Guitarra del Amor (4:32)
+04. Unforgettable (4:27)(   Читать дальше...   )Жанр: Instrumental, Nuevo Flamenco, New Age, Spanish GuitarПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F12B8FE323B475DD07C0E16AB0C926DB101470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944366   (435676) от 09.10.2015
 
 The Smooth Ballroom Band - All Time Favorites: Saxophone Lounge (2015) [MP3|256 кб/с]<Instrumental, Sax, World>
@@ -542,211 +751,6 @@ VA - Overwatch (Original Soundtrack) (2016) [FLAC|Lossless|CD|tracks]<Soundtrack
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBA2E7D42BFD050A560B1A6ADAE9D5F7DBDB6795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410790   (431825) от 23.09.2020
-
-Mattias Uneback - Voyage Beneath The Sea: The Adventurous Sounds of Mattias Uneback (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие под морем: приключенческие звуки Маттиаса Анебека. Присоединяйтесь к нему в фантастическом экзотическом подводном приключении со звуком! Плывите в открытое море, исследуйте его глубины, восхищайтесь их странными и красочными обитателями. Под волнами и в глубинах ждут забытые миры. Вас ждут биолюминесцентные существа, которые никогда не видели дневного (   Читать дальше...   )01. Triton, God of the Sea (05:32)
-02. Silent World (05:15)
-03. Voyage Beneath the Sea (07:43)
-04. Starfish (02:58)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBC9F5845FEDF466D09978D6A814938E64F9BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571633   (431765) от 22.08.2022
-
-Watkins Family Hour - Vol. II (2022) [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way I Feel Inside (2:44)
-02. Hypnotized (4:04)
-03. Pitseleh (3:41)
-04. Thanks A Lot (3:03)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CF8852BB70719048A3DC427C09053279EF8DE22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410926   (431642) от 23.09.2020
-
-Malando & His Tango Orchestra - Malando Best Selection (2019) [FLAC|Lossless|image + .cue] <Latin, Folk, World & Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Danny Malando Orchestra - знаменитый голландский оркестр исполняющий музыку танго. В модернизированном оркестре играют 15 участников, удивительно слаженно исполняющих сколь сложные, столь и прекрасные музыкальные композиции.
-
-Название оркестра, начавшего творческую деятельность летом 1939 года, происходит от имени его основателя Арие Маасланда (Arie Maasland) (26 (   Читать дальше...   )Трeклист:
-01. Blauer Himmel (03:04)
-02. Ich Kusse Ihre Hand Madame (03:12)
-03. Tango Delle Rose (02:29)(   Читать дальше...   )Жанр: Latin, Folk, World & CountryПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72162AE5131325001F1D0960575C829AC3AF2204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945491   (431571) от 11.10.2015
-
-Francisco Canaro & Carlos Roldn - Que me quiten lo bailao (1944) [MP3|320 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destellos | Destellos
-02. Naipe
-03. Esta noche de luna
-04. Por las calles de la vida(   Читать дальше...   )Жанр: TangoПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A1C1C45AA5F9A25043E9AC1016BD9D9F795155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945484   (431570) от 11.10.2015
-
-Francisco Canaro - Charlo - Con Francisco Canaro & Francisco Lomuto (1989) [MP3|160 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiempos viejos
-02. Desconfiale | Desconfiale
-03. Remordimientos
-04. Nelly(   Читать дальше...   )Жанр: TangoПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C32462C524446FE50FA2B458D5C2EDFCB7BD1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945771   (431568) от 11.10.2015
-
-Carly Comando - Dreamlife (2015) [OGG| 400-478 кб/с]<Instrumental, Classical Piano, Minimalism>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greenlawn
-02. Daydream
-03. Dusk
-04. Forever(   Читать дальше...   )Жанр: Instrumental, Classical Piano, MinimalismПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28733B0DB6DE23B743F07E3B204F071F1C56C614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945503   (431562) от 11.10.2015
-
-Francisco Canaro & Roberto Firpo - Las milongas ms milongas (2000) [MP3|192 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La cara de la luna
-02. Corralera
-03. Arrabalera
-04. Se dice de mн(   Читать дальше...   )Жанр: TangoПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586D53DE90D191512E4E942303A495F98CC7C0A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

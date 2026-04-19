@@ -1,3 +1,32 @@
+###  Публикация: 1031143   (668594) от 03.07.2016
+
+John Williams - The BFG / Большой и добрый великан (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (01:19)
+02. The Witching Hour (04:41)
+03. To Giant Country (02:34)
+04. Dream Country (10:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD8BC4782AA459629EF123978629C92D171BF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133256   (666593) от 27.05.2017
 
 VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
@@ -761,41 +790,6 @@ Miss Congeniality / Мисс Конгениальность (1-2 части) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3C0E1850EA919601FE185B496ADAFABC772C0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518974   (639111) от 05.07.2012
-
-Sex And The City 2 / Секс в большом городе 2 (2010) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639111.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alicia Keys - Rapture (4:47)
- 2. Dido - Everything to Lose (4:28)
- 3. Cee Lo - Language of Love (3:59)
- 4. Erykah Badu - Window Seat (4:50)
- 5. Natacha Atlas - Kidda (4:56)
- 6. Michael McGregor - Euphrates Dream (3:37)
- 7. Liza Minnelli - Single Ladies (Put A Ring On It) (3:13)
- 8. Ricki-Lee - Canґt Touch It (2:51)
- 9. Alicia Keys - Empire State of Mind (Part II) Broken Down (3:33)
- 10. Jennifer Hudson and Leona Lewis - Love Is Your Color (3:41)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BDA098700CE7F2767FB8EDCA7F01A687DBD074
 ```
 
 https://mybot314.ru/tekegram_catalog/

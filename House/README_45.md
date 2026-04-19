@@ -1,3 +1,171 @@
+###  Публикация: 1050671   (536731) от 09.09.2016
+
+VA - Disco Dance Italy (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cazintel - Over The Sea (Radio Version) 03:55
+02. Ivan Herb - Larga Vida En Vivo 03:07
+03. Jane Doe - Knight Rider (Ray Livingstone Rework) 04:26
+04. Jimmy & Wenzel - Dreamer 04:56(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58EA0E067587C8241F27862FB08554664B7CDD2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050833   (536572) от 09.09.2016
+
+Way Out West - Set My Mind (Single) (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set My MindЖанр: HouseПродолжительность: 00:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069A1FF0DC15F791C242B8D7490A1FCA36348B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926000   (535465) от 09.08.2015
+
+VA - Sax in the House (2015) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Carlos - Saxsoulaction (04:10)
+02. Jestofunk - For Your Precious Love (05:38)
+03. Dynamic Noise - Do You Feel Alright? (Loca Remix) (05:08)
+04. Public Invasion Project - Airto (Sax Solo) (feat. Luca Signorini) (06:28)(   Читать дальше...   )Производство: Irma DancefloorЖанр: HouseПродолжительность: 02:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B26BB4B4EEEC9DD6EA714347579668A42D39E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239791   (535249) от 07.08.2018
+
+VA - The Best 50 Drops [Summer'18] (2018) [MP3|320 Kbps] <House, Future House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Kristina Mailana - Make It Right (Original Mix) 4:13
+02. Momentums - Love By You (Original Mix) 3:45
+03. Kid Williams - Shimmy Yam, Shimmy Yay (Original Mix) 4:13
+04. Justin Berger - Ohh My (Original Mix) 3:44(   Читать дальше...   )Жанр: House, Future House, FunkyПродолжительность: 03:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64CC91C56AE01CB79CFEEE08E67EA5CB444968DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050893   (535127) от 10.09.2016
+
+Housework - Follow The Groove (2016) [MP3|320 Kbps] <Funky House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Housework - I Believe (Second Mix) 05:17
+02. Housework - First Time (Beginner Mix) 06:36
+03. Housework - If You Lonely (Lost Souls Mix) 07:02
+04. Housework - Partyline (Glitter And Space Mix) 07:17(   Читать дальше...   )Жанр: Funky House, Club HouseПродолжительность: 04:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F910ADE7B73BE4A8810988F740D8813A175AD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312387   (534299) от 03.07.2019
+
+VA - Radio Gladiators, Vol. 2 (2019) [MP3|320 Kbps] <Melodic House & Techno, Dance, House, Deep House, Big Room, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ipanov – Greece 2000Жанр: Melodic House & Techno, Dance, House, Deep House, Big Room, Future HouseПродолжительность: 01:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AD114F5B4C6F77352F772F262B523D0BA1C820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312349   (534086) от 03.07.2019
 
 Feed Me - High Street Creeps (2019) [MP3|320 Kbps] <Electro House, Progressive House>
@@ -568,180 +736,6 @@ VA - Black Hole House Music 09-16 (2016) [MP3|320 Kbps] <House, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F219E3342EC18768C423D4025D954FC622F0BC6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156913   (526455) от 09.08.2017
-
-VA - Vibes Del Mar (50 Progressive House Tunes) (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcelos Pi, Swooney - Live (Alex Greed Remix)
-02. Max Lean - Dreamer (PROMI5E Remix)
-03. POINT BLVNK, TAAMY - Full Smash (Original Mix)
-04. Mark Bale, Lost Identity - Get Ready (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27B1228CA3C9322A8B0C60834CA5990DE2E8ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156962   (526444) от 09.08.2017
-
-VA - Global Player Saint Tropez 2017, Vol.1 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York – What are we waiting for
-02. Goose Bumps , Jason Caesar – This Life (Funkerman Remix)
-03. HP Vince – Shut Up
-04. Andy B. Jones, Matty Menck – World To Life (Radio Edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E03C325AB1C4F1243DC8373877FC20E5D9E57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156877   (526400) от 09.08.2017
-
-VA - Ministry Of Sound - Chilled House Ibiza (2017) 2CD [MP3|320 Kbps] <Chill House, Lounge>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526400.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. It Ain't Me - Kygo & Selena Gomez
-2. Scared To Be Lonely (Julien Earle Remix) - Martin Garrix & Dua Lipa
-3. Places - Martin Solveig feat. Ina Wroldsen(   Читать дальше...   )Жанр: Chill House, LoungeПродолжительность: 02:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F70196E0D00F8CCDE07AEE7C6D0431CBCCCF91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053405   (526111) от 17.09.2016
-
-VA - Pure Deep Sexy Vol.2 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Popart - Florescent Love (Miguel Campbell remix) 05:42
-02. Kop Afro Soul - Love Alive (feat Siya - Kop Afro Soul dub mix) 07:56
-03. The Defloristics - And She (feat Gary Poole - Rob Hardt Electrified mix) 05:25
-04. Knor - Don't Go (Canson remix) 07:01(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70BE7AC7559D59DB25BFFA37C4691D60C068CB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157152   (525523) от 11.08.2017
-
-VA - Ibiza House Party 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melbourne Freaks - Deep Deep Down (Extended Mix)
-02. DJ Absinth - Revolution (Radio Version)
-03. Mykel Mars - White Beach
-04. Michael Ruland - Dreamer (Single Version)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988700FFA3D11C607139651F30F89F7B01B086B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157345   (525230) от 12.08.2017
-
-VA - Progressive House Nation Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Million Faces - Miami (Oldschool Mix)  6:00
-02.  N-!-C-K - Upload (Original Mix)  3:43
-03.  Neptun 505 - Lunar (Original Mix)  8:54
-04.  A.C.N. & Double Amp - I'm A Liar (Original Mix)  5:49(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A15EAF2F7BE690AE06293D00FAA95AE435C3CA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

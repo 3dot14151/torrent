@@ -1,3 +1,32 @@
+###  Публикация: 1426450   (215027) от 24.11.2020
+
+Muddy Manninen - River Flows (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Believe (4:09)
+02. Hey You (3:49)
+03. Daytona Beach (5:49)
+04. (Don´t Let Them Put the) Hoochie on You (4:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B833D89E493476E77A0FD157C778B550847341D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085476   (214692) от 21.12.2016
 
 Marc Ford & The Neptune Blues Club - The Vulture (2016) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -710,35 +739,6 @@ Taj Mahal - Live at Ultrasonic Studios (2020) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:591A29539EC9982B2FC972FE1599900739608559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668250   (173920) от 12.10.2023
-
-VA - Halloween Blues (2023) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skip James - Devil Got My Woman [05:13]
-02. Howlin' Wolf - Evil (Is Going On) [02:53]
-03. Lightnin' Hopkins - Lonesome Graveyard [05:32]
-04. Bo Diddley - Bo Meets The Monster [03:07](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5109914D0B888F0587E954ABA100C51753E0E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1662739   (187586) от 18.09.2023
+
+Wingfox, Milad Kambari | Hard Surface Modeling Foundation Tutorial (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learning the basics of a job is one of the most important things to consider. In this course, you will master the principles of hard surface modeling, and in 2 complex and easy projects, you will learn how to use these principles. After seeing this tutorial, you need to practice to use these methods and techniques in various forms and models. Learn hard surface modeling (   Читать дальше...   )Производство: WingfoxЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 3:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4DCC68369DCA99451ADD46E25D764AEE08DBBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662885   (187502) от 19.09.2023
 
 Ирина Шпакова | Тюльпаны (2023) WEB-DL [AD] [RU]
@@ -666,34 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA3ED1CD0B622AA279CDD373EAC609D033896A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663450   (186765) от 21.09.2023
-
-Liveclasses, Алексей Шадрин | Тайны модернизма: Эгон Шиле (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот класс представляет захватывающее исследование жизни и творчества Эгона Шиле – выдающегося художника модернизма.
-Шиле отверг традиции Венского югенд-стиля и создал свой собственный радикальный экспрессионизм, который поразил мир своей уникальностью.
-Его работы были олицетворением кризиса личности, эроса и танатоса, и особое внимание уделялось автопортретам, где (   Читать дальше...   )Производство: LiveclassesЖанр: ХудожествоЯзык озвучки: РусскийПродолжительность: 01:30:47Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA996FA4CC09C407555540A2AAFAE28A58C94886
 ```
 
 https://mybot314.ru/tekegram_catalog/

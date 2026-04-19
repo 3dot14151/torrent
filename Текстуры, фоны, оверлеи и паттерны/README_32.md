@@ -1,3 +1,29 @@
+###  Публикация: 1792693   (20787) от 20.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Rainbow Zodiac Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радужная зодиакальная текстура на цифровой бумаге.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53924DD841078356D46991226062024CBF7FE0C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793162   (20592) от 22.04.2025
 
 Паттерны - Creative Fabrica - Geometric Colorful Festive Vector Tiles [JPG, PNG, SVG, PDF, EPS]
@@ -647,33 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5E106F7056E51EB500CCE53E7FDFAFC8CAB612F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797971   (17137) от 24.05.2025
-
-Фоны - Tatiana Lapina - Behance - Abstract Liquid Texture Backgrounds -197553059 [JPG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абстрактные фоны с жидкой текстурой.
-Материал раздаётся с официальной документацией.Формат: JPG, PSDРазрешение файлов: 3000 x 2000 - 4500 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:447A6A8619B21FFB7FE2AF3DFFBFA0D5B4AB256C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,23 @@
-###  Публикация: 1499429   (830664) от 13.10.2021
+###  Публикация: 652428   (834387) от 05.05.2013
 
-VA - Toolroom Vaults Vol. 1 (2021) [AAC|~339 Kbps] <House>
+Синдбад: Легенда семи морей / Sinbad: Legend of the Seven Seas (2003) HDTVRip [UKR]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Martin Ikin - LaTanya (Extended Mix) (6:41)
-02. Eli Brown - Get Down (Extended Mix) (7:32)
-03. Tiger Stripes - UFO (Extended Mix) (6:27)
-04. Low Steppa, Skapes - Reactor (Extended Mix) (4:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:27:06
+Мультфильм рассказывает об одном из многочисленных приключений известного аравийского моряка Синдбада. Приключение начинается тогда, когда Эрис, богиня Хаоса, крадет Книгу Мира, подставив тем самым Синдбада и сделав из него преступника.
+Намеревающийся доказать свою невиновность, а также спасти жизнь своего лучшего друга Протеуса Шейпершифера, моряк отправляется в (   Читать дальше...   )Жанр: мультфильм, приключения, семейный, фэнтезиРежиссер: Патрик Гилмор, Тим ДжонсонПеревод: Многоголосый закадровый (украинскийПродолжительность: 01:25:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7792F45A7911D29FD0CF6D99201EF3710EA2C5B2
+magnet:?xt=urn:btih:D7F62090CAABEAB97E391565AA6A83A40141DA02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498712   (830663) от 13.10.2021
+###  Публикация: 563246   (834386) от 05.05.2013
 
-VA - Vanlife Chill, Vol. 4 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
+Angel Beats! - Heaven's Door / Ангельские ритмы! Врата рая (2010) [20 глав + 2 омаке] [Манга] [русский] (Обновлено 04.05.2013) [incomplete]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Манга и Арт
+>>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brockman, Basti M - Everywhere We Go (Chillout Edit) (3:24)
-02. Roberto Bronco, Chris Brauer - Dolphins (Radio Edit) (4:25)
-03. Artur Bayramgalin - Toronto' Lights (Original Mix) (4:03)
-04. Mo'jardo, Tim Gelo - East Ave (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:52
+В загробном мире ангелы борются за свое будущее и свою судьбу. Юри, лидер "Фронта Загробной Жизни", восстает против бога, по воле которого прожила несчастную жизнь. С другой стороны против членов ФЗЖ борется Тенши, председатель школьного совета. Участники ФЗЖ применяют мощнейшее оружие, чтобы сражаться против ангелов, использующих сверхъестественные способности.Жанр: приключения, комедия, мистика, школа
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:074D0463112B9AB85F3623FE762EAF8A99DC620B
+magnet:?xt=urn:btih:12298FB133533D169D07CB35ED7F534804DEBD2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495741   (830662) от 13.10.2021
+###  Публикация: 652464   (834383) от 05.05.2013
 
-VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 2 (2021) [AAC|~332 Kbps] <Lounge, Downtempo, Chillout>
+Медведь (1938) DVDRip
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Elkeland - Hallo (Original Mix) (4:42)
-02. Johannes Huppertz - By the Way (Original Mix) (5:15)
-03. Dreamhunter - Getaway Pilot (Original Mix) (4:04)
-04. Agua Loca - Laguna Guitarra (Original Mix) (2:30)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:12:48
+Фильм является экранизацией одноименной пьесы А. П. Чехова и показывает, в частности, как, в зависимости от чувственного настроя главной героини, может страдать и ни в чем неповинное животное Тоби, оставаясь без овса. Помещик Смирнов, волокита и сердцеед, приезжает к соседке-помещице за старым денежным долгом, но получает категорический отказ: молодая вдова заявляет (   Читать дальше...   )Жанр: КомедияРежиссер: Исидор АнненскийАктеры: Ольга Андровская, Михаил Жаров, Иван Пельтцер, Константин СорокинПродолжительность: 00:43:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D52D97CCCA5BA341041281D11A67BB5208535F23
+magnet:?xt=urn:btih:542FCF74A4F9E3430B6944D5933AABB64ECF833A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +77,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497208   (830661) от 13.10.2021
+###  Публикация: 1004960   (834371) от 08.04.2016
 
-Chillhop Guitar - Relax Beat & Smooth Guitar (2020) [AAC|~298 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+Уши Ван Гога - 13 альбомов (1997-2015) [MP3|~245 кб/с (V0)] <Art-punk>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The river (3:08)
-02. Romantic Sofa (5:15)
-03. Promenade (3:06)
-04. Trip in Lisbon (3:03)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 00:59:50
+1997 - Odin
+1997 - Уха из сомиков Кандиру
+1998 - Душа Мбе
+2000 - НесуСвет(   Читать дальше...   )Жанр: Art-punkПродолжительность: 09:06:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C971E8F1D9AD4C47A956248EF04F02CB6BF237E
+magnet:?xt=urn:btih:2AAF603DA1A60DDC6C412D0EE7548337F072B652
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,399 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497415   (830660) от 13.10.2021
+###  Публикация: 1005213   (834370) от 08.04.2016
 
-VA - Beautiful Metamorphosis, Vol. 3 (2021) [AAC|~309 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow World - Undiscovered World (3:43)
-02. Premnaj - Meridian 21 (3:21)
-03. Anemine - Adams (3:51)
-04. Ensemble Ethnique - Pax (3:53)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256B7511DA95AAEDCAB5774BECE69C2C86484BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500024   (830659) от 13.10.2021
-
-VA - Luxury Kingsize Lounge, Vol. 2 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Forever (4:57)
-02. Giorgio Moroder - The Chase (Marat Taturas Coctail Pool Remix Radio Edit) (4:10)
-03. Inventors Of The Sun - Agua of Life (5:41)
-04. Lounge Deluxe, Jeela - Beautiful Man (6:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A24D9B50E8CD6CF0E0BA3552D3939611CFD5F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498523   (830658) от 13.10.2021
-
-VA - Fireplace Chill, Vol. 6 (2020) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Hartman - Natural Elements (Original Mix) (3:17)
-02. VST - Awakeing (Original Mix) (4:47)
-03. Chambre 11 - Overwhelming Life (Original Mix) (5:38)
-04. Owen Krishnamurti - Spread Love (Original Mix) (5:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546B4E3F3835F44C5C359323A4FAD7E3FFCCD5E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497637   (830657) от 13.10.2021
-
-VA - Autumn House Workout Vol.1 (2021) [AAC|~323 Kbps] <House, Deep House, Tech House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cris Roberts - Overview (Long Classic Mix) (2:43)
-02. Connections - Legato (Planned Mix) (3:08)
-03. Black Jag - Metropolis (Love Deep Mix) (3:31)
-04. Black People - Mental Healt (London House Mix) (2:48)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A41F9AEDB665FA7DBD378ABC60E9948D6DF1F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498883   (830656) от 13.10.2021
-
-Magneto - Requiem pour Satana (2021) [AAC|~326 Kbps] <Cocktail Nation, Space Age Pop, Easy Listening>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magneto, Joanna Halszka Sokołowska, Igor Nikiforow - Pama Rum Kwan (5:03)
-02. La Rumbia en Blanco y Negro (3:14)
-03. Magneto, Joanna Halszka Sokołowska - Temptation of Stingray (6:19)
-04. Mambolero (5:40)(   Читать дальше...   )Жанр: Cocktail Nation, Space Age Pop, Easy ListeningПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02EA2A32FB1B8796518BA4CD1371AC26120C9D3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497639   (830655) от 13.10.2021
-
-VA - Autumn House Workout Vol.2 (2021) [AAC|~312 Kbps] <House, Deep House, Tech House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Avenue - Over Right (Night Emotions Mix) (3:11)
-02. Chrisopher Torres - You See Man (Deep Style Mix) (3:34)
-03. FRANK WASSER - Rock This (Natural Mind's Club Mix) (3:57)
-04. Fantasy - On the Strength (5:07)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:849EDB7B7DCEF35166D0685FB419DCD59EF178FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498716   (830654) от 13.10.2021
-
-VA - Vanlife Chill, Vol. 6 (2021) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Bronco, Chris Brauer - Fountain (4:41)
-02. Marc Hartman - Don't Wanna Loose You (Original Mix) (5:24)
-03. Weathertunes - Flower Fields (Original Mix) (5:04)
-04. Weber & Weber - Fading to the Sky (Original Mix) (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA29A8EBA1291EF927F8F4D794E481B7B84098F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498276   (830653) от 13.10.2021
-
-VA - Manchester Orange: Urban Chillout Music (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Holy Moly – That's a Groove (3:08)
-02. Dellasollounge - Five to Give (Original Mix) (4:13)
-03. Martin Liege - Baby Come On (Original Mix) (3:39)
-04. Martin Hiska - You're My Thrill (6:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECB0A36C695100A93DC851FDDCFDF47E2CA2E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499432   (830652) от 13.10.2021
-
-VA - Toolroom Vaults Vol. 2 (2021) [AAC|~334 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pax - Shiver (Extended Mix) (6:21)
-02. Honey Dijon, Jerome Robins - Wanting (Extended Mix) (6:08)
-03. Eelke Kleijn - The Voices (Extended Mix) (7:25)
-04. René Amesz, Camilo Franco - Ruell (Extended Mix) (6:03)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9492FB3631C9F1E15B56FC3946F0E35A5DEC49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495742   (830651) от 13.10.2021
-
-VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloomfield - Boulevard St. Germain (Original Mix) (5:50)
-02. Music Of The Earth - Take This Joint (Worldtraveller Revisited) (4:09)
-03. Roberto Bronco - Street of Flowers (Original Mix) (5:04)
-04. James Butler - Floating Vibes (Original Mix) (2:55)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7DE9B9C116394B740504B29DFE0E043EC0A359E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498119   (830650) от 13.10.2021
-
-VA - Before Sunset: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska, Michael Moses - Sandy (4:48)
-02. Dacosta - Sunset Boulevard (4:16)
-03. Matej Blanusa - Beginning (Medani Pieck) (3:58)
-04. Digby Jones - El Corazon (3:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D8A586830D046AFD9A4D047E588BE391FD709C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005979   (830649) от 10.04.2016
-
-Где логика? (2016.04.10) SATRip (выпуск 12)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D66D45AB233176D3DD8F308E864FF7D588BAE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005691   (830648) от 10.04.2016
-
-Carlo Maria Giulini - Rossini: Stabat Mater (2006) [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduzione. Andantino moderato. Stabat mater dolorosa 09:59
-02. Aria (Tenore). Allegretto maestoso. Cujus animam gementem 06:50
-03. Duetto (Soprano I/II). Largo. Quis est homo 07:20
-04. Aria (Basso). Allegretto maestoso. Pro peccatis sue gentis 05:08(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27290E4A750035692961E383FD992FD1D11BA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005773   (830646) от 10.04.2016
-
-Лига смеха (2016.04.09) SATRip (сезон 2, выпуск 4)
+BrowsingHistoryView 1.86 Portable [Ru/En]
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В субботу, 28 февраля состоялась премьера телевизионного проекта "Лига смеха" - крупнейшего юмористического шоу в Украине. Участниками первого Чемпионата Украины с юмора стали все желающие: команды КВН, СТЕМы и просто веселые компании. Всего на фестиваль зарегистрировалось 280 команд со всей Украины - Киева, Луганска, Днепропетровска, Львова, Одессы, Тернополя... (   Читать дальше...   )Телекомпания: 1+1Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:43:45
+BrowsingHistoryView - бесплатная утилита, которая после запуска способна отображать информацию полученную от браузеров IE, Safari, Chrome, FireFox. Вы сможете просматривать историю посещенных вами сайтов в удобном виде. Вы сможете узнать не только посещенный вами сайт, можно просмотреть его полное название, время захода на него, через какой браузер был совершен заход, (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:248F54F75011802D77F561E51754D3AFD9FF1060
+magnet:?xt=urn:btih:E1448ABE09B418CB0EBFFAF28870BFDF12C03F60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,188 +132,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005899   (830644) от 10.04.2016
+###  Публикация: 1005150   (834369) от 08.04.2016
 
-Александр Ткач | Административное право Курс Лекций (2010) [MP3]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий аудиокурс содержит краткий курс лекций по административному праву. В доступной форме рассмотрены основные теоретические вопросы курса с учетом новой системы и структуры федеральных органов исполнительной власти, изменения административного законодательства.
-
-Аудиокурс можно использовать в качестве учебного пособия для студентов высших и средних учебных (   Читать дальше...   )Жанр: Бизнес аудиокниги, АудиокурсыПродолжительность: 06:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CBEB49E7A42A78729892A4F1225B74E84B8B0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194083   (830643) от 25.04.2010
-
-DownHill - Silent City (2003) [MP3|320 kbps]<Dub, Downtempo, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dub, Downtempo, ExperimentalПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005925   (830641) от 10.04.2016
-
-Аштавакра | Аштавакра-гита. Песнь Аштавакры. Аштавакра-самхита [Две озвучки] (2012-2016) [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аштавакра Гита также известна под названием Аштавакра-самхита — священный текст индуизма, излагающий философию Адвайта-веданты. Содержание текста представляет собой беседу мудреца Аштавакры и легендарного царя Митхилы по имени Джанака. Этот диалог дает потрясающий образец божественного элемента, присутствующего в отношениях между реализованным гуру и в высшей степени (   Читать дальше...   )Жанр: Адвайта-ВедантаПродолжительность: 02:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC88CC1B9A86E0E0B3E6F924B217D0ED5AACA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005891   (830638) от 10.04.2016
-
-Александр Орлов | Война за доли рынка. Конкурентные бои без правил. (2008) [MP3]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбор компромата и заказные проверки госорганов, купленные суды и приставы-исполнители, заказные банкротства и недружественные поглощения, черный PR и законодательное лобби - впервые в одной книге анализируются апробированные на практике, но не входящие в число традиционных механизмы конкурентной борьбы.
-Такие действия, направленные как на защиту, так и на борьбу (   Читать дальше...   )Жанр: Бизнес аудиокнигиПродолжительность: 09:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57ACA61DD8CBB06B5DD7BDB5DD29D5AB06F1E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005559   (830636) от 10.04.2016
-
-Николай Белов (сост.) | 101 биография русских знаменитостей, которых не было никогда (2010) [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чьим сыном был Илья Муромец? Какими виделись нашим предкам Перун, Купала и Мокошь? Кто такие на самом деле Саша Белый и следователь Знаменский, Остап Бендер и Тарас Бульба, Штирлиц и князь Серебряный? Где и когда родились Незнайка и Масяня?
- У героев русских народных сказок, былин, мифов, у героев классической русской и детской литературы, у кино-, телегероев и даже (   Читать дальше...   )Жанр: Фольклор, литературные героиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB2C1611A4A60C08C8CCC50338B93B5FAB3782B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006104   (830634) от 10.04.2016
-
-Павел Платонов | Почему увольняют после 45 лет? (2016) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Почему увольняют после 45 лет?» дает ключи к пониманию, и главное к разрешению, проблем, которые так или иначе коснутся каждого человека: как быть востребованным после 45 лет. Сама книга совсем не сложна для восприятия; более того, она написана легко и увлекательно. Жанр книги – популярная психология, «помоги себе сам». Отчасти книга стала итогом дискуссий (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, достижение успехаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A85C05540484E4388DEF767A44BBDAC8A3F402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005823   (830632) от 10.04.2016
-
-VA - Звёзды Сан-Ремо/Stars Of San-Remo - Amore Mio (2003) Stereo & Video №07/2003 [APE|Lossless|image + .cue] <Italo-Pop, Italo-Disco>
+Sabrina Carpenter - Eyes Wide Open (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marco Silenzi - Donne Sante Donne Assassine
-02. Annabella - Lailola (Tu Hermusura)
-03. Angelo Fabiani - Canzone Italiana
-04. Toni Dallara - La Novia(   Читать дальше...   )Жанр: Italo-Pop, Italo-DiscoПродолжительность: 01:12:13
+01. Eyes Wide Open (3:13)
+02. Can't Blame a Girl for Trying (2:49)
+03. The Middle of Starting Over (3:33)
+04. We'll Be The Stars (3:07)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:40:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D0C6DA7722669E0DD61AD3A8D8AE50AACCFEFEF
+magnet:?xt=urn:btih:E2A6CFA40982484828D3DEDBFF9C4F1B01DB63D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,26 +161,551 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005933   (830631) от 10.04.2016
+###  Публикация: 1005043   (834368) от 08.04.2016
 
-PornoRap - 2 Альбома (2004-2006) [MP3|320 кб/с] <Rap, Hip-hop>
+PicPick 4.1.3 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2004 - PornoRap
-2006 - Тема пЕлоткиЖанр: Rap, Hip-hopПродолжительность: 01:55:15
+PicPick - приложение, объединяющее в себе возможности простого графического редактора и утилиты для захвата изображений с экрана компьютера. PicPick обладает простым и удобным интерфейсом. Среди особых возможностей стоит выделить возможность захвата целого рабочего экрана (в том числе, и на мультимониторных системах), захват только активного окна, отдельной области, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CD5251F3CAFAE0813A9A34E45293420217DA6B5
+magnet:?xt=urn:btih:DA62F595E63F40D0C9E61EB278772004D83A4026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005169   (834367) от 08.04.2016
+
+URL Extractor 4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Url Extractor - очень полезное и легкое приложение, которое позволяет пользователям извлекать URL из файлов и  может обрабатывать тысячи файлов одновременно.
+
+Url Extractor легко извлекает информацию, такую как FTP- адреса, веб-адрес или адрес электронной почты . Это многопоточность включена и обрабатывает файлы на высокой скорости. Кроме того, URL Extractor может (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 апреля 2016Разработчик: Tension SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22BF5C0ED0EF106C20504BE07A84BCD37C049A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005058   (834366) от 08.04.2016
+
+Журнал | Авиаколлекция №10 (2015) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение к журналу «Моделист-конструктор». Специализированный журнал для любителей истории авиации и авиамоделистов. Каждый выпуск - это мини-монография об отечественной или иностранной конструкции летательных аппаратах. Каждый выпуск содержит информацию об истории создания самолета или вертолета, его серийном производстве, модификациях, эксплуатации, боевом применении (   Читать дальше...   )Жанр: История авиации и мини-монографииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BF2DC76D587005BC97EC745896EF4C9F7343EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005076   (834365) от 08.04.2016
+
+VA - Nu Jazz Instrumentals (2016) [MP3|320 кб/с] <Nu Jazz, Lounge Jazz, Jazz House>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agostino Maria Ticino – If I Had Said to You
+02. Acusmatic Group – Un grosso guaio - Dave Masoch Re-Jazzed
+03. 2 Men 4 Soul – So Fine - Instrumental Bonus Track
+04. Black & Brown – Cool Affair(   Читать дальше...   )Жанр: Nu Jazz, Lounge Jazz, Jazz HouseПродолжительность: 02:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0CF3BFAF2C80F04FD073B53BC689A36B2C57B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005066   (834364) от 08.04.2016
+
+Day One 2.0.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Day One 2: новый журнал-дневник
+Разработчики персонального журнала Day One выпустили новую, кардинально переработанную версию приложения. Версия 2.0, доступная на i-устройствах и "маках", получала ряд важных функций. Во-первых, теперь у пользователей есть возможность вести несколько дневников одновременно, а также присваивать им собственные цвета и названия. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 марта 2016Разработчик: Bloom Built, Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38F365108C7F21C588BA367E323299C3F9810BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005010   (834363) от 08.04.2016
+
+ForstWolfin (ForstWölfin) - Wald (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Dub Techno, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Fog (04:44)
+02. Dusk (06:05)
+03. Widen (05:09)
+04. dubForest (rework) (05:15)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC98A5AD60763F01BF21DB5A5F73CBC92933F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005060   (834362) от 08.04.2016
+
+Pixelmator 3.4.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator представляет собой мощный инструмент редактирования изображений, активно использующий вычислительные мощности графической карты. Он предлагает инструменты выделения, рисования, штриховки, навигации и цветокоррекции, поддерживает многослойные изображения, обработку рисунков на базе графического процессора, управление цветами, автоматизацию, имеет стильный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06 аперля 2016Разработчик: Pixelmator Team LtdПоддерживаемая ОС: OS X 10.9.5 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A095CA68F9FA999B2878CE802C9C7A52C419F3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005029   (834361) от 08.04.2016
+
+Bruce Brubaker - Glass Piano (2016) Extended Version [FLAC|Lossless|WEB-DL|tracks] <Classical, Minimalism, Electronic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad Rush (16:58)
+02. Metamorphosis 1 (6:27)
+03. Metamorphosis 2 (7:09)
+04. Metamorphosis 4 (6:09)(   Читать дальше...   )Жанр: Classical, Minimalism, ElectronicПродолжительность: 01:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726DA86CE3A9FDFAF95854BEE115F31BA5C80DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004936   (834360) от 08.04.2016
+
+Роберт Бирн | Бильярд для всех. Пул и карамболь (1998) [DJVU]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Роберта Бирна по бильярду выбрана не случайно: это первый американский бестселлер на данную тему, написанный признанным корифеем современной бильярдной литературы. Книга служит основным пособием по пулу и карамболю для многомиллионной армии поклонников игры в бильярд. На фоне десятков изданий на эту тему она выделяется полнотой и строгостью изложения. Автор (   Читать дальше...   )Жанр: ПособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C06BDCCE9F3F9E9C7D92AC1DB2B4B04ED7564C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005199   (834359) от 08.04.2016
+
+Slimjet 9.0.3.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843889D1E70C9A252FA9C80CBAF4022C96D1189D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005248   (834358) от 08.04.2016
+
+Абел Аганбегян | Кризис. Беда и шанс для России (2009) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная аудиокнига - ответ экономиста на вопрос: "Что произошло в России с наступлением глобального экономического кризиса?" Это мнение специалиста, основанное на проверенных фактах и современных экономических учениях. Это возможность для миллионов россиян понять, почему экономический взлет и относительная стабильность вдруг обернулись таким провалом, почему (   Читать дальше...   )Жанр: Бизнес, Экономика.Продолжительность: 08:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F4CBA2A72D695C932B94128DD473363E3321EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005368   (834357) от 08.04.2016
+
+З. П. Пехова (ред.) | Йеменская Арабская Республика. Справочная карта (1985) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834357.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта ЙАР с административным делением (масштаб 1:1 250 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A48F3968627BEE46098C9EBCC1C8E54B13E05E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005344   (834356) от 08.04.2016
+
+Виктор Точинов | Все лики смерти [сборник] (2014) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чудовища таятся под обманчиво гладкой поверхностью воды не только в глухих таежных озерах, но и встречаются в густонаселенных местах. Выходные, проведенные в компании отдельно взятого трупа, иногда ничем не лучше глобального нашествия зомби. А невинные детские игры могут порой закончиться не менее кроваво, чем зловещие вудуистские ритуалы.
+
+В новом сборнике Виктора (   Читать дальше...   )Жанр: Ужасы и Мистика, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8611A47FE1C0222C8AA640F4B5989AD54E94D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004934   (834355) от 08.04.2016
+
+Katzenjammer - A Kiss Before You Go (2011) [FLAC|Lossless|tracks] <Pop, Folk, Vocal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Kiss Before You Go    01:16
+02. I Will Dance (When I Walk Away)    03:50
+03. Cherry Pie    03:01
+04. Land Of Confusion    03:39(   Читать дальше...   )Жанр: Pop, Folk, VocalПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FCE9563B7547CF03CC8AC8D7B3325BC2E2A38DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004097   (834354) от 08.04.2016
+
+Club 8 - Pleasure (2015) [MP3|320 кб/с] <Pop, Rock, Electronic>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834354.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love Dies 02:44
+2. Skin 02:48
+3. Late Nights 02:57
+4. Kinky Love 02:55(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 00:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD8793BBC85F58BAA1EBD1BE842DC3BC7711124D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005287   (834353) от 08.04.2016
+
+Андрей Жариков | Денежный Компас (2011) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834353.jpg" />
+</div>
+
+
+###  Подробнее
+
+•Ясно поймёте, как можно построить успешную карьеру
+«с нуля» в любой области, которая вам интересна!
+•Составите список увлекательных и прибыльных занятий.
+•Осознаете свои таланты и сильные стороны характера.(   Читать дальше...   )Жанр: ПсихологияПродолжительность: 06:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45AF73293C90B79355A35C83857712E81882409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005149   (834352) от 08.04.2016
+
+Kaleidoscope 2.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaleidoscope — приложение, предназначенное для сравнения текстовых или графических файлов и быстрого поиска различий в них.
+Область применения программы предельно ясна.
+ Если вы  программист, то с помощью Kaleidoscope всегда будете видеть различия в коде двух версий файлов. При этом зелёным цветом будут подсвечиваться добавленные строки, красным — удалённые, а синим (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 июня 2015Разработчик: Black PixelПоддерживаемая ОС: 10.7.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982BA438CB045E03571DF1D24A7311DA6FD81176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773246   (834348) от 03.04.2014
+
+Тінь Сонця - Грім в ковальні Бога (2014) [FLAC|Lossless]<Folk, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Меч Арея (5:20)
+02. Сонцечоловік (4:27)
+03. Народна війна (6:09)
+04. Коли на серці сумно (3:09)(   Читать дальше...   )Жанр: Folk, Power MetalПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDB467EC77F73771E7F9F56BF84EE0B43A780F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 771739   (834344) от 03.04.2014
+
+Возвращение с Ведьминой Горы / Return From Witch Mountain (1978) DVDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений детей из космоса Тиа и Тони. Они спускаются на Землю, чтобы побывать в Нью-Йорке. Злой профессор Гэннон узнает о том, что брат и сестра обладают колоссальной силой, способной управлять миром. Он внедряет в мозг Тони специальное устройство, позволяющее использовать энергию мальчика. Тиа решает спасти брата и одновременно - нашу планету.
+Первый (   Читать дальше...   )Производство: США, Walt Disney ProductionsЖанр: Фантастика, семейныйРежиссер: Джон ХафАктеры: Ким Ричардс, Айк Айсенманн, Бетт Дэвис, Кристофер Ли, Энтони Джеймс, Кристиан Джаттнер, Брэд Сэвадж, Поиндекстер Йозерс, Джеффри Жаке, Джек СуПеревод: Профессиональный (многоголосый, закадровый)Субтитры: Русский, АнглийскийПродолжительность: 01:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C800CC910471107EB90DD20334225548CF34EA3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773282   (834334) от 03.04.2014
+
+Барак (1999) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие картины происходит в 1953 году. Закрытый уральский городок Сатка. Отгремела Великая Отечественная война. Люди, абсолютно разные по характеру и судьбам, живут в одном бараке. После войны люди в основном жили в бараках, заселялись на время, а получилось - навсегда. Кухня общая, удобства во дворе и покоя никакого. Все живут, как одна семья, вместе переживая (   Читать дальше...   )Жанр: ДрамаРежиссер: Валерий ОгородниковАктеры: Нина Усатова, Наталья Егорова, Евгений Сидихин, Леонид Ярмольник, Сергей Качанов, Ирина Сенотова, Юлия Свежакова, Сергей Русскин, Артём Гусев, Алексей Девотченко, Андреас Дильшнайдер, Татьяна Аптикеева, Дмитрий Бульба, Павел Григорьев, Игорь Климов, Владимир Сидоров (II), Лев Елисеев, Игорь ЛифановПродолжительность: 01:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DEF6345F16FEB1A576CF9F805C189D0C00F28F
 ```
 
 https://mybot314.ru/tekegram_catalog/

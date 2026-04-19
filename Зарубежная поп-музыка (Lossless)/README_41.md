@@ -1,3 +1,90 @@
+###  Публикация: 1541936   (640872) от 05.04.2022
+
+Bananarama - Discomania (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venus
+02. I Heard A Rumour
+03. Love Is The First Degree
+04. I Can't Help It(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D29A9980B7B693111C8ACF831AE3F7D77CBF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907705   (637869) от 12.06.2015
+
+Mika - No Place in Heaven (2015) Deluxe Edition [FLAC|tracks]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk About You (3:22)
+02. All She Wants (3:39)
+03. Last Party (3:39)
+04. Good Guys (3:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E5E568A80C013BC82FE708850975CF511CDC79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907487   (637744) от 12.06.2015
+
+Adam Lambert - The Original High (2015) Deluxe Edition [FLAC|tracks+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Town
+02. The Original High
+03. Another Lonely Night
+04. Underground(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C98141953C809E74F81DC8701684380AFE4909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142991   (637478) от 17.06.2017
 
 Modestia Aparte - Historias sin Importancia (1991) [FLAC|Lossless|tracks + .cue] <Spanish Pop/Rock>
@@ -661,93 +748,6 @@ Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F2E5E8C05BC74F307B5E666A10DDE023DB8FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294843   (626115) от 09.04.2019
-
-Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey kid 3:34
-02. I'm too old for this 4:17
-03. When you come home 4:28
-04. Dreamers 4:03(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909741   (626003) от 18.06.2015
-
-Lenka - The Bright Side (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Way Home
-02. Blue Skies
-03. Free
-04. Unique(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E2D3437DD824E10AA070292D857FDD7F75C35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909755   (626002) от 18.06.2015
-
-Giorgio Moroder - Deja-Vu (2015) [FLAC|Lossless]<Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 U With Love
-02. Deja Vu (feat. Sia)
-03. Diamonds (feat. Charli XCX)
-04. Don’t Let Go (feat. Mikky Ekko)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B554833FFAAA455846A61A8B57E7355DDF7700
 ```
 
 https://mybot314.ru/tekegram_catalog/

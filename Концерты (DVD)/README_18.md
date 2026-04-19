@@ -1,3 +1,87 @@
+###  Публикация: 25895   (45111) от 31.08.2024
+
+Doro - 20 Years a Warrior Soul DVD (2006)
+
+>>След.
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальное юбилейное издание, оно включает в себя два DVD диска: - Первый диск отведен под два практически равных по продолжительности фильма. Первый из фильмов посвящён турне в поддержку последнего на тот момент альбома Доро - "Warrior Soul" и представляет увлекательное путешествие с командой, в котором вы побываете в различных европейских странах, посмотрите (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 05:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C74B028133F6B3D7681F2BC56BE36FB6E63D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226570   (45083) от 31.08.2024
+
+Halford - Live In Anaheim (2010) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45083.jpg" />
+</div>
+
+
+###  Подробнее
+
+PART I:
+ DOCUMENTARY AND CONCERT (approx. 35 mins)
+including 4 songs performed at Shibuya Kokaido Tokyo, Japan
+01. Heretic (Live In Japan)(   Читать дальше...   )Жанр: Heavy MetalРежиссер: John BaxterФормат: DVD videoКачество: DVD9Продолжительность: 02:06:38+бонус
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276A704E587ED985B73F3804B00E982499C3C000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163517   (43505) от 15.09.2024
+
+B.B.King - The jazz channel presents (2000) DVD5 <Jazz>
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот DVD представляет собой запись живого концерта в «Black EntertainmentTelevisionStudio» в Вашингтоне.01. Two I Shoot Blues
+02. Let The Good Times Roll
+03. I'll Survive
+04. Bad Case Of Love(   Читать дальше...   )Жанр: Jazz, Муз.видеоРежиссер: Bet On JazzУчастники: Би Би Кинг & CoПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3ABEB30C8CA170545A43AD7EB6DE16297464841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 343336   (34471) от 12.12.2024
 
 Елена Ваенга - "Концерт в День Рождения" (2007) DVD5

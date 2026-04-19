@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1862153   (1062962) от 
+###  Публикация: 1862153   (1064295) от 29.03.2026
 
 SystemRescue v13.00 [x64]
 
@@ -7,7 +7,7 @@ SystemRescue v13.00 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064295.jpg" />
 </div>
 
 
@@ -25,7 +25,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860426   (1061977) от 
+###  Публикация: 1860426   (1061977) от 21.03.2026
 
 Parted Magic 2026.03.20 [x64]
 
@@ -51,7 +51,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859885   (1061599) от 
+###  Публикация: 1859885   (1061599) от 18.03.2026
 
 DeaDBeeF for Linux 1.10.2 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 
@@ -79,7 +79,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859644   (1061270) от 
+###  Публикация: 1859644   (1061270) от 16.03.2026
 
 DeaDBeeF for Linux 1.10.1 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 
@@ -340,6 +340,33 @@ OpenMediaVault представляет собой новое поколение
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3CF3A11EC73702ABE9B81631DFA3C2148727431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848812   (1053293) от 21.01.2026
+
+TrueNAS Community 25.10.1 - Goldeye [amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив TrueNAS Community от компании iXsystems, в котором используется ядро Linux и пакетная база Debian (ранее выпускаемые продукты данной компании, в том числе TrueOS, PC-BSD, TrueNAS и FreeNAS, основывались на FreeBSD).
+Как и TrueNAS CORE (FreeNAS), TrueNAS Community может быть загружен и использован бесплатно. Исходные тексты специфичных для TrueNAS SCALE (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E5A23F9FA44D4981D0B9B79D6D265A7B16AF48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,33 +689,6 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E8E7514D7C1C5CC2A8B9082F3DA6BABCEE50D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442763   (1036242) от 26.01.2021
-
-Ubuntu*Pack Unity 18.04 (декабрь 2020) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99B30FB270A6815E7B4470854B8355DEEEFB6FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

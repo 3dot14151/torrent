@@ -1,3 +1,238 @@
+###  Публикация: 1694813   (120601) от 27.01.2024
+
+Vintage Culture - Live @ VNTG Is A Festival,Sao Paulo Brazil (2023-12-09) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture & Fideles ft. Be No Rain - Fallen Leaf
+02. Empire Of The Sun - We Are The People (Adam Sellouk Remix)
+03. Swedish House Mafia - Ray Of Solar (Mau P Remix)
+04. Odd Mob & OMNOM - Losing Control(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FCBCC4894BF9BE6EDE5D8877D057845FEC95A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695349   (120321) от 29.01.2024
+
+Miss Monique - Yearmix 2023 (2024-01-26) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture & Coach Harrison - Hear You Calling
+02. Argy & Omnya - Aria
+03. Haze-M & Monastetiq ft. Selima Atrous - Breathe (Horisone Remix)
+04. Sevenn & Silver Panda - Deep Space(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AC59F1E3CC42651070AFDE41474A74572FB5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695345   (120276) от 29.01.2024
+
+DJ KUBA & NEITAN - Live @ Skandalizer x Level27, Poland (2024-01-19) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Narcotic Thrust x Fred Again & SHM x Kastra vs. DJ Arman Aveiru - Like Turn On The Lights (DJ KUBA & NEITAN VIP Edit)
+02. Linkin Park vs. Lucas & Steve - Numb vs. Warp (DJ KUBA & NEITAN Edit)
+03. Robert Falcon x DMX - Party Up (DJ Arman Aveiru Rhythm Of The House Edit)
+04. John Summit ft. Hayla - Where You Are w/Axwell x Dirty South x Topic - (   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D37B5231889F2C58F5124C4693425B00D11988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693210   (119804) от 01.02.2024
+
+VA - Live @ Neon Countdown Festival, Thailand (2023) [MP3|320 Kbps] <Dance, Electro Pop, Trance, Dubstep, Trap>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119804.jpg" />
+</div>
+
+
+###  Подробнее
+
+ARTBAT @ Neon Countdown Festival, Thailand 2023-12-29:
+Продолжительность: 00:58:29
+01. ARTBAT & Pete Tong ft. Jules Buckley - Age Of Love (ARTBAT Rave Mix)
+02. Argy & Omnya - Aria(   Читать дальше...   )Жанр: Dance, Electro Pop, Trance, Dubstep, TrapПродолжительность: 00:59:41
+01. HYBIT & Jetty Rachers & Faahsai - Dragon Heart
+02. Ben Nicky & Sunset Bros - Get A Life
+03. MR.BLACK - Tranceformation(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE26B55C9FF2B23ADE5988619B78687AAB28949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695831   (119775) от 01.02.2024
+
+INVRS - Live @ Ural Mountains for SE:VER, Russia (2024-01-23) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natascha Polke & R.EK - The Balance
+02. Melouie - White Darkness (Dirty Doering Remix)
+03. Hidden Empire & Felix Raphael - Who We Are
+04. Arodes - The Beginning(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E04AFF9E3AD78CBB5C93A7AF0676D86E758691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696323   (119599) от 02.02.2024
+
+VA - Armin van Buuren - A State Of Trance 1158 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - Offshore (Disco Citizens Remix / Symphonic Rehearsal Mix)
+02. Scorz & Silvio Soul - This Feeling (Progressive Pick)
+03. Ferry Corsten & Marsh - Fulfillment
+04. Ahmed Helmy - R4VE 301(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B4D319ED7B0EB58BF3B0AD4AB46EC657A5E6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696523   (119464) от 03.02.2024
+
+Sam Feldt - Tomorrowland Friendship Mix (2024-02-01) [MP3|320 Kbps] <Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Summer - Rest Of My Life
+02. Sam Feldt ft. Cate Downey - Enough To Drink
+03. Madism - All For You
+04. Sam Feldt & Sofiloud - Memories(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211D6F34AA91FE2AA087AD1FCEF42E85ABF87B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696512   (119460) от 03.02.2024
+
+Markus Schulz - Global DJ Broadcast World Tour (Open to Close Solo Set, Groove Cruise Miami 20th Anniversary) (2024-02-01) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz (Recorded Live from Groove Cruise Miami 20th Anniversary - January 27 2024)
+01. Rapid Eye - Circa-Forever (Markus Schulz Down the Rabbit Hole Remix)
+02. Kx5 featuring Hayla - Escape (Markus Schulz Remix)
+03. Mike EFEX - Lights (Dub Mix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F55D26B7E75CA374B9A4A0356D2CF27A1EE8BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696516   (119443) от 03.02.2024
 
 Axwell - Axtone House Party (Dance Tent, MDLBEAST SOUNDSTORM, Saudi Arabia) (2024-02-01) [MP3|320 Kbps] <House, Tech House>
@@ -517,238 +752,6 @@ GOODBOYS - Tomorrowland Friendship Mix (2024-03-28) [MP3|320 Kbps] <House, Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A34C98167536B2EE4F27C50FF128320191C873F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711328   (112514) от 29.03.2024
-
-Lane 8 - Spring 2024 Mixtape (2024-03-19) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. Otherwish - Feel Yourself Again
-03. Jamie xx - It's So Good (Original Mix)
-04. Pete K - Echoes Of Us(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831C1975E267D87C48986DE76715F209705187BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712503   (112106) от 03.04.2024
-
-Korolova - Live @ Captive Soul, Centrum Eventowe Butelkownia Warsaw (2024-03-16) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Korolova ft. Ross Quinn - ID
-02. Korolova & Monophase - Voyager
-03. Piero Pirupa - Change Your Mind (Korolova Remix)
-04. Massano - Cybernova(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D264DEB7D1D6D8D98840C0CA7AF7656D68B6282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713153   (111914) от 05.04.2024
-
-VA - Armin van Buuren - A State Of Trance 1167 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nico De Andrea & Eli & Fur - Start The Fire
-02. Yotto & AVIRA - Forget (Progressive Pick)
-03. Beatsole - Always Spring
-04. Dan Stone - With You(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61798D4E69B01823FE2E5862843B1B146FDA8805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713421   (111904) от 06.04.2024
-
-MORTEN - Tomorrowland Friendship Mix (2024-04-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN - The Truth
-02. DJ T. - Dis (2023 Remake)
-03. Eitan Reiter - Pump Up The Jam (DJ T. Remix)
-04. RAFFA GUIDO - Famax(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2EE94C97AA54DD0BD47CD2BDB67FE508304F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713438   (111880) от 06.04.2024
-
-Markus Schulz - Global DJ Broadcast World Tour (MAD Club Wynwood Miami, Miami Music Week) (2024-04-04) [MP3|320 Kbps] <Progressive House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz (Recorded Live from MAD Club in Wynwood, Miami - March 23 2024)
-01. Anyma - Chordial
-02. Pryda - The Hiidden
-03. Frenckel & Ton TB - Dark Cloud(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B50300C86DACD2115121212CB2D53C7221CEB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715415   (111563) от 12.04.2024
-
-VA - Armin van Buuren - A State Of Trance 1168 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elysian - Now We Are Free
-02. Nilsix - Gone
-03. Grum - Voyager2
-04. Estiva - Fine Day(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A927565B7C645B2C80AD27433858CF9F68E4BA19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715476   (111536) от 12.04.2024
-
-Vintage Culture - Live @ Warung Beach Club 2024 (Opening Fiesta) Itajai, Brazil (2024-03-29) [MP3|320 Kbps] <Progressive House, Tech House, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WaWa ft. Eddie Amador - The After Party 2011 (ID Remix)
-02. Arude - Nocturne
-03. Adam Beyer & Vintage Culture - Lift Me Up
-04. Vintage Culture & Oliver Marshak - ID(   Читать дальше...   )Жанр: Progressive House, Tech House, Melodic HouseПродолжительность: 02:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22166517CF1D29B509055AB3013090BF3E0F6625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717393   (111128) от 21.04.2024
-
-VA - Armin van Buuren - A State Of Trance 1169 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AOA - Burn
-02. Steve Brian - The Observer
-03. Matt Fax & Maxim Lany ft. Cartouche - Why Do I (Progressive Pick)
-04. The Blizzard - Piercing The Fog (Flaor & The Blizzard Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:211D667494BD6BF2AA27389357A3EF7CA861F89D
 ```
 
 https://mybot314.ru/tekegram_catalog/

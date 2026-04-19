@@ -1,3 +1,61 @@
+###  Публикация: 989296   (917144) от 22.02.2016
+
+VA - Uplifting Only - Orchestral Trance Year Mix 2015 (Mixed by Ori Uplift) (2016) [MP3|320 кб/с] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illitheas - Endless (Intro Mix Edit) (8:07)
+02. Ahmed Romel - Paradisum (7:57)
+03. SoundLift - Wonderful Feeling (8:01)
+04. Afternova - Into the Sky (2015 Remake) (7:18)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04199D11A3B388191728E9CC17129939F80BB65F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490404   (915509) от 22.08.2021
+
+VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Activa - Polestar (Extended Mix) [6:53]
+02. Andy Moor & Somna with Linney - More Than Love (Craig Connelly Extended Remix) [6:50]
+03. Richard Durand - White Dolphins (Extended Mix) [5:17]
+04. Dennis Sheperd & EKe & Alex Di Stefano - Playing With Fire (Alex Di Stefano Extended Remix) [7:01](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F76DD3DF86696FD9537E7C3E405DA026D56CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991239   (908019) от 27.02.2016
 
 Ferry Corsten - Hello World (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
@@ -684,64 +742,6 @@ Gareth Emery - 100 Reasons to Live (2016) [MP3|320 кб/с] <Progressive Trance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7C2E696155095A6A74E5D0430FC8FCD4BC16753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004107   (840015) от 05.04.2016
-
-VA - Vocal Trance Philosophy Vol.2 (Mixed by Vyze) (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Blizzard & Daniel Van Sand Ft. Julie Thompson - Made For You 05:16
-02 Andrew Rayel Feat. Jano -  How Do I Know 03:55
-03 Shogun Feat. Emma Lock - Save Me 05:01
-04 Andy Moor Feat. Sue Mclaren - Fight The Fire 05:40(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 05:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8990268A80BBE2F31FFA84BDCC32C927BFFC22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114716   (832087) от 15.03.2017
-
-Martin Graff & Eva Kade - Destiny (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Martin Graff - Days Go By (Original Mix)  4:55
-02.  Martin Graff - Dreamwalker (Original Mix)  6:15
-03.  Martin Graff - King of Sea Lions (Original Mix)  6:26
-04.  Martin Graff & Kalim Milo - More Than Ever (Original Mix)  5:55(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73040F657F292F4047371A4739A8B2FFFD6ACA92
 ```
 
 https://mybot314.ru/tekegram_catalog/

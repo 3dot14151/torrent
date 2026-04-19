@@ -1,3 +1,61 @@
+###  Публикация: 1261548   (303479) от 11.11.2018
+
+VA - DJ Hitparade Jubiläeumsedition: 40 Größe Hits Aus 10 Jahren (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Der Letzte Tag Im Paradies (DJ Mix Extended)
+02. Fantasy - Darling (Foxmix)
+03. Andreas Martin - Ich Fang Dir Den Mond (Fox Fun Mix)
+04. Christian Anders - Gespensterstadt 2009 (3select-Rmx)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A54C367A68447F517E1132BD4671B9EA73C0E59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333437   (303417) от 25.10.2019
+
+Nick Kamen - 4 Albums (1987-1992) Collection [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1987 - Nick Kamen
+1988 - Us
+1990 - Move Until We Fly(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 02:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5893C300577F18F1A19D1A6D541DA40C8E0144CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183690   (303210) от 16.11.2017
 
 Boney M. - Worldmusic for Christmas (2017) 2CD [MP3|320 Kbps] <Pop, Disco>
@@ -687,64 +745,6 @@ Giorgia - Pop Heart (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C448BA5A16A67C8613D65DED20B7E776BB2EE355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962953   (290979) от 06.12.2015
-
-VA - I Love ZYX Italo Disco Collection Vol.18 (2014) 3CD [MP3|320 кб/с]<Italo-Disco, Dance, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290979.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 Radiorama - Bad Girls (12'' Version)
-02 Boo Who - Angie Cries (Maxi Version)
-03 Kehn Lesslon - Hey Hey Guy (12'' Version)(   Читать дальше...   )Жанр: Italo-Disco, Dance, EurodanceПродолжительность: 03:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DF14A859F2FE5A2747EEFD78DA00DA7D3D767D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963135   (290736) от 06.12.2015
-
-Eurielle - Arcadia (2015) [OGG|482-537 кб/с]<Alternative Pop, Contemporary Classical, Relax>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City of the Dead
-02. Raindrops
-03. Rescue Me
-04. Whispers(   Читать дальше...   )Жанр: Alternative Pop, Contemporary Classical, RelaxПродолжительность: 01:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08FF2245C8939F2199807C59FC17EBF285B8196
 ```
 
 https://mybot314.ru/tekegram_catalog/

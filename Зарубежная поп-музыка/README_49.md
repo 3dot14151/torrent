@@ -1,3 +1,61 @@
+###  Публикация: 1160687   (474141) от 25.08.2017
+
+VA - Festivalbar '78  (1978) 2LP [MP3|320 Kbps] <Electronic, Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umberto Tozzi - Tu (4:02)
+02. Leano Morelli - Cantare Gridare... (3:31)
+03. Lina Savona' - Maya (3:50)
+04. El Pasador - Mucho Mucho (3:04)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 01:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A340E049436904EDB1BF9BF65BD151508469E44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058252   (470947) от 30.09.2016
+
+Craig David - Following My Intuition (2016) Deluxe Edition [MP3|320 Kbps] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain’t Giving Up (Feat. Sigala)
+02. When the Bassline Drops (Feat. Big Narstie)
+03. Don’t Go
+04. 16(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D935654E7C3A11B149FB3978850F5D577636013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320642   (469378) от 19.08.2019
 
 Kish Mauve - Black Heart (2009) [MP3|320 Kbps] <Alternative Pop, Electropop, Electroclash>
@@ -728,64 +786,6 @@ VA - NOW That's What I Call Music! Vol. 83 (2022) [MP3|320 Kbps] <Hip Hop, Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49858AE5CD3B0BB9342363F71E549E5F20447E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942188   (455970) от 30.09.2015
-
-Gregoire - Poesies De Notre Enfance (2015) [MP3|320 кб/с]<French Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Cigale Et La Fourmi
-02. Je Voulais Dans Mon Cartable
-03. Chahut
-04. C'Est Demain Dimanche(   Читать дальше...   )Жанр: French Pop, ChansonПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0939F6227224E251C2F657B44741B9C1B2A62F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162826   (454981) от 03.09.2017
-
-Bardeux - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Dance-pop, Synth-pop, Hi NRG>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bardeux - американский танцевальный дуэт 80-х годов, выпустивший достаточное количество хитов за свое недолгое существование. Исполнительницы: Acacia (Stacy Smith) - постоянно, Jaz (Lisa Teaney) - первый альбом, Melanie Taylor - второй.01. Magic Carpet Ride (3:24)
-02. Three Time Lover (3:31)
-03. Caution (3:38)
-04. Bleeding Heart (3:55)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Synth-pop, Hi NRGПродолжительность: 01:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEEC950523BA2E69CD9B09FF684022D7D59FECA
 ```
 
 https://mybot314.ru/tekegram_catalog/

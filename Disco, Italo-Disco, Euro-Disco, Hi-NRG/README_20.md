@@ -1,3 +1,61 @@
+###  Публикация: 1298911   (599758) от 01.05.2019
+
+VA - I Love Disco - Grand Prix 70's (2010) [MP3|320 Kbps] <Electronic, Italo Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599758.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Donna Summer - I Feel Love
+02. Gary's Gang - Keep On Dancin'
+03. Eddy Rosemond - Wake Up And Move... Funk It(   Читать дальше...   )Жанр: Electronic, Italo Disco, DiscoПродолжительность: 02:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E1ABCDCA9B29F2CD5774C2CFFAD0FA56F5FCAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038896   (599536) от 30.07.2016
+
+Kasso - 2 Albums (1982, 1984) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkman (5:30)
+02. One More Round (4:37)
+03. On The Sea (3:27)
+04. I Wanna Know (4:43)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70271813E41CC330826057E349C35F476C89EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 806153   (598828) от 19.07.2014
 
 Modern Talking - Music & Video Stars (2013) [MP3|320 кб/с]<Pop, Eurodisco>
@@ -726,64 +784,6 @@ VA - Eurodisco 80's Maxi Hits & Raritites, Vol. 2 (2020) [MP3|320 Kbps] <Euro-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F92B21FA3396267AFE6C86764425AD175644B53F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550917   (591207) от 13.05.2022
-
-Milk And Coffee - 2 Albums (1982, 1986) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Milk And Coffee (или Milk & Coffee) - итальянская группа, основанная в 1979 году.01. L' Amore Viene E Va (3:47)
-02. Ci Sei Tu (3:28)
-03. Marina (2:53)
-04. Fever (3:37)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A619CA91CBEA27DC271F56B5BBF1ECD2456C626A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551376   (590200) от 15.05.2022
-
-Didier Marouani - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дидье Маруани - французский музыкант, композитор и клавишник, лидер группы Space. Один из пионеров электронной музыки. В раздаче представлены мало пропиаренные альбомы.01. Crazy Machines (5:09)
-02. Lover's Song (Part One) (4:28)
-03. Anywhere (5:29)
-04. Three Years Ago (4:18)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C12D50263D04AE0A117663C0AC59868B96F4DA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

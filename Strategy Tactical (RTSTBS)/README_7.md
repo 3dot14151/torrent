@@ -1,3 +1,29 @@
+###  Публикация: 1228047   (640717) от 29.05.2018
+
+TASTEE: Lethal Tactics (2016) [Ru/Multi] (1.0/dlc) License CODEX [Ultimate Collector's Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из лучших ожидаемых инди-игр на Destructoid в 2016 году. Это TASTEE: победа за нами. Вы большой босс, вы создаете план и используете все средства, которые только доступны. Вам придется проделать грязную работенку, которую не может выполнить правительство. Тайно, без всяких санкций и абсолютно нелегально. Они элита, неуловимы и чертовски опасны. Эти независимые (   Читать дальше...   )Тип издания: LicenseРазработчик: SkyBox LabsЖанр: Strategy (Turn-based, Tactical), 3DЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8E7C4A722699636D67FA81BFEC0C860A98E8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035106   (629810) от 15.07.2016
 
 Infinium Strike (2016) [Ru/Multi] (1.0) Repack Other s
@@ -645,32 +671,6 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.2.6) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B467C5B7CC546FC54046ED0274C48434B677348C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044172   (566411) от 19.08.2016
-
-Warhammer 40,000: Armageddon - Da Orks (2016) [Ru/Multi] (1.0) License SKIDROW
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warhammer 40,000: Armageddon: Da Orks - вторая часть в серии варгеймов о войнах за Армагеддон и один из самых знаковых конфликтов во вселенной Warhammer 40,000. В этой гексаганальной пошаговой стратегии, игроку предстоит возглавить Орков в сражениях против Имперских сил Стального Легиона Армагеддона и Космических Десантников из различных Орденов под палящим солнцем (   Читать дальше...   )Тип издания: LicenseРазработчик: Flashback Games и The Lordz Games StudioЖанр: Strategy (Turn-based, Tactical), IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE997403D2848B33475882975D72F6E01261C197
 ```
 
 https://mybot314.ru/tekegram_catalog/

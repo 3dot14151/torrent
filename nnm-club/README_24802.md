@@ -1,25 +1,23 @@
-###  Публикация: 1794556   (67262) от 29.04.2025
+###  Публикация: 1782406   (70022) от 28.02.2025
 
-Gil Laine - Screw You! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Singer & Songwriter>
+НХЛ 2024-2025. Сент-Луис Блюз - Вашингтон Кэпиталз (27.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Screw You! (3:24)
-02. Many Years (4:04)
-03. Be There (4:50)
-04. Echo (4:50)(   Читать дальше...   )Жанр: Blues, Singer & SongwriterПродолжительность: 01:03:21
+28 февраля 2025, пятница. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Брэндон Бландина (Сентенниал, США); Линейный: Девин Берг (Китченер, Канада); Линейный: Тайсон Бэкер (Сейнт Мэрис, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:40:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69E32E0F7C3975323DEC8279B718CCD6D8664F51
+magnet:?xt=urn:btih:FE9445A4232495C3E62422279132851F00F0B1C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794541   (67261) от 29.04.2025
+###  Публикация: 1782432   (70021) от 28.02.2025
 
-Cristina Vane - Hear My Call (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Country>
+Декларация независимости Джейн / Jane's Declaration Of Independence (1915) WEBRip [H.264/720p]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Do You Want To Lose (3:31)
-02. Coming In Hot (3:16)
-03. Little Girl From Nowhere (3:27)
-04. Hard Rock Bend (3:05)(   Читать дальше...   )Жанр: Blues,  CountryПродолжительность: 00:43:19
+Девушка влюблена в лихого лейтенанта армии, но ее отец отказывается дать ему ее руку. Дочь взывает к патриотизму отца, но когда он не смягчается, заявляет о своей независимости.
+В общем, такая лирическо-патриотическая история. На что только девушки ни бывают готовы, лишь бы замуж выскочить!Производство: США / Bison Motion PicturesЖанр: короткометражный, драма, немое киноРежиссер: Чарльз ГиблинАктеры: Хобарт Хенли, Аньес Вернон, Фрэнк МакКуорри, Джин Хэтэуэй, Гордон ГриффитПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русскиеПродолжительность: 00:16:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A39BE7084637C36F64E141DBE3F4C459C6A4AC1D
+magnet:?xt=urn:btih:5D50B22DC51C8796DFAB187DDA1A5EC91127CC8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,86 +52,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794380   (67260) от 29.04.2025
+###  Публикация: 1782311   (70020) от 28.02.2025
 
-Aggravated Assault - The Order of Chaos (2025) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apathy
-02. Vivisection
-03. War Cry
-04. The Dahmer Party(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B75CD6A3BE8EB753D0C667DA7D927AF5176D8F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794554   (67259) от 29.04.2025
-
-Ged Wilson - Regular Man (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regular Man (3:54)
-02. Tib Street Blues (3:32)
-03. Movers and Shakers (4:57)
-04. Street Dog (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AFB5C6517B1BEB0D876E8EC52D649ECF76E96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794587   (67258) от 29.04.2025
-
-Redemption - The Hard Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
+Sirrah (Poland) - Studio Albums (3 releases) (1996-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Death/Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kick Away (4:33)
-02. The Flame (3:50)
-03. Thunder & Pain (5:20)
-04. The Hard Way (3:16)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:41:31
+Sirrah - польская метал-группа, играющая в стиле дум\дэт-метал, образовавшаяся в городе Ополе в 1992 году1996 - Acme
+1997 - Did Tomorrow Come
+2013 - Thrill You (Single)
+.Жанр: Gothic/Death/Doom MetalПродолжительность: 01:52:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1618EB172DA1251BC2C5F8441A2F6B1543BB0BBB
+magnet:?xt=urn:btih:827837427EC9DB8514073186E00439577922ABC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,115 +81,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794586   (67257) от 29.04.2025
+###  Публикация: 1782387   (70019) от 28.02.2025
 
-Prost - Believe Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lone Survivor (4:33)
-02. Believe Again (4:39)
-03. Comfort Zone (3:54)
-04. Never Let You Go (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF94B29FAA76DB9B548E9AAECC51582F5CE7EA0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794427   (67256) от 29.04.2025
-
-Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry Me a River    [0:04:14.56]
-02. All of Me    [0:03:07.64]
-03. Georgia on My Mind    [0:03:08.17]
-04. Crazy Love    [0:03:31.22](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA379758BA7C64DB79BA58FF0A2584CE1954BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794561   (67255) от 29.04.2025
-
-Lightnin' G-Bird - I Was Fool About You (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Was Fool About You (5:02)
-02. Straight To Hell (2:39)
-03. I Got You (2:42)
-04. No Money Down (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5FA2379A9455DE0127E9B802D14D3D7229D2FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794534   (67254) от 29.04.2025
-
-Ellen Lebowitz - Invitation to Yesterdays (1998) Rockmoss Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Freddie Hubbard - Bundle of Joy / Super Blue / The Love Connection (1977 - 1979) 2CD, 2013, BGO Records [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yesterdays [4:16]
-02. Dindi [6:09]
-03. Lush Life [5:50]
-04. Water to Drink (Agua de Beber) [4:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:47
+01. The Gospel Truth [5:03]
+02. The Surest Things Can Change [6:19]
+03. Theme for Kareem [6:08]
+04. The Love Connection [8:20](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-FunkПродолжительность: 02:03:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C77D9DEDC1678153EAB0CD38B6F36C7B88848BA8
+magnet:?xt=urn:btih:C40C8C68F63D8CADB686C44D8B39464C11891FDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +110,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794559   (67253) от 29.04.2025
+###  Публикация: 1782344   (70018) от 28.02.2025
 
-Gurf Morlix - The Taste of Ashes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
+VA - Ori Uplift - Uplifting Only Episode 629 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitriy Kuznetsov – Limerence (Intro Edit)
+02. Saad Ayub ft. ArDao – Shinrinyoku (Orchestral Uplifting Classic)
+03. Alan Morris & Elixus – Come With Me
+04. Niko Zografos & Christina Novelli – In Too Deep(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11CB590DC91D089C84AFFA1D4581D02F0B20A5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782393   (70017) от 28.02.2025
+
+Freddie Hubbard - Keep Your Soul Together / Polar AC / Skagly (1974, 1975) 2CD, 2014, BGO Records [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. This Is Real (4:32)
-02. This Side of Empty (4:31)
-03. More of These Blues (4:56)
-04. Life Is the Question (5:07)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:43:29
+01. Happiness Is Now [7:53]
+02. Theme from 'Summer of '42' (The Summer Knows) [5:36]
+03. Cascais [7:44]
+04. Skagly [14:35](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-FunkПродолжительность: 02:00:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B26715DE5E67564215461831E8DC30AB3374F08
+magnet:?xt=urn:btih:FF24C481F744092A20E02B8005EA8D218E1049EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +168,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794551   (67252) от 29.04.2025
+###  Публикация: 1782489   (70016) от 28.02.2025
 
-Dudley Taft - The Speed of Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Мария Дюричкова | Данка и Янка в сказке (2015) [PDF, DJVU]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wanted Man (3:22)
-02. Miles and Miles to Go (4:47)
-03. Work It Out (3:23)
-04. Burn It Down (2:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:23
+Данка и Янка в сказке — произведение Марии Дюричковой, посвящённое приключениям двух сестёр-близнецов. Оставшись дома одни, девочки находят волшебство повсюду: они знакомятся с человечком из будильника и рассказывают воробушку Доминику о выигрыше в лотерею, пережидают грозу в домике улитки и наведываются в гости к медведю Деметру. Милые сказки о Данке и Янке позволяют (   Читать дальше...   )Жанр: Детская прозаПеревод: Галины Николаевны ЛукинойИздательство: Мелик-ПашаевФормат: PDF, DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15483C3D7A51D5F9076B24750B2A9A6015869BFF
+magnet:?xt=urn:btih:78AF86074DCEAEC8312A445F5D0A39EC27395F87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794560   (67251) от 29.04.2025
+###  Публикация: 1782307   (70015) от 28.02.2025
 
-Katie & The Bad Sign - Revolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Туман - Zuhanas (2017) [FLAC|Lossless|WEB-DL|tracks] <Black metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wolf at the Door (3:44)
-02. Revolution (3:38)
-03. Heartless Woman (3:38)
-04. Shake Me Down (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:12
+01. Prologue (2:40)
+02. Érzéslenyomatok I (6:20)
+03. Érzéslenyomatok II (7:19)
+04. Zuhanás (7:35)(   Читать дальше...   )Жанр: Black metalПродолжительность: 00:39:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23816DF46281BF7A535A0DD4D9AE5C87C47BA12F
+magnet:?xt=urn:btih:88FD9DF4CEC21CB16F7598E65C2F993ACE930DAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,25 +223,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794410   (67250) от 29.04.2025
+###  Публикация: 1782420   (70014) от 28.02.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Spring Herbal Spa Day Clipart [PNG]
+Виктор Сенча | Культурный слой. Марина Цветаева. Рябина – судьбина горькая (2022) [MP3, Зоя Банкетова]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт на тему весеннего спа.Формат: PNGРазрешение файлов: 4096 x 4096
+Серия/Цикл: Культурный слой.
+О Марине Ивановне Цветаевой (1892–1941) сказано и написано много; однако, сколько бы ни писалось, всегда оказывается, что слишком мало. А всё потому, что к уникальному творчеству поэтессы кто-то относится с благоговением, кто-то – с нескрываемым интересом; хотя встречаются и откровенные скептики. Но все едины в одном: цветаевские строки (   Читать дальше...   )Жанр: Русская литература, воспоминания, мемуарыИздательство: ЛитРес: ЧтецПродолжительность: 11:39:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9795503FDC5D4B5D9B6BCCF937416BAE8FC234B8
+magnet:?xt=urn:btih:95E11442136A83857BFCF17F47C5511FCF30D937
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,28 +250,137 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794590   (67249) от 29.04.2025
+###  Публикация: 1782335   (70013) от 28.02.2025
 
-The Riven - Visions of Tomorrow (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Гретхен Рубин | Счастлива дома (2021) [MP3, Юлия Шустова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как за две минуты в день улучшить отношения с мужем? Какая реакция на детские шалости самая правильная? Как сломанный зонт может испортить вам жизнь, а пустая полка в шкафу – наоборот?
+Гретхен Рубин – автор мирового бестселлера «Проект Счастье» и женщина, которая знает, что сделать, чтобы ситуации, которые вас раздражали, стали приносить радость и удовольствие. Ведь (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: БОМБОРАПродолжительность: 08:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D18FE8263F2A3013135130F083C6A485DDFA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782487   (70012) от 28.02.2025
+
+Георгий Александрович Балл | Тигрушка-добрушка (1979) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды злой хозяин так зарычал, что, наверно, лопнул от натуги А может быть, от злости он превратился сам в настоящего тигра и убежал в лес? Так или иначе, но никто больше не видел его в нашем городке. И все о нем забыли А коричневый пудель остался жить в оранжевом доме, и все его стали называть Тигрушка-Добрушка.Жанр: Детская прозаИздательство: Детская литератураФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205EC2E67929D931AE3E4D34EB6EF102110693F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782430   (70011) от 28.02.2025
+
+Ольга Черненькова | Воин и дева. Мир Николая Гумилева и Анны Ахматовой (2020) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Storytel – жизнь в историях».
+Книга Ольги Черненьковой рассказывает о жизни двух величайших поэтов Серебряного века – Анне Ахматовой (1889–1966) и Николае Гумилеве (1886–1921). Вы узнаете о сложной истории их взаимоотношений, которая развивалась на фоне происходившей в стране драмы. Два поэта, две личности, соединившиеся в браке, – случай уникальный. (   Читать дальше...   )Жанр: Русская литература, биографии, воспоминания, мемуарыИздательство: ООО «Эвербук»Продолжительность: 11:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85F7BAC00E0C864BBA37D67D2072589EA5CE969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782340   (70010) от 28.02.2025
+
+VA - Armin van Buuren - A State Of Trance 1214 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Bon Jovi – Keep The Faith (Tune Of The Week)
+02. Protoculture & Benjamin Duchenne – Shiva
+03. Estiva – KFIL (Progressive Pick
+04. Ferry Corsten – Punk (KASIA Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1F966DB3A936460EE6238295CC40D3960BA081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782347   (70009) от 28.02.2025
+
+Robin McAuley - Soulbound (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Far Away From Home (3:54)
-02. Killing Machine (3:33)
-03. Set My Heart On Fire (3:14)
-04. Travelling Great Distance (3:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:29
+01.  'Til I Die (4:21)
+02.  Soulbound (4:29)
+03.  The Best Of Me (3:40)
+04.  Crazy (4:18)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35AB85E0B68DFC37FC9E40644BB3D0487F558114
+magnet:?xt=urn:btih:6C0677E15EB7B89D08514C55552E7A3920770A4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,26 +388,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794557   (67248) от 29.04.2025
+###  Публикация: 1782483   (70008) от 28.02.2025
 
-Даниил Гранин | Мой лейтенант (Главы из книги) (2024) [MP3, Иван Краско и др.]
+Григорий Маркович Кружков | Облако с крылечком (1991) [PDF, DJVU]
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Даниил Александрович Гранин (1919–2017) – русский писатель, киносценарист, общественный деятель.
-Пронзительный роман Даниила Гранина «Мой лейтенант» показывает нам войну глазами младшего офицера. Писатель-фронтовик не понаслышке знал тяготы фронтовой жизни, будни окопной войны и правдиво отобразил их на страницах своего романа. Эта книга для тех, кто не любит громких (   Читать дальше...   )Жанр: Русская литература, романИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:44:29
+Весёлые и серьёзные, лирические и игровые стихи. Стремясь заразить ребёнка любовью к поэзии, автор воспитывает в нём бережное отношение к слову, подталкивает к первому самостоятельному творчеству.Жанр: Детские стихиИздательство: Детская литератураФормат: PDF, DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBB6EB288D1D060931827208AF231ABE6599EF37
+magnet:?xt=urn:btih:40A63FC6BEC6FD2D446AAA97D1E4D88090200ABF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,54 +414,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794552   (67247) от 29.04.2025
+###  Публикация: 1782302   (70007) от 28.02.2025
 
-Даниил Гранин, Алесь Адамович | Блокадная книга. Часть II (2020) [MP3, Игорь Гмыза]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Эксклюзивная классика (АСТ).
-Даниил Александрович Гранин (1919–2017) – русский советский писатель, киносценарист, общественный деятель.
-Алесь Михайлович Адамович (1927–1994) – белорусский советский писатель, сценарист и литературовед, критик.
-Есть вещи, которые человечество забывать не должно, если оно хочет оставаться человечеством. И подвиг ленинградцев-блокадников (   Читать дальше...   )Жанр: Русская литература, повесть, книги о войне, биография и мемуарыИздательство: Аудиокнига (АСТ)Продолжительность: 14:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894AC7E993668D0E35B388236893A1C506316FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794413   (67246) от 29.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Dragon Watercolor Clipart [PNG]
+Шрифты - Creative Market - Rittalle - Modern Serif - 285675169 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт с драконами.Формат: PNGРазрешение файлов: 4096 x 4096
+Представляем Rittalle — шрифт с засечками, высокой контрастностью и плавными изгибами, который производит элегантное и современное впечатление с нотками острых углов, идеально подходящий для сложных дизайнерских приложений.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2DFC74F919F5E9D34C84A809B661DADACF247EA
+magnet:?xt=urn:btih:FBEA0145E011675586094A6F819AD278A129AAF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,25 +442,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794416   (67245) от 29.04.2025
+###  Публикация: 1782479   (70006) от 28.02.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Easter Eggs Clipart [PNG]
+Алексей Лаптев | Пик, Пак, Пок (2017) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатель этой книжки член-корреспондент Академии художеств Алексей Михайлович Лаптев был очень талантливым и добрым человеком. Он нёс радость и взрослым, и детям. В нём, как в волшебной шкатулке, постоянно рождались и роились стихи, а зоркие глаза художника замечали смешные и интересные детали нашего смеющегося мира.
+В этой книжке он — и поэт, и художник — обращается (   Читать дальше...   )Жанр: Детские стихиИздательство: Мелик-ПашаевФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E711B8B8D985CC8E91F63B6A88CE0F788BE770F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782394   (70005) от 28.02.2025
+
+Шрифты - Creative Market - Syclone | Blackletter Typeface - 290868201 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт на тему пасхальных яиц.Формат: PNGРазрешение файлов: 4096 x 4096
+Syclone шрифт от Denustudios, подходящий для любых проектов.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A4292E732C1BD2B7422A0AA30955BA6133C6621
+magnet:?xt=urn:btih:838AA26E527A16A0FB6DC2BE06DE8E82BA2ECCAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,25 +497,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794412   (67244) от 29.04.2025
+###  Публикация: 1782635   (70004) от 01.03.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Cute Baby Bear Sleep Clipart [PNG]
+Шрифты - Creative Market  - Ozilic - 290887355 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с медвежатами.Формат: PNGРазрешение файлов: 4096 x 4096
+Ozilic — это тщательно созданный шрифт с засечками, предназначенный для удовлетворения разнообразных творческих потребностей. Вдохновленный современными стилями шрифтов, он обладает комплексными функциями OpenType, предлагая максимальную гибкость для ваших дизайнерских проектов. Работаете ли вы над постерами, названиями фильмов, книгами, брендовыми носителями или (   Читать дальше...   )Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F381344A5A8AFC029432E06D136EF56CF681DFB
+magnet:?xt=urn:btih:685E9A8322F2C210F67FAF46C453F59ABBD08B1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,28 +523,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794455   (67243) от 29.04.2025
+###  Публикация: 1782601   (70003) от 01.03.2025
 
-VA - Progressive Frequencies #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+Журнал | Наша история №3 (69) (март 2025) [PDF]
 
->>Electronic
->>House
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jakliu - Don't Forget [03:44]
-02. Deodar - Initiate [07:12]
-03. Sigooma - Vegas Breakfast Nuts [07:06]
-04. Pat H - Roots of the Bonsai Tree [07:04](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:17:08
+Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:541791DA01FCCA0099F35405550BC03B435E17D8
+magnet:?xt=urn:btih:C32182BE090C9E1979B68F72E5F6A7D2F7EF75A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,28 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794402   (67242) от 29.04.2025
+###  Публикация: 1782536   (70002) от 01.03.2025
 
-Periphery - Periphery II: This Time It's Personal (2012) Released, 2019, Sumerian Records [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Metalcore>
+Апперкот / Uppercut (2025) WEB-DLRip [MVO] [AD]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Muramasa
-A2 Have a Blast
-A3 Facepalm Mute
-A4 Ji(   Читать дальше...   )Жанр: Progressive Metal, MetalcoreПродолжительность: 01:08:42
+Тони прошла путь от обучения боксу у Эллиотта, владельца спортзала, до менеджера по боксу, который направляет Пейна на чемпионский бой, опираясь при этом на уроки, полученные от Эллиотта.Производство: Германия, США / Hello Moment Productions, Good Weird Films, How Ru? EntertainmentЖанр: драма, спортРежиссер: Torsten RuetherАктеры: Винг Реймз, Луиза Гроссманн, Джордан Е. Купер, Джоанна Кэссиди, Скотт Монахэн, Эндрю Ибах, Lynn Favin, Мэнни Айала, Biko Eisen-Martin, Cedric Brandon JonesПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:36Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:646A55C3C5D5065006D400E72C435F375C781E6B
+magnet:?xt=urn:btih:EAB54A310DB77208AD7B50550A9AF98EA996ADB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,28 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794522   (67241) от 29.04.2025
+###  Публикация: 1782671   (70001) от 01.03.2025
 
-Ausweglos - Ausgestoßen (2025) [MP3|320 Kbps] <Atmospheric Black Metal>
+Следствие вели... (01.03.2025) WEBRip [H.264/1080p]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vergänglichkeit
-02. Eine Erzählung
-03. Einsamkeit
-04. Funeral Song(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:53:41
+«Охота на гармониста». 1982 год, Республика Коми. В маленьком поселке убита женщина и двое ее маленьких внуков. Что это — бытовая ссора или месть? Какую тайну скрывал сын жертвы? Как преступнику помешали детские страхи? И какую роль в этом деле сыграла гармонь?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9DCECDBA2785B4AD021C767E9A23934AD5152CC
+magnet:?xt=urn:btih:D3694F9DB0AB64D0D810F3898697E20C0E13BCED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,28 +601,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794535   (67240) от 29.04.2025
+###  Публикация: 1782658   (70000) от 01.03.2025
 
-Disfuneral - In Horror, Reborn (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+Paul Van Dyk - Live at Mayday (2000) TVRip [H.264/1080p-LQ] [hand made Upscale AI]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Catacomb Dwellers
-02. Tombs Vomiting the Dead
-03. Ripped from Within
-04. Crypt of Demented(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:19
+Запись ежегодного музыкального фестиваль "Mayday" c немецкого музыкального ТВ-канала VIVA. Данный фестиваль прошёл 30 апреля 2000 года в спорткомплексе "Westfalenhallen Dortmund", который расположен на улице Rheinlanddamm в Дортмунде.01. Xmas partys now (DJ Winners)
+02. Beta blocker (John Rees & Helios)
+03. Sandstorm (Darude)
+04. Welcome to the dance (Des Mitchell)(   Читать дальше...   )Производство: ГерманияЖанр: Techno, TranceРежиссер: Vandit RecordsАктеры: Paul Van DykПродолжительность: 00:37:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:153B30227D1DEFFEE146BB6D94B2C74998AF584F
+magnet:?xt=urn:btih:01DE7C79F9554A6C02259F614EE55522583582F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,28 +630,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794546   (67239) от 29.04.2025
+###  Публикация: 1782346   (69999) от 01.03.2025
 
-Samael - Ceremony of Opposites (1994) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
+Футбол. Чемпионат Италии 2024/25. Серия А. 26-й тур. Кальяри - Ювентус (23.02.2025) TVRip [H.264] [50fps]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Black Trip
-A2 Celebration Of The Fourth
-A3 Son Of Earth
-A4 Till We Meet Again(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:36:12
+На своём поле поддерживаемый родными болельщиками «Кальяри» непременно сделает всё, чтобы доставить «Ювентусу» как можно больше неприятностей. И всё же «старая синьора» — явный фаворит. Она выиграла шесть из восьми предыдущих очных встреч. Две другие ознаменовались мирными исходами. Разница в классе весьма солидная. Она должна сказаться снова.
+Серия-А 26-тур (23.02.25) (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:46:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B54BBFD6CB7B8F15026F8B2670CC3C6F5B503AAB
+magnet:?xt=urn:btih:85173A14ACDBB193FF48A87987D915B423BDFA8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,28 +657,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794476   (67238) от 29.04.2025
+###  Публикация: 1782419   (69998) от 01.03.2025
 
-Corrupter - Gloria in Profundis (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+VA - 80! (1999) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eucharist
-02. Beating Heart Cadaver
-03. Permanent Storage Down Below
-04. Heading for Afterlife(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:45
+01. Simple Minds - Don't You (Forget About Me)
+02. Frankie Goes To Hollywood - Relax
+03. Duran Duran - Wild Boys
+04. Tears For Fears - Shout(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-popПродолжительность: 01:17:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48AC25977C51CBBDD3701FBFB13189A8EC1AE992
+magnet:?xt=urn:btih:0465A882F4BE6DB17FD63DE8432763967087F034
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -709,28 +686,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794539   (67237) от 29.04.2025
+###  Публикация: 1782560   (69997) от 01.03.2025
 
-Chris Kramer and Paddy Boy Zimmermann - Tales Of Tampa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+VA - Best Classical Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Классика
+>>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. So Crazy About You Baby (3:00)
-02. Seminole Blues (3:15)
-03. You Rascal You No. 1 (3:50)
-04. Black Angel Blues (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:05
+01. Sergey Bryukhno - Beyond (1:35)
+02. Sergey Bryukhno - 3 Gymnopédies No. 1, Lent et douloureux (2:53)
+03. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+04. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:28)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:41:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A1F9E0ED9CF8E597D52B06F7093CA1DF0088645
+magnet:?xt=urn:btih:D7D79E356A61BAF99369F7759FD27512614A6D27
 ```
 
 https://mybot314.ru/tekegram_catalog/

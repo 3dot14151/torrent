@@ -1,3 +1,32 @@
+###  Публикация: 1442928   (1036345) от 26.01.2021
+
+Schoenherz - What A Night (1978) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What A Night (2:26)
+02. Too Little To Live But Too Much Fear To Die (6:44)
+03. Rosa (8:34)
+04. Sultry Nights (5:30)(   Читать дальше...   )Жанр: Electronic, Krautrock, Prog RockПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F19F2077B4937B8B0085BEF98ABE2A1918935AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442833   (1036338) от 26.01.2021
 
 Be Cause - New Knights (2021) [MP3|320 Kbps] <Progressive Rock>
@@ -716,35 +745,6 @@ Whitesnake & Chris Collier - The BLUES Album (2020 Remix) (2021) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A38D1F087A63DE5C735CD49B571E0D3481652AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622636   (1030041) от 29.03.2023
-
-M-Opus - At The Mercy Of Manannan (2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Setting Off [00:02:02]
-02. Riverflow [00:06:45]
-03. Whirlpool [00:03:14]
-04. To The Other Side [00:09:03](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436A74C64F8B0E19764753213EEC3B647020A023
 ```
 
 https://mybot314.ru/tekegram_catalog/

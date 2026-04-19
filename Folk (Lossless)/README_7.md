@@ -1,3 +1,32 @@
+###  Публикация: 1305571   (556142) от 01.06.2019
+
+Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Silver Lining  (3:51)
+02 - My House  (2:42)
+03 - Merry Go 'Round  (3:29)
+04 - Dandelion  (3:04)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58ED960956602402404E7D8F13AC34CD57599F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305638   (556132) от 01.06.2019
 
 Kacey Musgraves - Golden Hour (2018) [FLAC|Lossless|tracks] <Country, Folk>
@@ -737,35 +766,6 @@ Bon Iver - i,i (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49731ADAEF42674A5B0F6BE589F178EC8E1675DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404955   (487020) от 28.08.2020
-
-Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whole New Mess (03:42)
-02. Too Easy (Bigger Than Us) (02:32)
-03. (New Love) Cassette (02:50)
-04. (We Are All Mirrors) (02:36)(   Читать дальше...   )Жанр: Indie Folk, Dark FolkПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A95A9BA77FD2752CA18B15FAE2508AC81FF257
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1594096   (179367) от 29.11.2022
+
+VA - House Radio 2022 - The Ultimate Collection #5 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faul & Wad - Changes (Robin Schulz Remix - Radio Edit)
+02. Calmani & Grey - Winter Ocean (LIZOT Radio Edit)
+03. Viva La Panda - Get Lost
+04. Selda - Set It Off(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 00:58:08 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5E3700AA497C80FF481A4C36359AC22AFCA942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594098   (179311) от 29.11.2022
+
+VA - House Radio 2022 - The Ultimate Collection #7 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandy B - Ain't No Need to Hide (Rob Made Pop Mix)
+02. My Elephant Ride - Map of Stars (The Bt Project Dub Remix)
+03. Kuyano - All over Me
+04. Stev Dive - Roses in Rain(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 00:56:02 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC6785D119FA1A7081F81B2CD8811C4BE690FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667039   (178194) от 06.10.2023
+
+VA - Milk & Sugar House Nation Ibiza 2023 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milk & Sugar & Jens Lissat - Can U Hear Me (Extended Mix) (5:57)
+02. Reza & Kroose - In the House Tonight (Extended Mix) (5:39)
+03. Andre Espeut & Alaia & Gallo - Unify (Extended Mix) (6:45)
+04. Earth n Days - In My House (Extended Mix) (5:08)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C894A2B0FCEFBAFD9EBAB6B8E25747375F96AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429058   (177527) от 05.12.2020
+
+VA - Best of EDM Party 2021 (2020) [MP3|320 Kbps] <Future House, Progressive, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Come On (Radio Edit) 3:07
+02. Alpha Squad, Ya-Ya - Miss You (Radio Edit) 3:09
+03. R!Go, Rene Rodrigezz - Yes No Yes 2:18
+04. Stephan F, Ya-Ya - Only Tonight (Radio Edit) 2:57(   Читать дальше...   )Жанр: Future House, Progressive, ClubПродолжительность: 01:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62A451E1D6367FE5C01AE35F75BD171964B67AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429062   (177450) от 05.12.2020
+
+Timmy Trumpet - Mad World (2020) [MP3|320 Kbps] <Big Room, Electro House, Hardstyle>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timmy Trumpet - Intro
+02. Timmy Trumpet, Swedish Red Elephant & 22Bullets - The City
+03. Timmy Trumpet, Jebroer & Dr Phunk - Child Of The Devil
+04. New World Sound & Timmy Trumpet ft. Kheela - Not Like You(   Читать дальше...   )Жанр: Big Room, Electro House, HardstyleПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94501A64CB67B2F2CF6422C3ACE45E0EE4D08F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669110   (173011) от 15.10.2023
+
+VA - Figura Autumn 2023 [MP3|320 Kbps] <Melodic House,Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky Mode - Unknown Planet (Original Mix) (8:11)
+02. Artem Kazantsev & Danil Shevyrev - 2020 (Original Mix) (7:01)
+03. Onia - Symbiosis (Extended Mix) (5:05)
+04. P59 - Most Wanted (Original Mix) (7:16)(   Читать дальше...   )Жанр: Melodic House,Tech HouseПродолжительность: 01:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79A462ABCB8AF70BA034D3DE787433BDF9E9052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669682   (172647) от 17.10.2023
 
 VA - Black Hole House Music 10-23 (2023) [MP3|320 Kbps] <House, Progressive House>
@@ -571,175 +745,6 @@ VA - Ibiza 2016 Winter Clubbing (Deluxe Version) (2015) [MP3|320 кб/с] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9A3205D28CD549D52B27CC0717402FE4E9E8DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968036   (158268) от 22.12.2015
-
-VA - The Sound Of Whartone Winter 2015 (21.12.2015) [MP3|320 кб/с] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonny Wharton - I Feel It (Original Mix) [06:50]
-02. Dirty Secretz - Trippin' (Original Mix) (feat. Rebe) [08:06]
-03. Adam Sharpe - Afrocan (Original Mix) [06:07]
-04. James Kininmonth - Sleepless (Original Mix) (feat. Ruth Sharples) [08:03](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57B18C5AE954F1F332C825093AEA1EF652B2BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 696231   (157962) от 22.12.2015
-
-Exoplanet - Discography 2 Albums & 26 EP (2005-2014) [MP3|320 кб/с]<Progressive House, Techno, Downtempo, Breaks, IDM, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Star (Dmitry Molosh Remix) (07:31)
- 02. Intrepid Traveller (Luis Bondio 'Welfare' Mix) (07:49)Жанр: Progressive House, Techno, Downtempo, Breaks, IDM, Deep House |Продолжительность: 00:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F52CC4C41BDD9A3D09C759249A2CC42D5ACB62B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600389   (157723) от 27.12.2022
-
-VA - World Sound The Best Of 2022 [MP3|320 Kbps] <House, Funky House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kevin Andrews - Pick Me Up (Jackin Mix) (4:48)
-02. Felix Da Funk - Portixol (Original Mix) (5:50)
-03. Ivan Kay & Fiorez - Burning (Original Mix) (5:23)
-04. Michael Seumeren & Emiel Roche - I Am Oldscool (Original Mix) (5:03)(   Читать дальше...   )Жанр: House, Funky HouseПродолжительность: 05:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B4D4716E55554C3326719F929B4443D7FA4070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085898   (156833) от 22.12.2016
-
-VA - Deep and Loud (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tec 77 - Mediterranean - Dan Rubell Remix
-02. Shivana faction - Elementary Levels
-03. Thrill Rules - Hyped
-04. Najwars - Deep Trading(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F7DD32FC1F25F06B0C96AE56DC412C973CB673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968325   (156621) от 23.12.2015
-
-VA - Hed Kandi Anthems (2015) [MP3|320 кб/с] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. StoneBridge - Put 'Em High (feat. Therese)Жанр: Funky, Club HouseПродолжительность: 11:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882D4D50F2D66E40B620F8E99DEE45F6811F2796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270474   (156408) от 19.12.2018
-
-VA - Christmas Dance Party 2018-2019 (Best of Dance, House & Electro) (2018) [MP3|320 Kbps] <House, Dance, Electro-House, Bigroom>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spikaa feat. Deja - Home (Radio Mix)
-02. Sean Norvis feat. Pacha Man and Alexandra Mitroi - Bad Girls (Radio Edit)
-03. John Reyton - Out Of The Dark (Radio Edit)
-04. Geo Da Silva - Pump It Up (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Electro-House, BigroomПродолжительность: 02:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3619A1AE7B058B83FE2EFB235344ABE8870BE511
 ```
 
 https://mybot314.ru/tekegram_catalog/

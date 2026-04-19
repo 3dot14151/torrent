@@ -1,3 +1,200 @@
+###  Публикация: 1516607   (165240) от 12.12.2021
+
+The Baylor Project - Generations (2021) [AAC|~343 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Baylor Project, Kenny Garrett - Strivin' (5:13)
+02. A Love Story (Interlude) (1:46)
+03. Happy To Be With You (6:13)
+04. Love Makes Me Sing (5:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B498BC07D11D8EB19512630947CA5190095746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345997   (164962) от 17.12.2019
+
+Код 8 / Code 8 (2019) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164962.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF544FF0500A6D11A2B5CDFA692619C2CA14E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345995   (164895) от 17.12.2019
+
+Код 8 / Code 8 (2019) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164895.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0280730D31377872325F3C8B965B82854ADAC1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516862   (164559) от 13.12.2021
+
+VA - Chillout King Ibiza: Aperitivo Del Mar (2018) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinematic - Memories (Red Carpet Mix) (6:00)
+02. Retro Rider - Fantaisie Sur La Cote (The Del Mar Dub) (6:59)
+03. Adriatic Grooves - Simsalaboom (Blue Sky Cut) (6:31)
+04. The Ocean Piano - Breath of the Sea (Piano Dream Mix) (5:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282071EE390D6CF0374814BC5B06371626BB652A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516861   (164546) от 13.12.2021
+
+VA - Chillout King Ibiza: Chill Around the World (2017) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pascal Dubois - Costa del Mar (Silent Sea Mix) (4:25)
+02. The Smooth Commander - Beauty Secrets (Bluestar Mix) (5:05)
+03. Sky Sergeant - Holograms (Electric Slide Mix) (5:51)
+04. Chillwalker - Balearic Angels (True Waves Mix) (4:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBF95A82F2A20C6435AAC4F714A597AA1EB5E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516859   (164530) от 13.12.2021
+
+VA - Chillout King Ibiza: The Relax Smoothie (2016) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillwalker - A Dream Comes True (Red Horizon Mix) (5:12)
+02. DJ Maretimo - Sun Addicted (Pure Beach Cut) (4:54)
+03. Sean Hayman - Relax @ the Beach (Tranquility Conga Cut) (5:29)
+04. Cafe Americaine - Caribbean Cream Cake (Tropical Mix) (6:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3ED6C828BCC4003C69C7303C1C9AE49EE1A285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516858   (164518) от 13.12.2021
+
+VA - Chillout King Ibiza: Club Del Mar (2015) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laid Back Avenue - Slow Motion Ballade (Quiet Earth Mix) (4:28)
+02. Orange Music, Mirjam - Take Me 2 the Sea (Floating Voice Mix) (6:56)
+03. The Man Behind C. - Como Aire Cristalino (Latin Mix) (6:25)
+04. Jazzy James Jr. - Jill & Jazz (Vocal Mix) (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734DAABD3DC2AFA87BE6D88ACF9126D0B489D5E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516863   (164490) от 13.12.2021
 
 VA - Chillout King Ibiza: Sunset Hours (2019) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
@@ -529,201 +726,6 @@ VA - Electro Swing Party by Bart&Baker, Vol. 2 (2019) [AAC|~330 Kbps] <Broken Be
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC9FCC6722E159BFF41B13F37B8ED32B120D53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517126   (163606) от 14.12.2021
-
-VA - Electro Swing Party by Bart&Baker, Vol. 4: The Cover Session (2021) [AAC|~322 Kbps] <Broken Beat, Nu Jazz, Electro Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bart&Baker, Minnie Valentine - Last Night a DJ Saved My Life (3:54)
-02. Swingrowers - Pump up the Jam (3:48)
-03. Pisk - Horny (Electro Swing Version) (3:29)
-04. Betty Booom, Slim Khezri, The Hebbe Sisters - Billie Jean (Electro Swing Mix) (3:07)(   Читать дальше...   )Жанр: Broken Beat, Nu Jazz, Electro SwingПродолжительность: 01:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3AD42EE66A0A3D510BF266D3E9672070806FECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517122   (163564) от 14.12.2021
-
-VA - Electro Swing Party by Bart&Baker, Vol. 1 (2018) [AAC|~327 Kbps] <Broken Beat, Nu Jazz, Electro Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papa Django - Back&Beat (3:07)
-02. Varrick Frost - Sweet Dreams (4:24)
-03. Klischee - Mais non (1920 Version) (3:12)
-04. Bart&Baker, The Rasputin Orchestra - Shéhérazade (5:15)(   Читать дальше...   )Жанр: Broken Beat, Nu Jazz, Electro SwingПродолжительность: 01:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5942BE366DE506520249BDE43D638C5C2916FD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517191   (163555) от 14.12.2021
-
-Владимир Асмолов - Трилогия (2013) [AAC|~322 Kbps] <Chanson>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163555.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Интро (0:31)
-1.02. В кинозале темном (3:12)
-1.03. Рэкетмены (4:17)
-1.04. Призрак капитализма (3:02)(   Читать дальше...   )Жанр: ChansonПродолжительность: 03:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:605BEC8810532793E417172D494FAE0E99DE1CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432480   (163531) от 17.12.2020
-
-Довод / Tenet (2020) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163531.jpg" />
-</div>
-
-
-###  Подробнее
-
-После теракта в киевском оперном театре агент ЦРУ объединяется с британской разведкой, чтобы противостоять русскому олигарху, который сколотил состояние на торговле оружием. Для этого агенты используют инверсию времени - технологию будущего, позволяющую времени идти вспять.Производство: Великобритания, США, Syncopy, Warner Bros.Жанр: Фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Юрий Колокольников, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: 02:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72096042D93E1AA9473DF717D549175A8A1AD3AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517198   (163521) от 14.12.2021
-
-Владимир Асмолов - Мы пришли из снегопада (2021) [AAC|~320 Kbps] <Chanson>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы пришли из снегопада (3:21)
-02. Времени река (3:00)
-03. Случайный роман (3:45)
-04. Мы стали бывшими (3:48)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F29841CDED5ECDE74F6A3FFDDA90E7EF47D7C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346541   (163483) от 19.12.2019
-
-Апокалипсис сегодня / Apocalypse Now (1979/2001) BDRip [1080p] ATV [Redux version]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время войны во Вьетнаме спецагент отправляется вверх по реке в Камбоджу с приказом найти и убить полусумасшедшего полковника, создавшего в отдаленном районе нечто вроде собственного королевства насилия. По пути он становится свидетелем мира ужасов войны.Производство: США / Zoetrope StudiosЖанр: Драма, ВоенныйРежиссер: Фрэнсис Форд КопполаАктеры: Марлон Брандо, Мартин Шин, Роберт Дювалл, Фредерик Форрест, Сэм Боттомс, Лоренс Фишбёрн, Альберт Холл, Харрисон Форд, Деннис Хоппер, Г.Д. СпрэдлинПеревод: Профессиональный многоголосый, авторский одноголосый
-присутствует ненормативная лексикаСубтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 03:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D0417CA1319C0B9BE18A4429C8B552B05C2F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517125   (163361) от 14.12.2021
-
-Агент 117: Миссия в Рио / OSS 117: Rio ne repond plus (2009) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163361.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 1967 год. Десять лет спустя от своего первого приключения в Каире, шпион Юбер Бониссер де ля Бат, или же просто Агент 117, послан начальством в Рио-де-Жанейро, чтобы найти микрофильм, хранившийся ранее у одного нацистского высокопоставленного лица. Но наш агент совершенно случайно привлекает внимание агентов Моссада, израильской разведывательной службы...Производство: Франция / Canal+Жанр: боевик, комедия, криминал, приключенияРежиссер: Мишель ХазанавичусАктеры: Жан Дюжарден, Луиз Моно, Рюдигер Фоглер, Алекс Лутц, Рем Кериси, Пьер Бельмар, Кен Сэмюэлс, Серж Хазанавичус, Лорен Капеллуто, Чирилло ЛунаПеревод: ДублированныйСубтитры: русскиеПродолжительность: 01:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F74363A6A2379565EA42F3FE59D5AC253CF20C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

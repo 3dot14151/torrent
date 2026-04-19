@@ -1,3 +1,32 @@
+###  Публикация: 1411424   (427474) от 25.09.2020
+
+Tiesto feat. Kirsty Hawkshaw - Just Be (2004) [FLAC|Lossless|tracks + .cue] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto feat. Kirsty Hawkshaw - Just Be (Antillas Radio Edit)
+02. Tiesto feat. Kirsty Hawkshaw - Just Be (Antillas Club Mix)
+03. Tiesto feat. Kirsty Hawkshaw - Just Be (514 Mix)
+04. Tiesto feat. Kirsty Hawkshaw - Just Be (Wally Lopez La Factoria Vocal Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4992A098CD0E97E04060C8D4E11F673637F5E5C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411595   (425580) от 26.09.2020
 
 VA - Reactivate 13 (Mixed By John '00' Fleming) (1998) [FLAC|Lossless|tracks + .cue] <Trance, House>
@@ -716,35 +745,6 @@ VA - Uplifting Only - Orchestral Trance - Year Mix 2015 (Mixed by Ori Uplift) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4429AFDB3D0A31221341E34BCF949B753A44F9C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255622   (363967) от 18.10.2018
-
-VA - Markus Schulz - We Are the Light (2018)(2CD) [FLAC|Lossless|WEB-DL|tracks] <Trance,Downtempo>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz – The Awakening (Original Mix)
-02. Markus Schulz & Omnia & Seri – Road of No Return (Original Mix)
-03. Markus Schulz & Alina Eremia – You Light up the Night (Original Mix)
-04. Markus Schulz – We Are the Light (feat. Nikki Flores) (Original Mix)(   Читать дальше...   )Тип издания: WEBЖанр: Trance,DowntempoПродолжительность: 02:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E445A3396293EB411FAF98A68B97AAFA3DECCBB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

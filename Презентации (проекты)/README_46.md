@@ -1,3 +1,107 @@
+###  Публикация: 1327547   (374126) от 25.09.2019
+
+VideoHive - Garage - Broadcast Pack - 23472141 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильный пакет для оформления фото-видео материалов экстремальных видов спорта, автоспорта и пр.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE00307BD2486669686E6B29921883C342E9D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069459   (373047) от 04.11.2016
+
+Проекты - VideoHive - Broadcast TV Graphic Package - 18464820 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broadcast TV Graphic Package - пакет графических элементов, чтобы покрыть все потребности индивидуальности телевизионного вещания.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFF2E1B0DD09058CADBEC36A0555E6ADF271E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069444   (373042) от 04.11.2016
+
+Проекты - VideoHive - 2020 Mobile Phones Technology - 1758721 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373042.jpg" />
+</div>
+
+
+###  Подробнее
+
+2020 Mobile Phones Technology - презентация инновационных мобильных технологий будущего.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B3401A5F0B537F3323F0B9DEC0449ACC619189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069448   (372698) от 04.11.2016
+
+Проекты - VideoHive - News Plus - Complete Broadcast Package - 13696387 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372698.jpg" />
+</div>
+
+
+###  Подробнее
+
+News Plus - Complete Broadcast Package - пакет графики для новостных и других вещательных каналов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844F1F8CD265E1CEE561920D912485C53EB02A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327625   (371873) от 26.09.2019
 
 VideoHive - Photographer Portfolio - 20571400 [AEP]
@@ -572,112 +676,6 @@ ProShow Producer - Cooking Channel [PSH]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD4EFB67953295F5D39B409964A64DA8D88CC058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951575   (360290) от 30.10.2015
-
-Проекты - VideoHive - Company Promotion [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания корпоративного промо-видео.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B8EB8E022FC712CC799ED9727326555E139686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951733   (360281) от 30.10.2015
-
-Проекты - VideoHive - Lopo | Isometric Explainer Kit [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания презентации.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F4C472FD1EB729E3D0C44A14049F8AFB6E6B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177885   (360136) от 26.10.2017
-
-Проекты - VideoHive - Diamond Show - 12668111 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diamond Show - Используя этот пакет шаблонов, вы можете произвести впечатление на своих клиентов и зрителей. Этот проект может быть использован для коммерческого использования, презентации моды и т.п.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FCC754A602A1EFCD1B24099535284B5C2D6ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177897   (360004) от 26.10.2017
-
-Проекты - VideoHive - Phone X Mockup Kit - 20758516 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phone X Mockup Kit - это новый шаблон для After Effects, который поможет вам создать собственное привлекательное видео за несколько кликов мыши с помощью мощного инструмента ELEMENT 3D V2. Каждая сцена имеет собственные элементы управления, которые могут помочь вам объединить различные эффекты (цвет, освещение, тени, отражения, фон). Все это создано с помощью After (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB29B61D4546B9A8C3B20D1E0EDA274CCE2C884
 ```
 
 https://mybot314.ru/tekegram_catalog/

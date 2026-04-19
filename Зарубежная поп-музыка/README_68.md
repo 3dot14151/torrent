@@ -1,3 +1,61 @@
+###  Публикация: 1620702   (246016) от 21.03.2023
+
+VA - Italo Dance Classics Volume 1 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop, 	Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Silver Pozzoli - Around My Dreams
+02 - Ivan - Fotonovela
+03 - Steve Allen - Letter From My Heart
+04 - Moses - We Just(   Читать дальше...   )Жанр: Electronic, Pop, 	Italo-DiscoПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589D8F9B8F1AA3C8FB550A6F2A92B0CA095D79CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565881   (245927) от 25.07.2022
+
+VA - TikTok Pop (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smyles - Running up That Hill (A Deal with God)
+02. Lizzo - About Damn Time
+03. Panic! At The Disco - House of Memories
+04. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 03:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004C7BCF7F4DA02D4E610A5C8502404624D748C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620104   (245831) от 19.03.2023
 
 VA - Now Yearbook Extra '79 (67 More Essential Hits From 1979) (2022) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
@@ -687,64 +745,6 @@ VA - Totally '80s (1993) 2 CD[OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13E8271EE0E27BA693CD0787AC51873CF41C4539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372326   (242111) от 03.04.2020
-
-Corine - Un air de fete (2018) [MP3|320 Kbps] <Dance-Pop, Disco, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop ou encore
-02. Un air de fete
-03. Maquillage
-04. Rene, Maurice et tous les autres(   Читать дальше...   )Жанр: Dance-Pop, Disco, ChansonПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34ED9D800BC0AC5B60AEB47E7E380F56FF46897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372268   (242082) от 03.04.2020
-
-Poom - 2016 (2016) [MP3|320 Kbps] <Synthpop, Dance-Pop, Post Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Licorne & Me
-02. De la vitesse a l'ivresse
-03. Les Voiles
-04. Bye Bye(   Читать дальше...   )Жанр: Synthpop, Dance-Pop, Post DiscoПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C35C7F14DA76748ED047B592F36D092F0EF14F
 ```
 
 https://mybot314.ru/tekegram_catalog/

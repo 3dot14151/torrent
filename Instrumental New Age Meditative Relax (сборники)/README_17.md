@@ -1,3 +1,32 @@
+###  Публикация: 1643613   (209934) от 02.07.2023
+
+George Kopaliani - This Is George Kopaliani (2023) [MP3|320 Kbps] <Easy Listening, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above the clouds (6:34)
+02. My freedom (6:25)
+03. Distant (6:17)
+04. Somewhere no one knows (6:10)(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 04:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CEAA3492465D38B74F5643E621B91C477D9D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575591   (208285) от 12.09.2022
 
 ДиДюЛя - Compilation (2022) [MP3|320 Kbps] <Instrumental>
@@ -716,35 +745,6 @@ VA - DJ Romantic - Vibrant Voices (1997) [MP3|320 Kbps] <Chillout, Lounge, Sexy>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97F4B9331764BCF92B1F566B363DDBD2C36AF78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087903   (142692) от 29.12.2016
-
-VA - Acoustic 90's (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alanis Morissette - Uninvited - Live Unplugged Version
-02. Tasmin Archer - Sleeping Satellite
-03. Rod Stewart - Maggie May - Live Unplugged Version
-04. Elvis Costello - I Thought I'd Write to Juliet(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B589A9A6C3AE16C4CB99A635886959B3A734EBB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

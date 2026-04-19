@@ -1,3 +1,90 @@
+###  Публикация: 1049492   (543878) от 05.09.2016
+
+VA - Trance Hits Top 20 (2016-08) (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H  -  Not All Superheroes Wear Capes  3:14
+02. Reunify & Kris Maydak ft. Danyka Nadeau  -  Worth It (Willem de Roo Remix)  2:54
+03. DRYM & Abstract Vision  -  Typhoon  3:09
+04. Allen & Envy  -  Trancefamilia  4:02(   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1CB27CF87770E8224F9ECBDE49E348968BA2CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311255   (543690) от 28.06.2019
+
+VA - Trance Compilation, Vol.17 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bukat – Moment of Love
+02. DJ Dragon Boss – Space Flight To The Star
+03. Maxim Aqualight – You My Pleasure
+04. Sigmax – Moonlight(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE14EBC15BFE83578103831ACFC427B50176A18B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311266   (543678) от 28.06.2019
+
+VA - Anjunabeats In Ibiza (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond feat. Zoe Johnston - There's Only You (Above & Beyond Extended Club Mix) (07:38)
+02. Andrew Bayer feat. Ane Brun - Hold On To You (In My Next Life Extended Mix) (06:31)
+03. ALPHA 9 & Kameron Alexander - Before The Dawn (Extended Mix) (07:11)
+04. Ilan Bluestone & Maor Levi feat. EL Waves - The Distance (Extended Mix) (06:00)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC81DFD372CE776D7EA7877511D65B383B948641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239109   (542525) от 03.08.2018
 
 VA - We Love New Trance Vol.1 [Mixed by Dave Zee] (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -656,92 +743,6 @@ VA - Summer Selection (2017) [MP3|320 Kbps] <Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A51E7D9A434C71839525B592C4E19F0189C97D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156328   (527777) от 07.08.2017
-
-VA - Trance Music Lounge (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alizera - Galaxy 07:18
-02. Ariams And Adrianz - Last day of summer 04:56
-03. Ca5tor - Power Buttom 06:18
-04. Deep Space - The Infinite Time 06:10(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BA4C5F5D241E11E7DD3F03FA2DC2122D61FF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156402   (527652) от 07.08.2017
-
-Alcyone Project - The Worldseeker (2017)Single [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alcyone Project - The Worldseeker (Original Mix)
-02. Alcyone Project - The Worldseeker (The Mechanic & Vindicator Emotional Remix)
-03. Alcyone Project - The Worldseeker (The Pulsarix Remix)Жанр: Trance,Uplifting TranceПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEC7268A8141D6D673B3178C8632764B5A8FB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559241   (527105) от 24.06.2022
-
-VA - Armada Music - Trance Legacy (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Communication (Extended Mix) (9:40)
-02. Binary Finary - 1998 (Paul van Dyk Extended Remix) (9:48)
-03. The Thrillseekers - Synaesthesia (En-Motion Extended Remix) (8:20)
-04. Jurgen Vries - The Theme (Extended Mix) (9:30)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683E33684318274DC047D06C5DD98297BB58D71B
 ```
 
 https://mybot314.ru/tekegram_catalog/

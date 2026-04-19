@@ -1,3 +1,32 @@
+###  Публикация: 1171133   (397607) от 03.10.2017
+
+Fleur (Flёur) - Волшебство (2003) [FLAC|Lossless|tracks] <Folk, Cardiowave>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро 0:49
+02. Пустота 3:54
+03. Почти реально 5:11
+04. Формалин 4:05(   Читать дальше...   )Жанр: Folk, CardiowaveПродолжительность: 01:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDBB0688D44067D7C0A02DDE83868501120548A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171580   (395646) от 05.10.2017
 
 Fleur (Flёur) - Сияние (2004) Reissue, 2006, Masterwort Production [FLAC|Lossless|tracks] <Folk, Cardiowave>
@@ -722,35 +751,6 @@ Leonard Cohen - The Essential Leonard Cohen (2002) 2CD, Compilation [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:578B3A6A9E6C0E62E19BF8FBD76F18ACF81EF88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336803   (277184) от 08.11.2019
-
-Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исполняют музыку, звучавшую в 1920–40 годах на улицах, в кафе и в популярных танцевальных залах Парижа. Репертуар квартета состоит из вальс аккордеон, танго, пасодоблей, фокстротов, маршей и песен из классического французкого шансона. Они записали пять компакт-дисков: A La Noce (2010), Toujours (2004), Chez Moi (2001), Rendez-Vous (1998) и L'air de Paris (1995). (   Читать дальше...   )Список альбомов:
-1995 - L'air de Paris
-1998 - Rendez Vous
-2001 - Chez Moi(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 04:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5451569F3648D1D5FCF4191D0A89F6BBD81122C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

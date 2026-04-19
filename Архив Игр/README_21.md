@@ -441,7 +441,7 @@ Heroes Chronicles: Conquest of the Underworld / Хроники героев: П�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_759250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_759250.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Wings over Vietnam / Асы над Вьетнамом [Ru] (P) 2004
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_757593.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_757534.jpg" />
 </div>
 
 

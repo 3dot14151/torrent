@@ -1,3 +1,29 @@
+###  Публикация: 544956   (486886) от 09.09.2012
+
+[Рисованая графика]Artworks by Michael Oswaldе
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора  Michael Oswaldе .
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF277E93689F8E5289F7A6044193848C38F33EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 382791   (486851) от 04.09.2011
 
 Фотография - Bugatti [JPG]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42EFCD8EF8F1438E58CA06C26951C8E5734BF9AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938399   (481425) от 18.09.2015
-
-Обои - Beautiful Girls Wallpapers Mix 223 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои с девушкамиФормат: JPGРазрешение файлов: 1680x1050 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B7ED97154AAF92C1BAAD437ECF3C771E4B3970
 ```
 
 https://mybot314.ru/tekegram_catalog/

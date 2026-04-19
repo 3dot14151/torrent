@@ -1,3 +1,108 @@
+###  Публикация: 1835240   (250515) от 05.11.2025
+
+Проекты - VideoHive - Plexus FX - Adobe Premiere Logo Reveal - 59846505 [MOGRT]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте футуристический дизайн логотипа , технологическое приветствие или цифровой логотип с элементами сплетения, эффектами столкновений и научным дизайном.Формат: MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C01511BF2B4A2E18322D3EDAD52F9DD3C01450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965290   (227268) от 13.12.2015
+
+Проекты - VideoHive - Data Networks Intro [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания эффектного логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F528A46585FCCAEEB1BA44DD2EB43DBD4D2CC0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851495   (226769) от 19.12.2014
+
+VideoHive -  Epic Company Logo vol.2 - 9256805 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226769.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора: Отличный проект для вашей работы.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13346B4E0A9B22F28A3167E3CA1796B4366104F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342304   (224788) от 01.12.2019
+
+Проекты - VideoHive - Bullet Shooting - 2800879 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bullet Shooting - необычная демонстрация вашего логотипа или слогана, сопровождаемая пулевой стрельбой.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC41CC513FC3F6856FFC0483FB70273A3C5CC090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965849   (223264) от 15.12.2015
 
 Проекты - VideoHive - Spring is Coming [AEP]
@@ -570,111 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFB41EBED7EC0C5EF907A8F55917CA9E10BCDF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968464   (155653) от 23.12.2015
-
-Проекты - VideoHive - Disintegration Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A7734E30E31B41BFFA735F65EC4865022553BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086075   (154087) от 23.12.2016
-
-Проекты - Motion Array - Epic Neon In The Night Street - 21707 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epic Neon In The Night Street - это потрясающий и уникальный шаблон, который легко настроить. Он имеет 2 версии. Добавьте ваш текст, поместите ваш логотип и жмите рендер для получения фантастического результата. Бесплатный VC Saber плагин необходим для данного проекта.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C30FB06CBC8B00F86537D30B35FD0BAA6EB89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194775   (152801) от 26.12.2017
-
-Проекты - VideoHive - Magic Fire Logo - 20833610 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Fire Logo - один из красивейших огненных шаблонов. Очень реалистичный эффект горения. В нем есть  искры, текстуры тепла и визуальные эффекты, которые делают его очень красивым для презентация вашей компании или логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C24F9CE96DAB663D288D8A1D581E3CCEE37C1F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086396   (151813) от 24.12.2016
-
-Проекты - VideoHive - Neon Tracer - 19014260 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC64ADD7064EA0DE24363939F5BCE0E03571BFD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

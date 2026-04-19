@@ -1,3 +1,61 @@
+###  Публикация: 1247383   (452875) от 15.09.2018
+
+Joey Alexander - Eclipse (2018) Motema [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bali [5:06]
+02. Faithful (feat. Joshua Redman) [9:06]
+03. Draw Me Nearer [4:42]
+04. Moment's Notice [6:35](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202D7F49AFBF55F5694C0806466160D8DCA5B254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247483   (452865) от 15.09.2018
+
+Scott Hamilton - Moon Mist (2018) Blau Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Close My Eyes [5:50]
+02. Moon Mist [4:40]
+03. If I Should Lose You [6:35]
+04. Young and Foolish [5:31](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B00888B70C827E88BF1A75CCB74FD296DAE0595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322017   (452596) от 27.08.2019
 
 Charles Mingus - Mingus Ah Um (1959) 2019, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Hard Bop, Avant-Garde Jazz>
@@ -688,64 +746,6 @@ Carlos Santana - Blues For Salvador (1987) [FLAC|Lossless|image + .cue] <Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67C7821E186C94595C908731EDEDDA123A100358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061439   (448867) от 10.10.2016
-
-Herbie Hancock - The Very Best Of (1991) [FLAC|Lossless|image + .cue] <Jazz-Funk, Jazz-Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockit (3:37)
-02. You Bet Your Love (3:56)
-03. I Thought It Was You (3:40)
-04. The Bomb (3:59)(   Читать дальше...   )Жанр: Jazz-Funk, Jazz-Rock, FusionПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0C05704CF315C416764FCDF117281E3E3719CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247940   (448810) от 17.09.2018
-
-Edward Simon - Edward Simon (1995) Kokopelli Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colega (Colleague) [5:33]
-02. Alma Llanera (Soul of the Plains) (Part 1) [8:24]
-03. Alma Llanera (Soul of the Plains) (Part 2) [6:02]
-04. Caballo Viejo (Old Horse) [7:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:054BB44FD665127FAFFA07B61AEA39FAA74114A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

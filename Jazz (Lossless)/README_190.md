@@ -1,3 +1,61 @@
+###  Публикация: 947417   (418397) от 17.10.2015
+
+Bobby Bradford & John Carter Quintet - NoUTurn (1975) /2015, Dark Tree Records/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Love's Dream [21:14]
+ 02.She [11:12]
+ 03.Comin' On [19:35]
+ 04.Come Softly [06:20](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B55D8325180A070231B349BEEA70B0560D09A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947643   (418395) от 17.10.2015
+
+Attila Zoller - Common Cause (1979) /2005, Enja/[FLAC|tracks+.cue]<Jazz Fusion, Contemporary Jazz, Jazz Guitar>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Kaybee [06:31]
+ 02.Csardanova [04:03]
+ 03.Common Cause [05:18]
+ 04.Tshitar [07:52](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Jazz GuitarПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE62C1BAB50CD1289E6E88756A1506DC1D423893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947415   (418393) от 17.10.2015
 
 Feyza - I Wish I Knew (2015) [FLAC|image+.cue]<Vocal Jazz>
@@ -687,64 +745,6 @@ Jimmy McGriff - Fly Dude (1972) 2006, Groove Merchant [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:948F07E791D42E30C95C7FE662A185382BBE7857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167693   (415253) от 21.09.2017
-
-Art Van Damme - Accordion a la Mode & A Perfect Match (1960, 1962) 2000, Collectables [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Accordion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A la Mode [02:41]
-02. You Stepped Out of a Dream [03:32]
-03. That Old Feeling [03:23]
-04. Sweet and Lovely [02:42](   Читать дальше...   )Жанр: Mainstream Jazz, AccordionПродолжительность: 01:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A506169288D38A30A304BE876E14AB8097731C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167701   (415194) от 21.09.2017
-
-Tony Bennett & Count Basie - The Jazz Collector Edition (1958) 1990, LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicago [02:06]
-02. Poor Little Rich Girl [03:28]
-03. I've Grown Accustomed To Her Face [03:00]
-04. Jeepers Creepers [02:06](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29DAD95AE07A5156B6ACFD390AC9278702907D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

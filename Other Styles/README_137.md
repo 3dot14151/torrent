@@ -1,3 +1,206 @@
+###  Публикация: 1334780   (291335) от 31.10.2019
+
+John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Original Motion Picture Soundtrack) (2019) Expanded Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:15)
+02. Aaron Meets Michael (02:39)
+03. Halloween Theme (03:02)
+04. Laurie’s Theme (00:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE720EF135870865045E946B281F6BE7E749532F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334822   (291326) от 31.10.2019
+
+PJ Harvey - All About Eve (2019) (Original Music) Soundtrack [FLAC|Lossless|tracks + .cue] <Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Becoming [06:44]
+02. Shimmer [02:09]
+03. The Sandman (featuring Gillian Anderson) [02:09]
+04. Waltz [03:03](   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B6A3C91705974CBC043CB56172075C734E19DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334960   (291130) от 31.10.2019
+
+Celtic Woman - The Magic of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Celtic, Female Vocal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Wish You a Merry Christmas (03:26)
+02. Angels We Have Heard On High (04:34)
+03. Do You Hear What I Hear (03:53)
+04. Deck the Halls (02:26)(   Читать дальше...   )Жанр: Folk, Celtic, Female VocalПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3DBD35D93142D98746737AC6E5A8837C176C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262473   (291079) от 17.11.2018
+
+Jean-Michel Jarre - Equinoxe Infinity (2018) [MP3|320 Kbps] <Ambient, New-Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The watchers (Movement 1)
+02. Flying totems (Movement 2)
+03. Robots don’t cry (Movement 3)
+04. All that you leave behind (Movement 4)(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609C92AB7C8FA956312A47FE860A33E09B633CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262529   (291067) от 17.11.2018
+
+Jean-Michel Jarre - Equinoxe Infinity (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New-Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The watchers (Movement 1)
+02. Flying totems (Movement 2)
+03. Robots don’t cry (Movement 3)
+04. All that you leave behind (Movement 4)(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10532F5359040F7157706553ECE91DC7174598A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185646   (291022) от 22.11.2017
+
+Gregorian - The Platinum Collection (2017) [MP3|320 Kbps] <New Age, Medieval, Other>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brothers In Arms 05:56
+02. Scarborough Fair 04:51
+03. When A Man Loves A Woman 04:53
+04. Nothing Else Matters 06:15(   Читать дальше...   )Жанр: New Age, Medieval, OtherПродолжительность: 02:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13613067A48BB9ACB58DCBCBA1CDEA88A1F7887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080177   (290223) от 06.12.2016
+
+VA - Acoustic Songs About Love (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thom Cooper - God Only Knows
+02. Karizma Duo - With or Without You
+03. Shannon & Keast - Misty
+04. Chelsea Hart - Make You Feel My Love(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62BD7D952648AF83900E703B26844A99CDDD2EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080323   (290145) от 06.12.2016
 
 Armik - Greatest Hits (2008) 2CD [FLAC|Lossless|image + .cue] <Instrumental, Flamenco>
@@ -558,206 +761,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FCCD485D04DEF1F05364B96BF67CDE481707D88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079266   (285715) от 08.12.2016
-
-Two Steps From Hell - Vanquish (2016) [MP3|320 Kbps] <Soundtrack, Trailer music, Instrumental, Chor.>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Fall of the Fountain World [04:39]
-02 Pegasus [04:30]
-03 Vanquish (feat. Felicia) [03:16]
-04 New World Order [03:22](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Instrumental, Chor.Продолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57301EEFFD3DAE58624D9C831C4704431EBEF6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335676   (285668) от 03.11.2019
-
-Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Темные судьбы (Music from the Motion Picture) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminated (01:28)
-02. My Name Is Dani (03:39)
-03. REV 9 (03:10)
-04. Iron Spike (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0A635FF39633118FFB6279E7015B178C338D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335677   (285516) от 03.11.2019
-
-Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Темные судьбы (Music from the Motion Picture) (2019) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminated (01:28)
-02. My Name Is Dani (03:39)
-03. REV 9 (03:10)
-04. Iron Spike (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D6939C7A2C0C3281DA792B93889F2C0226C079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733667   (285051) от 13.12.2013
-
-Хоббит: Пустошь Смауга / The Hobbit: The Desolation of Smaug (2013) /Special Edition/ by Howard Shore [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ScoreПродолжительность: 02:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0816EEF795B6DE841DE791E1765C15F71CB329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335808   (284555) от 04.11.2019
-
-Kacey Musgraves - Pageant Material (2015) [FLAC|Lossless|tracks] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - High Time (2:58)
-02 - Dime Store Cowgirl (3:35)
-03 - Late To The Party (3:38)
-04 - Pageant Material (3:54)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EB0E3479949EA89C1630BDB200A121EF011C76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263393   (284361) от 21.11.2018
-
-Various Artists - Лондонские поля/ London Fields (Original Motion Picture Soundtrack) WEB-DL (2018) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Barber - Destiny
-02. James Bagshaw - How Do You Sleep
-03. Adam Barber - Her Curves Kill
-04. The Cold and Lovely - Not with Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D25AC4B8394F82C550CEB2C2F130033FDA61EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335982   (284259) от 04.11.2019
-
-Guilhem Desq - Visions (2017) Les Jeudis Du Rock, 2018 [FLAC|Lossless|Web-DL|tracks] <Folk, World, Instrumental>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le château magique (4:10)
-02. Visions (3:46)
-03. La libellule et le baobab (5:06)
-04. Sand Sailor (4:13)(   Читать дальше...   )Производство: Les Jeudis Du Rock - 3615934412514Жанр: Folk, World, Instrumental, Hurdy GurdyПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257EA170167EC721BAD64480689CBEA5F4D3CF03
 ```
 
 https://mybot314.ru/tekegram_catalog/

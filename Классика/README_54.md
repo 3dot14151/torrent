@@ -1,3 +1,32 @@
+###  Публикация: 1752915   (41700) от 02.10.2024
+
+VA - The 50 Most Essential Autumn Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alun Francis - The Four Seasons, Violin Concerto No. 3 in F Major, RV 293 Autumn II. Adagio molto (2:36)
+02. Alun Francis - The Four Seasons, Violin Concerto No. 3 in F Major, RV 293 Autumn I. Allegro (5:06)
+03. Alun Francis - The Four Seasons, Violin Concerto No. 3 in F Major, RV 293 Autumn III. Allegro (3:14)
+04. David Parry - Pavane, Op. 50 (5:07)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2C445A8093D5FF46417E474E505E1C96CE18AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754269   (40865) от 09.10.2024
 
 Pavarotti - Donizetti (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
@@ -713,35 +742,6 @@ Andre Rieu - Power of Love (Live in Maastricht 2024) (2025) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FEE6F2AAE103B5546DCF9F5D676C7CCD5921939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 238359   (19312) от 05.05.2025
-
-Michael Nyman - 54 альбома (1985-2009) [MP3|320 кб/с]<Minimalism, Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the Money and Run (3:13)
-02. Secrets, Accusations and Charges (3:32)
-03. City of Turin (3:00)
-04. Friendly Fire (2:28)(   Читать дальше...   )Жанр: Minimalism, ClassicalПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A915A42FA1F04DA338F334D46FCEACF25DD8E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

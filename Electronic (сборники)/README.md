@@ -1,26 +1,26 @@
 https://t.me/izofen
-###  Публикация: 1863461   (1063978) от 
+###  Публикация: 1864595   (1064795) от 
 
-VA - 60 minutes. Old School Dance Music vol.35 (mixed by Dj V) (2025) [MP3|320 Kbps] <Disco House, Club House,  Tribal House,  Latino House, Dance>
+VA - 60 minutes. Old School Dance Music vol.36 (special 00's) (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Disco House, Dance, Pop>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01-Francesco Diaz Feat. Benjamin Boyce - Across The Sea (Denis The Menace & Jerry Ropero Club Remix)
-02-Axwell Feat. Steve Edwards - Watch The Sunrise (Bob Sinclar Remix)
-03-Everything But The Girl - Corcovado (Knee Deep Classic Club Mix Ben Watt Vocal Re-edit)
-04-Full Intention Pres. Hustle Espanol - Do The Spanish Hustle (Gray & Pearn's Dtension Mix)(   Читать дальше...   )Жанр: Disco House, Club House,  Tribal House,  Latino House, DanceПродолжительность: 1:00:07
+01-Spiller feat. Sophie Ellis-Bextor - Groove Jet (If This Ain't Love) (Spiller's Extended Vocal Mix)
+02-Moloko - Sing It Back (Boris Dlugosch Musical Mix)
+03-Martin Solveig feat. Jay Sebag - Rejection (Ian Carey Mix)
+04-Tom Novy & Lima - Take It (Closing Time) (Extended Mix)(   Читать дальше...   )Жанр: Club House, Disco House, Dance, PopПродолжительность: 01:01:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1F4069DD94A18A9D8B6DC035B9AE604EAA62F09
+magnet:?xt=urn:btih:CC1C53F943818B4AAD828AD3923109B4B527A884
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,7 +28,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862929   (1063875) от 
+###  Публикация: 1862929   (1063619) от 03.04.2026
 
 Fancy best (1985-2023) [MP3|320 Kbps] <electronic>
 
@@ -36,7 +36,7 @@ Fancy best (1985-2023) [MP3|320 Kbps] <electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063619.jpg" />
 </div>
 
 
@@ -57,7 +57,65 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861252   (1062605) от 
+###  Публикация: 1863461   (1063461) от 04.04.2026
+
+VA - 60 minutes. Old School Dance Music vol.35 (mixed by Dj V) (2025) [MP3|320 Kbps] <Disco House, Club House,  Tribal House,  Latino House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Francesco Diaz Feat. Benjamin Boyce - Across The Sea (Denis The Menace & Jerry Ropero Club Remix)
+02-Axwell Feat. Steve Edwards - Watch The Sunrise (Bob Sinclar Remix)
+03-Everything But The Girl - Corcovado (Knee Deep Classic Club Mix Ben Watt Vocal Re-edit)
+04-Full Intention Pres. Hustle Espanol - Do The Spanish Hustle (Gray & Pearn's Dtension Mix)(   Читать дальше...   )Жанр: Disco House, Club House,  Tribal House,  Latino House, DanceПродолжительность: 1:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F4069DD94A18A9D8B6DC035B9AE604EAA62F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863687   (1063303) от 05.04.2026
+
+Adex - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Electric Dreams
+02 - Forgot to Read
+03 - When You Don’t Reply
+04 - Broken Inside(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A125730436F89225172CD317E7B70C6855B6C6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861252   (1062605) от 24.03.2026
 
 Jumanov - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Electronic>
 
@@ -86,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860783   (1062128) от 
+###  Публикация: 1860783   (1062128) от 22.03.2026
 
 VA - Record Super Chart 21.03.2026 [MP3|320 Kbps] <Pop, Dance>
 
@@ -115,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859215   (1061001) от 
+###  Публикация: 1859215   (1061001) от 15.03.2026
 
 VA - 60 minutes. Old School Dance Music vol.34 (mixed by Dj V) (2025) [MP3|320 Kbps] <Progressive Trance, Vocal Trance, Uplifting Trance>
 
@@ -688,64 +746,6 @@ CosmoDance - Collection (2026) [MP3|320 Kbps] <Spacesynth, Synthdance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FDBB27FDF0E1D3B4CDD0A6BF459275B4D0598BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845958   (1051073) от 04.01.2026
-
-VA - Лучшие песни Радио Рекорд за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051073.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Misha Miller & Alex Velea - Bam Bam (2:30)
-002. David Guetta & Sia - Beautiful People (3:07)
-003. Rudimental & Khalid - All I Know (2:56)
-004. Zerb & Ty Dolla Sign & Wiz Khalifa - Location (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6872A68585F3A7596FE1139C7113951DAFF94B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845400   (1050657) от 31.12.2025
-
-VA - Beat, Bass, Melody vol.4 (mixed by Dj V) (2025) [MP3|320 Kbps] <Euro Trance, Hardgroove, Hyper Pop, Mainstage>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Pickle - Dragostea Din Tei (Original Mix)
-02-Lammer - Diamonds (EuroTrance Mix)
-03-Lady Gaga - Bad Romance (Chromedodied)
-04-Ollie Lishman - Move It (Original Mix)(   Читать дальше...   )Жанр: Euro Trance, Hardgroove, Hyper Pop, MainstageПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6013BF96D0AC57F5EDFBD9C95A20AA5069E16998
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1618405   (1034175) от 11.03.2023
+
+Dinah Washington - Mad About the Boy: 25 Classics (2000) Delta Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Letters [2:06]
+02. I Could Have Told You [3:14]
+03. I Won't Cry Anymore [3:21]
+04. Baby Get Lost [2:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A206F712B006264D209927E8A32A9F8692CDB2A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445137   (1034009) от 04.02.2021
 
 Vered Dekel - Make Way For Love (2004) [FLAC|Lossless|tracks] <Vocal Jazz>
@@ -716,35 +745,6 @@ Jimmie Noone - 1929 - 1930 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Or
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53966F15F3C235F27AADB7923F6A56FE8F7DD665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446683   (1032594) от 10.02.2021
-
-Mary Lou Williams - 1944 - 1945 (1998) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Minute Man [2:07]
-02. Froggy Bottom [2:55]
-03. Carcinoma [3:41]
-04. Song in My Soul [3:03](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BE177D8128AD44AE5FDF5EF2ABAAD310FA4824
 ```
 
 https://mybot314.ru/tekegram_catalog/

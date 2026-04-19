@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1863248   (1063868) от 
+###  Публикация: 1863248   (1063412) от 04.04.2026
 
 Габриэль и я / Gabriel & Me (2001) DVDRip [АVO]
 
@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063412.jpg" />
 </div>
 
 
@@ -25,15 +25,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862278   (1063476) от 
+###  Публикация: 1862278   (1062997) от 08.04.2026
 
-Мой маленький пони: Дружба - это чудо / My Little Pony: Friendship Is Magic (2010) VHSRip [H.264] (сезон 1, серии 1-22 из 26) NeoVHS (обновляемая)
+Мой маленький пони: Дружба - это чудо / My Little Pony: Friendship Is Magic (2010) VHSRip [H.264] (сезон 1, серии 1-26 из 26) NeoVHS
 
 >>Видео, Кино и Сериалы для детей и родителей
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062997.jpg" />
 </div>
 
 
@@ -43,7 +43,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8EE63E3B0ED996BBB4F63874B64AA7FAC001C50A
+magnet:?xt=urn:btih:5B242E995C95AD126A3F0CB16606B40C1BF40241
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1228146   (637379) от 31.05.2018
+
+C.C. Catch - Hits & More (2017) Compilation [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backseat Of Your Cadillac (New Version (3:24)
+02. You Can Be My Lucky Star (Long Mix Version) (5:05)
+03. Are You Man Enough (Maxi Mix Version) (5:56)
+04. Soul Survivor (Maxi Mix Version) (5:03)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BD7E73EEAA95F363C9A6A3402D66A25B0D4F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143320   (637332) от 17.06.2017
+
+Anita Ward - Songs Of Love (1979) Reissue CD, 2013, Big Break Records [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ring My Bell (8:10)
+02. Sweet Splendor (3:51)
+03. There's No Doubt About It (3:51)
+04. You Lied (4:58)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BE6F8927EB0574062DEE722903615B8031FAF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542443   (637257) от 07.04.2022
 
 Atmosfear - Dancing In Outer Space (2000) Compilation [MP3|320 Kbps] <Electronic, Funk Soul, Jazzdance, Disco>
@@ -691,64 +749,6 @@ VA - Italo Disco: The Lost Legends Vol. 16 (2018) [MP3|320 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0CE1DD01FCB7DFBD2C145BBDA75008B49D5926F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230335   (617301) от 11.06.2018
-
-VA - Italo Dance Summer Hits (2012) [MP3|320 Kbps] <Italo-Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hessencia - Cosmo (The Arcane Charmers Remix) 06:28
-02. Hoxygen feat. Krystal Em & Scio - Only Smoke (The Arcane Charmers Remix Edit) 03:36
-03. DJ Doddo - Tu sei (Radio Edit) 03:09
-04. Il Viaggiatore - Respiro (Vocal Mix) 03:30(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 02:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390273957452DCF7023854475C954C2628E857DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230328   (617300) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 18 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F. Monieri - Up Medley Walk Away
-02. Shane - Simba
-03. New Glory - Run Along The Road
-04. Stop Limit Line - Colonel(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F1ACEDA62C8541C9515A37F3508A0FD00050CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

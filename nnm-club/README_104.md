@@ -1,569 +1,22 @@
-###  Публикация: 1859659   (1061204) от 
+###  Публикация: 1861671   (1062776) от 27.03.2026
 
-VA - Rock (93 Original Hits) (2009) 6 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poison - Unskinny Bop (3:49)
-02. Thunder - Backstreet Symphony (4:23)
-03. Gary Moore - Empty Rooms (4:16)
-04. Saxon - Wheels Of Steel (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 05:55:36.880 (940 956 408 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC949E7420372957FBE2081278F6F89140A81D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859696   (1061203) от 
-
-Adept - Collection (2009 - 2025) 5CD [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061203.jpg" />
-</div>
-
-
-###  Подробнее
-
-ADEPT — шведская пост-хардкор/металкор группа из города Trosa, основанная в 2004 году. Музыканты известны эмоциональным сочетанием мелодий и агрессии, энергичными живыми шоу и непростым творческим путем.Список альбомов:
-2009 - Another Year of Disaster
-2011 - Death Dealers
-2013 - Silence The World(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 03:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA91A15BD816EBCCE29F94DAFD112B269DFE417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859697   (1061202) от 
-
-Грозовой перевал / Wuthering Heights (2026) WEB-DL [H.264/1080p] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061202.jpg" />
-</div>
-
-
-###  Подробнее
-
-По пути домой хозяин поместья «Грозовой перевал» мистер Эрншо привозит в поместье найденного на улицах Ливерпуля сироту. Так Хитклифф обретает дом и становится спутником хозяйской дочери Кэтрин — со временем они становятся неразлучными. Годы спустя поместье приходит в упадок из-за пьянства и долгов Эрншо, а повзрослевший Хитклифф остаётся в доме в положении слуги. (   Читать дальше...   )Производство: Великобритания, США / Warner Bros., MRC Film, Lie StillЖанр: мелодрама, драмаРежиссер: Эмиральд ФеннелАктеры: Марго Робби, Джейкоб Элорди, Хонг Чау, Шазад Латиф, Элисон Оливер, Мартин Клунес, Юэн Митчелл, Эми Морган, Джессика Нэппет, Шарлотта МеллингтонПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Корейские (hardsub)Продолжительность: 02:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D159164239C54E3586689A0D1E33B572A2F1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859566   (1061201) от 
-
-Вышел мессенджер Columba, который работает без интернета
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061201.jpg" />
-</div>
-
-
-###  Подробнее
-
-На фоне постоянных блокировок в сети завирусился новый мессенджер под названием Columba. Он обещает оставаться на связи даже при полном отсутствии интернета, так как использует сетевой протокол Reticulum, позволяющий устройствам соединяться напрямую и создавать собственную mesh-сеть. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859427   (1061200) от 
-
-WinTools.net Premium 26.3.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061200.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4E484D60DE2C1AD089F426D7A145844A1AD6C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859429   (1061199) от 
-
-Laurence Jones - On My Own (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  One Life (3:16)
-02.  Life I Made (2:40)
-03.  On My Own (3:29)
-04.  Get Back Up (2:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3541CC1F544D7B7C01ACD68FA5B6CFCBD333043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859345   (1061198) от 
-
-НХЛ 2025-2026. Бостон Брюинз - Вашингтон Кэпиталз (14.03.2026) WEB-DL [H.264/720p] [60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061198.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 марта 2026 суббота 22:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 347 зрителей (99% при вместимости 18 573). Главный судья: Келли Сазерлэнд (Ричмонд, Канада).Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08C44AF0BB805D0DE993B22E3C84E09A7F6B608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859361   (1061197) от 
-
-НХЛ 2025-2026. Питтсбург Пингвинз - Юта Мамонт (14.03.2026) WEB-DL [H.264/720p] [60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061197.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 марта 2026 воскресенье 04:00 МСК. Стадион: Дельта-центр (Солт-Лейк-Сити, США), 12 478 зрителей (89% при вместимости 14 000). Главный судья: Грэм Скиллитер (Ла Ронж, Канада).Телекомпания: SNPЖанр: спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0559115B611FBF134E96EB579B60F8D2F7E80FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859432   (1061196) от 
-
-Leon Bibb - Those Bittersweet Songs From My Land (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues,  Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rocks and Gravel (3:32)
-02.  Black is the Color (2:47)
-03.  Turtle Dove (2:34)
-04.  East Virginia (1:36)(   Читать дальше...   )Жанр: Blues,  CountryПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E030D88032858685BE36C68098DBB1F9A2ED5774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859431   (1061195) от 
-
-Тор: Рагнарёк / Thor: Ragnarok (2017) BDRip [AV1/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события - Рагнарёка. По легенде это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие (   Читать дальше...   )Производство: США / Marvel Entertainment, Marvel Studios Inc., Walt Disney PicturesЖанр: фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 02:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945418082F4EB8A320CC7E090BC9FB81E4221E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859435   (1061194) от 
-
-Malted Milk - Time Out (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  What a night (4:02)
-02.  Marco Cinelli - I feel numb (3:31)
-03.  Benin International Musical - Time Out (3:18)
-04.  Superchild (2:51)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926FE59639FB239DC73CE68F78D76B4BE4FC8670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859187   (1061193) от 
-
-Magic Eraser / Магический ластик v3.1.18 Mod by Maximoff⁠ [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.03.2026Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DD818F11834414CB55AE44F19084921D002210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859305   (1061192) от 
-
-Открытки на каждый день и GIF v4.7 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые открытки, поздравления на все случаи жизни и любой повод. Вы сможете выбрать готовую открытку или приложение поможет вам создать открытку самостоятельно. Прикольные открытки и GIF анимация помогут вам поздравить родных и близких на любой праздник и по любому случаю жизни. Поздравляйте с днем рождения и юбилеем, днем ангела, именинами и другими важными событиями (   Читать дальше...   )Тип издания: ModРелиз состоялся: 14.03.2026Разработчик: WutappПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D23C22B4D86431B5AA5AE409628D05AF48E4672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859296   (1061191) от 
-
-Folder Player Pro v5.38 b368 Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Folder Player Pro - это ориентированный на каталоги и файлы музыкальный mp3-плеер, являющийся более продвинутой версией своего популярного бесплатного аналога. Это приложение обеспечивает простоту использования с удобным управлением. Здесь не нужно создавать или добавлять плейлисты, достаточно выбрать папку содержащую аудиофайлы, чтобы запустить проигрывание. А учитывая (   Читать дальше...   )Тип издания: Paid (купленная Pro с Маркета)Релиз состоялся: 15.03.2026Разработчик: Peter ShashkinПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B57A05E45CEB9A74D713F856B89D882E628189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859440   (1061190) от 
-
-TechSmith Camtasia 26.0.4 Build 15557 [Multi]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia Studio – утилита для записи изображения с экрана в видеофайлы различных форматов, имеется возможность редактирования видео, есть встроенные Macromedia Flash (SWF) и видео проигрыватели.
-Camtasia захватывает действия и звуки в любой части Windows-систем и сохраняет в файл стандарта AVI.
-Сделанное при помощи программы видео можно экспортировать в один из поддерживаемых (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4911D890B6874D389867FD832DCDBB5CD641F8FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859369   (1061189) от 
-
-Справочник электрика v4.0.2 (309) Mod by vadj  [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для всех тех, чья деятельность связана с электричеством. Для профессионалов и любителей. Данное приложения является своеобразным трамплином для дальнейшего изучения электротехники.
-В приложении присутствуют 4 категории:
-1. Теория
-2. Схемы(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 07.02.2026Разработчик: SergeiVПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CAC93CF22E5C13529EF878334CD4ADC90BC1012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859294   (1061188) от 
-
-Plus Messenger (Telegram+)  v12.5.1.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 14.03.2026Разработчик: rafalenseПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71FA5F2E435772DD95153CD80A1802E89CFA231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859441   (1061187) от 
-
-Свободная страна / Land of the Free (1998) DVDRip [АVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Дженнингс — обычный наивный менеджер, безоглядно преданный своему боссу, преуспевающему политику Айдану Карвеллу. Но его вера рушится, когда он узнает про своего кумира страшную правду. Получив доступ к секретным материалам ФБР, Фрэнк выяснил, что любимец американского народа напрямую связан с коррумпированными военными.
-
-Перед Фрэнком встает непростая задача: (   Читать дальше...   )Производство: США / PM Entertainment Group Inc.Жанр: боевикРежиссер: Джерри ДжеймисонАктеры: Джефф Спикмэн, Уильям Шетнер, Лиза Дарр, Ларри Седар, Джон Фьюри, Крис Леммон, Чарльз Робинсон, Коди Доркин, Роберт Торти, Кэндис АззараПеревод: Авторский (Юрий Сербин)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2971F30E12F02B878262F9E7DDE3D453BBCBD8B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859438   (1061186) от 
-
-Тор: Любовь и гром / Thor: Love and Thunder (2022) BDRip [AV1/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейн Фостер берет на себя обязанности Бога-громовержца и становится обладательницей молота Мьёльнира.Производство: Австралия, США / Fox Studios Australia, Marvel Studios Inc., Walt Disney PicturesЖанр: фантастика, фэнтези, боевик, мелодрама, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Натали Портман, Кристиан Бэйл, Тесса Томпсон, Тайка Вайтити, Рассел Кроу, Джейми Александер, Крис Пратт, Дэйв Батиста, Карен ГилланПеревод: Дублированный (Cinema Tone Production KZ)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FA35958D5624FB7FA851ABFE1CD0E7DCAD1CC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859436   (1061185) от 
-
-Anya Blaze - Favorites Collection (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Digital Love, Plastic Hearts
-02 - Loneliness
-03 - Fake Flowers
-04 - Slow Slow(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Pop, Dance, OtherПродолжительность: 01:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D103CBA7A6ADBA15D93E9FEEC542F3392F41306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859434   (1061184) от 
-
-Frances Buontempo | Introducing C++: The Easy Way to Start Learning Modern C++ (2026) [PDF] [EN]
+Rishal Hurbans | Grokking AI Algorithms. How AI solves complex problems. 2nd Edition (2026) [PDF] [EN]
 
 >>Компьютерная литература
->>Программирование
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book cuts through the noise, focusing on the essential elements of C++ with hands-on projects that quickly build your skills and confidence. Author and C++ expert Frances Buontempo gets you up to speed quickly with the latest features and best practices of the language, preparing you for more advanced exploration.
-- Write clean and efficient C++ code
-- Understand (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
+Artificial intelligence algorithms are the backbone of search and optimization, deep learning, reinforcement learning, and, of course, generative AI. This book introduces the most important AI algorithms using relatable illustrations, interesting examples, and thought-provoking exercises. Written in simple language and with lots of visual references and hands-on (   Читать дальше...   )Жанр: Genetic Algorithms, Natural Language Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8E76DFAA0E26E1BB93EB65ACF8B9E84D00C3199
+magnet:?xt=urn:btih:977608126AE42C34E1C2F55D2DF803C29A51E991
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,28 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859433   (1061183) от 
+###  Публикация: 1861667   (1062775) от 27.03.2026
 
-ONE1 - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Pop, Dance, Other>
+Edward Tetz | Cisco Networking All-in-One For Dummies. 2nd Edition (2026) [PDF] [EN]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Under the Rain
-02 - False Love
-03 - Hop-Hop
-04 - Love Love(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Pop, Dance, OtherПродолжительность: 01:21:26
+Your detailed guide to all things Cisco―a leading player in network technology.
+
+With 800 pages of in-depth content, Cisco Networking All-in-One For Dummies is your one-stop guide to the ins and outs of networks powered by Cisco, a leading maker of networkin solutions including routers, switches, and security. You'll get thorough explanations of how to design, (   Читать дальше...   )Жанр: LANs, Internet & Networking Computer Hardware, Computer NetworkingЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17393014E6560837B405A5F92B3C11C53FF0A6A7
+magnet:?xt=urn:btih:5339D589909348E0CC5B74E9DBE370EB93FEBE96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,25 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859430   (1061182) от 
+###  Публикация: 1861664   (1062774) от 27.03.2026
 
-Ник Пирог | Три часа ночи (2013) [FB2, EPUB, MOBI]
+John L. Hennessy, David A. Patterson, Christos Kozyrakis | Computer Architecture. A Quantitative Approach (The Morgan Kaufmann Series in Computer Architecture and Design). 7th Edition (2025) [PDF]  ...
 
->>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Генри Бинс страдает редким заболеванием — он бодрствует всего один час в сутки, с трёх до четырёх ночи. Однажды в это короткое время он становится свидетелем загадочного преступления, в котором, похоже, замешаны очень влиятельные люди. Но как расследовать дело, если у тебя есть всего 60 минут в день? Далеко не обычный герой и по-настоящему необычное дело. Остроумный, (   Читать дальше...   )Жанр: Боевики, Детективы, ТриллерыПеревод: Иван ВисычЯзык: русскийИздательство: Independently PublishedФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+Computer Architecture: A Quantitative Approach, has been considered essential reading by instructors, students and practitioners of computer design for nearly 30 years. The seventh edition of this classic textbook from John Hennessy and David Patterson, winners of the 2017 ACM A.M. Turing Award recognizing contributions of lasting and major technical importance to (   Читать дальше...   )Жанр: Computer Hardware Design & Architecture, Microprocessor Design, Computer ScienceЯзык: АнглийскийИздательство: Morgan KaufmannФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E26ABE8CE2132D5AB9091F356A121AE234A79A9
+magnet:?xt=urn:btih:04FF9EB9F93348FEF3C62222EA3A1A1D6614F60F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,25 +78,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859437   (1061181) от 
+###  Публикация: 1861659   (1062773) от 27.03.2026
 
-Прямая речь, Вячеслав Дубынин | Химия чувств и эмоций (2021) WEB-DL [RU]
+Stack Overflow | HTML5 для профессионалов. Руководство по разработке в примерах от сообщества Stack Overflow (2025) [PDF]
 
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основе наших эмоций и чувств лежит работа различных отделов мозга человека, а также влияние вполне определённых молекул. Их названия на слуху: дофамин, серотонин, эндорфины и целый ряд других. Что знает современная физиология об этих веществах? Насколько наша внутренняя химия управляет нашей психологией?Производство: Прямая речьЖанр: видеоурок, лекция, нейрофизиология, психологияЯзык озвучки: русскийПродолжительность: 02:36:11
+Перед вами компактное, но вместе с тем весьма насыщен ное руководство по HTML - основополагающему языку разметки, лежащему в основе каждой веб-страницы. Здесь собрана только самая важная и актуальная информация для быстрого и эффективного освоения HTML, от простейших структур до расширенных возможностей современной веб-разметки.
+Вы узнаете, как создавать и структурировать (   Читать дальше...   )Жанр: Компьютерная литература, Программирование, WEB-мастерингИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD34B7D461AC8B0198BADD5884FC68384CE4803A
+magnet:?xt=urn:btih:ED825B53375EC3A5A2F24DBAE09F4559A8B29B06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,27 +105,159 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859442   (1061180) от 
+###  Публикация: 1861615   (1062772) от 27.03.2026
 
-Звёздные войны: Эпизод 6 – Возвращение Джедая / Star Wars: Episode VI - Return of the Jedi (1983) BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+СЗКЭО (изд.) | Библия изложенная для семейного чтения (2026) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библия на протяжении всей человеческой истории остается главным источником познания Бога и Его творения — видимого и невидимого миров. Тысячи поколений изучают это Божественное Откровение, чтобы найти в нем ответы на главные вопросы бытия, чтобы отличать добро от зла и познать истину существования. «Библия, изложенная для семейного чтения» — это адаптированный пересказ (   Читать дальше...   )Жанр: Религиозная литература. Книги Священного Писания. БиблияИздательство: Издательство Сретенского монастыря и СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6522FD9780316AB81860D1F22F8B55BA96CB3E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861623   (1062771) от 27.03.2026
+
+У.У. Сойер | Прелюдия к математике (1972) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для тех кто любит математику и другие точные науки, для выбирающих свой путь в науку. Особенно рекомендую тем, кто считает математику скучным и не интересным предметом.
+Рассказ о некоторых любопытных областях математики с предварительным анализом математического склада ума и целей математики. Книга "Прелюдия к математике", написанная автором Сойер (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381E64327CEEAC9AB12E34990F90029B47BCFB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861655   (1062770) от 27.03.2026
+
+Erik Österlund | The Z Garbage Collector. In JDK 25 (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062770.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book explains how the Z Garbage Collector was designed, why it was designed this way, the common pitfalls to avoid when using ZGC in JDK 25 and how to get useful information from the garbage collector.
+Java is one of the most widely used programming languages in the world. It is a memory-safe language that completely relies on a good garbage collection (GC) (   Читать дальше...   )Жанр: Software Engineering & Systems Development, Programming & Programming LanguagesЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516A56F00F035988B357025CD6AFC1911E8728C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861651   (1062769) от 27.03.2026
+
+Michael Scott, Jonathan Aldrich | Programming Language Pragmatics. 5th Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Programming Language Pragmatics is the most comprehensive programming language textbook available today, with nearly 1000 pages of content in the book, plus hundreds more pages of reference materials and ancillaries online. Michael Scott takes theperspective that language design and language implementation are tightly interconnected, and that neither can be fully (   Читать дальше...   )Жанр: Compiler Design, Object-Oriented Design, Software DevelopmentЯзык: АнглийскийИздательство: Elsevier Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6621355D220C8786B499349C817E3E546E49D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861647   (1062768) от 27.03.2026
+
+Yung-Hsiang Lu, George K. Thiruvathukal | Intermediate C Programming. 2nd Edition (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revised for a new second edition, Intermediate C Programming provides a stepping-stone for intermediate-level students to go from writing short programs to writing real programs well. It shows students how to identify and eliminate bugs, write clean code, share code with others, and use standard Linux-based tools, such as ddd and valgrind.
+
+This second edition provides (   Читать дальше...   )Жанр: C Programming, C Programming Language, Programming AlgorithmsЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539554072C9EB1F09B8AF1788016BD49B69F53AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861879   (1062767) от 27.03.2026
+
+Оскорбление / L'insulte (2017) BDRip [H.264/720p] [MVO]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В шестом эпизоде «Звездных войн» Дарт Вейдер создает вторую «Звезду Смерти». Он объединяет все силы зла, чтобы с помощью этого смертоносного оружия нанести последний сокрушительный удар по повстанцам и их союзникам.
-
-Люк Скайуокер вместе с принцессой Лейей и верными дроидами R2D2 и C-3PO отправляется спасать своего друга Хана Соло, который попал в плен к отвратительному (   Читать дальше...   )Производство: США / Lucasfilm Ltd.Жанр: фантастика, боевик, фэнтези, приключенияРежиссер: Ричард МаркуандАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Питер Мейхью, Себастьян Шоу, Иен Макдермид, Фрэнк Оз, Джеймс Эрл ДжонсПеревод: Дублированный (CPIG)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 02:14:48
+О споре двух мужчин — ливанца Тони и палестинского беженца Ясера. Один из них, добрый христианин Тони, случайно проливает воду на голову Ясера. После их взаимной перепалки Тони решает подать в суд. Наступает долгий судебный процесс, в ходе которого сталкиваются не только оппоненты и их родственники, но и всё общество...Производство: Ливан, Бельгия, Кипр, Франция, США / CanalЖанр: драма, криминал,  триллерРежиссер: Зиад ДуэриАктеры: Адель Карам, Камел Эль Баша, Камилла Саламех, Диаманд Бу Аббуд, Рита Хайек, Талаль Эль-Жорди, Кристин Чоуири, Джулия Кассар, Рифаат Торби, Карлос ЧаинПеревод: профессиональный многоголосый (HDRezka Studio)Язык озвучки: русский, арабскийСубтитры: английскиеПродолжительность: 01:53:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:172F4E0A7646529279331BF25634275DA88172E9
+magnet:?xt=urn:btih:C84421D2183A508A90F7FE6D84251EAC7B822E54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,25 +265,436 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859439   (1061179) от 
+###  Публикация: 1861880   (1062766) от 27.03.2026
 
-Чебурашка 2 (2025) WEBRip [H.264/1080p]
+ImageGlass 9.4.1.15 + Portable [Multi/Ru]
 
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уже год, как Чебурашка живет у Гены. Ушастик взрослеет, и у друзей часто случаются разногласия: Чебурашка начинает проявлять излишнюю самостоятельность и хулиганить, а Гена пытается его воспитывать. Их приглашают на роскошный день рождения Сони, где ушастик случайно портит праздник. В надежде избежать очередной ссоры, Чебурашка вместе с Соней и Гришей тайно сбегают (   Читать дальше...   )Производство: Россия | Союзмультфильм, Yellow, Black & WhiteЖанр: Семейный, комедия, фэнтезиРежиссер: Дмитрий ДьяченкоАктеры: Сергей Гармаш, Елена Яковлева, Ольга Кузьмина, Фёдор Добронравов, Полина Максимова, Сергей Лавыгин, Дмитрий Лысенков, Артём Быстров, Софья Зайка, Илья Кондратенко и др.Субтитры: ОтсутствуютПродолжительность: 01:42:55
+ImageGlass - это легкий и универсальный просмотрщик изображений, который вполне может заменить стандартный Photo Viewer в операционной системе.
+Приложение поддерживает большой спектр форматов, включая JPG, JPE, JFIF, JPEG, PNG, GIF, ICO, BMP, DIB, TIF, TIFF, EXIF, WMF, EMF, TGA, PSD, HDR, EXR, SGV, WEBP. ImageGlass предоставляет все обычные возможности просмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DFD77D098EA97C2FFBAE8BF3B51B9A444C301EE
+magnet:?xt=urn:btih:D3D80ABFDF6DBE6FCCA539ED8C9627FF8DB58664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861883   (1062765) от 28.03.2026
+
+Last Epoch (2019) [Ru/Multi] (1.4.0.1/dlc) Repack Let'sРlay [Ultimate Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062765.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Last Epoch вас ждут путешествия во времени, захватывающие подземелья, увлекательная настройка персонажей и бесконечные возможности повторного прохождения. Эта игра в жанре «ролевой экшен» понравится как опытным игрокам, так и новичкам. Путешествуйте в прошлое мира Этерры, сталкиваясь с темными империями, гневными богами и девственными землями, найдите способ (   Читать дальше...   )Тип издания: RepackРазработчик: Eleventh Hour GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE18365FFA08EB918982F126437BB90C8BA3564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861882   (1062764) от 27.03.2026
+
+Эдриенн Браганца | «По-моему, неплохо». Конструктивные код-ревью (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте код-ревью продуктивным, вызывающим положительные эмоции процессом, каким он и должен быть. Неважно, проверяют ваш код или же вы проверяете чью-то работу, получите продуманные инструкции, которые помогут избежать напряженных дебатов, неплодотворных придирок и узких мест — всего того, чего мы привычно ждем от код-ревью.
+Научитесь здравому и внимательному подходу (   Читать дальше...   )Жанр: Проектирования программного обеспечения, Тестирование программного обеспечения, Разработка программного обеспеченияИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB836D4EB9C80105CC26C67A0BB30C286F298A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861881   (1062763) от 27.03.2026
+
+Adrienne Braganza | "Looks Good To Me". Constructive code reviews (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliver code reviews that consistently build up your team and improve your applications.
+
+“Looks Good to Me” offers a unique approach to delivering meaningful code reviews that goes beyond superficial checklists and tense critical conversations. Instead, you’ll learn how to improve both your applications and your team dynamics.Жанр: Software Design Tools, Software Testing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3546C0375A5000D9A1606C4FF580AE985A625B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861698   (1062762) от 27.03.2026
+
+Кристина Агатова | Городская магия. Побочка любовь 3, Галя, у нас отмена (2026) [MP3, Елена Кузьмина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкая удача – найти хорошую квартиру за адекватную цену. Галя думала, что ей невероятно повезло, пока не узнала, что жить предстоит не одной, а с самым настоящим призраком девушки. Но призрак-то не платит аренду! Наглую соседку надо выгнать любыми доступными способами… Или не так уж это и необходимо? Галя, у нас отмена?Жанр: ФэнтезиИздательство: ЛитРесПродолжительность: 04:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDAC791AA64CCC937FA2111D9746C7F9018FC002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861886   (1062761) от 27.03.2026
+
+Черное солнце (2025) WEBRip [H.264/720p] (сезон 2, серии 1-12 из 12)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062761.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новых сериях Жук возвращается на работу в Следственный комитет, где его первым делом становится загадочный труп мужчины, выловленный рыбаками в Финском заливе. В это же время, неожиданно для всех, Чагин признаётся в совершении другого убийства. Узнав об этом, Жук просит отдать ему дело напарника: он не верит, что тот способен на преступление. Жуку предстоит выяснить, (   Читать дальше...   )Производство: Россия | «Кинокомпания Драйв»Жанр: Детектив, триллер, драмаРежиссер: Евгений МилыхАктеры: Юрий Чурсин, Максим Стоянов, Юрий Беляев, Евгений Харитонов, Марина Петренко, Александра Большакова, Филипп Азаров, Михаил Сафронов, Олег Доброван, Андрей Попов и др.Субтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3AC8BC299DBC897C5C97DE7E1D8AB4635BD683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861800   (1062760) от 07.04.2026
+
+Mask of Soul (2026) [Ru/Multi] (Build 22531021) Repack Let'sРlay
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mask of Soul - это двухмерная метроидвания-экшен-приключенческая игра, в которой Чон-о Часа, хранитель врат Подземного мира, преследует сбежавших духов в хаосе разрушающейся границы между Подземным миром и миром живых и восстанавливает баланс в мире. Исследуйте извращенные регионы и пробудившихся демонов под Красной Луной, испытайте на себе точный парирующий бой, (   Читать дальше...   )Тип издания: RepackРазработчик: XION ENTERTAINMENTЖанр: Экшены, Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DDEF43C61D334322FA64A3D48D4A47FFB4223A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861694   (1062759) от 27.03.2026
+
+NG: Драконы наяву / Dragons Uncovered (2024) HDTV [H.264/1080p] [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дракон Комодо захватывал наше воображение более века, но мы только сейчас раскрываем некоторые из его самых невероятных секретов.Производство: США | Yellow Border Production Services, National GeographicЖанр: документальный, природаРежиссер: Джефф ЛакПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBEDE87967A4F01BE5776F9CF221E63D072C1D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861894   (1062758) от 27.03.2026
+
+Chez Kane - Reckless (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Reckless (4:41)
+02.  Personal Rock N' Roll (2:59)
+03.  Night of Passion (4:48)
+04.  Strip Me Down (4:46)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5D1F3E7FB8C677B4F646181BA013DFF4AB879D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861893   (1062757) от 27.03.2026
+
+Пресеты - Gradefruit - Blockbuster II [XMP, DNG, CUBE]
+
+>>Материалы для мультимедиа и дизайна
+>>Пресеты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улучшите визуальное восприятие с помощью насыщенных, ярких цветов и динамичных тонов, которые отличают современные блокбастеры.Формат: XMP, DNG, CUBE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DD6959AE91C84F5D205A02B07F2C23772B9CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861896   (1062756) от 27.03.2026
+
+The Mood Mosaic - French Vices (Hot Mounts & Deep Focus) (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alex Nesta - Fantasme D'Emmanuelle (3:19)
+02.  Le Crocodile Porte Clé (2:16)
+03.  Pétrol Pop (3:08)
+04.  Munich Party (2:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CE4F63289D4678BA7E7F9D012B5D7FD5FA3987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861897   (1062755) от 27.03.2026
+
+Би-2 - Путешествие вокруг Солнца (2026) Space Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Би-2 - Без любви не греет солнце
+2. Nadya Tolokonnikova - skit
+3. Би-2 - Свободная любовь
+4. Александр Баунов - skit(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A60B508FDA317C2F79F4CB529781DC2446C898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861895   (1062754) от 27.03.2026
+
+Граница / Старое Дудино (1935) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители местечка Старое Дудино, расположенного в четырех километрах к западу от советской границы, находятся в полной зависимости от богача Новика, интересы которого защищают местная полиция и духовенство. Новик усиленно раздувает национальную рознь между еврейской беднотой и польскими рабочими...
+
+Фильм из коллекции Госфильмофонда России и опубликован в интернете (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: драма, историяРежиссер: Михаил ДубсонАктеры: Николай Черкасов, Елена Грановская, Вениамин Зускин, Эмиль Галь, Борис Пославский, Василий Топорков, Вера Бакун, Ефим Альтус, Петр Кириллов, Леонид КмитСубтитры: отсутствуютПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A672E346122BAE16638E5AF31E53742F88DE32C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861901   (1062753) от 27.03.2026
+
+Одинокий волк МакКуэйд / Lone Wolf McQuade (1983) BDRip [H.265/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крутого рейнджера Маккуэйда бандиты ненавидят за беспощадность, а шеф полиции за его стиль работы волка-одиночки. И в конце концов навязывает ему молодого напарника-мексиканца. Им противостоит банда контрабандистов оружием во главе неким Роули - чемпионом по карате. В довершение всего, Маккуэйд влюбляется в женщину Роули Лолу, а бандиты похищают дочь рейнджера.Производство: США / 1818 Productions, Cinema '84, Lone Wolf McQuade Associates, Topkick ProductionsЖанр: боевик, триллер, драма, мелодрама, криминал, вестернРежиссер: Стив КарверАктеры: Чак Норрис, Дэвид Кэрредин, Барбара Каррера, Леон Айзек Кеннеди, Роберт Бельтран, Л. К. Джонс, Дэна Киммелл, Р.Г. Армстронг, Хорхе Сервера мл., Шэрон ФарреллПеревод: профессиональный многоголосый (Петербург 5-й канал, НТВ, ОРТ), профессиональный двухголосый (НТВ+, РТР), авторский (Юрий Сербин, Алексей Михалёв, Михаил Яроцкий, Андрей Гаврилов, Василий Горчаков, Леонид Володарский, Юрий Товбин), дублированный неофициальный (НЛО-TV)Язык озвучки: русский, украинский, английскийСубтитры: английские (SDH)Продолжительность: 01:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94707B04EBE5CB4F769AB1808DF69FEC84408156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861902   (1062752) от 27.03.2026
+
+Gabe Stillman - What Happens Next? (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  What Happens Next? (3:25)
+02.  Yesterday’s Donuts (3:54)
+03.  The Man I’m Supposed To Be (7:16)
+04.  Someone In My Mirror (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1E94EC16EEAD3235592F6DC256BB77B9A079FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861904   (1062751) от 27.03.2026
+
+Selwyn Birchwood - Electric Swamp Funkin' Blues (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Eagle Has Landed (1:28)
+02.  The Church Of Electric Swamp Funkin' Blues (5:05)
+03.  Damaged Goods (6:30)
+04.  All Hail The Algorithm (4:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729A6619EB3BD656D9F1C3EF5B91ED62CA3C4B73
 ```
 
 https://mybot314.ru/tekegram_catalog/

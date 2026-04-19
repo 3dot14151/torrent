@@ -1,3 +1,171 @@
+###  Публикация: 922093   (571594) от 27.07.2015
+
+U.D.O. – Steelhammer - Live from Moscow (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт записан в клубе “Arena Moscow” 28 сентября 2013 года. Релиз состоялся 23 мая 2014 года в форматах DVD+2CD, BD+2CD и 3 винила цвета российского флага. Россия имеет особое значение для Удо Диркшнайдера (Udo Dirkschneider) и его группы U.D.O. Они были одним из первых иностранных коллективов, отправившихся на гастроли по всей необъятной территории России, и их (   Читать дальше...   )01. Intro
+02. Steelhammer
+03. King Of Mean
+04. Future Land(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9189F4D34CA10D5113AECF5AF6D305B3948D334B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922129   (571426) от 27.07.2015
+
+Blackmore's Night - A Knight In York (2012) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Blackmore's Night возник на фоне постоянного интереса Ричи Блэкмора к музыке. Дебютный альбом, "Shadow of the moon", вышедший летом 1997 года, произвёл эффект разорвавшейся бомбы - так музыку Средневековья ещё не играл никто! Практически все западные музыкальные издания окрестили "Blackmore's night" открытием 1997 года. Концерт Blackmore’s (   Читать дальше...   )01. Locked Within The Crystal Ball
+02. Guilded Cage
+03. The Circle
+04. Journeyman(   Читать дальше...   )Жанр: Celtic, Folk, Neo-MedievalПродолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0077DFE621C192A651AC03796A792ABC6B8808E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922419   (569821) от 28.07.2015
+
+Styx - The Grand Illusion / Pieces of Eight Live (2010/2012) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Styx — первая группа, четыре альбома которой подряд были признаны мультиплатиновыми. Группа была основана в Чикаго в 1961 как «The Tradewinds» и играла в местных барах в окрестностях Чикагского Государственного Университета. В это время состав группы включал братьев Чака Паноззо и Джона Паноззо на гитаре и ударных соответственно и вокалиста, пианиста, клавишника (   Читать дальше...   )1. The Grand Illusion
+2. Fooling Yourself (Angry Young Man)
+3. Superstars
+4. Come Sail Away(   Читать дальше...   )Жанр: RockПродолжительность: 01:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA11B3440909D86AFF4BB3A4AD39CEEDA773B8BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922355   (568060) от 29.07.2015
+
+Fare Thee Well - Weekend One / Grateful Dead Live Jun 27 & 28, 2015 at Levi's Stadium, Santa Clara, CA, USA (2015) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два концерта Grateful Dead в г. Санта Клара (Калифорния, США), состоявшиеся 27 и 28 июня 2015 года в рамках мини-тура Fare Thee Well, посвящённого пятидесятилетию группы и двадцатой годовщине со дня смерти её лидера Джерри Гарсия.Производство: СШАЖанр: Psychedelic RockПеревод: ОтсутствуетПродолжительность: 04:29:33 + 03:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5355095A896047964BD910C9465CDAEF6E7C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690216   (565954) от 17.08.2013
+
+Shakira - Oral Fixation Tour (2007) BDRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565954.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+ 2. Estoy Aqui
+ 3. Te Dejo Madrid
+ 4. Don't Bother(   Читать дальше...   )Жанр: PopРежиссер: Ник ВикманАктеры: Shakira bandПеревод: ОтсутствуетПродолжительность: 01:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10436D271678EEE762FE958EE2A01982BBEB6D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234902   (565837) от 08.07.2018
+
+Квартирник на НТВ у Маргулиса. Маша и Медведи (07.07.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565837.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла группа "Маша и Медведи", российская рок-группа, образованная в 1997 году Марией Макаровой. Участники коллектива исполнили полюбившиеся многим хиты и рассказали интересные истории из жизни.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46E66ED7049C2B7FEB2FA9521FAE9BFFF703C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 204088   (562836) от 07.06.2022
 
 Bon Jovi: Live at Madison Square Garden (2008) BDRip [H.264/720p]
@@ -544,181 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAF3E71EE7153B1D4D171E4D0F1AB16D0111D586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 815824   (551377) от 24.08.2014
-
-Hatebreed - Live Dominance (2008) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Съемками концерта в высоком качестве занимался Kevin Custer. Вокалист HATEBREED Jamey Jasta сказал по этому поводу: «Это высококачественный релиз и мы гордимся тем, что получилось. Он отлично демонстрирует, что такое музыка HATEBREED, как мы ведем себя на концертах и какую поддержку получаем от наших фэнов по всему миру».01. This Is Now
-02. Perseverance
-03. A Call For Blood
-04. To The Threshold(   Читать дальше...   )Жанр: Концерт, Metalcore/Hardcore punkПродолжительность: 01:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617D417A8648C6E6C4770CF668DEFA7F28A97046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283491   (549262) от 21.06.2019
-
-Just Play - Концерт в клубе "Вермель" (2017) WEBRip [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Just Play – популярный YouTube-проект с более чем 10 миллионами просмотров и десятками тысяч подписчиков! Девушки исполняют мировые и отечественные рок-хиты в собственной аранжировке на скрипке и фортепиано.Алиса - Трасса Е95
-Сплин - Выхода нет
-Виктор Цой - Группа крови
-Виктор Цой - Кукушка(   Читать дальше...   )Производство: РоссияЖанр: Музыка, КлассическаяСубтитры: отсутствуютПродолжительность: 01:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28E1D025F118871C7B042AA602F9BF8062636AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 693808   (548168) от 27.08.2013
-
-Santana & McLaughlin: Live at Montreux - Invitation to Illumination 2011 (2013) BDRip [H.264 720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes of Angels/Introductions
-02. The Life Divine
-03. Medley: Peace on Earth/A Hard Rain's A Gonna Fall/Stairway to Heaven/Our Prayer/SOCC
-04. Right Off(   Читать дальше...   )Жанр: Музыка, Latin Rock, Blues Rock, Jazz FusionПродолжительность: 02:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594F61DF5ADC1BAC3BD72D932348E71F91CDF287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048178   (547305) от 01.09.2016
-
-Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз состоялся 6 мая этого года в форматах CD, DVD и Blu-ray под лейблом Inakustik. В треклист диска вошли все хиты группы, а также раритетные и эксклюзивные материалы с репетиций, концертов и из студии. Майкл Шенкер по поводу нового диска: Мадрид... Испания, люди, горячая кровь, что может быть лучше.1. Ocean Odyssey – Intro
-2. Doctor Doctor
-3. Live and Let Live
-4. Lights Out(   Читать дальше...   )Жанр: Hard Rock,Продолжительность: 01:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA5D7D965ECB26EBD7EB51CD340E57C431AB88A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048263   (547303) от 01.09.2016
-
-Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз состоялся 6 мая этого года в форматах CD, DVD и Blu-ray под лейблом Inakustik. В треклист диска вошли все хиты группы, а также раритетные и эксклюзивные материалы с репетиций, концертов и из студии. Майкл Шенкер по поводу нового диска: Мадрид... Испания, люди, горячая кровь, что может быть лучше.1. Ocean Odyssey – Intro
-2. Doctor Doctor
-3. Live and Let Live
-4. Lights Out(   Читать дальше...   )Жанр: Hard Rock,Продолжительность: 01:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED05EC4E38EFC2225FE58593E494774AC392C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048354   (545551) от 03.09.2016
-
-Kiss. Rocks Vegas 2014 (2016) HDTV [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление американского Hard rock бэнда Kiss на сцене The Joint at Hard Rock Hotel в Лас Вегасе nov 05-23, 2014
-Запись концерта  2014. Eagle Rock Entertainment издала блюрик. А спутниковая трансляция и соответственно, запись, была сделана в 2016 году. Так что можно считать это выпуск 2016.01. Detroit Rock City
-02. Creatures Of The Night
-03. War Machine (Gene breathes fire)
-04. Lick It Up(   Читать дальше...   )Производство: ORF3Жанр: Hard rock, Heavy metal, Glam metalПродолжительность: 00:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E786CA7ACFB77C1DA50CBC08409729DB954504E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

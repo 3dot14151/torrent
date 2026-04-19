@@ -1,3 +1,32 @@
+###  Публикация: 1011068   (797698) от 26.04.2016
+
+Art Farmer - Gentle Eyes (1971/1972) 1991, Mainstream Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Time for Love [05:24]
+ 02.Didn't We [03:08]
+ 03.Soulsides [04:29]
+ 04.So Are You [03:37](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860907C744C24AF7677771E71DC96BBC5DAEFF2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011024   (797697) от 26.04.2016
 
 Sadao Watanabe - Live At The Junk (1969) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ Najponk Trio - A Hard Day's Night: Live At The Office (2018) Gats [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:879F3202C4C88864D8BD8234B81732DDA09FC9FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508964   (796270) от 10.11.2021
-
-Bill Evans - Behind the Dikes: The 1969 Netherlands Recordings 2CD (2021) [FLAC|Lossless|tracks + .cue] <Cool Jazz, Post Bop, Modal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One for Helen (4:41)
-02. Quiet Now (5:36)
-03. Someday My Prince Will Come (6:04)
-04. Announcement by Aad Bos (0:47)(   Читать дальше...   )Жанр: Cool Jazz, Post Bop, ModalПродолжительность: 01:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9B1B6DB1A24B3E511E4B3E261B66B75AAC88EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

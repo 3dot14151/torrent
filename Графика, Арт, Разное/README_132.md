@@ -1,3 +1,29 @@
+###  Публикация: 966342   (219622) от 17.12.2015
+
+Фотография - Архив проекта Аполлон / Project Apollo Archive [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наиболее полный архив снимков лунных миссий NASA. Автор архива — Kipp Teague (Кипп Тиг), работающий со снимками «Аполлонов» уже 15 лет.Формат: JPGРазрешение файлов: 868x680 - 4400x4600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF53B19ACD030C6882A188848FA114E6160D0CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588129   (218459) от 12.12.2012
 
 New year wallpapers 2013 (10.12.12) [Wallpapers]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:451D781D453D66AA831009BE4B53E1A33D575EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831026   (212561) от 28.10.2025
-
-Промты - Creative Market - 321 Midjourney Prompts for Patterns - 25408213 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет из 321 настраиваемых промтов Midjourney для создания минималистичных паттернов. Каждый промт содержит 4 примера изображений.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9D4DA90B69FB908B1CABC1FD20596ABC98C5FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

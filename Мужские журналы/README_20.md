@@ -1,3 +1,31 @@
+###  Публикация: 1707309   (62815) от 16.03.2024
+
+Журнал | BOUDOIR Inspiration (BOUDOIR Issue) (март 2024) [PDF][EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62815.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DFDB0B5FDB2A30D49239107F981217FCDAA7BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707312   (62812) от 16.03.2024
 
 Журнал | BOUDOIR Inspiration (Lingerie Inspiration Issue) (март 2024) [PDF][EN]
@@ -679,34 +707,6 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0097864FAFFECC477E97A7D2EED12036DF3A64F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743836   (46445) от 18.08.2024
-
-Журнал | BOUDOIR Inspiration (BOUDOIR) (август 2024) [PDF][EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46445.jpg" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95EA4FC47B0F200BEB4CA657E56EDCC6ABBAA0BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

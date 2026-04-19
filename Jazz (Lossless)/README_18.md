@@ -1,3 +1,32 @@
+###  Публикация: 1483210   (1007020) от 12.07.2021
+
+Dean Fraser - Flat Bridge (2021) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassia Park (3:43)
+02. Anajara (4:10)
+03. Flat Bridge (4:13)
+04.Жанр: Reggae, JazzПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B5DCFD6430A2FF77E9E43E955E18763E2872A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483213   (1007019) от 12.07.2021
 
 Gary Smith - My Romance (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -716,35 +745,6 @@ Roland Keijser Quartet - Saxophone Valley (2000) Sittel [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0BEFD713EF718E36A916AF77D09FAF916685628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351008   (1002753) от 08.01.2020
-
-Incognito - Tomorrow's New Dream (2019) [FLAC|Lossless|tracks + .cue] <Acid Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haze of Summer (Feat. Joy Rose)
-02. For the Love of You (Feat. Phil Perry & Maysa)
-03. The Weather Report (Feat. Take 6)
-04. All For You (Feat. Maysa)(   Читать дальше...   )Жанр: Acid Jazz, SoulПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B24C0C03E5C1BE5C26379299D74BCCCDFC2BA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

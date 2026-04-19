@@ -1,3 +1,56 @@
+###  Публикация: 988694   (920397) от 20.02.2016
+
+Проекты - VideoHive - Clean Corporate Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526EA9E78AFB6FBD6B44B5AA620F232CD324F64A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096275   (920277) от 23.01.2017
+
+Проекты - VideoHive - Memory Book [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Memory Book - проект для создания памятного фото-альбома.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E97C05583FA5D93AF8D202A89A6C8ACFC1E094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366952   (920149) от 13.03.2020
 
 Проекты - MotionElements - Sketch - 11901502 [AEP]
@@ -629,58 +682,6 @@ Videohive - Timeless Memories - 3829010 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C4A7405DB639CE792C847380B05E8047B286999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097113   (915268) от 26.01.2017
-
-Проекты - VideoHive - Fast and Clean Slideshow - 19280493 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389ECBB78BA65899B2194263FC08218170C0ADF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367516   (915236) от 16.03.2020
-
-Проекты - ProShow Producer - Winter Opener [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивое слайдшоу на новогоднюю тему. Дерзайте!Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B68479B5943678346B12EA5D63A9A0431C341CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

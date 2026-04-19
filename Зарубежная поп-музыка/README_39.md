@@ -1,3 +1,61 @@
+###  Публикация: 1299727   (594969) от 04.05.2019
+
+VA - Schlager für Alle 4 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594969.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Eloy de Jong - Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
+02. Thomas Anders feat. Florian Silbereisen - Sie sagte doch sie liebt mich(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E8CA5FA17B3038ABE10DEF86FE3C88489B8A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299909   (594724) от 04.05.2019
+
+VA - 110 Hits 2019 Vol.2 (2019) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594724.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Angèle - Tout oublier
+02. Pedro Capó - Calma (Remix)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 06:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2000C344FAA031EBF5F1F87C8DD21A2F5BE1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548968   (594007) от 06.05.2022
 
 VA - Mastermix presents MX: Balearic (2022) [MP3|320 Kbps] <Chillhop, Lo-Fi, Broken Beat>
@@ -687,64 +745,6 @@ VA - DMC Back To Back Classix (Classic Mixes) (Vol.1) (2021) [MP3|320 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAB1863BCF0EDAC6397E9A2E9AF0DC02CCB17FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551780   (588915) от 18.05.2022
-
-VA - DMC Dancing Divas (Classic Mixes) (Volume 1) (2015) [MP3|320 Kbps] <Electro House, Soul, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spice Girls - Dmc Spice Girls Megamix
-02. Diana Ross - Diana Ross Mixdown
-03. Cilla Black - Cilla Black Minidance Mix “The Segue of Surprise”
-04. Whitney Houston - Whitney Houston Mega-Remix(   Читать дальше...   )Жанр: Electro House, Soul, Dance-popПродолжительность: 01:20:01 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4029076EBABF723F10BC9710BF339CFBA92B050C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551773   (588909) от 18.05.2022
-
-VA - DMC Back To The 80s (Classic Mixes) (Volume 1) (2021) [MP3|320 Kbps] <Electro, Funk, Dance-pop, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Culture Club - Ultimate Culture Club Megamix (Part 1 & 2) (Mixed By Kevin Sweeney)
-02. ABC - The ABC Mix (Mixed By Marco Oude Wolbers)
-03. Art Of Noise - Art Of Noise Mix (Mixed By Marco Oude Wolbers)
-04. VA - Trapped In The 80s (Mixed By Jimmy 'Slimjay' Langtoft)(   Читать дальше...   )Жанр: Electro, Funk, Dance-pop, HouseПродолжительность: 01:18:09 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F15FF61CF507D628D495BCAE050B76B83A183A
 ```
 
 https://mybot314.ru/tekegram_catalog/

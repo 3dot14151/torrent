@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_820847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_820847.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_819181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_819181.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_814996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_814996.jpg" />
 </div>
 
 

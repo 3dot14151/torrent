@@ -1,3 +1,32 @@
+###  Публикация: 958491   (324005) от 21.11.2015
+
+Steve Howell & Mighty Men - Friend Like Me (2015) [MP3|320 кб/с]<Texas Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Friend Like Me (03:06)
+02. Aberdeen, Mississippi Blues (03:51)
+03. Elder Green Is Gone (04:02)
+04. Oh, Lord, Search My Heart (04:57)(   Читать дальше...   )Жанр: Texas BluesПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744AD738DB2F87C5A6EA6878DFC67A0BF9ECB6A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958367   (324002) от 21.11.2015
 
 Dave Fields - All In (2014) [MP3|320 кб/с]<Blues Rock>
@@ -716,35 +745,6 @@ Joanne Shaw Taylor - Wild (2016) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B98FA0F605F879A7FB959492F84361CE5927D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961743   (298807) от 02.12.2015
-
-Robin Barrett & Coyote Kings - Howl (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Howl (05:40)
-02. Good Thing (04:36)
-03. That's Rude (04:33)
-04. Waiting to Be Free (06:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB481FA3F052472B52E53FEAEEB98CD5CDEFEFB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

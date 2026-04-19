@@ -1,3 +1,177 @@
+###  Публикация: 1268111   (229973) от 09.12.2018
+
+VA - Ibiza 2019 Winter Clubbing (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bang Bang, Tidy Daps - Susan Cries (Tidy Daps Remix) 5:59
+02. Dubeats - Tender Love (Dub Mix) 6:23
+03. G Spice, Flected - Reshape (Flected Remix) 6:11
+04. Jeff El Jefe - Sensual (Original Mix) 6:04(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C7228E081DD87CA5A9398EF5F3BA83DB49C93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341803   (229358) от 29.11.2019
+
+Dj De Key - Friday Evening Disco (2019) [MP3|320 Kbps] <Disco House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yuksek feat. Villa - Showbiz (Purple Disco Machine Edit) (6:36)
+02. Hotmood - My Bright Red Juicy Lips (5:23)
+03. Horse Meat Disco & Kathy Sledge - Falling Deep In Love (Joey Negro 12 Disco Blend) (6:07)
+04. The Vision feat. Andreya Triana - Heaven (Mousse T.'s Disco Shizzle Extended Remix) (6:15)(   Читать дальше...   )Жанр: Disco House, Tech HouseПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30254FBEA5EE1ECE5F1F78AAF571DB5C4508A114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341827   (229298) от 29.11.2019
+
+VA - Energetic Workout Vol.1 (2019) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229298.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Slade Silva - Oppidan (Original Mix) (6:43)
+2.Ophelie Mercury - Ananas (Original Mix) (6:18)
+3.Cubba Jr - Deep Down (Original Mix) (6:53)
+4.Default Skin - The Heist (Original Mix) (3:40)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28216348E3617B2192166FCD470F5FD29B93D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341725   (229266) от 29.11.2019
+
+VA - Best Driving EDM 2020 (2019) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rene Rodrigezz & MC Yankoo & Marcus Cito - OK (Pull Up) (Original Mix) 2:13
+02. Lorenz Koin feat. Norah B. - Don't Break My Heart (Radio Edit) 3:28
+03. Doubl3 Mask - Let You Go (Radio Edit) 2:55
+04. ANDRW MADNSS - For You (Radio Edit) 3:01(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C466C34EB11E278F86911264CB5C5BAF3486D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424413   (229177) от 16.11.2020
+
+Gym Workout DJ Team - Workout Mix 2020 New Year, New You [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Me On (Dr. Love) - 132 Bpm, 32 Count Pro Edition (3:18)
+02. Apollo - 132 Bpm, 32 Count Pro Edition (3:16)
+03. The Box - 132 Bpm, 32 Count Pro Edition (2:58)
+04. Drop It - 132 Bpm, 32 Count Pro Edition (3:17)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CFF3F38AE2D90F2B2026B1EFED1792F6A50E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268284   (228209) от 10.12.2018
+
+VA - The Best Of House Ibiza 2018 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.O.N.S. - You Used To Hold Me (Avicii Remix) (feat. Terri B.)
+02. Patric La Funk - Xylo (Bingo Players Remix)
+03. Ian Faze - Funk It (Original Mix)
+04. Seal De Green - Summer Love (Dany Cohiba Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E744258C9A7B6975B9323C9CB61B12971BFDD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268298   (228189) от 10.12.2018
 
 VA - Whore House Does Disco (2018) [MP3|320 Kbps] <House, Soulful, Funky>
@@ -582,180 +756,6 @@ VA - Ibiza Dance Party (2023) CD, Compilation [MP3|320 Kbps] <Electro, Club, Fut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A027AC7FB4C789B9A8902EED7E6212AACADC3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652210   (218497) от 10.08.2023
-
-VA - Deep House Relief (2023) CD, Compilation [MP3|320 Kbps] <Deep House, Downtempo, Soulful, Beach House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M-Sol DEEP, Tomas Zolan - Naomi (Original Mix)
-02. Duel (HU), M-Sol DEEP - Scarlet Sun (Original Mix)
-03. NatureVibes, M-Sol DEEP - Fantasy (Original Mix)
-04. DMTunes, Teeka, M-Sol DEEP - Bodhi (Original Mix)(   Читать дальше...   )Жанр: Deep House, Downtempo, Soulful, Beach HouseПродолжительность: 01:30:01 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B055011C83A1125349C8994CC42AE6F0190D9882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425797   (218460) от 22.11.2020
-
-VA - House Clubhits Megamix 2021 (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caleidescope, Gxldjunge - Enjoy The Silence (Caleidescope Version) 2:31
-02. Dj Blackstone - Somebody To Love (Dj Kone & Marc Palacios Remix) 5:12
-03. Mathy - Snak (Original Mix) 4:46
-04. Ka!Ro - Seven Nation Army 3:01(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEDB64704ADAE646D194724F2EA67E3FAC02A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652520   (217875) от 11.08.2023
-
-VA - Black Hole House Music 08-23 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PARAFRAME & Denton Thrift - Solid Breaker (Extended Mix) [6:15]
-02. VENIICE & Zashanell - 5AM (Mason Flint Extended Remix) [4:38]
-03. Milkwish - African Rose (Extended Mix) [5:45]
-04. Maglev - Wanted You To Know (Extended Mix) [5:28](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E03843DED2FA94DE012813B52F5EE5CDB4E3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652717   (216787) от 12.08.2023
-
-VA - Mojito Lounge Beats 2023: Best of Tropical & Deep House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Emotion - Losing My Religion [04:20]
-02. Rinat Bibikov - Beautiful Life [03:09]
-03. Alka & Feiv - Love Yourself [02:26]
-04. Audioboy - Everything I Got [02:55](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F620F557F18665D5CC928DCB48E2A5B22B83DFDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652675   (216773) от 12.08.2023
-
-VA - Summer Vibes 2023: Best of Deep Tropical House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dani Corbalan - Pray [02:44]
-02. Flozers - I Want You [02:13]
-03. Audioboy - Everything I Got [02:55]
-04. Remundo - Pacha Cerise [03:05](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5F97BAEA1630B1E7FFA984C31A983B27725BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270109   (216398) от 17.12.2018
-
-VA - X Mas Party Vol.1 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diego Fragoso - Ilustre Timidez (Original Mix)
-02. Mister Salo - Chicago (Original Mix)
-03. Ero Boy - Vintage (Original Mix)
-04. Chris Park - Tonight (Feel Flow! Remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8550590976B80F1D0AC1ABFAAA847FA3BC4298
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 952634   (355726) от 01.11.2015
+
+Обои - Creative Art HD Wallpapers Mix 8 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Креативные обои. Выпуск 8Формат: JPGРазрешение файлов: 1920x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81AA28C1019F5F4CB9613F6AA641C7FC754AE10D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 578464   (355663) от 20.11.2012
 
 Nature HD Wallpapers (20.11.12) [Wallpapers]
@@ -641,32 +667,6 @@ Desktop Wallpapers Full HD. Part (511) [JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:724C530506272AC7662B8E557C79FF3A5990C93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330330   (343516) от 09.10.2019
-
-Ultra HD 3840x2160 Wallpaper Pack 401 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343516.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B7019E371CF839A1C12B0E736520E842436D83
 ```
 
 https://mybot314.ru/tekegram_catalog/

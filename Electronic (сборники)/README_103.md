@@ -1,3 +1,201 @@
+###  Публикация: 520988   (629443) от 10.07.2012
+
+VA - Voices in my Head Volume 37 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629443.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Miikka Leinonen pres. Cinereal - Another Day (Original Mix)
+002. Paki & Jaro feat. Casey Barnes - Because Of You (Original Mix)
+003. Sean Tyas feat. David Berkeley - Believe (Original Mix)
+004. Mark Eteson feat. Audrey Gallagher - Breathe On My Own (Daniel Kandi remix)
+005. Polina Griffith & Miami Kidz - Feeling This Way (Extended Mix)
+006. Paul Webster feat. Angelic Amanda - Forever Today (Original Mix)
+007. Roger Shah & Sian Kosheen - Hide U (Pumpin' Island Mix)
+008. Matt Darey feat. Leah - Hold Your Breath (Khomha Remix)
+009. Sasha Virus feat. Dilara - I Still Fall (Stero Jackers Remix)
+010. Morgan Page feat. Sultan vs. Ned Shepard & BT - In The Air (Hardwell Remix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7D019F1B2DB7CF99154B08CBB41D8473271EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520994   (629436) от 10.07.2012
+
+VA - Trance Desire Volume 22 (Mixed by Oxya^) (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629436.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gareth Emery feat. Christina Novelli - Concrete Angel (Original Mix)
+002. Susana & Max Graham - Down To Nothing (Original Mix)
+003. Anhken - Emergency Lane (Original Mix)
+004. Will Holland feat. Jeza - Every Heartbeat (Beat Service Intro Mix)
+005. Matt Darey & Stan Kolev feat. Aelyn - Follow You (Original Club Mix)
+006. Andy Duguid feat. Shannon Hurley - I Want To Believe (Original Mix)
+007. Above & Beyond - Love is Not Enough (Extended Mix)
+008. Cosmic Gate & J'Something - Over The Rainbow (Extended Mix)
+009. Solarstone & Clare Stagg - The Spell (Pulser Remix)
+010. Alexander Popov - When The Sun (Club Mix)Жанр: Vocal TranceПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27C0D6255C7C6D41BD66276ED170D616109AA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521310   (629311) от 10.07.2012
+
+VA - Trance In Motion Vol.120 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Christian Burns & Stefan Dabruck - Bullet (Club Mix)
+02.Juventa - Nothing But Less Than Three (Original Mix)
+03.Ashley Wallbridge feat, Audrey Gallagher - Bang The Drum (Club Mix)
+04.Maison & Dragen - Wet Dreams (Original Mix)
+05.Tritonal & Kaeno - Azuca (Club Mix)
+06.Susana & Rex Mundi - All Time Low (The Madison Remix)
+07.Boom Jinx & Daniel Kandi - Azzura (Rafael Frost Remix)
+08.Sunny Lax - Spring (Original Mix)
+09.tyDi with Tenishia feat. Jenniffer Rene - Greater Hights (Tom Fall Remix)
+10.W&W & Jochen Miller - Summer (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A77167D0AD4C6FC75318B10E497BBF635A4BEE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521314   (628981) от 10.07.2012
+
+VA - In Da Club: Inspiration Volume 1 (Summer 2012) (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628981.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Headstrong feat. Shelley Harland - Here In the Dark (Aurosonic Progressive Mix)
+002. Dave Silcox feat. Amy Pearson - This Is Love
+003. Evol Waves - Evolver
+004. Faruk Sabanci & Mark Sixma - Starburst (Original Mix)
+005. First State - Reloaded (Original Mix)
+006. Gareth Emery - The Saga (Original Mix)
+007. Monada - Turbulence (Original Mix)
+008. Michael S - Rewind (Swab & Joey Mova Remix)
+009. Rafael Frost - Channel 4
+010. Evgeny Bardyuzha - Magnitoplan (Club Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072D563A42CC496B424108AEF5CE4CF0FF22D485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035340   (628678) от 16.07.2016
+
+VA - Naxwell - Hands Up Masterpieces: All His Singles & Remixes (2016) [MP3|320 Kbps] <House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naxwell -  Magic Melody (Club Mix) 5:13
+02. DJ Schwede -  Here We Go Again 2k16 (Naxwell Remix) 4:05
+03. John Wiix -  Can U Pump on It (Naxwell Remix) 4:04
+04. Patricio AMC -  Believe (Naxwell Remix) 4:04(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 04:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8607D115123D2677E2DB20EAADD2E0181EDA63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035315   (628644) от 16.07.2016
+
+VA - Trance Melody Harmony (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_628644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sied Van Riel feat. Alicia Madison -  Gravity (Sneijder Remix) 7:14
+02. Rene Ablaze & Frank Dattilo -  You & I Forever (Original Mix) 8:57
+03. Sneijder & Bryan Kearney -  Proper Order (Original Mix) 7:41
+04. Sean Mathews -  Breath Of Life (Original Mix) 7:54(   Читать дальше...   )Жанр: Trance, Melodic, HarmonicПродолжительность: 08:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7FA98F960ECE8A141ECEADC428B325D5420DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035188   (628639) от 16.07.2016
 
 VA - Endless Motion - Only Trance (episode3) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -583,183 +781,6 @@ VA - Лучшие хитовые треки в стиле Electro, Deep, Techno 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:509491817133ABE9A513E6CAB84E317A24EB37E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035726   (624728) от 18.07.2016
-
-VA - Best Vocal Around Energy (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobina & Kyle Richardson -  Love Is the Answer (Digital X Remix) 4:58
-02. Fabio XB And Liuck Ft Roxanne Emery -  Nowhere To Be Found (Extended Mix) 6:20
-03. RAM & Chris Metcalfe feat. Natalie Gioia -  Don't Give Up (Craig Connelly Remix) 7:05
-04. Ben Gold Ft. Christina Novelli -  All Or Nothing (Allen Watts Extended Remix) 5:31(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 10:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448E334CAA151CC6F3EE50A99F3024A70BCB0C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035834   (624657) от 18.07.2016
-
-VA - Aurosonic Intro: Atmospheric Progressive Trance (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624657.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Oakenfold -  Shanghai Baby (Joyriders Remix) 6:01
-002. SCHALA -  Night Sky (Extended Mix) 5:18
-003. Chris Schweizer -  Renegade (Extended Mix) 5:41
-004. Ana Criado & Denis Kenzo -  Beautiful Creature (Intro Mix) 6:25(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 12:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E607AADBE3CE6EB902AAD1D1180516D6D13F42D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035813   (624652) от 18.07.2016
-
-VA - Record Super Chart № 445 (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headhunterz & KSHMR -  Dharma (Extended Mix) 3:57
-02. Martin Solveig feat. Tkay Maidza -  Do It Right (Original Mix) 3:33
-03. Calvin Harris feat. Rihanna -  This Is What You Came For 3:42
-04. Alan Walker & Mikis -  Sing Me To Sleep (Remix) 3:30(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1996C129F9CCEE6E0E55DD296E0C51C9ED0606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035772   (624317) от 18.07.2016
-
-VA - Hits of My Soul Vol. 06 (2016) [MP3|320 кб/с]<Electronic, House, Trap>
-
->>След.
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник красивой и качественной электронной музыки, разных жанров.
-Его должен услышать каждый кто хочет насладится красотой, нежностью, и атмосферностью.
-Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественною музыку.01. 8Er$ - Indestructable (03:05)
-02. SaneBeats - Want (04:02)
-03. Freemasons ft. Bailey Tzuke - Uninvited (Original Mix) (05:21)
-04. Seba - Hide the Tears (05:30)Жанр: Deep House, Dubstep, Electronic, House, Pop, Trap, TranceПродолжительность: 03:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85CF8846F95127D8BF5BBA4D4A6DBCA96970F8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036019   (622826) от 19.07.2016
-
-VA - Ham!d Production June (2016) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622826.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker -  Faded (Markus Schulz Remix) 6:36
-002. Paul van Dyk & Chris Montana feat. Chris Bekker -  Berlinition (PvD Club Mix) 6:38
-003. Dimitri Vegas & Like Mike -  Stay A While (Extended Mix) 5:02
-004. MATTN & 2 Faced Funks -  How We Roll (Original Mix) 4:15(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 07:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660F365451BC09E3467443801191FC36C804E09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229792   (622784) от 08.06.2018
-
-VA - Empire Records - Stadium 3 (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonas Blue feat. William Singe - Mama (Kevu Festival Bootleg)
-02. Jon Thomas, DJ Backslash, Johnny Catch - Never Been Honest
-03. Jon Bellion - iRobot (Landis Remix)
-04. Newclaess - Be The One(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F65B6A8B8EF50E285247AE94669C89D4A554F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 676675   (679969) от 06.07.2013
+
+Проекты - VideoHive - Dark Extrusion [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации вашего логотипа или слогана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37EE4C4C83828FC3D3967EBDF130568DD9FF4B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 675785   (679874) от 06.07.2013
+
+Проекты - VideoHive - White Floral Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа или слогана в белом цветочном стиле.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E474B07F3A06DD1C2597376936B70039EDEB56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 676574   (679873) от 06.07.2013
+
+Проекты - VideoHive - Wellness Resort Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для элегантной демонстрации логотипа или слогана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C697669AF9C89E2C010ACB64EBA6D361128085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 675727   (679867) от 06.07.2013
+
+Проекты - VideoHive - Digitally Generated 3D Logo (2 in 1) [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный проект для демонстрации Вашего логотипа в 3D стиле.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6335DC5E4897AD2990E98D517DE0837DF9ABD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029819   (677996) от 28.06.2016
 
 Проекты - VideoHive - Darkness Logo Reveal - 11411154 [AEP]
@@ -568,110 +672,6 @@ Clean Logo Reveal v2 - простая, чистая графика движен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DB44FC8B3B6DA1F72121D261DA829606ACA2A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905472   (650779) от 05.06.2015
-
-Проекты - VideoHive - Ramadan Logo Pack 2 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа в стиле"арабика". Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADC47712DDBFBB5D0CB88EB2F0BA6C722BCD592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904739   (650768) от 05.06.2015
-
-Проекты - VideoHive - Logo Constructor-Alphabet Builder With Characters [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания строительного логотипа. Проект предназначен для редактирования в АЕ.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABE14B4942394149FBF31FED5D2DBFA80D48474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904651   (650767) от 05.06.2015
-
-Проекты - VideoHive - Architect and Architecture Company Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Проект предназначен для редактирования в АЕ.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12AD432DD537F541288BD25516168891049BC55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799063   (649767) от 24.06.2014
-
-VideoHive - Logo In Nature Bundle - 4263373 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш лого в поле, на фоне гор и облаков.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E6C4D0D31B1C8139A64F1C22CBF4F0918D1FEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

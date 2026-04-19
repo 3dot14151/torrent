@@ -1,48 +1,22 @@
-###  Публикация: 750570   (817936) от 17.04.2016
+###  Публикация: 314879   (821469) от 27.03.2011
 
-Discovery. Как устроена Вселенная / How the Universe Works (2012) HDTVRip [H.264/720p-LQ] [Сезон 2, серия 6 из 8]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сериал о нашей Вселенной. Это величайшая история о том, как из маленькой точки Вселенная превратилась в огромный космос! Дети иногда спрашивают: Если Луна оборачивается вокруг Земли, а Земля оборачивается вокруг Солнца, тогда вокруг чего оборачивается Солнце ? Это хороший вопрос, но астрономы задаются тем же самым вопросом. И не только им... Чем дальше они (   Читать дальше...   )Жанр: Документальный, научно-познавательный, астрономия, космосПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6040D651DF762A5509049DD4E4DC54123A506233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008169   (817935) от 17.04.2016
-
-Три дороги (2016) WEB-DLRip [H.264/1080p-LQ] (серии 1-4 из 4)
+Журнал | Playboy [Venezuela] №4 [2011] [PDF]
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1974 год. Отец маленьких Славы и Сережи погибает в автокатастрофе, а мать, сойдя с ума от горя, уходит из дома. Братьев отдают в детдом, откуда несколько лет спустя семилетнего Сережу забирает богатая московская семья, незадолго до этого потерявшая маленького сына. Слава не может простить младшему брату предательства, долгие годы не общается с ним и всю привязанность (   Читать дальше...   )Производство: Россия / "ТВЦ"Жанр: мелодрамаРежиссер: Мирослав МаличАктеры: Мария Куликова, Евгений Пронин, Ольга Арнтгольц, Всеволод Болдин, Андрей Егоров, Андрей Исаенко, Екатерина Вишнёвая, Наталья Доля, Ирина Новак, Владимир Осадчий, Анна Сырбу, Анна Топчий, Фатима Горбенко, Нина АнтоноваПродолжительность: ~00:50:00 серия
+Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A3CD36926CA0B9D317702B30E6D46AFD94DC266
+magnet:?xt=urn:btih:0C1BCA36FC7D7A818953EED901BDA16D8AE93243
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008229   (817934) от 17.04.2016
+###  Публикация: 314895   (821465) от 27.03.2011
 
-Konstantin Klashtorni - Smooth Jazz III (2016) [MP3|320 кб/с] <Jazz, Lounge>
+Журнал | Playboy [Venezuela] №1 [2007] [PDF]
 
->>Jazz, Blues, Soul
->>Jazz
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Irresistible (04:13)
-02. Walking on Dream (03:54)
-03. Humble and Kind (04:07)
-04. Good to Be Alive (04:12)(   Читать дальше...   )Производство: Kvk MusicЖанр: Jazz, LoungeПродолжительность: 00:41:47
+Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:089CA8CF57967B2EB38378390D274D8E4E217A6C
+magnet:?xt=urn:btih:1DE8236D689C9397B84A24FA7069308FC72426C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007155   (817933) от 17.04.2016
+###  Публикация: 314905   (821464) от 27.03.2011
 
-Carlos Garo - Entrance To The Parallel Universe (2015) [MP3|320 кб/с] <New age, Enigmatic>
+Календарь | Stefania Distefano Calendar 2011 [PDF]
 
->>Other Styles
->>New Age/Meditative/Relax
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Entering the Universe (1:32)
-02. Infinite Space (4:14)
-03. Desert (5:06)
-04. The World Keeps on Spinning (5:01)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:42:56
+Что лучше всего привлекает внимание в рекламе? Правильно – красивые девушки! Компания Lenzokart уже который год подряд готовит своим клиентам Рождественский подарок. Вслед за After Melita Toniolo, Angelica Tulacz, Jenny Mclain и Marta Gut в съемках календаря 2011 года участие приняла топ-модель Stefania Distefano. Свою историю календари от Lenzokart начали в 2007, (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62E493B7C30689E04D67E40F6F6510400B93F751
+magnet:?xt=urn:btih:83614124053B88FDAE3F03961FFEFA290DEBFD76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008238   (817932) от 17.04.2016
+###  Публикация: 314870   (821456) от 27.03.2011
 
-Где логика? (2016.04.17) SATRip (выпуск 13)
+Журнал | Playboy [Czech] №10 [2007] [PDF]
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:48:05
+Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:034E85B59C7DC0495F1620169DBAF88443B13665
+magnet:?xt=urn:btih:C77214A814D0C638FF10C8989EFDD098DC6C6208
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,25 +102,529 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 776376   (817910) от 12.04.2014
+###  Публикация: 1503257   (821454) от 18.10.2021
 
-Setup Factory 9.2.0.0 RePack by Leserg [Ru]
+VA - Disclosure: DJ-Kicks (2021) [AAC|~311 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Pepe - Recollection (Mixed) (3:29)
+1.02. Harry Wolfman - LOTF (Mixed) (4:12)
+1.03. Cleanfield - Conflict with Clayton (Mixed) (4:50)
+1.04. Disclosure - Deep Sea (DJ-Kicks) (Mixed) (4:02)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7023CF7D67A4BE1C847662D2B324B74B6FC7A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503247   (821453) от 18.10.2021
+
+VA - Spacedance, Vol. 2 (2021) [AAC|~340 Kbps] <Spacedance, Spacesynth, Retrowave>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight - Atomic World (Laser Version 12") (5:31)
+02. Based on Bass - Space Odyssey (Extended Mix) (4:58)
+03. Humphrey Robertson - Eternity (Sd1 Version) (4:22)
+04. Daylight - Digital Power Control (5:36)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B425C8CE8D43C7F7E55A2218422E9FD0AAA094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503236   (821452) от 18.10.2021
+
+iBoostUp Premium 9.5.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821452.jpg" />
+</div>
+
+
+###  Подробнее
+
+iBoostUp настраивает и оптимизирует ваш Mac, очищая ненужные файлы, фиксируя ваш жесткий диск, предоставляя рекомендации по эффективности, защищая вашу конфиденциальность, удаляя файлы cookie, показывая вам легкодоступную системную информацию и многое другое!
+iBoostUp Memory Booster позволяет вам просматривать подробную информацию о системной памяти и, возможно, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2021Разработчик: iBoostUp Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85471278AF4094073B1DB90500094C70707DA558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503405   (821451) от 18.10.2021
+
+Timemator 2 v2.8.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автоматизируйте отслеживание времени на основе ваших действий на Mac. Timemator позволяет полностью автоматизировать отслеживание времени на основе ваших действий на Mac. Просто укажите Timemator, какие файлы, приложения или веб-сайты вы используете для своей работы, и он автоматически запустит таймер для вас.Тип издания: macOS SoftwareРелиз состоялся: 10.09.2021Разработчик: Catforce StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D3D8CC3463E02FDE27E98489A87B556C7D952B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503269   (821450) от 18.10.2021
+
+Hides 5.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повысьте производительность с помощью HidesТип издания: macOS SoftwareРелиз состоялся: 17.10.2021Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A3B4858E9B30137A02B8DB95316C6E6DE47A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503188   (821449) от 18.10.2021
+
+Jazzy System - Answer Me (2020) [AAC|~313 Kbps] <Lo-Fi, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High (3:33)
+02. Atlanta (4:47)
+03. Hybrid Jazz (3:21)
+04. Simple Things (3:46)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF20BF15ADB45FB5AEA754310F2D669E7B8E9D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503242   (821448) от 18.10.2021
+
+Amadeus Pro 2.8.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: HairerSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A88D4BE608CDB2F9D39AF46AE278F01E13593C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503347   (821447) от 18.10.2021
+
+Fluisteraars - Gegrepen Door De Geest Der Zielsontluiking (2021) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Het Overvleugelen Der Meute (8:14)
+02. Brand Woedt In Mijn Graf (7:06)
+03. Verscheuring In De Schemering (20:15)Производство: Eisenwald Tonschmiede – Eisen178Жанр: Atmospheric Black Metal, Post Black MetalПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE869927B2D33B82A3BCB7E2F3AB49ACCBC5666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503114   (821446) от 18.10.2021
+
+Blessdivine - Between Sin & Sacrifice (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (00:58)
+02. Heresy Divine (04:42)
+03. Servants of the Cross (04:57)
+04. Fields of Gold (05:16)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC4FDBD394FA9A6C4F8860B035DF3747E1A788D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503385   (821445) от 18.10.2021
+
+Disk Graph 2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Graph - инструмент, который позволяет проверить ваш диск и легко найти файлы, какие занимают большую часть дискового пространства. С его красивым интерфейсом и его подобным кругу графиком, определение местоположения больших файлов никогда не было проще.Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: WordPressПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A366195EDD819980CF24A0A93D13A59C770707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503379   (821444) от 18.10.2021
+
+Raheem DeVaughn & Apollo Brown - Lovesick (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Soul, Contemporary R&B>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You're The One (feat. Skyzoo) (4:29)
+02. One Time (feat. Becky Cane) (3:51)
+03. When A Man (3:00)
+04. If I Made Love To You (4:34)(   Читать дальше...   )Производство: Mello Music Group – MMG-00162-2Жанр: Hip-Hop, Soul, Contemporary R&BПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950CBB770F17106A1AAD6DB7EBC99EB2DC7BCB46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503111   (821443) от 18.10.2021
+
+Bangkok Dollars - Lost Souls (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free 05:08
+02. Only Devil Knows 04:12
+03. Heat Of The Night 04:05
+04. Lost Souls 04:51(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4373B8B4F6E86F138DA5AEA575A0CA6C48F98300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503185   (821442) от 18.10.2021
+
+Jazzy System - Another World (2019) [AAC|~266 Kbps] <Lo-Fi, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday 3 AM (3:30)
+02. Live Or Die (4:03)
+03. Strange Things (4:52)
+04. The Next Morning (4:18)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1313B76C8CF003C91A54B51B7876A0A65392509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503255   (821440) от 18.10.2021
+
+Stats 2.6.15 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 17.10.2021Разработчик: Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BA3DD829FF4B613BDD83D0A75CE54C5DC01314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503244   (821438) от 18.10.2021
+
+VA - Spacedance, Vol. 1 (2021) [AAC|~356 Kbps] <Spacedance, Spacesynth, Retrowave>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Based on Bass - Magic World (Spacemix) (4:27)
+02. Daylight - Touring Space (5:21)
+03. Humphrey Robertson - Space Rhythm (Sd4 Version) (5:19)
+04. Daylight - Memories of Time (5:21)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2CEA0136384F2529CAA43EAEA66BBBB2000DD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503251   (821436) от 18.10.2021
+
+VA - Spacedance, Vol. 3 (2021) [AAC|~322 Kbps] <Spacedance, Spacesynth, Retrowave>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Based on Bass - Automatic Control (Extended Mix) (5:11)
+02. Daylight - Colour of My Dreams (5:23)
+03. Humphrey Robertson - Coming to Earth (Sd3 Version) (4:45)
+04. Daylight - Dance Revolution (Extended Version) (5:44)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EF32AACE156500619BB0485EF1799704029215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503133   (821434) от 18.10.2021
+
+October Falls - A Fall Of An Epoch (2020) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Fall of an Epoch (11:02)
+02. The Endtimes Rising (10:06)
+03. The Ruins of What Once Was (8:09)
+04. Hammering the Tide (9:32)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FE6E7515E1C02E52E2C722201DDC72EE23538A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503067   (821432) от 18.10.2021
+
+Last Days Of Eden - Chrysalis (2018) [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forevermore
+02. The Roots Of Life
+03. The Wanderer
+04. Dead Man's Tale(   Читать дальше...   )Жанр: Symphonic Power Metal, Female VocalПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F04669DABC552DC6A89F6825A4996E38AAD009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503320   (821430) от 18.10.2021
+
+IObit Uninstaller Free 11.1.0.16 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821430.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа Setup Factory содержит в себе все необходимые инструменты для создания профессионального установочного пакета Ваших программ, который будет работать на любой версии Windows. Созданный программным продуктом инсталлятор размещается в файле setup.exe, и Вы сможете распространять его при помощи CD-ROM, DVD-ROM, локальной сети, web-сайтов или даже при помощи (   Читать дальше...   )Язык интерфейса: Русский
+IObit Uninstaller представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное удаление" (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72E41CBCA663829E56DED404235CB5E9EAE52250
+magnet:?xt=urn:btih:5A60A35A96C88033243E6840D45BF9B290E7A800
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,27 +632,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 776079   (817900) от 12.04.2014
+###  Публикация: 1503191   (821428) от 18.10.2021
 
-Огги и тараканы / Oggy et les cafards (1998-2008) HDRip (Сезон 1-3, Серии 195 из 195)
+VA - Be Phazz-a-Delic. 20 Years of Musical Delightment (2021) [AAC|~336 Kbps] <Nu Jazz, Acid Jazz, Lounge>
 
->>Мультфильмы
->>Зарубежные Мультсериалы
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Толстый добродушный обыватель, кот Огги хочет только одного: чтобы никто не мешал ему со вкусом наслаждаться спокойной и размеренной жизнью, с ее невинными радостями — вкусной едой, телевизором, мягким пуфом, на котором так уютно спится…
-
-Но бедного кота одолевают несносные соседи: три вредных таракана (Джой, Марки и Ди-Ди) постоянно отравляют ему жизнь жестокими (   Читать дальше...   )Жанр: Рисованная анимация, КомедияРежиссер: Оливье Жан МариПерсонажи: Коты Огги и Джек, тараканы Джои, Ди Ди, МаркиПеревод: Без слов / НемойПродолжительность: 195 серий ~ 00:08:00
+01. Sunday People - Swing with Me (Ff-Edit) (3:55)
+02. Monophonic - I Looked at Clouds That Way (3:59)
+03. De-Phazz - No Lie (3:45)
+04. Paum - My Pretty (3:30)(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, LoungeПродолжительность: 01:18:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF93888F7E0DE6D5A0BFF3293EC31E045B667D7D
+magnet:?xt=urn:btih:B15B4359CC717A72FCED6980142420AE35939B4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,25 +661,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 775395   (817898) от 12.04.2014
+###  Публикация: 655180   (821424) от 12.05.2013
 
-Семейный уик-энд / Family Weekend (2013) WEB-DLRip
+Мери Бетчелор | Библия для детей в 365 рассказах (2000) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16-летняя Эмили считает, что у них "неправильная" семья: папа - художник, погруженный в мечты; мама - амбициозная карьеристка. Родители живут своей жизнью и мало занимаются детьми. И вот однажды Эмили решила всё исправить. Она подговорила своих братьев и сестер похитить родителей и преподать им несколько уроков "настоящей семейной жизни"...Производство: США | Footprint Features, Bedford Falls CompanyЖанр: Драма, КомедияРежиссер: Бенжамин ЕппсАктеры: Кристин Ченоуэт, Мэттью Модайн, Олеся Рулин, Джоуи Кинг, Ширли Джонс, Эдди Хэсселл, Хлоя Бриджес, Адам Саундерс, Питер Гейл, Джордан МэхоумПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:45:31
+Иллюстрированная библия для детей в четырех томах. На мой взгляд - одна из самых лучших.
+365 небольших рассказов. Каждый день вы можете читать вашему ребенку по одному по рассказу. Повествование ясно и доступно для любого ребенка.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7524F03BAEEBD8A831AC1B3251D63BC8D2C2F493
+magnet:?xt=urn:btih:D9689D46785E03EDB11D33C61070C0BCD8213F47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,504 +688,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 774675   (817897) от 12.04.2014
+###  Публикация: 1007394   (821414) от 15.04.2016
 
-Игра Престолов (Game of Thrones) / (Сезон 4, 1 из 10) (2014) [EN] [MP4|720x404] <HDTVRip H.264>
+VA - Музыкальный огонь 7 (2016) [MP3|256 кб/с] <Pop, Dance>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По циклу романов Джорджа Р.Р.Мартина "Песнь льда и пламени".
-Место действия - фэнтезийный мир, время действия напоминает наше родное Средневековье.Жанр: Фэнтези, Драма, ПриключенияРежиссер: Дэвид Беньофф, Дэн Вайс, Алекс Грейвз, Мишель Макларен, Алик Сахаров, Нил МаршаллАктеры: Лина Хиди, Питер Динклэйдж, Мишель Фэйрли, Эмилия Кларк, Кит Харингтон, Николай Костер-ВальдауПеревод: ОтсутствуетПродолжительность: 10х~00:55:00
+001. Malika - Забирай Меня
+002. Boombox Cartel Feat. Stalking Gia - Dancing With Fire
+003. Алена Мордяхина - Ваня
+004. Cheat Codes & Kriss Kross Amsterdam - Sex(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B544903FF404B487D0F01E7769F0B45E16FA6BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503749   (817896) от 20.10.2021
-
-iCompta 6 v6.0.51 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817896.jpg" />
-</div>
-
-
-###  Подробнее
-
-iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 13.10.2021Разработчик: LyricAppsПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18C85E7C62693882946D66D5BAFD625610E8F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503636   (817895) от 20.10.2021
-
-Artillery - X (2021) Limited Edition [FLAC|Lossless|image + .cue] <Thrash Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil's Symphony
-02. In Thrash We Trust
-03. Turn Up The Rage
-04. Silver Cross(   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB7E7D5A6D92FADB12A93547B0B13CE9020BA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503726   (817894) от 20.10.2021
-
-Scarlet Aura - Hot'n'Heavy (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Future Becomes Our Past 01:39
-02. Hail To You! 05:33
-03. In The Name Of My Pain 04:36
-04. Hot 'n' Heavy 04:42(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 00:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30072FFF1A0DC0FFD30E85FD4BB401FCE0E14944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503639   (817893) от 20.10.2021
-
-Paradox - Heresy II: End Of A Legend (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкие спид-трэшеры Paradox выпустили восьмой студийный альбом, получивший название "Heresy II - End Of A Legend" 24 сентября 2021 года на лейбле AFM Records. Это первый полноформатник команды со времён "Pangea" (2016) и продолжение их классического диска "Heresy" (1989).01. Escape From The Burning
-02. Mountains And Caves
-03. The Visitors
-04. Children Of A Virgin(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49EF626132AC7685E5D56FD4D1D0154F0ED95D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503710   (817892) от 20.10.2021
-
-Scarlet Aura - Genesis of Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Book of Scarlet
-02. Raw Power
-03. Dark Lightning
-04. Utopia(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B817E82662366A4FF9FBCB8BC9EA3885CCE10A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503695   (817891) от 20.10.2021
-
-Sadao Watanabe - I'm With You (2016) Red River [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokyo Dating [7:30]
-02. Hip Walk [4:18]
-03. Tree Tops [6:17]
-04. Episode [6:12](   Читать дальше...   )Жанр: Crossover Jazz, Big BandПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20FBB5A47E819EA2EA548EE65641E940C64F631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503730   (817890) от 20.10.2021
-
-Scarlet Aura - Falling Sky (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immortal In Your Eyes 04:18
-02. Colour Blind 04:19
-03. You're Not Alone 04:09
-04. My Own Nightmare 05:51(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D998A1FB450FDB9E2969397232252F7B4CCA2DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503718   (817889) от 20.10.2021
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''B''. Тур 3. Порту (Португалия) - Милан (Италия) (19.10.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''B''. Тур 3. Порту (Португалия) - Милан (Италия) (19.10.2021)
-СУДЬЯ Брых Феликс (Мюнхен, Германия)
-Судья на линии 1: Борш Марк (Германия)
-Судья на линии 2: Лупп Штефан (Германия)(   Читать дальше...   )Телекомпания: Матч! АренаЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58288F8DA77427D8758DDBBB653AF46CF7938200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503743   (817888) от 20.10.2021
-
-Футбол. Лига Чемпионов Online 2021/2022. Групповой этап. Тур 3. Обзор матчей (19.10.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол.Лига Чемпионов Online 2021/2022. Групповой этап. Тур 3. Обзор матчей (19.10.2021)Телекомпания: Матч ТВ ПремьерЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACFB8A9B1FA0207259468C6B8DDAA43C207CA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503727   (817887) от 20.10.2021
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''A''. Тур 3. Брюгге (Бельгия) - Манчестер Сити (Англия) (19.10.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''A''. Тур 3. Брюгге (Бельгия) - Манчестер Сити (Англия) (19.09.2021)
-СУДЬЯ Ковач Иштван (Румыния)
-Судья на линии 1: Маринеску Василе Флорин (Румыния)
-Судья на линии 2: Артене Овидиу (Румыния)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E78E1E5A85870AE7608C9A35A5097DD4B9FAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503736   (817886) от 20.10.2021
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''C''. Тур 3. Бешикташ (Турция) - Спортинг (Португалия) (19.10.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''C''. Тур 3. Бешикташ (Турция) - Спортинг (Португалия) (19.10.2021)
-СУДЬЯ Винчич Славко (Словения)
-Судья на линии 1: Кланчник Томаш (Словения)
-Судья на линии 2: Ковачич Андраж (Словения)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19863D624FE34727AA48FD38EE2454EA46B2A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503741   (817885) от 20.10.2021
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 3. Обзор матчей (19.10.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 3. Обзор матчей (19.10.2021)Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD3623A3C032509CDFFEF5580226A2FAEE648F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503729   (817884) от 20.10.2021
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''A''. Тур 3. ПСЖ (Франция) - Лейпциг (Германия) (19.10.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''A''. Тур 3. ПСЖ (Франция) - Лейпциг (Германия) (19.10.2021)
-СУДЬЯ Гуида Марко (Торре-Аннунциата, Италия)
-Судья на линии 1: Карбоне Чиро (Италия)
-Судья на линии 2: Перетти Джорджио (Италия)(   Читать дальше...   )Телекомпания: Матч! Футбол 3Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C9F480008DD1F78E1CB79F9629F22D980E64C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503777   (817883) от 20.10.2021
-
-VideoProc Converter 4.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817883.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoProc - новая усовершенствованная версия прежнего MacX HD Video Converter, теперь более мощная, многофункциональная программа все-в-одном для обработки видео, предназначена для редактирования, вырезания, кадрирования, слияния, настройки, конвертирования и сжатия (4K) видео с полным аппаратным ускорением.Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:802939C645EF42C5429DBA393DB31FB3EB609C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503632   (817882) от 20.10.2021
-
-Ronnie Atkins - 4 More Shots: The Acoustics (2021) EP [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Датский вокалист Ронни Аткинс из PRETTY MAIDS. "Весь мир был в изоляции, и будущие перспективы концертов были очень неопределенными и остаются такими по сей день. В принципе, это означало, что если я и собирался воплотить идею сольного альбома, то только сейчас, поскольку у меня не обязательно есть все время в мире. У меня были все эти идеи, записанные на мой (   Читать дальше...   )01. Carry Me Over
-02. When Dreams Are Not Enough (Acoustic)
-03. Picture Yourself (Acoustic)
-04. Real (Acoustic)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F93C8D587BBFBEA17F9364F56D77566049E43FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503725   (817881) от 20.10.2021
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''D''. Тур 3. Шахтёр (Донецк, Украина) - Реал (Мадрид, Испания) (19.10.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''D''. Тур 3. Шахтёр (Донецк, Украина) - Реал (Мадрид, Испания)(19.10.2021)
-СУДЬЯ Йованович Срджан (Сербия)
-Судья на линии 1: Стойкович Урош (Сербия)
-Судья на линии 2: Михайлович Милан (Сербия)(   Читать дальше...   )Телекомпания: Матч! Футбол 2Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284B4563E643ABC31C5CB61E2609274F0B538F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503714   (817880) от 20.10.2021
-
-Allavsoft Video Downloader Converter 3.24.0.7961 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 19.10.2021Разработчик: AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8882D4F3BA39E15C0E312D165D7A128ACE417A
+magnet:?xt=urn:btih:C27C5CBFE17B96CD5015F4FAF1FA5776F43E653B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1023145   (726712) от 04.06.2016
+
+VA - Defected In The House Ibiza (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Dunmore - Defected In The House Ibiza 2016 Mix 1 (Original Mix) [66:33]
+02. Simon Dunmore - Defected In The House Ibiza 2016 Mix 2 (Original Mix) [70:25]
+03. Simon Dunmore - Defected In The House Ibiza 2016 Mix 3 (Original Mix) [72:19]
+04. Tonja Dantzler - In And Out Of My Life (Dario D'Attis Remix) [08:01](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 08:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD077B3BDB57A242A227CD6DE316BA42BD95813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128703   (726644) от 26.04.2017
+
+VA - Electronic Booster (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Brichese – Otherwise
+02. Viktor Petrov – Later Tonight
+03. Jens Buchert – Lounge Attack
+04. Luca Brichese – El Sol(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA548D4EF0D3F73FFD7D3C4B4E7F9B1075358F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128711   (726641) от 26.04.2017
+
+VA - Mainstage Clubbing Anthems Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris & Simo - Tundra [04:55]
+02. Andy Viva - Hands Up (Patric La Funk Remix) [06:01]
+03. Jean Elan - Drop the Bass [06:20]
+04. Marco V - Crunch (Timelapse Mix) [05:03](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948E3391D31935E5AAC0FC15681BF4292EBF428D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128676   (726637) от 26.04.2017
 
 VA - Beach Club Miami (2017) [MP3|320 Kbps] <Deep House>
@@ -658,93 +745,6 @@ VA - Urban Party Alarm 2 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38CF31FEDF4016AD20429D2E23276960F4D591E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129667   (718992) от 30.04.2017
-
-VA - Italo Dance Lignano Beach (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darius & Finlay - Can't Sleep (Club Mix) 04:24
-02. Adam Rise - Rocking To The Beat 04:29
-03. Carlos Martins - Lost Ones (Imagin8 & Erik Soto Remix) 02:48
-04. Baby Brown - Per Ty (Ldm Remix) 03:12(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDDA52B46921A5B76B5A8FD63D94F9F4733E967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024333   (718160) от 08.06.2016
-
-VA - Crush House Dreamin (2016) [MP3|320 кб/с] <Dance, Electro House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aldo Moraes - Aria de Rio (Ipanema Beach Mix) (feat. Tony Trumpetta) (5:48)
-02. Mark Moragui - The Oath and the Man (Long Groove Mix) (5:43)
-03. Tommy Angel - Glitter Harmony (Sound of Essence Mix) (5:42)
-04. AS Trax - Remember New York (Lovers Mix) (5:49)(   Читать дальше...   )Жанр: Dance, Electro House, Progressive HouseПродолжительность: 10:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D82DF846934688799C9008A5A679DFD72BA33B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130578   (714426) от 02.05.2017
-
-VA - In The Mood For Love Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madmotormiquel & San Marco – Holymotor
-02. Mirco Violi – Natural Extasis
-03. DJ Monique – Music On Hold
-04. Kraak & Smaak – Good For The City (feat Sam Duckworth – DiskJokke vocal version)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC80E483B620E599F4777CAB079236BE4D9FAAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

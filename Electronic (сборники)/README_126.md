@@ -1,3 +1,177 @@
+###  Публикация: 927219   (529940) от 12.08.2015
+
+VA - Best Of Trance (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Service - Cafe Del Mar (Original Mix)
+02. Maria Nayler - No Mistakes (Original Mix)
+03. Zack Shaar - City 21 (Original Mix)
+04. Store N Forward - Clouds Across My Heart (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB351E4C1C966D660829813C38DBECD7CC84F0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927244   (529938) от 12.08.2015
+
+VA - Club Nights Summer Edition (2015) [MP3|320 кб/с]<Electro, Future House, Funky, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ftampa & The Fish House - 031 (Original Mix) 03:41
+02. Kasbo - Again (Original Mix) 03:50
+03. Dj Unk & Another Monster Feat. Erica Leigh - Alive 05:39
+04. 3Lau Feat. Emma Hewitt - Alive Again (Extended Mix) 04:54(   Читать дальше...   )Жанр: Electro, Future House, Funky, ProgressiveПродолжительность: 07:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDF5053549C4CE85E0B7C37AFCA9738BFF36642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927271   (529828) от 12.08.2015
+
+VA - Sexy Ambient Music (2015) [MP3|320 кб/с]<Ambient, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klub 59 - Our Generation Rise (04:20)
+02. Mantra Dream - Blue Shift (06:08)
+03. Love Pacific Industries - Thinking of You (05:00)
+04. Alberto Moggi - Happy (06:37)(   Читать дальше...   )Жанр: Ambient, Lounge, ChillOutПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392956A083802785186BBC8D9EE4F3154CEC7830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926980   (529723) от 12.08.2015
+
+VA - Gym Is Better Motivation (2015) [MP3|320 кб/с]<Progressive House, Trance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruslanio Tarr - Night Call (Original Mix)
+02. Mak5ast - Freeze (Mak5ast's New Generation Mix)
+03. Kids Electronics - Non-Electronic Guy (Original Mix)
+04. Crazy Power - Tokyo (Double Creativity Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Electro HouseПродолжительность: 02:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811C61D8DE235D31BFE3D8F79CA385E4125CA531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156104   (529559) от 05.08.2017
+
+VA - Record Super Chart #497 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hardwell feat. Jolin Tsai - We Are One  4:23
+02.  Yellow Claw - Open  3:31
+03.  Lucas & Steve vs. Mike Williams & Curbi - Let's Go  4:11
+04.  Tiesto & Sevenn - Boom  3:54(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F34E4944C24BD00E0E696B87FDE74D094C3880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052108   (529293) от 13.09.2016
+
+VA - Dancing Machines: Techno House Set (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Entoniu & Agape - Matisse & Milu (Original Mix)
+002. Monocorde - Ihnua (Original Mix)
+003. Right Mood - Don't Worry
+004. Dancing Machines - Queen Of The Castle (Original Mix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 11:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5CDDE7D7BBB8839FE3C9571762D200138ACD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052143   (529277) от 13.09.2016
 
 VA - LUXEmusic - Dance Super Chart Vol.85 (2016) [MP3|192~320 Kbps] <House, Electro House, Mash Up, Club, Dance>
@@ -571,180 +745,6 @@ VA - The Whisper Of The Ocean: Classic Chillout (2017) [MP3|320 Kbps] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D20CDAF6D1E8EA8A19C762F38EC354FE5D7AB9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240561   (524534) от 12.08.2018
-
-VA - Record Super Chart 548 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & Showtek feat. Vassy - Your Love 3:06
-02. Lucas & Steve - Source 4:22
-03. Don Diablo feat. Paije - People Say 3:09
-04. Tom Walker - Leave A Light On (Radiology Remix) 4:15(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C36A2DCC36308754069DD2046892D6324E38885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157921   (524489) от 13.08.2017
-
-VA - Beach House: 130 DJ Selection Progressive Mix (2017) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524489.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bes & Meret - Abendsonne (Sax Sunset Mix)
-002. Yael Wood - Burn
-003. Topmodel - Within
-004. Zak Oil - Class(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 10:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCAE4851EFB478AF3273BFF4BADEBD3FB97A3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053962   (524350) от 18.09.2016
-
-VA - Cool and Sexy Deluxe Lounge: Selected Premium Lounge and Hotel Bar del Mar Relaxation (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Pre Pare - Cold Water - Baywatch Remix
-02. Jon Briggs - Human - Downbeat Moments Remix
-03. Marvince Claw - Cool Girl - Bikini Sunset Mix
-04. Toby Gomez - Baraccuda - Sexy People Seaside Edit(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5A32FCE2CADABFD16B16F72B0E1F11249E975B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053886   (524273) от 18.09.2016
-
-VA - Sambass Top 40 (Brazilian Style Drum'n'Bass) [Compiled by Zebyte] (2016) [MP3|96-416 Kbps] <Sambass (Brazilian Drum ‘n’ Bass)>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Skurr - Mais Que Nada (Remix) [03:57]
-02. Rosalia De Souza & The Titanix - Cheia De Mundo [04:43]
-03. Duda Bueno & Bassick - Let Me Love (Human Factor And Weirdo Remix) [06:42]
-04. Dj Farrapo & Yanez - Frango Assado [03:28](   Читать дальше...   )Жанр: Sambass (Brazilian Drum ‘n’ Bass)Продолжительность: 04:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D89122C545CC5E56F2C6A790537BFF99C76B810F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053783   (524265) от 18.09.2016
-
-VA - Осенний Хаус Калейдоскоп Топ 50 [Compiled by Zebyte] (2016) [MP3|48-416 Kbps] <Deep House, Nu Disco, Tropical House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasper Bjorke - Heaven (Ash Remix) [04:45]
-02. Lana Del Rey - Florida Kilos (Tep No Remix) [05:36]
-03. Alan Walker - Faded (Chornel D Remix) [04:14]
-04. Annie - Out Of Reach [04:03](   Читать дальше...   )Жанр: Deep House, Nu Disco, Tropical HouseПродолжительность: 05:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F6E102538BE6DFA2554415DD2F762738103C685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313311   (524223) от 08.07.2019
-
-VA - Top 150 Deep House Tracks Vol.3 (2019) [MP3|320 Kbps] <Deep House, Club House, Tech House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524223.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AEX - Indie (Original Mix)
-002. Alessio Cappelli - Don't Wanna Give Up  (Original Mix)
-003. Alessio Cappelli - I Have Been Before (Original Mix)
-004. Ali Bakgor - Say It's Over (Extended Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech House, Vocal HouseПродолжительность: 13:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF47ABC4A7A7D8430CAE7CEF3B43283A09DAD34
 ```
 
 https://mybot314.ru/tekegram_catalog/

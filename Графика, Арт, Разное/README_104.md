@@ -1,3 +1,29 @@
+###  Публикация: 561842   (405981) от 18.10.2012
+
+Nature Wallpapers (17.10.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32B8CFB6B16B36FCCB8FC1F44A2D0DA265AA864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562260   (405965) от 18.10.2012
 
 [Wallpapers] Нравятся! Сотня № 072 (1920х1080-2560х1600)
@@ -663,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6C56F6D36B19E4E851683084A441743861B60FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563225   (404635) от 21.10.2012
-
-[Фотография] Photo Manipulations from CryingSilence
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотоарт от Crying Silence.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE58FD3A6F822BEAF932949BAA382DCB7125B598
 ```
 
 https://mybot314.ru/tekegram_catalog/

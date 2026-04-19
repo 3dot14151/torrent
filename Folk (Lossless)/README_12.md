@@ -1,3 +1,32 @@
+###  Публикация: 84233   (166597) от 30.10.2023
+
+Хиты украинской эстрады 60-х годов / Хіти української естради 60-х років (2005) [APE|~600 Kbps] <Folk, Народные песни>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166597.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Черемшина
+2. Два кольори
+3. Києве мій
+4. Чорнобривці(   Читать дальше...   )Жанр: Folk, Народные песниПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E602359952E9EAFD294C3B88E78472E2483944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432257   (164964) от 16.12.2020
 
 Ulvesang - Ulvesang (2015) [FLAC|Lossless|Web-DL|tracks] <Folk, Ambient, Dark Folk, Neofolk>
@@ -716,35 +745,6 @@ Teufelstanz - XIII (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C01F3D890BB0602C07B85477A970F7B0B78DC67E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700801   (115512) от 26.02.2024
-
-Meldis - Отдохни, волшебник (2006) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дорога
-02. Женитьба короля Трандуила
-03. Сонный рыцарь
-04. Мэглор(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD7F125A7A3FF1C24453563256BFA0A6ABC306D
 ```
 
 https://mybot314.ru/tekegram_catalog/

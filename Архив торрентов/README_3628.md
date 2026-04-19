@@ -1,50 +1,26 @@
-###  Публикация: 1626287   (243967) от 13.04.2023
+###  Публикация: 491145   (246372) от 03.05.2012
 
-Perfectly Clear WorkBench 4.4.0.2485 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными воспоминаниями. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A67092F7D1BC1B9509B36E5D651027027412623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622416   (243966) от 28.03.2023
-
-MEmu 8.1.3 [Multi/Ru]
+SAM DeCoDeR Pack 2012 Best & Player 4.20 [Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MEmu — эмулятор устройств под управлением операционных систем Android. Разработчики компании Microvirt предлагают пользователям всего мира совершенно бесплатно использовать для эмуляции данный продукт.
-MEmu позволит играть в любимые игры на персональном компьютере управляя мышкой, а также пользоваться огромным большинством приложений для Android на компьютере с операционной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+DeCoDeR включает декодеры/фильтры для проигрывания файлов
+CoDeC - декодеры и кодеки для упаковки/конвертации файлов
+Player-версия CoDeC включает также три медиапроигрывателя
+64-битные версии включают вместе 32-/64-битные компоненты
+Главное отличие пакета - максимальная поддержка форматов!Название программы: SAM DeCoDeR Pack 2012 Best & PlayerЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7112F680DD2A86801021FAB4706CDE86A10CCF00
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,25 +28,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542095   (243963) от 05.04.2022
+###  Публикация: 491468   (246367) от 03.05.2012
 
-Media Player Classic - Black Edition (MPC-BE) 1.6.1 Build 6845 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
+Kunz & Knobel - Die Suche (2011) [MP3|320 кб/с]<electro-pop, trip-hop, german>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Media Player Classic - Black Edition (MPC-BE) – универсальный проигрыватель аудио- и видеофайлов для операционной системы Windows. Этот проект имеет свою независимую разработку на базе оригинального кода «Media Player Classic» и «Media Player Classic - Home Cinema». Плеер имеет внушительный набор аудио-видео фильтров, который позволяет ему воспроизводить практически (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Nihilisa
+02. Esoesther
+03. Al Bano & Romina
+04. Der Computer
+05. Der Idiot
+06. Medikamententester
+07. Der Spion
+08. Steve Zurcher
+09. Szenen Philipe
+(   Читать дальше...   )2011Жанр: electro-pop, trip-hop, germanПродолжительность: 00:49:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:336C3F70C140CD2D7A8CC55AF4F9F0D32EF8726E
+magnet:?xt=urn:btih:556B5B6CAEE39B6E63D6081DB7AD84020C9EF4E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,25 +63,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455302   (243962) от 18.03.2021
+###  Публикация: 491748   (246366) от 03.05.2012
 
-PDF Search 11.2 [En]
+Журнал | Купи авто №8 [май 2012] [PDF]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF Search - это утилита, которая имеет революционный алгоритм поиска, специально разработанный для документов PDF. Время на получение информации в ваших документах PDF будет минимальным. Это позволит вам мгновенно найти то, что вы ищете в тысячах документов. Это система интегрирована. Вы можете начать поиск непосредственно из системного меню, например, Spotlight.Тип издания: macOS SoftwareРелиз состоялся: 15.03.2021Разработчик: Muharrem OzkanПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+Гид, друг и помощник для тех, кто собрался купить автомобиль зарубежной марки. Мы оцениваем машины исключительно с точки зрения запросов потенциального покупателя. Особое внимание уделяется потребительским свойствам – таким, как выгодность покупки, стоимость содержания и эксплуатации, приспособленность к российским условиям, а также безопасность, индивидуальность, престиж, эмоциональные ощущения от вождения.май 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:860B5F3E996311EF154FFF9564980594BF820AB3
+magnet:?xt=urn:btih:9037A30C72415F3EB20AC785B0B0076F65A02042
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,25 +89,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567618   (243959) от 03.08.2022
+###  Публикация: 491235   (246365) от 03.05.2012
 
-7Fon - Обои 4K 5.6.16 Mod by Rajat [Ru/Multi]
+Алексей Ворон | "Блейдд" Серия из 2-х книг [2003-2004] [FB2]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-7Fon - Обои 4K - невероятно популярный проект по персонализации. Он предлагает пользователям очень обширный каталог обоев разделённых по 70 категориям. Высокое качество любого из полотен, ежедневные обновления списка, что давно вышел за сто тысяч наименований, удобный поиск по определённым тегам, а так же простая установка понравившихся вариантов и делает приложение (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.08.2022Разработчик: 7Fon WallpapersПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
+2003-2004Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D23DA5192D45286D7C1AA5DE4DA06BC0C92309AC
+magnet:?xt=urn:btih:620CE3846A3817EEE92F550E9050D598F4E367E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,26 +115,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622812   (243955) от 30.03.2023
+###  Публикация: 491404   (246347) от 03.05.2012
 
-Dear Reality - Exoverb 1.1.0 VST 3, AAX (x64) RePack by MOCHA [En]
+Журнал | Лучший Автовыбор №18 [май 2012] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EXOVERB предлагает 50 реалистично звучащих акустических сцен с неслыханной трехмерной глубиной и шириной.
-Добивайтесь стерео миксов с большим пространством для ваших треков, полагаясь на запатентованный механизм реверберации EXOVERB с синтезированными пространственными мульти-IR. Ускорьте процесс микширования с помощью интуитивно понятной треугольной панели и определите (   Читать дальше...   )Язык интерфейса: Английский
+"Лучший Автовыбор" - еженедельный автомобильный журнал-каталог. Более 2000 легковых и грузовых автомобилей любого класса, предлагаемых к продаже автосалонами. Публикуются новости и рекламные материалы автосалонов, тесты новых и подержанных автомобилей.май 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8702D5264A6CDEF541B84F6F2F12B61378F44885
+magnet:?xt=urn:btih:DE1002E0BE3EF7DF38FA8CCD7981617B5958C51A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +141,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542124   (243954) от 05.04.2022
+###  Публикация: 491705   (246333) от 03.05.2012
 
-Movavi Video Suite for Mac 2022 v22.2.0 [Multi]
+Вечерний Ургант. Выпуск №11 (2012.05.03) SATRip
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Movavi Video Suite 2022 - все для монтажа видео на macOS: создание видеороликов, конвертация файлов, запись экрана и многое другое. Удобный инструмент дистанционной работы и обучения.Тип издания: macOS SoftwareРелиз состоялся: 05.04.2022Разработчик: © 2022 Movavi Software Limited.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:29:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBEFE5DB25CBD85BEC2E236ABF15B67B5BCE3CBE
+magnet:?xt=urn:btih:20FE703CD1A433E96FD970519323D84A8028B9F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,25 +167,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537575   (243946) от 17.03.2022
+###  Публикация: 491651   (246314) от 03.05.2012
 
-Artstudio Pro 4.0.8 [En]
+[Wallpapers] Computer Desktop Wallpapers Pack 12
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.03.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+[Wallpapers] Computer Desktop Wallpapers Pack 12
+Название: Computer Desktop Wallpapers Pack 12
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3B496917A3BD50A032D5375C6A1825E71D76A56
+magnet:?xt=urn:btih:6A61FDFA744869FDFE55D84EE80D3B45F461B2F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,25 +197,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622380   (243940) от 28.03.2023
+###  Публикация: 491631   (246312) от 03.05.2012
 
-DesktopClock3D 2.88 + Portable [Multi/Ru]
+[Wallpapers] Cars Desktop Wallpapers Pack 2
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DesktopClock3D - простые, но в то же время красивые 3D часы для рабочего стола Windows с различными шрифтами, темами и индивидуальными настройками.Язык интерфейса: Русский, Английский и другие
+[Wallpapers] Cars Desktop Wallpapers Pack 2
+Название: Cars Desktop Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:238DFA9E9F320A1FD28C5645899029AA4B0D2913
+magnet:?xt=urn:btih:E0FAD56190A0E6F891082B1B30D8218695E413C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,26 +227,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537652   (243932) от 17.03.2022
+###  Публикация: 491427   (246309) от 03.05.2012
 
-Omni Recover 3 v3.2.6 [En]
+Журнал | Мир садовода №9 [апрель 2012] [PDF]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Omni Recover для macOS позволяет восстанавливать удаленные сообщения, фотографии, чаты WhatsApp и многое другое, независимо от того, на какой стадии ваши данные.
-Не имеет значения по какой причине, но данные iPhone уязвимы для внезапных и случайных бедствий iOS. Например, удаление фотографий на iPhone является постоянным, и когда вы нажимаете для удаления потока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+«Мир садовода» - дачные советы для садоводов и огородников. Издание для тех, кто желает вырастить прекрасный сад и получать богатый урожай овощей и фруктов! Очень много разнообразной, интересной и полезной информации, которую готовят известные специалисты огороднической тематике. Также своим опытом делятся читатели.апрель 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C98160E4C219E2AEC90B39FF880F906F5F6A38BF
+magnet:?xt=urn:btih:7E233FA8DE0103B9221A52C99049B697B012945F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,25 +253,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622902   (243931) от 30.03.2023
+###  Публикация: 491424   (246306) от 03.05.2012
 
-Brave Browser 1.49.132 Portable by Cento8 [Ru/En]
+[Wallpapers]Nature Landcapes Full HD Wallpapers 2
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
+Обои для рабочего стола.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF0BECEA25FBDB4BFFC7E52EB476F4D1A72C5226
+magnet:?xt=urn:btih:E3C0CFBCD031E7AC2D09C901B578F85357DD34AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,25 +279,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622475   (243925) от 28.03.2023
+###  Публикация: 491175   (246305) от 03.05.2012
 
-AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.88.6400 RePack (& Portable) by Dodakaedr [Multi/Ru]
+[Wallpapers] Best Impressive Full HD Wallpapers (03.05.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, английский, другие
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79CD588490D0670241E26F16BE8B7F6B8B3DB647
+magnet:?xt=urn:btih:D4EE6F7121766E2B3F6040BDFA1ADF92AB9EF9EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,27 +305,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567524   (243923) от 03.08.2022
+###  Публикация: 491657   (246304) от 03.05.2012
 
-WhatsApp 2.2226.6 RePack (& Portable) by elchupacabra [Multi/Ru]
+[Wallpapers] Abstraction Desktop Wallpapers Pack 2
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WhatsApp Messenger - кроссплатформенный мобильный мессенджер, который позволяет обмениваться сообщениями без платы за SMS. WhatsApp для iPhone и Android предлагает сквозное (end-to-end) шифрование для чатов и голосовых вызовов.
-Пользователи получают обычный интерфейс WhatsApp Web на Windows с несколькими параметрами, которые позволяют активировать
-уведомления в звуковые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+[Wallpapers] Abstraction Desktop Wallpapers Pack 2
+Название: Abstraction Desktop Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 4000х2000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD0B31F1444D2D2BAEDD8AF5A2A4356A468083CC
+magnet:?xt=urn:btih:4C382E74747DC978B606FC156C3CE370AD454219
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,25 +335,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567471   (243914) от 03.08.2022
+###  Публикация: 491518   (246294) от 03.05.2012
 
-OCCT 11.0.11 Final Portable [Multi/Ru]
+[Wallpapers] Girls Desktop Wallpapers Pack 14
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246294.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Разрешение файлов: 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15D726CA3B8BF188692D17AE934C1C10A4A8D5AB
+magnet:?xt=urn:btih:FFF4E1CB804CB8D2D57C91D5FD6835E274408357
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,25 +361,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455653   (243913) от 19.03.2021
+###  Публикация: 491508   (246293) от 03.05.2012
 
-iCollections 6 v6.8.2 [Multi]
+[Wallpapers] Girls Desktop Wallpapers Pack 13
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246293.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многие люди предпочитают держать их настольный компьютер Mac в чистоте, чтобы избавиться от каких-либо предметов, которые не являются абсолютно необходимыми. Тем не менее, если вы хотите иметь различные приложения, документы или папки в пределах досягаемости, но держать их организованными в то же время, вы можете попробовать iCollections.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2021Разработчик: Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и др.
+Разрешение файлов: 1600х1200 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:364747092E7B58483111855FBD90FB7B4B5B79CA
+magnet:?xt=urn:btih:7B1301ECDF6A881CCEBAED8E8C1ED3D3A9D24021
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,25 +387,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542087   (243912) от 05.04.2022
+###  Публикация: 491014   (246292) от 03.05.2012
 
-O&O ShutUp10 1.9.1429 Portable [Multi/Ru]
+VA - Клубные Новинки Vol.70 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-O&O ShutUp10 позволяет получить полный контроль над теми функциями Windows 10, которые Вы хотите использовать и убедиться, что ваши данные не будут отправлены третьим лицам. При помощи простого и интуитивного интерфейса пользователь может самостоятельно решить, какие нежелательные функции должны быть отключены для улучшения условий конфиденциальности данных.Язык интерфейса: Русский, Английский, другие
+01. Di Salvo & Piccolo - La Frutta Dell'amor (Original Mix)
+02. Ethillas - Mavien (Original Mix)
+03. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
+04. Ivan Mateluna Feat. Tiff Lacey - Where Is the Love (DJ Fellow & Nick Asoev Remix)
+05. Dandi & Ugo - Industrial Silence (Original Mix)
+06. Aleksey Yakovlev - Space Odyssey (Original Mix)
+07. Matan Caspi - Surprise Me feat Mykle Anthony (Original Mix)
+08. Cedric Gervais - Molly (Original Mix)
+09. Elay Lazutkin - It's Not Me (Original Mix)
+10. Guru Josh - Infinity 2012 (Robbie Rivera Juicy Remix)2012Жанр: Club, DanceПродолжительность: 04:20:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:922CB22EC570162E3D5F1CA410F7928495CBA2CC
+magnet:?xt=urn:btih:E8BC6D616B4D475DC71010800FAF70A1D847384C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,27 +422,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567652   (243908) от 03.08.2022
+###  Публикация: 491519   (246290) от 03.05.2012
 
-Blender 3.2.2 + Portable [Multi/Ru]
+[Wallpapers] Girls Desktop Wallpapers Pack 15
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
-
-В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Разрешение файлов: 1920x1200
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04857F126DC059C48702D70EB19B976E70C70351
+magnet:?xt=urn:btih:B662E08211AC22AB445043DE01E3D78E86F7D2F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,25 +448,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455463   (243900) от 19.03.2021
+###  Публикация: 491177   (246289) от 03.05.2012
 
-Better Trash 1.6.5 [Multi]
+[Wallpapers] Sexy Girls Pack Wallpapers (03.05.12)
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Better Trash - это приложение для управления мусором в macOS, оно разработано, чтобы помочь вам решить проблемы, связанные с невозможностью очистить корзину, автоматически очистить корзину, просмотреть исходное расположение элемента корзины и просмотреть запись истории очистки корзины.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2020Разработчик: FireebokПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7B3198FB31A3ECC52333C23C437160FF9656066
+magnet:?xt=urn:btih:BFC88F54CC952C0C1D92F1D5F34FF9B2467E71C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,25 +474,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455395   (243892) от 19.03.2021
+###  Публикация: 491513   (246288) от 03.05.2012
 
-MarkMyWords 2.0.0 [En]
+[Wallpapers] Nature Desktop Wallpapers Pack 7
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MarkMyWords предлагает простые функции форматирования и структурирования содержания статей, которые будут опубликованы в «Интернете» и остаются независимыми от платформы при использовании текстовых документов.Тип издания: macOS SoftwareРелиз состоялся: 16.03.2021Разработчик: Xelaton SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
+[Wallpapers] Nature Desktop Wallpapers Pack 7
+Название: Nature Desktop Wallpapers Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D11CCEE2050FB1632E7B2C47D45E0A24393A3B57
+magnet:?xt=urn:btih:DAF273F597ED128A6AB17A6E3103C3F91F7B3520
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,27 +504,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622608   (243881) от 29.03.2023
+###  Публикация: 491620   (246287) от 03.05.2012
 
-Strawberry 1.0.16 [Multi/Ru]
+[Wallpapers] Girls Desktop Wallpapers Pack 16
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Strawberry - музыкальный плеер и органайзер музыкальных коллекций, который в первую очередь предназначен для коллекционеров и меломанов. Является форком популярного аудио плеера Clementine.
-
-С помощью Strawberry вы можете воспроизводить и управлять своей цифровой музыкальной коллекцией, а также слушать любимые радиостанции. Программа поддерживает массу популярных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Разрешение файлов: 1920x1200
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91EF24E1A2E4243F9D72BA3BD8EB57F011583A7D
+magnet:?xt=urn:btih:E5C875F562A6C9CE2C4C4AA78A608B09CACC6F05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,28 +530,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455534   (243879) от 19.03.2021
+###  Публикация: 491334   (246286) от 03.05.2012
 
-EditReady 2.7 [En]
+VA - May Club Party (2012) [MP3|192-256 кб/с]<Club>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональный видео-конвертер, позиционируемый как самый быстрый в отрасли.
-Умеет сохранять метаданные при конвертации видео, а так же, при необходимоcти, редактировать их. Имеет поддержку аппаратной обработки h.264.
-
-Поддерживает контейнеры:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09.03.2021Разработчик: DivergentmediaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+01. Lika Star - Точка росы (Tone Project club mix)
+02. Аметист & Настенька Жигалова - Игра В Любовь
+03. Alex M.O.R.P.H. & Protoculture - Waking Up The Stars (Radio Edit)
+04. Gino Manzotti Feat. Damon - Save Me (Radio Edit)
+05. Алабама - Отпускаю
+06. DJ Dark & Shidance feat. Phelipe - Sexy Lady (Hey!) (Andeeno Damassy Remix)
+07. Andy Moor feat. Jessica Sweetman - In Your Arms (Original Mix Edit)
+08. Alexey Romeo Feat. Gerald G - This Is Your Life (Radio Edit)
+09. Frisco Disco feat. Ski - One Way Ticket (Radio Version)
+10. Gradusi - Zametaet (DJ HiTretz & Sergei Karpov Remix)2012Жанр: ClubПродолжительность: 08:09:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9299C63692C89CA5E6F15BAD43CAF07FCF51BF82
+magnet:?xt=urn:btih:CC1D532AF039025C875CE66AFFB41A0B93DE180A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,27 +565,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632730   (243877) от 11.05.2023
+###  Публикация: 491649   (246285) от 03.05.2012
 
-Opera GX 98.0.4759.50 + Portable [Multi/Ru]
+[Wallpapers] Computer Desktop Wallpapers Pack 11
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+[Wallpapers] Computer Desktop Wallpapers Pack 11
+Название: Computer Desktop Wallpapers Pack 11
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EDC55E30AAD899856F11DC0E973562231FBCA66
+magnet:?xt=urn:btih:9204D0836456D55EFC266E1A9919C9F24CBC9603
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,26 +595,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622687   (243873) от 29.03.2023
+###  Публикация: 491180   (246282) от 03.05.2012
 
-4K Video Downloader 4.24.1.5352 RePack (& Portable) by elchupacabra [Multi/Ru]
+[Wallpapers] Wallpapers Sexy Girls Pack (03.05.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
-Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский и другие
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2756
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3289DF577E689C4DFEA195EFE5E771AE2D814500
+magnet:?xt=urn:btih:5632E6FE7A8ADAA5D7FB702AC7EFFF61BE90E824
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,25 +621,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455474   (243871) от 19.03.2021
+###  Публикация: 491630   (246280) от 03.05.2012
 
-Text Scanner - PDF & Document 1.3.7 [En]
+[Wallpapers] Girls Desktop Wallpapers Pack 18
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Text Scanner - это мощный инструмент сканирования изображений, основанный на передовом алгоритме глубокого обучения AI, который использует технологию оптического распознавания символов для преобразования текстового содержимого непосредственно в редактируемый текст.Тип издания: macOS SoftwareРелиз состоялся: 13.03.2021Разработчик: Xiao LuoПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Китайский
+Разрешение файлов: 1600х1200 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FE269DED1F042AAD1A904420542DE33839D425C
+magnet:?xt=urn:btih:E3BA6FF40B9157E6DE849627D11E1FFF90CFF9EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,25 +647,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632776   (243868) от 11.05.2023
+###  Публикация: 491659   (246278) от 03.05.2012
 
-Icecream Video Converter 1.27 [Multi/Ru]
+[Wallpapers] Girls Desktop Wallpapers Pack 20
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мощный, но простой в использовании медиа конвертер, который поддерживает все самые распространенные аудио и видео форматы, включая AVI, MKV, MP4, WMV, MP3, WAV, MPEG, WMA и многие другие, а также позволяет конвертировать медиа файлы для мобильных устройств.Язык интерфейса: Русский, Английский и другие
+Разрешение файлов: 1680х1050 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBC74CC0AEE46F1FC443257F7E6BFB9A415FD995
+magnet:?xt=urn:btih:69B9FAD31C13894662D3EACECC5B422132390FF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,25 +673,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537653   (243864) от 17.03.2022
+###  Публикация: 491629   (246276) от 03.05.2012
 
-SyncBird Pro 3.6.9 [En]
+[Wallpapers] Computer Desktop Wallpapers Pack 10
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SyncBird Pro - это файловый менеджер iPhone, который обеспечивает синхронизацию iOS и чистку iTunes. Передавайте музыку, плейлисты, фотографии, видео, книги - все, между вашим iPhone, iPad, iPod и Mac без использования iTunes. Эксклюзивные функции SyncBird под названием PhoneCare и TunesClean созданы для того, чтобы освободить больше свободного места на вашем iPhone (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский или Немецкий
+[Wallpapers] Computer Desktop Wallpapers Pack 10
+Название: Computer Desktop Wallpapers Pack 10
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C29E6D37148B86EAEF74DCCDF487EFFFC3166E7E
+magnet:?xt=urn:btih:450FD07E19843FA9591485042F6E1456026417E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491178   (246274) от 03.05.2012
+
+[Wallpapers] Gilrs Wallpaper (03.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D5E594B299CEBA177788418F2E17ABD8CE73A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

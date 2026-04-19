@@ -1,3 +1,29 @@
+###  Публикация: 488369   (90856) от 26.04.2012
+
+VA - Инструментальная музыка (2012) vol. № 25 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A6172B88BE5F3148D4456C25D3EDC120DAF54C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486120   (90674) от 25.04.2012
 
 VA - Инструментальная музыка (2012) vol. № 18 [MP3|320 кб/с]<Instrumental>
@@ -692,35 +718,6 @@ VA - compilation  part 107 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FCE79E7B85B3374718BE8FD63BF51766B7713B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739609   (48195) от 01.08.2024
-
-VA - compilation  part 106 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instrumental, Saxophone>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ladynsax - Payaar
-02. Daniel Sax - Kissing a Fool
-03. Jk Sax - How I Love You (Engelbert Humperdinck)
-04. Jk Sax - The Last Waltz (Engelbert Humperdinck)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 02:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD524BF2E29B396EE172B3A13FEA50E1748FE6B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

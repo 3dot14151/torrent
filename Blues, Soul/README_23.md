@@ -1,3 +1,32 @@
+###  Публикация: 1242801   (513059) от 24.08.2018
+
+Erin Harpe & The Delta Swingers - Big Road (2017) [MP3|320 Kbps] <Electric Blues, Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kokomo (05:35)
+02. Lonely Leavin' Town (05:55)
+03. Big Road (04:13)
+04. Frankie (03:42)(   Читать дальше...   )Жанр: Electric Blues, Jump BluesПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1DDC947BFE3FC61290B00A49CCCBBE2030863B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242777   (512982) от 24.08.2018
 
 Universal Hippies - Evolution of Karma (2018) [MP3|320 Kbps] <Heavy Psychedelic Blues Rock, Instrumental>
@@ -737,35 +766,6 @@ Blues Pills - Holy Moly! (2020) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A73584CC7A18CCD13A51DD402386035729353201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936796   (494452) от 12.09.2015
-
-Jay Willie Blues Band - Johnny's Juke Joint (2015) [MP3|320 кб/с]<Electric Blues, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wooly Bully (02:26)
-02. You Got Me Dizzy (03:02)
-03. One More Mile (03:10)
-04. Upside Of The Ground (03:29)(   Читать дальше...   )Жанр: Electric Blues, Rockin' BluesПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2DF7F1316A1C94AE7E43936E3B5FF5D2AAE97B
 ```
 
 https://mybot314.ru/tekegram_catalog/

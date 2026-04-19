@@ -1,3 +1,217 @@
+###  Публикация: 1296966   (608650) от 19.04.2019
+
+Zen - Live. Love. Create (2019) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Psytech>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live. Love. Create (Protoculture Remix) (07:20)
+02. Live. Love. Create (Austin Leeds remix) (09:09)
+03. Live. Love. Create (09:04)Жанр: Progressive House, Techno, PsytechПродолжительность: 00:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26628391573A6F6F16C789B11C8820E7728FBE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912864   (607090) от 28.06.2015
+
+VA - Blue Marlin Ibiza Vol. 09 (Mixed by UNER & Dosem) (2015) [FLAC|Lossless]<Tech House, Deep House, Minimal, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noir - "Around" (feat Hayze - album version)
+02. Little By Little - "Bang The Box"
+03. Gotsome - "Heart Starts" (Phil Weeks remix)
+04. Dale Howard - "Intervention"(   Читать дальше...   )Жанр: Tech House, Deep House, Minimal, TechnoПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0044F52696B3A30EE4C9067022962F8894D8BB37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038604   (606730) от 28.07.2016
+
+Mollono.Bass & Ava Asante - Birds Flying High, Pt.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feeling Good (Original Mix) (05:53)
+02. Afrodisia (Original Mix) (04:41)
+03. Circus Fantasy (Original Mix) (07:01)
+04. Jungle Dub (Original Mix) (05:47)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2307A741A4CD2E98B5E555982388075DE12D1D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148080   (605746) от 04.07.2017
+
+VA - Sudbeat Showcrates 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Facundo Mohrr & Valdovinos - Your Touch (08:18)
+02. Summer (Brendon Collins) & Swyft - Flowerscape (06:31)
+03. GMJ - Return To Now (08:03)
+04. VSHL - Munay Ki (08:14)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C417CF90189CB1E712A13A83957503BDAA99D23C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525707   (605525) от 22.07.2012
+
+VA - Ministry Of Sound - Chilled II 1991-2009 (2009) 3CD [FLAC|Lossless]<Deep House, Downtempo, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_605525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ожидаемое продолжение сборника Chilled I 2008 года от именитой студии Ministry of Sound представляет собой фантастический и действительно всесторонний раунд классических вещей Chillout`а от Air, Groove Armada, Coldplay, Zero 7, Everything But The Girl, Daft Punk, Leftfield, Primal Scream, Unkle и многих других. Дополняют общую картину великолепные смеси дип-хауса Эрика Прайдза "Pjanoo" и Кида Коуди "Day And Nite".01. 808 State - Pacific State :: 03:45
+02. The Beloved - Sun Rising :: 04:15
+03. Leftfield - Original :: 04:03
+04. Primal Scream & Denise Johnson - Don't Fight It, Feel It :: 06:44
+05. Sneaker Pimps - 6 Underground :: 03:20
+06. Groove Armada - At The River :: 04:07
+07. St Germain - Dub Experience II :: 03:43
+08. A Man Called Adam - Barefoot In The Head :: 03:58
+09. Moloko - Sing It Back :: 03:06
+10. Kinobe - Slip Into Something More Comfortable :: 04:41(   Читать дальше...   )Жанр: Deep House, Downtempo, AmbientФормат: 3xCD, Compilation, MixedПродолжительность: 03:55:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525771   (605523) от 22.07.2012
+
+Goldfish - Caught In The Loop (2005) [FLAC|Lossless]<Afrobeat, Future Jazz, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_605523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два джазовых виртуоза из Южной Африки познакомились, изучая музыку в университете, и организовали электронный дуэт, играющий только вживую. Первую пластинку они записали самостоятельно, используя контрабас, саксофон и несколько синтезаторов. Этот андеграундный альбом, Caught in the loop, стал 1 в их родной стране и положил начало их звездной карьере и культовому статусу.01. The Real Deal :: 04:49
+02. Times May Change You :: 04:30
+03. Love And Hate :: 04:02
+04. Mbira Beat :: 05:02
+05. All Night :: 03:45
+06. Eqyptology :: 04:48
+07. Wait A Minute :: 05:23
+08. The Four Forty Five Blues :: 04:35
+09. Last Tango In Paradise :: 04:00
+10. Dream :: 04:16(   Читать дальше...   )Жанр: Afrobeat, Future Jazz, Deep HouseФормат: CD, AlbumПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231528   (605242) от 18.06.2018
+
+Pom Pom - 35 (2018) [FLAC|Lossless|tracks|Vinyl] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled A1 (04:55)
+ 02. Untitled A2 (06:19)
+ 03. Untitled B1 (05:21)
+ 04. Untitled B2 (06:36)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FB64D39AF17189052BE1DBEA2C18F4177B7792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525946   (605222) от 22.07.2012
 
 VA - Ministry Of Sound - Addicted To Bass (2012) 3CD [FLAC|Lossless]<Progressive House, Dubstep, Tech House, Breakbeat, Hip-House, Electro, Drum n Bass>
@@ -546,206 +760,6 @@ Satin Jackets - Diamonds Are Forever (2018) Eskimo Recordings [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9B045FCF2D7D718114DD5839D9FB573D4CC73F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232284   (602331) от 23.06.2018
-
-Modd - Mesmerize Me (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mesmerize Me (4:30)
- 02. Flight Flow (4:34)
- 03. Velotrip (4:30)
- 04. Abenaki (4:42)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6F733D073012D6A1E187D17651BB92BD8BFF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914287   (600280) от 01.07.2015
-
-Robin Schulz - Headlights (The Remixes) (2015) [FLAC|Lossless|WEB-DL]<House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headlights (feat. Ilsey)Жанр: House, Progressive HouseПродолжительность: 00:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E9EBFE8EB8B6349C3A5976D954750DDC4BA96F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914272   (600186) от 01.07.2015
-
-VA - Fabric 82 (Mixed by Art Department) (2015) [FLAC|Lossless|WEB-DL]<House,Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Basic Channel - Mutism
-02. Frank & Tony - Villa Seurat
-03. Mr G - Hip Flexer
-04. Doubt - Worse For The Wear(   Читать дальше...   )Жанр: House,Deep House, Tech HouseПродолжительность: 01:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40917C5DF62F980477CB6A45B6F6D1A24338AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039017   (598996) от 30.07.2016
-
-VA - Anjunadeep In Ibiza (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yotto - The Owls (07:55)
-02. Cubicolor - Mirror Play (feat Tim Digby-Bell) (05:56)
-03. Way Out West - Tuesday Maybe (I:Cube's Sunrise remix) (07:10)
-04. Lane 8 - Fingerprint (06:44)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695DDBB18FCD9D4A67B5F89363F03A09AB8C15EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149739   (598624) от 12.07.2017
-
-VA - Family Affair Vol.6 (Part 1-2) (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Devon - Devotion (Dahu remix) [07:02]
-02. Dahu - Never (Nick Devon remix) [08:44]
-03. Clawz SG - Solace (Soul Button's Aurora remix) [06:43]
-04. Dahu - Never (Nick Devon ambient version) [06:55]Жанр: Tech House, Deep Tech, Minimal |Продолжительность: 00:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5A8A077271813EE062C5D56A60B3DB84A45BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914597   (598471) от 02.07.2015
-
-VA - Top From the Top: Tom Strobe (2015) [FLAC|Lossless|WEB-DL]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melosense - Rainy Day (Original Mix) (03:48)
-02. Stendahl - Serenity (Original Mix) (07:21)
-03. 1Touch - Be Strong (Sunlight Project Remix) (08:18)
-04. Nafis - Holding Hands (Stendahl Remix) (07:42)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D385BDBBC14DB208E09B1CCD7E5701160805B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039145   (597808) от 31.07.2016
-
-VA - Defected In The House Croatia (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kai Alce - Defected In The House Croatia (continuous mix) (01:18:37)
-02. Crookers - Defected In The House Croatia (continuous mix) (01:03:53)
-03. Dario D'Attis - Defected In The House Croatia (continuous mix) (01:10:50)
-04. Crookers - A Place In My Heart (feat Kym Mazelle) (05:18)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 08:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530C3741041D457D76FB181F00C666268DCD820B
 ```
 
 https://mybot314.ru/tekegram_catalog/

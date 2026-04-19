@@ -1,23 +1,23 @@
-###  Публикация: 1380034   (830946) от 04.05.2020
+###  Публикация: 1113600   (834649) от 13.03.2017
 
-Проекты - VideoHive - Seamless Loop Kinetic Posters - 24684532 [AEP]
+Проекты - VideoHive - Sport Style Opener [AEP]
 
 >>Проекты
->>Элементы (проекты)
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834649.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Seamless Loop Kinetic Posters - отличный пакет разнообразных анимированных постеров, фонов, обратных отсчетов,  использование которых придаст профессиональный вид вашим работам.
-Автор: -sparta-Формат: AEP
+Sport Style Opener – это качественный, стильный, энергичный проект, который предназначен для вступительного видео. Можно использовать для спортивных мероприятий, TV-Шоу, клубных вечеринок, интро, промо-видео.
+Шаблон очень легко редактировать. Он имеет модульную структуру, так что вы всегда можете изменить его длину, и это не мало важно. Проект включает в себя руководство (   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:252A6BE35D924A5081563778127AC55F61992537
+magnet:?xt=urn:btih:DB902408D6213A37D8F6C4C9C467EC6EF7F86488
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,26 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378214   (830945) от 04.05.2020
+###  Публикация: 1380085   (834648) от 02.05.2020
 
-Место встречи изменить нельзя (1979) HDTVRip [H.264/720p-LQ] (серии 1-5 из 5)
+Гриффины: Там, там, на темной стороне / Family Guy: Something, something, something, Dark Side (2009) BDRip [H.264/1080p-LQ] 2x2, CPIG, Filiza Studio
 
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834648.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Криминально-детективный сериал «Место встречи изменить нельзя», в основу которого лег роман братьев Вайнеров «Эра милосердия», рассказывает о непростых рабочих буднях сотрудников уголовного розыска города Москвы сразу же после окончания Великой Отечественной войны.
-На дворе осень 1945-го года. В центре сюжета опытный сотрудник МУРа – Глеб Жеглов, а также молодой (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: Боевик, криминал, детектив, драмаРежиссер: Станислав ГоворухинАктеры: Владимир Высоцкий, Владимир Конкин, Сергей Юрский, Виктор Павлов, Наталья Фатеева, Леонид Куравлёв, Светлана Светличная, Александр Белявский, Евгений Евстигнеев, Армен Джигарханян и др.Продолжительность: ~01:00:00 серия
+Сага продолжается. Люк (Крис), Лея (Лоис), Хан Соло (Питер) и Чубакка (Брайан) прячутся от имперского звёздного флота, во главе которого коварный, проворный и весьма маленький злой лорд Дарт Вейдер (Стьюи). Вместе с повстанцами они создали новую секретную базу в системе Хот. Молодой Скайуокер должен послушаться совета погибшего похотливого наставника Оби-Вана Кеноби (   Читать дальше...   )Производство: США / Twentieth Century Fox Film CorporationЖанр: мультфильм, комедияРежиссер: Доминик ПолчиноАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Х. Джон Бенжамин, Майк Генри, Джон Дж. Бреннан, Джон Баннелл, Киркер Батлер, Д.С. Дуглас и др.Перевод: Многоголосый профессиональный (2x2, CPIG, Filiza Studio)Субтитры: русские (full, commentary), английские (full, SDH, commentary)Продолжительность: 00:54:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1B0A65117B2F78C87FE60E6B1BFBB8DED4374DD
+magnet:?xt=urn:btih:F80371E92979C8D5E9416CF318BD828B4A9948FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,28 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497393   (830944) от 13.10.2021
+###  Публикация: 1113360   (834647) от 13.03.2017
 
-VA - Buddhatronic - the Compilation, Vol. 4 (2019) [AAC|~328 Kbps] <Downtempo, Lounge, Chill Out>
+Проекты - VideoHive - Magazine Photo Openers - Logo Reveal - 11875573 [AEP]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Проекты
+>>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834647.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - Angel Eyes (Mystic Ethno Mix) (5:28)
-02. Blériot, Jean Mare - Lonely Beach and Moon (Jean Mare Remix) (5:33)
-03. For Found Future - Dreamlands Harmony (Chillout Melody Mix) (4:28)
-04. Lebensart - Cinematic Landscapes (Mystic Pictures Wellness Cut) (5:12)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:37
+Magazine Photo Openers - Logo Reveal - стильный, элегантный, модный и очень полезный проект. Подходит для рекламы ваших товаров, показов фотографий вашей семьи или друзей, создания свадебного журнала для молодоженов или для продвижения вашего бренда. Также он идеально подойдет для вступительного ролика, видеовставки, демонстрации логотипа или любой идеи, которую (   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF9914FDF08F80413B893C8D25EE93CB465D310F
+magnet:?xt=urn:btih:4C83D091FE70D65E6CA248463B0EB07FB1A3D719
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,28 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496948   (830943) от 13.10.2021
+###  Публикация: 1380186   (834646) от 02.05.2020
 
-VA - Electronic Lounge Collection, Vol. 3 (2021) [AAC|~312 Kbps] <Electronic, Downtempo, Lounge>
+Стили - GraphicRiver - Metal Abstract Text Styles V2 - 24186687 [PSD, ASL]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andy Smokey - Sunset (Original Mix) (3:15)
-02. Tai Tung - Ancient Art (Original Mix) (5:28)
-03. Anemine - Das Wehen vom Meer (Original Mix) (1:38)
-04. Ingo Herrmann - Future Dreams (Original Mix) (2:43)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:15:51
+10 металлических текстовых стилей.Формат: PSD, ASLРазрешение файлов: 590x2322
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:303DB5F7AF61FBAC0A54C21077AC9D8C11A4E00F
+magnet:?xt=urn:btih:4BA0E01F6D51F608B01CD81B716547C14CC39966
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,28 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498161   (830942) от 13.10.2021
+###  Публикация: 1113391   (834645) от 13.03.2017
 
-VA - Chilling On Purple Clouds, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+Проекты - VideoHive - Comic Intro - 19532803 [AEP]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Проекты
+>>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834645.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steen Thottrup, Lunamila - The Lights (3:37)
-02. Cool Beach - Petals of Sound (2:18)
-03. Tim Angrave - Refined Interjection (6:41)
-04. Ben Mitchell - Blue-Sky Thinking (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:36
+Comic Intro - проект для создания коротенькой презентации в стиле комиксов, в конце которой демонстрируется логотип или название!Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:704C65420A3D3AC0835078941D85BFE9A0EA2456
+magnet:?xt=urn:btih:2D4D7DAAD9CBC3091DE3685EC3471AF631C71064
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,28 +129,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496251   (830941) от 13.10.2021
+###  Публикация: 1371591   (834644) от 02.05.2020
 
-VA - Global Lounge Masters, Vol. 2 (2021) [AAC|~318 Kbps] <Lounge, Downtempo, Chillout>
+Покидая Лас-Вегас / Leaving Las Vegas (1995) BDRemux [H.264/1080p] [Unrated Cut]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 351 Lake Shore Drive, Genius Jane - Sunrise (5:37)
-02. Velvet Dreamer - Whisper of the Evening Sea (5:20)
-03. Lemongrass - Loving You (4:01)
-04. Soulounge, Florine Dimonye - Waiting in Vain (4:19)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 01:44:54
+Если вся жизнь кажется кошмаром. Если затяжной запой окончательно разрушил карьеру в серьезной фирме. Может быть, есть смысл уничтожить все, что связывало тебя с прошлой жизнью и начать новую? В блестящем и грешном Лас-Вегасе.
+Где среди блеска ночной жизни одинокая «ночная бабочка» может оказаться внимательнее и сердечнее любого психоаналитика. Потому что она захочет (   Читать дальше...   )Производство: Франция, Великобритания, США / Initial Productions, А Lila Cazès Production, Lumière PicturesЖанр: Драма, мелодрамаРежиссер: Майк ФиггисАктеры: Николас Кейдж, Элизабет Шу, Джулиан Сэндс, Ричард Льюис, Стивен Уэбер, Ким Эдамс, Эмили Проктер, Стюарт Реген, Валерия Голино, Грэм БеккелПеревод: Профессиональный (многоголосый, двухголосый закадровый), авторский (одноголосый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские, украинские, английскиеПродолжительность: 01:52:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D65FD89D15D4FD01469751630EA8C471FB132A38
+magnet:?xt=urn:btih:8B10C3C79572DDD89801629979A72A30B18E27E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,489 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496252   (830940) от 13.10.2021
+###  Публикация: 1114153   (834643) от 13.03.2017
 
-VA - Global Lounge Masters, Vol. 3 (2021) [AAC|~327 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Marlene Johnson - You Don't Know (4:44)
-02. Aquascape - Sunrise (6:43)
-03. Five Seasons - In Your Town (3:55)
-04. T2'n - Charly One (4:35)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 01:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6A8D6641B04DF56F9E6DB6D025384B6FD42F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495980   (830939) от 13.10.2021
-
-VA - Chill out Magnifique, Vol. 1 (2019) [AAC|~318 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maximus, Ensemble Ethnique - Mystery of the Seven Chakras (Original Mix) (3:07)
-02. Jasmon - River of My Heart (Original Mix) (5:04)
-03. Jane Maximova - Clouds (Original Mix) (5:49)
-04. Abey Brown - Calma (Original Mix) (6:27)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1EAF7595F513A06F835B22F418077348F7BCFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497891   (830938) от 13.10.2021
-
-Röyksopp - Junior (2009) [AAC|~349 Kbps] <Electronic, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Up Here (2:44)
-02. The Girl and the Robot (4:29)
-03. Vision One (5:00)
-04. This Must Be It (4:42)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71825F8BB7F7E83F30FE77B1A13B448F79E6942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498559   (830937) от 13.10.2021
-
-VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 2 (2021) [AAC|~315 Kbps] <Chill Out, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Of The Earth - Afterglow (Longglow Edit) (5:37)
-02. Manyus Joan Eta - Sea Ballad (5:34)
-03. VAN - Others City (6:19)
-04. Ialaz - Interlude 2 (1:50)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4B47141C76BBB68C816173DA727C91B9FFF18C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497390   (830936) от 13.10.2021
-
-VA - Buddhatronic - the Compilation, Vol. 2 (2017) [AAC|~307 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Blue Sun (Ambient Lounge Mix) (5:34)
-02. Pascheba - Nirvana (3:28)
-03. Buddhatronic - World of Grace (Mystic Voice Mix) (4:54)
-04. Artenovum - Francesca (Mystic Dream Mix) (4:55)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CD7D1456E62C3270DEC0321C309B96DD5806BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497392   (830935) от 13.10.2021
-
-VA - Buddhatronic - the Compilation, Vol. 3 (2018) [AAC|~320 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - Here We Go Again (Buddha Chillout Mix) (5:44)
-02. Artenovum - Eehee (Mystic Voices Enigmatic Mix) (4:51)
-03. Book of Dreams - Garden of Secret (Mystic Sphere Mix) (5:38)
-04. Buddhatronic - Granular Dreams (Send Me an Angel Mix) (4:34)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199BF1785FF355E5370305E6F18979FBA23A0C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495594   (830934) от 13.10.2021
-
-Dark the Suns - Suru Raivosi Sydämeni Pimeydessä (2021) [AAC|~339 Kbps] <Melodic Death, Gothic Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit in the Dark (3:57)
-02. Everywhere (5:05)
-03. Suru Raivosi Sydämeni Pimeydessä (4:21)
-04. Hope in Our Hands (4:48)(   Читать дальше...   )Жанр: Melodic Death, Gothic MetalПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9DAE09C37CE7AEE93B94F8A7445B7D86F4BD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496271   (830933) от 13.10.2021
-
-VA - Blueberry Café, Vol. 1 (2013) [AAC|~333 Kbps] <Downtempo, House, Jazzy>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoulAvenue - Stuck in a Dream (4:14)
-02. JULIAS MOON - Bay (2:47)
-03. Roberto Sol, Florito, Sandra Muhuri - Impress Me (4:46)
-04. Luis Hermandez - Summer Feeling (3:16)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4ABFC5AD24B8C82F35E0C54655697417A17B9B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497226   (830932) от 13.10.2021
-
-Chillhop Guitar - Spring from the soul (2021) [AAC|~295 Kbps] <Chill Out, Smooth Jazz, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Montecristo (5:18)
-02. Lounge with my Valentine (7:39)
-03. Vinyl in the Clouds (3:13)
-04. Sunset Walk (4:49)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4760D974747AD3D184565CC8603B73D716A172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497187   (830931) от 13.10.2021
-
-VA - Luxury Lounge Sunset, Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - Don't Want Your Love (3:06)
-02. Music Of The Earth - The Lofi Jazz Pattern (3:27)
-03. Five Seasons - Caminho De Amor (5:16)
-04. Green Pine River - Skyfall (D-Soriani Bossa Edit) (4:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A2BA959EB359FF0DCBD4E7F4B31D39259F65DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497138   (830930) от 13.10.2021
-
-VA - Magic Island of Chill Out, Vol. 2 (2021) [AAC|~322 Kbps] <Lo-Fi, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twins In Mind - Intro (1:24)
-02. 351 Lake Shore Drive, Marlene Johnson - You Don't Know (4:44)
-03. Tom Tom Club - Love to Love You Baby (Vavinchi Remix) (6:34)
-04. Miper - Relax (3:16)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A961DE343C345AFD62505AC18CC765F496B834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498524   (830929) от 13.10.2021
-
-VA - Fireplace Chill, Vol. 7 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feindrehstar - Love & Hoppiness Int. (Original Mix) (2:33)
-02. Slow World - Caravan (Original Mix) (4:58)
-03. Marc Hartman - Into the Stone (Original Mix) (4:16)
-04. Placid Larry - Blossoming (Original Mix) (2:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A87279C1D4867A855E2CEDCD498D0B8682F9852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496947   (830928) от 13.10.2021
-
-VA - Electronic Lounge Collection, Vol. 2 (2021) [AAC|~314 Kbps] <Electronic, Downtempo, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dub Mars - Walking on the Street (Original Mix) (3:31)
-02. Florent Campana - Pentimento (Original Mix) (3:00)
-03. CaPa - To Be Thoughtful (Original Mix) (4:39)
-04. Hill Video - Loyal Cruise (Original Mix) (3:34)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:23:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE62488073927E2DA482CBFE30DE453561D1CF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501632   (830927) от 13.10.2021
-
-VA - The Lounge Chill Out Chapter, Vol. 1 (2021) [AAC|~315 Kbps] <Chill Out, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Le Blanc - White Dish (4:37)
-02. Aerium, Me3dian - Warmte Nei Kjelt (1:17)
-03. Ignat Shamko - Strange Dream (4:23)
-04. Esona - Twisted Innocence (A Light Twist of Innocence Mix) (6:14)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249B29790D8E2B80DA5FC5FFF426FA517B6D976C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496298   (830926) от 13.10.2021
-
-VA - Blueberry Café, Vol. 8 (2021) [AAC|~316 Kbps] <Downtempo, House, Jazzy>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M-Sol Project, Marga Sol - Another Night (5:36)
-02. Patiotic - Island Dreams (3:26)
-03. Monodeluxe - I Want To (6:42)
-04. Martin Hiska - Copa Copa (Beachhouse Remix) (5:29)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3520385D6811C4DA9D8E8BC4E85E0C935F23FF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497412   (830925) от 13.10.2021
-
-VA - Beautiful Metamorphosis, Vol. 2 (2021) [AAC|~306 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T2'n - Run In Noise (3:16)
-02. Balinese Meditation Ensemble - Silent Snow (4:49)
-03. Faith Baldwin - The Morning Light (4:48)
-04. Openzone Bar - Caribbean Nights (3:45)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E09FB4FC7B57849D7CA2AE6C1C35F3DA67AA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005835   (830924) от 10.04.2016
-
-Чудо техники (2016.04.10) SATRip
+Без обмана. Чебурек и братья (2017.03.13) SATRip
 
 >>Документалистика и Телепередачи
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834643.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:35:58
+Это масштабное потребительское расследование, задача которого дать зрителям подробные советы, как не попасть в неприятности за собственные деньги. В центре программы оказываются самые разные товары и услуги потребительского рынка, их "судят" авторитетные эксперты и рядовые люди. Корреспонденты программы часто выступают в роли тайных агентов, внедряющихся (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеСубтитры: ОтсутствуютПродолжительность: ~ 00:40:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D6DEFF66315D92F7A0425ECED3697E369F12BBB
+magnet:?xt=urn:btih:89C0D254499B2192CA4ECB4FDD43CDADEAF49C25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,25 +182,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005714   (830923) от 10.04.2016
+###  Публикация: 1004605   (834642) от 13.03.2017
 
-Синодальная типография | Русские самородки в жизнеописаниях и изображениях. Выпуск 7 (1910) [DJVU]
+Шрифты - Monster High CYR-ENG / Школа монстров [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт в стиле "Monster High" (Монстер Хай - Школа монстров).
+Количество: 2шт.
+Разработчик: мой хороший знакомый, пожелавший остаться инкогнито (вот такой он скромный)
+Поддержка кириллицы: Есть (Русская, Украинская, Белорусская)Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A3D1D751659DF66FF50D8FF9B2BF53D7749DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380182   (834641) от 02.05.2020
+
+Я. Ф. Чекмарев | Методика устных вычислений [С набором упражнений по устному счету] (1970) [PDF]
 
 >>Научная и техническая литература
->>Историческая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834641.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Седьмой выпуск  содержит жизнеописания:  поэта А.В. Кольцова (1809-1841), великого ученого и поэта М.В. Ломоносова (1711-1765)  и  поэта И.З. Сурикова (1841-1880).  Всего было издано девять выпусков этой серии. Издание училищного  Совета при Святейшем  Синоде.Жанр: Жизнеописания, биографии и мемуарыФормат: DJVU
+В настоящей книге мы стремились изложить материал так, чтобы и учитель I—V классов, и преподаватель арифметики (методики арифметики) педагогического училища мог найти здесь нужный ему материал при изучении арифметики. Столь широкое адресование книги продиктовано соображениями преемственности в преподавании арифметики. Преемственность должна быть между всеми звеньями (   Читать дальше...   )Жанр: История, науковедение, арифметика, педагогикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0561014BBA6160D01BEB46E2F7DC186669991ADF
+magnet:?xt=urn:btih:65DEFBE9F9363737D3E6D5703F94DF12A3DB0D1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,28 +237,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006027   (830922) от 10.04.2016
+###  Публикация: 1113866   (834640) от 13.03.2017
 
-Jocelyn & Chris Arndt - Edges (2016) [MP3|320 кб/с] <Blues-Rock>
+Елена и тайна Авалора / Elena and the Secret of Avalor (2016) WEB-DL [H.264/720p-LQ]
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834640.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shame (03:05)
-02. Too Much To Me (03:51)
-03. Where's The Rain (03:45)
-04. More Than I Say I Do (03:50)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:19
+Данный мультфильм является приквелом к сериалу "Елена принцесса Авалора"
+Все началось с волшебного амулета, которым очень дорожила прекрасная София, получившая его после воссоединения с королевской семьёй. Но изысканное украшение привлекало её не только своей красотой, она всегда чувствовала, что в нём хранится какая-то тайна. Как оказалось не с проста, (   Читать дальше...   )Производство: США | Walt Disney Television AnimationЖанр: Фентези, Приключения, СемейныйРежиссер: Джэми МитчеллПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 01:03:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88B691A84F4AA474AB6D35EA24F35A94ACE0B4E1
+magnet:?xt=urn:btih:F3F8D6B32C8EAD4D5A2EC2236CB9A1EE84A2A335
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,28 +264,421 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005854   (830921) от 10.04.2016
+###  Публикация: 1380166   (834639) от 02.05.2020
 
-VA - Automatic Express Promo Focus (Promotion) (2016) [MP3|192-320 кб/с]<Club, Euro, Disco, Electronic, House, Progressive, Pop, Dancehall, Synthpop, New Wave, Tropical>
+Секс и ничего личного / Секс і нічого особистого / Just Sex, Nothing Personal (2018) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда любимая девушка «выносит тебе гарбуз», мотивируя это тем, что ты полный бездарь в постели — значит, счастливой жизни пришел конец — по крайней, мере половой. Но Сергей встречает стриптизершу Диану, которая берется сделать из него настоящего мачо. Правда, ее уроки носить только теоретический характер, но скучными и бесполезными они точно не будут!Производство: Украина / Star MediaЖанр: Комедия, мелодрамаРежиссер: Ольга РяшинаАктеры: Роман Луцкий, Анжелика Николаева, Наталья Мазур, Сергей Притула, Андрей Данилко, Инна Белоконь, Инна Островская, Анна МатийченкоПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6ABECABB5616C63ADB675821ACFBD1B55B7F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113720   (834638) от 13.03.2017
+
+Чистилка 2.17.12 Portable [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чистилка - представляет собой простой и удобный инструмент для очистки системы от различных "зловредов". С ее помощью вы сможете избавиться от надоедливой рекламы на вашем компьютере, и удалить программы-зловреды, включая те, которые пропустил ваш антивирус. Программа проста в использовании и имеет русскоязычный интерфейс, поэтому разобраться в ней не составит (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5430B647C08D36D919DB45EF42FBB82918C943BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380384   (834637) от 02.05.2020
+
+3D модели - Laubwerk - Plants Kit 1 [EXE, LBW]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выбор небольших и средних деревьев для декоративного использования, парков и улиц, включая потрясающий Kanzan с розовым цветением и впечатляюще высокий и тонкий кипарисовый дуб.Формат: EXE, LBW
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86420AEEAAA0F9D70753DD2125E854955AEE4B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113913   (834636) от 13.03.2017
+
+Отступление / Backtrack (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь психолога Питера Бауэрса меняется не в лучшую сторону, когда он понимает, что его пациенты — призраки людей, умерших в результате несчастного случая 20 лет назад. Боясь сойти с ума, Питер возвращается в свой родной город, где раскрывает ужасающую правду, которую может исправить только он.Производство: Австралия, Великобритания, ОАЭ / Head Gear Films, Metrol Technology, Screen Australia, See PicturesЖанр: Ужасы, Триллер, Драма, ДетективРежиссер: Майкл ПетрониАктеры: Сэм Нил, Эдриан Броуди, Брюс Спенс, Робин МакЛиви, Хлоя Бэйлисс, Дженни Бейрд, Анна Лизе Филлипс, Сьюзи Стин, Малкольм Кеннард, Ольга Миллер, Джордж Шевцов, Милан Пулвермахер, Мэтью Сандерлэнд, Майкл УоллиПеревод: Любительский (двухголосый закадровый) - Parovoz ProductionСубтитры: Английские (full, SDH),Продолжительность: 01:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8633D0B3B93A3429C30867CD522873819BB509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380198   (834635) от 02.05.2020
+
+Девчонка не промах / Nobody's Fool (1986) HDTVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнав о том, что его подружка ждет ребенка, будущий отец резко уходит в сторону, и бедной официантке (Аркетт), ставшей отверженной в этом провинциальном городке, пришлось бы не сладко, не повстречай она настоящего мужчину (Робертс), работающего осветителем странствующей театральной труппы.Производство: США / Island Pictures, Katz/Denny ProductionsЖанр: Драма, Мелодрама, КомедияРежиссер: Эвелин ПурселлАктеры: Розанна Аркетт, Эрик Робертс, Мэр Уиннингхэм, Джим Янгс, Луиза Флетчер, Гвен Уэллс, Стивен Тоболовски, Чарли Барнетт, Дж.Дж. Харди, Уильям СтайсПеревод: Двуголосый профессиональный, НТВ+Субтитры: ОтсутствуютПродолжительность: 01:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208C33254376EDCB3C58F586DDA2468D073A0902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113762   (834634) от 13.03.2017
+
+Проекты - VideoHive - Website Promo Presentation - 17253410 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Website Promo Presentation - это шаблон, который можно использовать для рекламы и продвижения вашего сайта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5765E50F03BA586A9E9BA4FC828C12D3293E97FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113903   (834633) от 13.03.2017
+
+Флоренс Фостер Дженкинс / Florence Foster Jenkins (2016) BDRip [H.264/1080p] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834633.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Флоренс Фостер Дженкинс, девушки из богатой нью-йоркской семьи, которая мечтала стать оперной певицей, несмотря на то, что имела ужасный голос.Производство: ВеликобританияЖанр: драма, комедия, биографияРежиссер: Стивен ФрирзАктеры: Мэрил Стрип, Хью Грант, Саймон Хелберг, Ребекка Фергюсон, Нина Арианда, Стэнли Таунсенд, Аллан Кордунер, Кристиан МакКэй, Дэвид Хэйг, Джон СешнсПеревод: Профессиональный (многоголосый закадровый) Синема УССубтитры: ОтсутствуютПродолжительность: 01:50:23Реклама: Присутствуют аудио и видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58AFCA79401D008EA9CD461D55D01575DE0DBE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114036   (834632) от 13.03.2017
+
+Голос монстра / A Monster Calls (2016) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поражающая воображение история о мальчике Конноре и монстре из его снов. Когда Коннору особенно тяжело, происходит нечто невероятное — старое тисовое дерево за окном оживает и превращается в громадное чудовище. По ночам монстр рассказывает Коннору истории, которые помогут ему понять, что даже когда весь мир рушится, можно найти в себе силы и не отчаиваться.Производство: США, Испания, Великобритания / Apaches Entertainment, La Trini, Monster Calls, AЖанр: фэнтези, драмаРежиссер: Хуан Антонио БайонаАктеры: Льюис МакДугалл, Сигурни Уивер, Фелисити Джонс, Тоби Кеббелл, Бен Моор, Джеймс Мелвилл, Оливер Стир, Доминик Бойл, Дженнифер Лим, Макс Габбей, Морган СимесПеревод: Дублированный (iTunes)Субтитры: Русские (полные), английские (полные)Продолжительность: 01:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00AD0FBA10CFD2960B302BF4A7B1C7DDC096BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113820   (834631) от 13.03.2017
+
+Идеальные незнакомцы / Perfetti sconosciuti (2016) Blu-ray [H.264/1080p] [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семеро закадычных друзей, собравшись за ужином, в шутку начинают игру — читать все смс вслух, а на звонки отвечать по громкой связи. Они и представить себе не могут, какие скелеты вылезут из их шкафов и какие удивительные открытия им предстоит сделать.Производство: Италия / Leone Film Group, Lotus Productions, MediasetЖанр: драма, комедияРежиссер: Паоло ДженовезеАктеры: Джузеппе Баттистон, Анна Фольетта, Марко Джаллини, Эдоардо Лео, Валерио Мастандреа, Альба Рорвахер, Касия Смутняк, Бенедетта Поркароли, Элизабетта Де Пало, Томмазо ТатафьореПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Субтитры: Итальянские, Английские, ФранцузскиеПродолжительность: 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AA3C5E595A0A456B1145E02AE94A802CDCD148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380271   (834630) от 02.05.2020
+
+Эротическая история призраков 4: Идеальная пара / Liu jai yim tam ji yau kau / Erotic Ghost Story: Perfect Match (1997) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обитатели Небес не имеют права спускаться на Землю надолго, но одна из Фей-Кроликов Небесной Властительницы, устав от постоянного нахождения в четырех стенах ее сада, решается на побег. На земле она успевает даже выйти замуж, а когда ее настигает небесный посланник Йе, не сдается на милость своей владычицы, а опять убегает. Императрица, не желая терпеть такого поведения (   Читать дальше...   )Производство: Гонконг / State Billion, World Perfect Production Co., Ltd.Жанр: ДрамаРежиссер: Йи-хунг ЛинАктеры: Тереза Мак, Кэм Фанг Миу, Элвис Цуй, Йут Феи Вон, Вонг Лэй, Цуй Кам-Конг, Хо Пак-Квонг, Чуй Бо-Лунь, Чун Бин-ЧанПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2052C0FF415AA826B9AA74297D5707004EA1EA4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114070   (834629) от 13.03.2017
+
+Космические Пираты: Приключения Сайбер Рэйна / Star Raiders: The Adventures of Saber Raine (2016) WEB-DLRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космические корабли, бластеры и роботы в захватывающем приключении авантюриста Сайбера Рэйна. Его нанимают, чтобы сопроводить трех элитных бойцов в спасательной операции по опасной планете на другом конце Галактики.Производство: СШАЖанр: Фантастика, ПриключенияРежиссер: Марк Стивен ГроувАктеры: Каспер Ван Дин, Синтия Ротрок, Джеймс Лью, Брит Лари, Марк Стивен Гроув, Сара Салазар, Энди Хэнкинс, Тайлер Уивер мл., Адам ЛипсиусПеревод: Многоголосый закадровый (СПД)Субтитры: Отсутствуют.Продолжительность: 01:23:43Реклама: присутствуют аудио и видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FDC419E7FC9CED31CB16F03790CE4D71F2438E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380218   (834628) от 02.05.2020
+
+Хищные птицы: Потрясающая история Харли Квинн / Birds of Prey: And the Fantabulous Emancipation of One Harley Quinn (2020) BDRip [H.264/720p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харли Квинн рассталась с Джокером и через некоторое время сообщила об этом всему Готэму, взорвав тот самый химзавод. Девушка больше не тоскует по несостоявшимся отношениям — ей некогда, так как она также потеряла неприкосновенность, и теперь за ней охотятся разной степени криминализованности граждане, которым она когда-либо наносила вред. А в это время ставший крёстным (   Читать дальше...   )Производство: США / Clubhouse Pictures (II), DC Entertainment, Kroll & Co. EntertainmeЖанр: Боевик, Криминал, КомедияРежиссер: Кэти ЯньАктеры: Марго Робби, Джерни Смоллетт, Мэри Элизабет Уинстэд, Рози Перес, Элла Джей Баско, Юэн Макгрегор, Крис Мессина, Бояна Новакович, Али Вонг, Дэвид УриПеревод: дублированный (iTunes )Субтитры: Русские (Forced, full), украинские (Forced), английские (Full, SDH)Продолжительность: 01:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9199C6E7284A31334181A4599D6AE364B1B5EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113898   (834627) от 13.03.2017
+
+S.T.A.L.K.E.R.: Clear Sky (License GOG) (2008) [Multi/Ru] [macOS WineSkin]
+
+>>Игры для macOS
+>>Action, FPS для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834627.jpg" />
+</div>
+
+
+###  Подробнее
+
+S.T.A.L.K.E.R. — серия игр, в жанре шутера от первого лица с элементами ролевой игры и action-adventure.
+События игр разворачиваются в нынешнее время, в альтернативном мире в зоне отчуждения возле Чернобыльской АЭС.
+Согласно сюжету серии, в 2006 году зона отчуждения подверглась неожиданному аномальному воздействию - Второй катастрофе, затмившей события апреля 1986 (   Читать дальше...   )Тип издания: macOS WineSkinРазработчик: GSC Game WorldПоддерживаемая ОС: 10.11Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4250A70F536847DD5E68CFB42273A22E3FF065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380100   (834626) от 02.05.2020
+
+VA - Classic Pop & Rock Songs Hits Of The 80's (2020) [MP3|320 Kbps] <Rock, Pop>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834626.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Martin Garrix And Tiesto - The Only Way Is Up (Original Mix) 04:52
-02. John Dahlback - Atlantis (Original Mix) 04:59
-03. Camelphat Feat. A.M.E. - Paradigm (The Cube Guys Remix) 06:14
-04. Jus Jack - Stargazing (Original Mix) 04:38(   Читать дальше...   )Жанр: Club, Euro, Disco, Electronic, House, Progressive, Pop, Dancehall, Synthpop, New Wave, Tropical, Electro-R&B, UK GarageПродолжительность: 12:01:12
+001. Queen - Bohemian Rhapsody (2011 Mix) 5:54
+002. Europe - The Final Countdown 5:10
+003. Michael Jackson - Billie Jean 4:54
+004. a-ha - Take On Me 3:48(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 20:45:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D8426B10B215AFBD17A72D69EA16D3B2689DEA1
+magnet:?xt=urn:btih:4C2DDFC0584E076A9ECB76FCFAEFB7C407E3AF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380233   (834625) от 02.05.2020
+
+Чудеса / Крестный отец из Гонконга / Kei zik / Miracles: The Canton Godfather (1989) BDRip [H.264/1080p] [Remastered] [PR]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_834625.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках лучшей жизни и без гроша в кармане Чарли приезжает в Гонконг. Свои последние центы он отдает бедной торговке за цветок розы, который должен принести ему удачу. И «счастливый» случай не заставил себя ждать. Чарли становится невольным участником перестрелки двух мафиозных кланов и выносит из-под огня главного босса одной из гангстерских группировок.
+Умирая, (   Читать дальше...   )Производство: Гонконг, Golden Harvest Company Ltd., Golden Way Films Ltd.Жанр: Боевик, драма, мелодрама, комедия, криминалРежиссер: Джеки ЧанАктеры: Джеки Чан, Анита Муи, Ах Леи Гуа, Чун Хсианг Ко, Ву Ма, Билл Тун, Кенни Би, Энтони Карпио, Энтони Чан, Чинг-Ван Чан, Джоанна Чан, Квок Куэнь Чан, Чан Сай Тенг, Вай-ю Чан, Пол Че, Хелена ЛоПеревод: Профессиональный многоголосый, AвторскийСубтитры: АнглийскиеПродолжительность: 02:07:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380392   (834624) от 02.05.2020
+
+Фрида: возвращение домой / Frieda - Coming Home (2020) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая пара из США, Оливия и Марк ожидают своего первенца и решают провести отпуск на родине прабабушки Оливии, в небольшом городке в Германии. Забронировав тихий домик на берегу озера, они готовятся насладиться отдыхом, но в первую же ночь начинают происходить необъяснимые события.Производство: Германия / Xamaram EntertainmentЖанр: Триллер, мелодрама, детективРежиссер: Michael W. DrieschАктеры: Эррол Тротман-Хэйрвуд, Майке Юттендонк, Timo Willman, Роберт Лайонс, Райнер Лаупихлер, Штеффен Гребнер, Elisabeth Kanettis, Madeleine Niesche, Ida Wieland, Max DrieschПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:29:09Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD40CA84FB31B6CFF1F2B32EBD80D060635B640F
 ```
 
 https://mybot314.ru/tekegram_catalog/

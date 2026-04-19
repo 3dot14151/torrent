@@ -1,3 +1,59 @@
+###  Публикация: 1103423   (885474) от 12.02.2017
+
+Макс Эллар Фартушный - Мост череz Vечность (2017) Single, Авторская раздача [MP3|320 Kbps] <Plugged Metal, Country Blues>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885474.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мы вышли из тьмы - 05:43
+2. Пирожок Blues - 04:07Жанр: Plugged Metal, Country BluesПродолжительность: 00:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6BEFFC5B733CCC5746424488F713C9AF9726AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103358   (885453) от 12.02.2017
+
+Tony Carreira - Le coeur des femmes (2017) [FLAC|Lossless|tracks] <French Chanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Carreira & Lara Fabian - Um Amor Assim (je t'aime)
+02. Tony Carreira & Chico & The Gypsies - Quero Viver (comme d'habitude)
+03. Tony Carreira & Daniel Guichard - A Ternura (la tendresse)
+04. Tony Carreira & Mickael Dos Santos - Pobre Diabo (pauvres diables-vous les femmes)(   Читать дальше...   )Жанр: French Chanson, PopПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D65D7A7070636641BDD4F7E919807E76C14B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495261   (882396) от 11.09.2021
 
 Влад Забелин - Новое и лучшее (2000) [FLAC|Lossless|tracks + .cue]<Шансон>
@@ -693,64 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00BE733563CF2B99C6DB32209327693B4A38886F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111225   (848354) от 05.03.2017
-
-Алексей Брянцев - От тебя и до тебя (2017) [FLAC|Lossless|image + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я всё ещё тебя люблю (feat. Елена Касьянова)
-02. Счастье безлимит
-03. От тебя и до тебя
-04. Не долюбили (feat. Елена Касьянова)(   Читать дальше...   )Жанр: ШансонПродолжительность: 43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B61AD8C32427E89D50570CD37535A3CE121A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499651   (847967) от 02.10.2021
-
-Андрей Большеохтинский - Новое и лучшее (2000) [FLAC|Lossless|tracks + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Террорист 3:37
-02. Мне надоело бедным быть 2:37
-03. Я на нары не хочу 3:39
-04. Ах ты жизнь моя 4:48(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8D134AAFB242F67A82E7CE763734837E0D3FE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,5 +1,31 @@
 https://t.me/izofen
-###  Публикация: 1862846   (1063541) от 
+###  Публикация: 1864298   (1064606) от 
+
+Minimal Firewall 2.7.2 Portable [En]
+
+>>Безопасность
+>>Firewalls
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minimal Firewall — это портативный интерфейс брандмауэра Windows, который оповещает пользователей о подключениях к Интернету без необходимости внесения специальных изменений в ядро ​​или отключения изоляции ядра, обеспечивая баланс между безопасностью Window Defender и функциональностью Simplewall.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5AFEFF4783827D13F321641F88E30606B392AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862846   (1063888) от 01.04.2026
 
 simplewall 3.8.7 + Portable [Multi/Ru]
 
@@ -7,7 +33,7 @@ simplewall 3.8.7 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063888.jpg" />
 </div>
 
 
@@ -27,7 +53,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860774   (1062134) от 
+###  Публикация: 1860774   (1062134) от 22.03.2026
 
 Windows Firewall Control 6.30.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 
@@ -53,7 +79,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860398   (1061842) от 
+###  Публикация: 1860398   (1061842) от 20.03.2026
 
 Malwarebytes Windows Firewall Control 6.30.0.0 [Multi/Ru]
 
@@ -79,7 +105,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859593   (1061326) от 
+###  Публикация: 1859593   (1061326) от 17.03.2026
 
 Minimal Firewall 2.7.0 Portable [En]
 
@@ -646,32 +672,6 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:914E44F63D5E53C0DC58DF3FD1F7B9FB6F5C6AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821450   (52056) от 02.10.2025
-
-Malwarebytes Windows Firewall Control 6.19.0.0 [Multi/Ru]
-
->>Безопасность
->>Firewalls
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malwarebytes Windows Firewall Control - утилита, с помощью которой, вы получите доступ к наиболее часто используемым опциям встроенного брандмауэра операционных систем Windows. После инсталляции программа располагается в системном трее и дает возможность эффективно управлять различными параметрами при помощи контекстного меню, например можно быстро разрешить/запретить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2871BE89024F4E14A931011BF0809419CDCD282A
 ```
 
 https://mybot314.ru/tekegram_catalog/

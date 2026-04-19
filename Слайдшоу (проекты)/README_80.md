@@ -1,3 +1,55 @@
+###  Публикация: 950418   (369721) от 26.10.2015
+
+Проекты - Love's in autumn [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект After Effects на осеннюю тематикуФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F148F32CA7F6A0F2B73C606901DB5F0EECA1DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327770   (369599) от 27.09.2019
+
+VideoHive - Slideshow Opener Transitions - 17691153 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон "Slideshow Opener Transitions" наполнен динамикой и интересными эффектными переходами. Даст вам возможность создать гламурное слайд-шоу, презентацию или вступление для различных мероприятий.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6E77641CD7328CF033C072AFA5C8BED5D2C2FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176552   (369208) от 22.10.2017
 
 Проекты - Проект ProShow Producer - Colorful Hearts [PSH]
@@ -633,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:070A3869CE1288C17B82BDCDFC68DA792AD8A170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952119   (357565) от 31.10.2015
-
-Проекты - VideoHive - Autumn Photo Frames [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для Вашего осеннего видео.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9604A3948EBB98D797916BD7A56FEE19841DC7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952019   (357562) от 31.10.2015
-
-Проекты - Block SlideShow [AEP]
-
->>След.
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Предназначен для редактирования в After Effects. Легко настраивается под себя.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D44012CED7051252D20D77EEA96CF3E95CDD19
 ```
 
 https://mybot314.ru/tekegram_catalog/

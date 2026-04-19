@@ -1,3 +1,32 @@
+###  Публикация: 1255622   (363967) от 18.10.2018
+
+VA - Markus Schulz - We Are the Light (2018)(2CD) [FLAC|Lossless|WEB-DL|tracks] <Trance,Downtempo>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz – The Awakening (Original Mix)
+02. Markus Schulz & Omnia & Seri – Road of No Return (Original Mix)
+03. Markus Schulz & Alina Eremia – You Light up the Night (Original Mix)
+04. Markus Schulz – We Are the Light (feat. Nikki Flores) (Original Mix)(   Читать дальше...   )Тип издания: WEBЖанр: Trance,DowntempoПродолжительность: 02:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E445A3396293EB411FAF98A68B97AAFA3DECCBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328239   (363601) от 30.09.2019
 
 VA - Discover Dark 200 (Compiled & Mixed By Zach Zlov) (2019) [FLAC|Lossless|WEB|tracks|image] <Trance, Tech Trance>
@@ -707,35 +736,6 @@ VA - Recoverworld Radio 003 (Mixed by Rich Smith) (2015) [FLAC|Lossless|WEB-DL]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D09075F641A842860DF850E5F7654E2870E344A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184260   (301297) от 17.11.2017
-
-VA - Noomwalk The 5th Noom Compilation (1999) [FLAC|Lossless|tracks] <Hard House, Techno, Hard Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuclear Hyde - X-Tension (6:16)
-02. Commander Tom - Are Am Eye? (Silent Breed Remix) (6:40)
-03. Tom De Luxe Pres. Waterhouse - Burning (6:15)
-04. McKay - Phantoms (6:09)(   Читать дальше...   )Жанр: Hard House, Techno, Hard TranceПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3415C6662EEE6FE13FF09ACBE85C00C0939FC6A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

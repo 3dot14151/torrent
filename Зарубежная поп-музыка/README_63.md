@@ -1,3 +1,61 @@
+###  Публикация: 962953   (290979) от 06.12.2015
+
+VA - I Love ZYX Italo Disco Collection Vol.18 (2014) 3CD [MP3|320 кб/с]<Italo-Disco, Dance, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290979.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 Radiorama - Bad Girls (12'' Version)
+02 Boo Who - Angie Cries (Maxi Version)
+03 Kehn Lesslon - Hey Hey Guy (12'' Version)(   Читать дальше...   )Жанр: Italo-Disco, Dance, EurodanceПродолжительность: 03:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DF14A859F2FE5A2747EEFD78DA00DA7D3D767D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963135   (290736) от 06.12.2015
+
+Eurielle - Arcadia (2015) [OGG|482-537 кб/с]<Alternative Pop, Contemporary Classical, Relax>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City of the Dead
+02. Raindrops
+03. Rescue Me
+04. Whispers(   Читать дальше...   )Жанр: Alternative Pop, Contemporary Classical, RelaxПродолжительность: 01:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08FF2245C8939F2199807C59FC17EBF285B8196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 732806   (290674) от 10.12.2013
 
 VA - NOW That’s What I Call Club Hits (2013) [MP3|320 кб/с]<Pop, Dance, Club>
@@ -684,64 +742,6 @@ Yello - Live In Berlin (2017) [MP3|320 Kbps] <Pop, Synth-pop, Future Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:810D2A0C3D7CE326AF2ECAC12791C3F913B09565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964265   (283653) от 10.12.2015
-
-Bebe Rexha - I Don't Wanna Grow Up (2015) EP [OGG|489-533 кб/с]<Power Pop, Electropop, EDM>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Wanna Grow Up
-02. Sweet Beginnings
-03. I'm Gonna Show You Crazy
-04. Pray(   Читать дальше...   )Жанр: Power Pop, Electropop, EDMПродолжительность: 00:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D234CB842383F9A68FEC0F72E6A4D3099125B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187248   (282539) от 27.11.2017
-
-Miss Li - A Woman's Guide to Survival (2017) [MP3|320 Kbps] <Indie Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awgts (01:16)
-02. Pressure (02:58)
-03. Aqualung (03:35)
-04. You Only (03:00)(   Читать дальше...   )Жанр: Indie Rock, PopПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4A2D625B3F12271ECE9B50FD4B6EA102DEAB33
 ```
 
 https://mybot314.ru/tekegram_catalog/

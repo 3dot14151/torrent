@@ -1,3 +1,38 @@
+###  Публикация: 397652   (404404) от 08.10.2011
+
+Fourplay - Energy (2008) [DSD 2.0/5.1 1bit/2822,4kHz |SACD-R]<Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fortune Teller
+02 - The Whistler
+03 - Ultralight
+04 - Cape Town
+05 - The Yes Club
+06 - Prelude For Lovers
+07 - Look Both Ways
+08 - Argentina
+09 - Comfort Zone
+10 - Sebastian(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DD7A7523C12D3DD88EEAD2D70549F0143649AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569449   (388996) от 06.11.2012
 
 Oasis - (What’s the Story) Morning Glory? (1995) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Alternative Rock, Brit Pop>
@@ -771,35 +806,6 @@ XueFei Yang - Romance de Amor (2006) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C11842A5756FACC1512995D18DEEFFF86515FA3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831027   (212559) от 28.10.2025
-
-Brahms - Piano Quartet No. 1 Op. 25 · Schumann - Fantasiestücke Op. 88 (Martha Argerich, Gidon Kremer, Юрий Башмет / Yuri Bashmet, Миша Майский / Mischa Maisky) (2002) 2025 [DSD64 2.0|1bit/282 ...
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brahms - Piano Quartet No. 1, Op. 25
-01. 1. Allegro (13:18)
-02. 2. Intermezzo (Allegro ma non troppo) (7:35)
-03. 3. Andante con moto (10:50)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C660166311E5563D4DABB66BFA0E8F67AA48B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

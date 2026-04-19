@@ -194,6 +194,38 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495107   (251123) от 11.05.2012
+
+Nebelkorona - 3 albums (2006-2010) [FLAC|Lossless] <Neoclassical, Ambient, Neofolk>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morgenstunden (05:58)
+02. Windstille (06:06)
+03. Sonnenhall (03:35)
+04. Dezemberabend (06:05)
+05. Baumgespenster (06:02)
+06. Waldzauber (06:55)
+07. Abschiedsfeuer (05:57)2006-2010Жанр: Neoclassical, Ambient, NeofolkПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 494957   (251122) от 11.05.2012
 
 Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [FLAC|Lossless] <Dark Ambient, Neoclassical, Neofolk>
@@ -744,35 +776,6 @@ Mehmet Sanlikol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:030B52488F8AAFE973C7B4724F73681CD7E9C435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635140   (232842) от 24.05.2023
-
-BBC Scottish Symphony Orchestra, Alpesh Chauhan - Tchaikovsky: The Tempest, Francesca da Rimini, The Voyevoda (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical, Symphonies>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voyevoda, Op. 78 (12:38)
-02. I. Andante con moto (3:44)
-03. II. Allegro moderato (1:48)
-04. III. Allegro vivace (3:05)(   Читать дальше...   )Жанр: Classical, SymphoniesПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8462BF6928EE371CEC2AC1736E88866ED7D5ADDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

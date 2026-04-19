@@ -1,25 +1,22 @@
-###  Публикация: 1286782   (705374) от 06.03.2019
+###  Публикация: 1398097   (708929) от 10.08.2020
 
-Чемпионат мира по лыжным видам спорта 2019. Зеефельд (Австрия). Лыжные гонки. Командный спринт. Классический стиль. 1/2 Финала (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Сокровище нации / National Treasure (2004) BDRip [H.265/1080p] [10-bit]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_708929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 февраля 2019 года, воскресенье. 11:15 МСК
-Чемпионат мира по лыжным видам спорта 2019. Зеефельд (Австрия)
-Лыжные гонки. Командный спринт.
-Женщины, Мужчины. Классический стиль. 1/2 Финала(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:37
+Современные охотники за сокровищами во главе с Беном Франклином Гейтсом узнают старинную легенду о сокровище, спрятанном еще отцами-основателями американского государства Джорджем Вашингтоном, Бенджамином Франклином и Томасом Джефферсоном.Производство: США / Walt Disney Pictures, Jerry Bruckheimer Films, Junction EntertainmentЖанр: боевик, триллер, детектив, приключенияРежиссер: Джон ТёртлтаубАктеры: Николас Кейдж, Дайан Крюгер, Джастин Барта, Шон Бин, Джон Войт, Харви Кейтель, Кристофер Пламмер, Дэвид Дайан Фишер, Стюарт Финлэй-Макленнан, Олег ТактаровПеревод: Дублированный, двухголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 02:11:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A81B74DA2A67C5120881232792A0D3298B5ABDD0
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286784   (705373) от 06.03.2019
+###  Публикация: 1401489   (708928) от 10.08.2020
 
-Чемпионат мира по лыжным видам спорта 2019. Зеефельд (Австрия). Лыжные гонки. Командный спринт. Классический стиль. Финалы (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Последняя женщина на Земле / Only (2019) WEB-DL [1080p] ATV
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 февраля 2019 года, воскресенье. 13:30 МСК
-Чемпионат мира по лыжным видам спорта 2019. Зеефельд (Австрия)
-Лыжные гонки. Командный спринт.
-Женщины, Мужчины. Классический стиль. Финалы(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:09:45
+По Земле распространился таинственный вирус, который убивает женщин. И, чтобы уберечь свою девушку, Уилл запирает её в специально обустроенной квартире. С тех пор их жизнь превращается в борьбу за выживание.Производство: США / TadmorЖанр: Фантастика, драма, мелодрамаРежиссер: Такаши ДошерАктеры: Фрида Пинто, Лесли Одом мл., Чендлер Риггз, Джэйсон Уорнер Смит, Джошуа Микель, Марк Эшворт, Тиа Хендрикс, Нур Нахми, Мэгги ПартоПеревод: Дублированный (iTunes)Субтитры: Английские (SDH)Продолжительность: 01:37:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F081FC428FA78DAF01E7357B59D021444467404
+magnet:?xt=urn:btih:D48FB9675F8885DC7D15039D33DBEE0F8E07E3F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286597   (705372) от 06.03.2019
+###  Публикация: 1401487   (708927) от 10.08.2020
 
-Игорь Горячев - Отшельник (2005) [FLAC|Lossless|image + .cue]<Шансон>
+Лего Шазам: Магия и монстры / LEGO DC: Shazam - Magic & Monsters (2020) BDRip [H.264/720p] [MVO]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Напёрсток
-02. Фаечка Смирнова
-03. Три пути
-04. Воробей(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:57:01
+Мальчику супергерою Шазаму предлагают присоединиться к Лиге Справедливости, и поначалу он сомневается. Но когда враждебное Лиге Общество Монстров наносит удар, лишь Шазам может спасти своих новых друзей.Производство: США / DC Entertainment, The LEGO Group, Warner Bros. AnimationЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Мэтт ПитерсПеревод: Многоголосый профессиональный (Flarrow Films)Субтитры: английскиеПродолжительность: 01:21:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:545A68EA1A8B6F938880E50CAD6A261F5237CE5D
+magnet:?xt=urn:btih:97C22B09B45F6742F2D6CFBFB96277F7EEDE9501
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287226   (705371) от 06.03.2019
+###  Публикация: 1401459   (708926) от 10.08.2020
 
-MaxSnap 1.5 [En]
+Фоны - Creative Market - 50 ios Backgrounds 3 Resolutions - 4781048 [PNG]
 
->>Архив торрентов
->>Архив 4Apple
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_708926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MaxSnap - мощный менеджер окон, который позволяет:
-
-• Перемещать, упорядочивать и изменять размеры окон с помощью значка на панели меню или сочетаний клавиш
-• Option / Alt-Drag - перемещение и изменение размеров окон без использования окна заголовка окна(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2019Разработчик: MacPlus SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Это удивительный пакет из 50 различных фонов для iOS.Формат: PNGРазрешение файлов: 828x1792-3200x2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:396DF0948405D1806CD438CF2A3CB1740E31FCC0
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,27 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287137   (705370) от 06.03.2019
+###  Публикация: 1401614   (708925) от 10.08.2020
 
-Duplicate Photos Fixer Pro 2.10 [Multi]
+История научной фантастики с Джеймсом Кэмероном / James Cameron's Story of Science Fiction (2018) BDRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
 
->>Архив торрентов
->>Архив 4Apple
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_708925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
-
-Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2019Разработчик: Systweak Software Private LimitedПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+Документальный сериал рассказывает о культовых научно-фантастических книгах, фильмах и сериалах разных поколений. Речь пойдет как о пионерах жанра, таких как «Франкенштейн» или «Чужой», так и о самых последних фильмах и сериалах на эту тему. Джеймс Кэмерон выступает как ведущий и проводник в мир научной фантастики. Он беседует со знаменитыми режиссерами этого жанра: (   Читать дальше...   )Производство: США, American Movie Classics (AMC), Earthship Productions, Left/Right, AMC StudiosЖанр: Документальный, искусствоРежиссер: Джеймс КэмеронПеревод: Многоголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 6 x ~00:42:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06BF6C99277996F5B97293F6C209B6E75E8F8DFB
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,28 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287147   (705369) от 06.03.2019
+###  Публикация: 1401227   (708924) от 10.08.2020
 
-Ignis - Sic Transit Gloria Mundi (2018) Remastered [FLAC|Lossless|tracks + .cue] <Black Metal, Post-Metal, Crust>
+Аквамен / Aquaman (2018) BDRip [H.264] [IMAX]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Primus Inter Pares (06:21)
-02. Sic Transit Gloria Mundi (12:35)
-03. Wild Hunt (05:08)
-04. To the Shining of Black Spheres (07:14)(   Читать дальше...   )Жанр: Black Metal, Post-Metal, CrustПродолжительность: 00:49:17
+Действие фильма разворачивается в необъятном и захватывающем подводном мире семи морей, а сюжет знакомит зрителей с историей происхождения получеловека-полуатланта Артура Карри и ключевыми событиями его жизни — теми, что заставят его не только столкнуться с самим собой, но и выяснить, достоин ли он быть тем, кем ему суждено… царем!Производство: США, Австралия / DC Comics, DC Entertainment, Panoramic PicturesЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс ВанАктеры: Джейсон Момоа, Эмбер Хёрд, Дольф Лундгрен, Николь Кидман, Джули Эндрюс, Патрик Уилсон, Уиллем Дефо, Грэм МакТавиш, Талия Джейд, Джимон Хонсу, Темуэра Моррисон, Майкл БичПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:23:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F87E6C1D59667E30FE1AA5B4424949F9B22BEBE0
+magnet:?xt=urn:btih:DF4883F5762768BFB7A9A28F5D9F4D01435FE93C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,25 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287038   (705368) от 06.03.2019
+###  Публикация: 1401481   (708923) от 10.08.2020
 
-Wondershare AllMyTube 7.3.1.2 [En]
+ЛЕГО Ниндзяго Фильм / The LEGO Ninjago Movie (2017) BDRip [H.264/720p]
 
->>Архив торрентов
->>Архив 4Apple
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wondershare AllMyTube -  полнофункциональное приложение, являющееся профессиональным загрузчиком онлайн-видео и мощным видеоконвертером, которое позволяет скачивать видео с видеосервисов, таких как YouTube, Facebook, Metacafe, Vimeo и т.п., и конвертировать скачанные видео почти во все популярные видеоформаты. Кроме того, AllMyTube для Mac является видеоплееером и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.01.2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.6 или вышеЯзык интерфейса: Английский
+Ниндзяго-сити призывает на свою защиту юного Ллойда, он же Зеленый ниндзя, и его друзей, тайных воинов и Великих мастеров ЛЕГО. Под предводительством кунг-фу мастера Ву, столь же умного, сколь и остроумного, они должны одолеть злобного диктатора Гармадона, Самого Злодейского Злодея, который оказывается отцом Ллойда. Роботы против роботов, сын против отца; эпическое (   Читать дальше...   )Производство: США, Дания, Австралия / LEGO System A/S, Lin Pictures, Lord MillerЖанр: мультфильм, боевик, комедия, приключения, семейныйРежиссер: Чарли Бин, Пол Фишер, Боб ЛоганВ ролях: Джеки Чан, Дэйв Франко, Фред Армисен, Кумэйл Нанджиани, Майкл Пенья, Эбби Джейкобсон, Зак Вудс, Дэвид Берроуз, Алекс Кауффман, Джастин ТеруПеревод: Дублированный (Лицензия)Субтитры: русские, английскиеПродолжительность: 01:41:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7229848BCF7FE35B0084E600EDF290A5710E5BC6
+magnet:?xt=urn:btih:DBAE93C164BB2A7BB2CE175A9A4FD85F5C9A6551
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,25 +180,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287227   (705367) от 06.03.2019
+###  Публикация: 1401468   (708922) от 10.08.2020
 
-Internet Status 4.8 [En]
+NizamovStudio | Разработка мобильного приложения B2B в 1С (2020) PCRec
 
->>Архив торрентов
->>Архив 4Apple
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Получите статус подключения вашего интернет-соединения прямо из строки меню. Эта утилита добавляет аккуратный цвет (зеленый/красный) значок в строке меню, который позволяет узнать статус соединения - (внешний/внутренний IP, скорость загрузки и т.д.).Тип издания: macOS SoftwareРелиз состоялся: 04.03.2019Разработчик: AppYogi SoftwareПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+Создание мобильного приложения 1С для B2B с нуля до 100%.
+В итоге вы научитесь создавать:
+- Кроссплатформенные мобильные приложение на базе платформы 1С
+- HTTP сервисы для обмена с центральной базой(   Читать дальше...   )Жанр: Программирование 1СПродолжительность: 05:14:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDF148B195F7AE33B90816BAB1E278E84AF24E18
+magnet:?xt=urn:btih:9470C7DDFC1E80C5D92C1B1F5F3B50C4F5FFF6DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -223,27 +209,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287046   (705366) от 06.03.2019
+###  Публикация: 1401529   (708921) от 10.08.2020
 
-URL Extractor 4 v 4.6.1 [En]
+Roads of Time 2: Odyssey / Дороги времени 2: Одиссея (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
 
->>Архив торрентов
->>Архив 4Apple
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Url Extractor - очень полезное и легкое приложение, которое позволяет пользователям извлекать URL из файлов и может обрабатывать тысячи файлов одновременно.
-
-Url Extractor легко извлекает информацию, такую как FTP- адреса, веб-адрес или адрес электронной почты . Это многопоточность включена и обрабатывает файлы на высокой скорости. Кроме того, URL Extractor может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2019Разработчик: Tension SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Продолжение приключений профессора Брайана и его помощника. С изобретениями всегда нужно обращаться очень аккуратно, одно неловкое движение и ... По неосторожности предметы из лаборатории профессора Брайана оказались в далеком прошлом. Это катастрофа! Кто знает, как они изменят ход истории! Вместе с профессором и его помощником-роботом отправляйтесь в прошлое и найдите (   Читать дальше...   )Тип издания: UnofficialРазработчик: 8Floor Games, WildTangent GamesЖанр: Симулятор, Стратегия, ПостройкаЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2120BFE16B3EA5A6D836693FC2B302B5B0DF146
+magnet:?xt=urn:btih:2CF6752604D59D09C7D461BA053D0ED577D98F2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,136 +235,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286711   (705365) от 06.03.2019
+###  Публикация: 1401399   (708920) от 10.08.2020
 
-Энн Стюарт | Надменный любовник (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всего искусства обедневшей аристократки Джессамин Мэйтланд предсказывать будущее при помощи карт не хватило на то, чтобы предугадать, с каким невероятным человеком свяжут ее магические узы судьбы. Напрасно клялась себе Джессамин, что никто и никогда не покорит ее сердце, - Алистэйр Маккалпин, таинственный вор - джентльмен, твердо намерен добиться своего. Но постепенно (   Читать дальше...   )Жанр: Исторический любовный романПродолжительность: 10:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D66BC1474BFD61D4643F2E8559F89D361660CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287176   (705364) от 06.03.2019
-
-VA - New Music Releases Week 9 (2019) [MP3|192-320 Kbps] <Pop, Hip Hop, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705364.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Chainz, Ariana Grande - Rule The World
-002. 2 Chainz, Travis Scott - Whip
-003. 3LAU, Justin Caruso, Iselin - Better With You
-004. 68 Beats, Robbie Rivera - Jack To The Bassline (Robbie Rivera Remix)(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 10:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6353C5EE407E9BE033E44959C27EDA68622182C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286844   (705363) от 06.03.2019
-
-Silvia - Silvia (1982) Reissue CD, Genetic Music, 2003 [MP3|320 Kbps] <Synth-pop, Minimal, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zuerst Ich (3:14)
-02. Ich Bin Nicht Die (3:52)
-03. Mata Hari (4:20)
-04. Morderinnen Kusst Man Nicht (3:38)(   Читать дальше...   )Жанр: Synth-pop, Minimal, New WaveПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECC1670216F65B23F7ABABF9D88A42FB7238BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287316   (705362) от 06.03.2019
-
-Battle Beast - Eden (2019) Single [MP3|320 Kbps] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Eden 4:00
-02 - No More Hollywood Endings 3:55Жанр: Melodic Power MetalПродолжительность: 00:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA0D8669B07026EF82386368E4F3E426D9C821E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287341   (705361) от 06.03.2019
-
-FileZilla 3.41.0 + Portable [Multi/Ru]
+StartIsBack++ 2.9.2 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra (05.08.20) [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FileZilla — это свободный многоязычный FTP-клиент с открытым исходным кодом для Microsoft Windows, Mac OS X и Linux. Он поддерживает FTP, SFTP, и FTPS (FTP через SSL/TLS) и имеет настраиваемый интерфейс с поддержкой смены тем оформления. Оснащен возможностью перетаскивания объектов, синхронизацией директории и поиском на удаленном сервере. Поддерживает многопоточную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+StartIsBack++ возвращает в Windows 10 полнофункциональную кнопку запуска меню Пуск, такую же как и в Windows 7. Восстанавливает оригинальное стартовое меню Windows 7 со всеми его возможностями: поиск, перетащить, вставить, недавно использованные приложения. Можно изменить внешний вид меню Пуск, в том числе выбрать другую иконку кнопки "Пуск", изменить цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5F875A683E04CBB9B1886266B20D51F3C1C1575
+magnet:?xt=urn:btih:7AE65265FA8258CBE1DD2497459331A83BFCF08B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,25 +261,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287259   (705360) от 06.03.2019
+###  Публикация: 1401521   (708919) от 10.08.2020
 
-CyberByte Antivirus and Internet Security Premium 3.0.5 [En]
+Хранитель дворца / Guardian of the Palace (2020) WEB-DL [H.265/1080p-LQ] [DVO]
 
->>Программы для macOS
->>Утилиты для macOS
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CyberByte Antivirus and Internet Security - комплексное решение безопасности от Румынских разработчиков, с эффективным и быстрым антивирусным движком. По утверждениям разработчиков - "...один из самых высоких процентов обнаружения заражений в системе на рынке антивирусов". Приложение просканирует вашу систему на предмет различных неприятностей, включая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2019Разработчик: SC CyberByte SRLПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+Тысячу лет назад страна Хэйшуй процветала и ее улицы были вымощены золотом. Но за одну ночь все изменилось. Многолетняя битва с пустыней была проиграна и страну Хэйшуй поглотил песок. Спустя тысячу лет в небольшом городке неподалеку началась эпидемия чумы. В книгах сказано, что только лунный камень из дворца древней страны Хэйшуй способен остановить болезнь. Отважные (   Читать дальше...   )Производство: Китай, Beijing CultureЖанр: Боевик, фэнтезиРежиссер: Юйхай ВэйАктеры: Юйсы Пэн, Ду И-Хэн, СэммиХун, Хэ Ижун, Лу Цивэй, Чень ИминПеревод: Двуголосый любительский (RealFake), одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские, испанские, тайские, вьетнамские, индонезийские, арабские, малайские, китайские, корейскиеПродолжительность: 01:30:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24E36A1BFB79D363081506BC5B405339F86D24D7
+magnet:?xt=urn:btih:CC31CB3E161679EB6BAF0AB0D5FAEECF748E49B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,28 +287,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287130   (705359) от 06.03.2019
+###  Публикация: 1131261   (708918) от 05.05.2017
 
-Czarface & Ghostface Killah - Czarface Meets Ghostface (2019) Deluxe Edition, Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] <Hip Hop>
+VA - Топовая сотня весенняя от Хит FM выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708918.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лолита - Ты Мое Море 3:09
+002. Султан (Sultan) - Моя Стихия 3:50
+003. Полиграф Шарикoff (Серега) - Наприседала 3:26
+004. Milen - Гори Огнем 4:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375D9033E0F2D84287F171F96DD040C364039F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131372   (708917) от 05.05.2017
+
+Jim Beckwith and Hans Christian - Be Love (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Open Me (feat. Hans Christian) 9:53
+02. Om Namah Shivaya (feat. Hans Christian) 6:14
+03. Jai Ma (feat. Hans Christian) 5:59
+04. Be Love (feat. Hans Christian) 6:56(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90824202E9EDD076ACCBA249B2464D5064726E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131322   (708916) от 05.05.2017
+
+Andrew Rayel - Moments (2017) [MP3|320 Kbps] <Trance, Progressive Trance,House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Back at Ringside (01:53)
-02. Face Off (02:56)
-03. Iron Claw (04:13)
-04. Czarrcade '87 (02:10)(   Читать дальше...   )Жанр: Hip HopПродолжительность: 00:39:34
+01. Moments
+02. I’ll Be There (feat. Eric Lumiere)
+03.All Systems Down (feat. KhoMha)
+04. Once In A Life Time Love (feat. Kristina Antuna)(   Читать дальше...   )Жанр: Trance, Progressive Trance,HouseПродолжительность: 01:05:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09DE117CE117A94D236CA7107083A2E70FA35DFB
+magnet:?xt=urn:btih:CB3EC7BCCDA6B36FEA4CD99806CD9823E4C9F95E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,57 +374,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287205   (705358) от 06.03.2019
+###  Публикация: 1131186   (708915) от 05.05.2017
 
-VA - Disco Feeling (2019) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kc & The Sunshine Band - Keep It Comin' Love (4:30)
-02. Montana - I Love Music (4:35)
-03. The Braxtons - The Boss (5:57)
-04. Randy Crawford - Wishing On A Star (4:52)(   Читать дальше...   )Жанр: DiscoПродолжительность: 2:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B10CA53D45AF9ADCEEA4DE6C59F2D139A296308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287241   (705357) от 06.03.2019
-
-Blues Company - Ain't Givin' Up (2019) [FLAC|Lossless|image + .cue] <Electric Blues>
+VA - Easy Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708915.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ain't Givin' Up
-02. Guns
-03. The News
-04. Waiting For Springtime(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:56:21
+01. Grover Washington, Jr. - More Than Meets the Eye (04:31)
+02. Rick Braun - Nightfall (04:21)
+03. Entrance - Cream (02:28)
+04. Larry Carlton - Closer to Home (03:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:07:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE3E1D1A3F796DEBA7B16DC7F4B5665A99E75C7B
+magnet:?xt=urn:btih:3C8C7A8F66623135DF628B2DFBC3804029313350
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,25 +403,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287195   (705356) от 06.03.2019
+###  Публикация: 1131044   (708914) от 05.05.2017
 
-Witches Legacy 11: Rise of the Ancient (2017) [En] (1.0) Unofficial [Collector's Edition]
+Создана "умная" однопиксельная камера, подражающая человеческому глазу
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_708914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тысячи лет назад древние воины одержали победу над демоном, пожелавшим власти над всем миром. Однако в живых остался только один из победителей. Долгие века длился его вечный сон - до тех пор, пока не появился демон Эзар. Теперь древнему воину вместе с Джеком и Анабель предстоит остановить Эзара и спасти мир будущего от темных существ.Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+Исследователи из университета Глазго (Шотландия, Великобритания) разработали конструкцию уникальной камеры, матрица которой содержит всего один светочувствительный элемент, пиксель. Но за счет использования принципов, реализованных природой в строении глаз человека, эта камера способна к производству достаточно высококачественных снимков. Вместо того, чтобы снимать (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BECD3C8037A1019B233EDA4ED727ECDDFAA05841
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -527,28 +429,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533290   (705355) от 24.02.2022
+###  Публикация: 1131216   (708913) от 05.05.2017
 
-Aquilla - Mankind's Odyssey (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Don Patrol - A Wire, a Deal & the Devil (1992) Japan [APE|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Echoes Of The Past (1:19)
-02. Arrival (5:37)
-03. Pathfinder (4:48)
-04. Scarlet Skies (5:12)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:51
+01. Do You Want Me
+02. Fire in the Night
+03. Call Me
+04. Waiting for You(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DC700EE55514E71687B3682CB547E984B5AEF9A
+magnet:?xt=urn:btih:3C39C4883E32CAED979A60867C76A2D72301D18F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,28 +458,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533324   (705354) от 24.02.2022
+###  Публикация: 1131253   (708912) от 05.05.2017
 
-Harold Mabern - Wailin' (1970) 2009, Prestige [FLAC|Lossless|image + .cue] <Hard Bop>
+VA - Зажигай вместе с Европа Плюс выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Strozier's Mode [7:58]
-02. Blues For Phineas [5:12]
-03. I Can't Understand What I See In You [8:33]
-04. Waltzing Westward [9:27](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:48
+001. Юля Шатунова - Я Приду 3:57
+002. Александр Иванов - Забытая 3:59
+003. Weel - Под Мой Пульс 3:03
+004. Тимси - Медленный Рассвет 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAFD398C9F882DD2BAD4E4276BCA098C56C0FB3C
+magnet:?xt=urn:btih:9C1756608DF3055364C1F863BCD39065F57EB93B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,28 +487,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533267   (705353) от 24.02.2022
+###  Публикация: 1131173   (708911) от 05.05.2017
 
-Post Mortal Possession - Valley Of The Starving (2021) [FLAC|Lossless|image + .cue] <Death Metal>
+Журнал | Моя любимая дача №6 (98) (май 2017) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mictlan
-02. Apparitions Of Black Elk
-03. Wolves Of The Dying Sun
-04. Burn The Bodies And Eat The Horses(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:08
+Популярный иллюстрированный журнал, содержащий практические советы по огородничеству, садоводству и ландшафтному дизайну, рекомендации экспертов и садоводов. В каждом номере - садоводческий лунный календарь. На вопросы читателей отвечают эксперты и редакция.Популярный иллюстрированный журнал, содержащий практические советы по огородничеству, садоводству и ландшафтному (   Читать дальше...   )Жанр: Дом, сад, огород, дачаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4A6BC479CE00F22FFF78E6C75F20758F951730B
+magnet:?xt=urn:btih:43A2DC51637B9E79EC8BB9A13BAB3A2B321FE83A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,28 +513,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533403   (705352) от 24.02.2022
+###  Публикация: 1131330   (708910) от 05.05.2017
 
-Крест - Дыхание (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Outline – note app with local storage & cloud sync 3.19 [En]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Единственный альбом питерской группы КРЕСТ1. Последний билет
-2. Для тебя
-3. Свобода
-4. Капля росы(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:46
+Outline – удобные заметки, оффлайн и в облаке
+Outline - это приложение для заметок с удобной организацией, всеми необходимыми инструментами для ведения записей и возможностями экспорта в PDF. Полностью совместимо с OneNote. Поддерживает хранилища Office 365, популярные облака, а также оффлайн режим локальных заметок.
+
+Outline для Маc идеален для студентов, преподавателей, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 апреля 2017Разработчик: Gorillized CorporationПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DA7A343BD9F700134A71E4153528B3A14EEB9C8
+magnet:?xt=urn:btih:50DBB3BD06B8B16DD950FF00312C1E5F1D6189F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,28 +542,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533524   (705351) от 24.02.2022
+###  Публикация: 1131283   (708909) от 05.05.2017
 
-Dave McKenna - An Intimate Evening With Dave McKenna (1999) 2002, Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+VA - Лучший русский шансон выпуск № 12 (2017) [MP3|256 Kbps] <Шансон>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Fidgety Feet [5:47]
-02.Thought Medley [11:13]
-03.Change Medley [11:59]
-04.Tea For Two [7:21](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:51
+001. Сергей Колмыков - Будь Всегда Моей 3:05
+002. Анатолий Корж - Родная Новороссия 4:16
+003. Олеся Атланова - Сердце 2:34
+004. Наиль Манасипов - Юбилейная 4:15(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37969194BEC2074E1CE0581B424DA7174EB77E27
+magnet:?xt=urn:btih:00DE6CBD19569F5EE8798201766C17CF331F9FEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,28 +571,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533263   (705350) от 24.02.2022
+###  Публикация: 1131300   (708908) от 05.05.2017
 
-Diabolic - Supreme Evil (1998) [FLAC|Lossless|image + .cue] <Death Metal>
+VA - 50 Vinyasa Chill Yoga: Healing & Relaxing Yoga Exercises (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Insacred (instrumental) 00:25
-02.Sacrament of Fiends 03:01
-03.Ancient Hatred 02:26
-04.Treacherous Scriptures 03:04(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:15
+01.  Yoga Healing Sounds Unit - Vinyasa Chill Yoga  3:57
+02.  Kundalini Yoga Group - Emotional Healing  4:01
+03.  Yoga Music Masters - Relaxing Yoga  4:02
+04.  Chakra Healing Music Academy - Basic Yoga  3:36(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 03:06:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A25C15CFA7F0C9D8A2B88E00ABFADABD77563AA
+magnet:?xt=urn:btih:4514D4B8632D8C5E2801D8D0ECC9A672196837BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,28 +600,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533569   (705349) от 24.02.2022
+###  Публикация: 1131268   (708907) от 05.05.2017
 
-The New Burlesque Roadshow - Burlesque Show Music (2011) [AAC|~343 Kbps] <Pop, Jazz, Swing>
+Б. С. Сигал | Быт в СССР и за рубежом (1930) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Show Me How You Burlesque (3:00)
-02. Express (4:21)
-03. Stripper's Delight (2:44)
-04. The Boy Does Nothing (3:28)(   Читать дальше...   )Жанр: Pop, Jazz, SwingПродолжительность: 01:18:38
+О разнице в разрешении ряда проблем, связанных с социальным здоровьем трудящихся в капиталистических странах и у нас, говорится в этой книжке.
+
+Материалом для этой книжки послужили почти исключительно данные западно-европейских и американских научных журналов и книг.
+(   Читать дальше...   )Жанр: История, политология, экономика, культурологияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11E97AE74EADDE4829BB1AC7F1270B4F84B780DB
+magnet:?xt=urn:btih:3EF5460EEEA325177BB81471B4B7D1323837D587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131266   (708906) от 05.05.2017
+
+VA - Весенние заводные хиты выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708906.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mozgi - Ипо Ипо 2:58
+002. Kami - Бегу 3:42
+003. Vlad Bostan Feat. Taya - Оригами 3:42
+004. Nova - Кометы 3:43(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65F2C8DBCCB0F1E4CE37F8D2E399521885F516F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131275   (708904) от 05.05.2017
+
+VA - Козырная песня от радио Шансон. Сборник № 11 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708904.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Иван Смелик - Беги От Меня 3:29
+002. Феликс Луцкий - Спасибо  Песня 4:20
+003. Сергей Сорокин - Батя 3:28
+004. Александр Келеберда - Мадмуазель 3:30(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037AF0D629D71E54F40F7D14F423C79F54B7CB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131121   (708902) от 05.05.2017
+
+Андрей Белый | Петербург (2009) [MP3, Вадим Яковлев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708902.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Имя Андрея Белого прочно связано с городом на Неве — в плане творческом, в плане житейском, духовном. В памфлете “Одна из обитателей царства теней”, написанном после возвращения из Германии, он писал: “…светом окрашено для меня пребывание в Ленинграде недавней эпохи, а мое пребывание в Берлине окрашено тенью”. Петербургу посвящен лучший роман Белого “Петербург” (   Читать дальше...   )Жанр: Отечественная классика, драма, радиоспектакльИздательство: ТРК "Петербург-Пятый канал"Продолжительность: 02:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6F227903A9468D2AD1F5CD451EAAFDC0518119
 ```
 
 https://mybot314.ru/tekegram_catalog/

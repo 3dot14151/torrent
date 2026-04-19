@@ -1,3 +1,90 @@
+###  Публикация: 1102702   (889562) от 10.02.2017
+
+VA - Enormous Deep (Sexy Deep House Tunes) Vol.1 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mario Chris - Take Me Away
+02. M. Orlando - Dance with Me - Antony Miles Remix
+03. Komplexx - Special - Terrace Dub
+04. Dimix - Coming Alive - Fallow Dub Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAF1C86A2732977104B3A4D3B58646650498F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102711   (889472) от 10.02.2017
+
+VA - Enormous Deep (Sexy Deep House Tunes), Vol. 2 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tafubar - Thagroover (Lemongrass Funky Housenite Mix) 03:54
+02. Eva Pacifico - Caliente (Panda Sashimi Paradise Remix) 09:22
+03. Dub Mars - What's Sakin Bacon 05:32
+04. Clownfish - Loto 05:22(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46B2CA8D08163F1D78AD973235DF16D8FECD694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102596   (889455) от 10.02.2017
+
+VA - Indie & Nu Disco 2017  [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Kristina Mailana - Forget Me Not  04:20
+02. Echo Boy - Get Do It  04:58
+03. Crystal Shakers - Stand Alone  04:49
+04. StepWalker - Days Go By  04:42(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED23634BD67320097471D17CE8CA4891819D009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371488   (888587) от 01.04.2020
 
 VA - Spring Break 2020 (Best of Dance, House & Electro) (2020) [MP3|320 Kbps] <House, Deep House, Progressive House>
@@ -658,93 +745,6 @@ VA - Melodic Progressive House Vol.09 (2017) [MP3|320 Kbps] <House, Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:009652929FDF87281C904899D92EB5C9265553CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106856   (870144) от 21.02.2017
-
-VA - Melbourne Bounce Sound Selection Vol.2 (2017) [MP3|320 Kbps] <House, Melbourne Bounce, Dutch>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bsharry - I Like It  3:54
-02.  James Black Pitch - Teclo  5:15
-03.  Dob & Visco - Dark Curse (feat. Nathan Brumley)  4:23
-04.  Massimiliano Stangoni - Titan  2:38(   Читать дальше...   )Жанр: House, Melbourne Bounce, DutchПродолжительность: 01:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DB3BC640E79BD8200DF5F16F6B244827327A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496810   (869925) от 19.09.2021
-
-VA - Best Fall Hits For Aerobic & Cardio 2021 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyria - Girl from Rio (Fitness Version 135 Bpm) (04:23)
-02. Blue Minds - Higher Power (Fitness Version 135 Bpm) (04:23)
-03. D'Mixmasters - Chain My Heart (Fitness Version 135 Bpm) (04:20)
-04. Boyz Boyz Boyz - Permission to Dance (Fitness Version 135 Bpm) (04:23)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8B9E609BDC0DDAE4169F2E6EB9077B61F855F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997855   (868643) от 20.03.2016
-
-VA - Various Artists - Horenswert Vol. 10 (2016) [MP3|320 кб/с] <Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Third Son - Oedipus
- 02. Alex Neri - Desert Rose (Burnski Remix)
- 03. Philip Bader - The Vibe
- 04. Martinez - Honey Lips(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89013E0056B8C4B46F6556C6057DF540EDAE6652
 ```
 
 https://mybot314.ru/tekegram_catalog/

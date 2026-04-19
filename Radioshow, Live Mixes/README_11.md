@@ -1,3 +1,235 @@
+###  Публикация: 1304759   (555483) от 06.06.2019
+
+VA - Live @ quantumVALLEY, EDC Las Vegas (2019-05-18)[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Craig Connelly @ quantumVALLEY, EDC Las Vegas, United States 2019-05-18:
+01. Craig Connelly ft. Haliene – Do You Believe In Me
+02. WAIO & Bryan Kearney – Futura (Will Rees Remix)
+03. Sneijder & Karen Kelly – Be With You (Craig Connelly Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738D5805E9B473CDEF324C7A27D5B5F04E6599A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306760   (555375) от 07.06.2019
+
+VA - Live @ Liberation V2, Fabric London, United Kingdom 2019-05-04 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sied van Riel @ Liberation V2, Fabric London, United Kingdom 2019-05-04 (00:51:56):
+
+01. Sied van Riel - Navigator
+02. Craig Connelly ft. Kate Miles - Lost Without You (Sied van Riel Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02C1696F0596A5090B21782F3B48FC8D85B7552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237351   (552469) от 23.07.2018
+
+VA - Markus Schulz - Global DJ Broadcast - Sunrise Set (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M83 - Un Nouveau Soleil
+02. Modd - Velotrip
+03. Andre Sobota - Missing Line
+04. Orkidea - Epicentre(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDAE515AEB3685D0344E177C669A6F38D21F4D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310335   (547017) от 24.06.2019
+
+Steve Allen & Solis & Sean Truby & XiJaro & Pitch + More - Uplift 050 (Six Hour Vocal Special) 2019-06-21[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steve Allen
+1.Trance Classics & Esmee Bor Stotijn - Turn It Around (Steve Allen Remix)
+2.Trance Classics & Esmee Bor Stotijn - Sky Falls Down (Steve Allen & Skyborne Remix)
+3.Maria Nayler - Angry Skies (James Dymond Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEC75739D770159F35C19AF1E851A38D4166B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310517   (546959) от 24.06.2019
+
+VA - A State Of Trance Festival 900 (IEC, Kyiv) (2019-06-22)[MP3|192 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armin van Buuren
+01 Armin van Buuren & Shapov – La Resistance De L’Amour
+02 Cosmic Gate – Come With Me
+03 Armin Van Buuren & Vini Vivi & Hilight Tribe vs. Orjan Nilsen – Great Spirit vs. Wait 4 It (Armin van Buuren Mashup)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B3FEC52A3891C0410C01FEBD39BCB23DE142B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238672   (545499) от 31.07.2018
+
+VA - Markus Schulz & Jam El Mar - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Ferry Corsten - I Love You (Won't Give it Up)
+02. Dennis Sheperd & Bjorn Akesson - Memoria (Global Selection)
+03. Andy Moor featuring Becky Jean Williams - The Real You(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F061C4C552C210097FB7B24EA98308ADEC73B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557655   (539184) от 16.06.2022
+
+39 Kingdom - Live @ Königsberg Cathedral, Russia (2022-06-16) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evgeny Avramenko - Organ Intro w/Tim Enso & Nadi Moss - Brick In The Wall
+02. RÜFÜS DU SOL - I Don`t Wanna Leave
+03. Argy - Magic Order
+04. Øostil & Juan Hansen - Drown (Massano Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0109E0D03EDA1CDE8CCEC5B8C2AA7190AE94F3C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557925   (535830) от 18.06.2022
+
+Joel Corry - Tomorrowland Friendship Mix (2022-06-16) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Corry X MNEK - Head & Heart w/Joel Corry x Da Hool - The Parade (rework of track Da Hool - Meet Her At The Love Parade) w/BrEaCh - Jack (Acappella)
+02. La Fuente - I Want You
+03. Broken Future - Swag
+04. Joel Corry - Liquor Store (rework of track Dansson & Marlon Hoffstadt - Shake That)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885204840C990F89D458E83B08399FBFBBB47CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558073   (535691) от 18.06.2022
 
 Korolova - Live @ Red Rock California, United States (2022-06-17) [MP3|320 Kbps] <Progressive House>
@@ -513,233 +745,6 @@ Tiesto - Tomorrowland Friendship Mix (2022-06-30) [MP3|320 Kbps] <Electro Pop, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BA1C96A19E5258A76C71851AE7A77E3FE4C8501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315132   (513629) от 19.07.2019
-
-Aly & Fila - Future Sound Of Egypt 607 (John '00' Fleming Takeover) (2019-07-17) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ARTBAT - ElementЖанр: TranceПродолжительность: 01:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49B39186A673C7DF027C823549C4572D4E01A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315274   (513628) от 19.07.2019
-
-Markus Schulz - Global DJ Broadcast (18 July 2019) with guest Nifra (2019) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz
-01. Pryda - Warrior
-02. Claus Backslash - Reality is Over
-03. Jam & Spoon - Follow Me (Jerome Isma-Ae Remix)Жанр: Trance, ProgressiveПродолжительность: 02:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65C55728995CA92CFC28023CCF30372F49090FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315284   (513624) от 19.07.2019
-
-Armin van Buuren - A State of Trance 923 (2019) [MP3|320 Kbps] <Progressive, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin van Buuren played:
-01 LTN & Christina Novelli - I'd Go Back (The Path Of Life)Жанр: Progressive, TranceПродолжительность: 02:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8CD27ADEA4A44E15FFFA0E1A16A4444FE1EC94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242810   (513157) от 24.08.2018
-
-VA - Ori Uplift & Stefano Ivanovic - Uplifting Only 289 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Senn - Osiris (Extended Mix)
-02. Madwave Meets XiJaro & Pitch - Nothing Set In Stone
-03. HyperPhysics - Supernatural
-04. DreamLife & Grande Piano - True Love (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2778D0482C2351D096D20E0600DB8F98961D5581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242809   (513120) от 24.08.2018
-
-VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix)(2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo Reyes - Timeless
-02. Marcus Santoro - Polaroid
-03. Above & Beyond featuring Zoe Johnston - Always (Above & Beyond Club Mix)
-04. Tritonal featuring Lourdiz - Love U Right (Kyau & Albert Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A568274F878DA8952F15029E4BF2601CF2B0B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562376   (509215) от 09.07.2022
-
-Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour - Ibiza) (2022-07-07) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woo York - Like a Phoenix
-02. Probspot - Blueberry (ID Remix)
-03. Push - Universal Nation (Bart Skils Remix)
-04. Paul Kalkbrenner - Gebrunn Gebrunn (Special Berlin Calling Edit)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 01:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3364889CBAC39611E31D1B02DBD85C6FF88F8E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562386   (509115) от 09.07.2022
-
-Martin Garrix - Tomorrowland Friendship Mix (2022-07-07) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix & Matisse & Sadko - Good Morning
-02. Martin Garrix & Mesto - Limitless
-03. Martin Garrix & Dua Lipa - Scared To Be Lonely (DubVision Remix)
-04. Martin Garrix & Brooks - Quantum(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9FF6B5D6E3B8EB75D6176B03BBED50A6C4D5EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562532   (508072) от 10.07.2022
-
-MORTEN - 4U Sunset Festival, Brazil (2022-04-29) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN ft. Lanie Gardner - Dreams
-02. Justus & Achilles - Touch Me (MORTEN Edit)
-03. David Guetta & MORTEN - ID w/Calvin Harris & Disciples ft. Ina Wroldsen - How Deep Is Your Love (Acappella)
-04. David Guetta & MORTEN - Nothing(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B6990559EE444FDE6886060598D0C1BF9661C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1336803   (277184) от 08.11.2019
+
+Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исполняют музыку, звучавшую в 1920–40 годах на улицах, в кафе и в популярных танцевальных залах Парижа. Репертуар квартета состоит из вальс аккордеон, танго, пасодоблей, фокстротов, маршей и песен из классического французкого шансона. Они записали пять компакт-дисков: A La Noce (2010), Toujours (2004), Chez Moi (2001), Rendez-Vous (1998) и L'air de Paris (1995). (   Читать дальше...   )Список альбомов:
+1995 - L'air de Paris
+1998 - Rendez Vous
+2001 - Chez Moi(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 04:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5451569F3648D1D5FCF4191D0A89F6BBD81122C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189394   (271274) от 05.12.2017
 
 Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
@@ -716,35 +745,6 @@ Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CCAD725236867EB21D91CD25D4999DF74069CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652015   (218761) от 10.08.2023
-
-Die Schnitter - Saat und Ernte (2000) [FLAC|Lossless|image + .cue] <Folk Punk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wut
-02. Traumgeburt
-03. Der Narr
-04. Ich fliege uber das Meer(   Читать дальше...   )Жанр: Folk PunkПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D731F4B8453E4F9218187BF995E313AAD25B9071
 ```
 
 https://mybot314.ru/tekegram_catalog/

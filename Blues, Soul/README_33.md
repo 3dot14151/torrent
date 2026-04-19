@@ -1,3 +1,32 @@
+###  Публикация: 961743   (298807) от 02.12.2015
+
+Robin Barrett & Coyote Kings - Howl (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Howl (05:40)
+02. Good Thing (04:36)
+03. That's Rude (04:33)
+04. Waiting to Be Free (06:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB481FA3F052472B52E53FEAEEB98CD5CDEFEFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262283   (296780) от 14.11.2018
 
 VA - Blues - A 30 Track Collection (2017) 2CD [MP3|320 Kbps] <Blues>
@@ -719,35 +748,6 @@ Supersonic Blues Machine - Californisoul (2017) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70F7120238F595431368E3A793F7A1B9B50C6A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188704   (273605) от 03.12.2017
-
-Big Papa and the TCB - Let Your Hair Down (2017) [MP3|320 Kbps] <Blues, Swing>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Yo Self Together (03:11)
-02. California Summer Blues (03:35)
-03. It's Up To You (03:14)
-04. A Day Late And A Dollar Short (03:36)(   Читать дальше...   )Жанр: Blues, SwingПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50396E7C738BD9268729F4108732E984E5A88BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

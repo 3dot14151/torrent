@@ -1,3 +1,61 @@
+###  Публикация: 1582094   (324587) от 08.10.2022
+
+Sarah Brightman - Classics (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria (New Recording)
+02. La Wally
+03. Winter Light (New Recording)
+04. Anytime, Anywhere(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47595C5B9CABB7A10882F2D15208E014A440405F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582197   (324586) от 08.10.2022
+
+Sarah Brightman - Symphony (2007) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gothica
+02. Fleurs Du Mal
+03. Symphony
+04. Canto Della Terra (Duet With Andrea Bocelli)(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7341D82EA3F41F260F6F3364196E66EEDFBCD03E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581988   (324585) от 08.10.2022
 
 Sarah Brightman - Eden (1998) Reissue, 1999, EastWest [OGG Vorbis|484 Kbps] <Electronic, Rock, Synth-pop>
@@ -699,64 +757,6 @@ Workout Music Tv - 40 Best Pop Remixes 2020 For Running [MP3|320 Kbps] <Pop, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAC18D2E5072D36C6FA50390543725EDE0034917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583057   (314121) от 13.10.2022
-
-VA - Mega Hits Autumn/Fall 2022 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gestört aber Geil - Thank You (03:17)
-02. Imagine Dragons - Bones (02:45)
-03. Makar - Mood (02:31)
-04. Felix Jaehn - Call It Love (02:34)(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF96BEFFF8210BA68E78B9F9B478D7246816A0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076206   (313878) от 25.11.2016
-
-Kylie Minogue - Kylie Christmas (2016) [MP3|320 Kbps] <Christmas, Traditional Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  It's The Most Wonderful Time Of The Year 02:44
-02.  Santa Claus Is Coming To Town (Feat. Frank Sinatra) 02:15
-03.  Winter Wonderland 01:52
-04.  Only You (With James Corden) 03:04(   Читать дальше...   )Жанр: Christmas, Traditional PopПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD59C81841CBAD8C38896019BDB980D1D843542
 ```
 
 https://mybot314.ru/tekegram_catalog/

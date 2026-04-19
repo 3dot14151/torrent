@@ -1,3 +1,58 @@
+###  Публикация: 574164   (376230) от 12.11.2012
+
+Oceana - Put Your Gun Down[Official Video HD] (2012) HDTV
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A2B1045E263230F61D0D8D89DAD44940D1650D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 721602   (369870) от 12.11.2013
+
+Europe - Live at Sweden Rock: 30th Anniversary Show (2013) BDRip [1080p]
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riches To Rags
+02. Firebox
+03. Not Supposed To Sing The Blues
+04. Scream Of Anger(   Читать дальше...   )Жанр: Hard RockПеревод: ОтсутствуетПродолжительность: 02:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:971DC941E424CABE46E102753053C79BB0B1ED19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576153   (363403) от 17.11.2012
 
 The Kelly Family (clips)[H.264] Mp4 (1998-2011)
@@ -661,60 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAC8423D221C0771DEC6570A1E3FAF37AA625DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501229   (259860) от 31.05.2012
-
-Larry Coryell Live From Bahia (1992) DVD5
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Larry Coryell родился 2-апреля 1943 года в Техасе. Как водится у многих джазовых музыкантов, музыкой Ларри начал заниматься с раннего детства.
-Он играл как на пианино, так и на гитаре (акустической, а позже и на электро). После окончания факультета журналистики в Вашингтонском университете в 1965 году музыкант переезжает в Нью-Йорк, где знакомится с ударником Chico Hamilton, который приглашает Ларри работать в его джазовом квинтете.
-Годом позже музыкант принимает участие в записи винилового альбома Chico Hamilton s jazz quintet, которая становится для него дебютной. В том же1966 году Ларри становится одним из основателей джаз роковой команды Free Spirit.,brЖанр: Музыка, Latin Jazz, FusionПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503017   (259309) от 29.05.2012
-
-Legalize feat.Zhao LeBlanc - E periculoasa (2011) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88CB0E1022675009A111F0A511CC13E42CC57E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

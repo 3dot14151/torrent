@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1863102   (1063675) от 
+###  Публикация: 1864344   (1064562) от 
+
+Metal Church - Dead to Rights (2026) [MP3|320 Kbps] <Heavy, Power, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brainwash Game (04:30)
+02. F.a.F.O (03:46)
+03. Dead to Rights (06:06)
+04. Deep Cover Shakedown (04:22)(   Читать дальше...   )Жанр: Heavy, Power, Thrash MetalПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08681FFDDF84E6662E5F1CCDACDC555C4C1F853D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863102   (1063720) от 02.04.2026
 
 Nervosa - Slave Machine (2026) [MP3|320 Kbps] <Thrash, Death Metal>
 
@@ -7,7 +36,7 @@ Nervosa - Slave Machine (2026) [MP3|320 Kbps] <Thrash, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063720.jpg" />
 </div>
 
 
@@ -22,6 +51,35 @@ Nervosa - Slave Machine (2026) [MP3|320 Kbps] <Thrash, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EADEA7CABE424035724BFC20DB53E8C4BDFCB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858901   (1060665) от 13.03.2026
+
+Unheilig - Liebe Glaube Monster (2026) [MP3|320 Kbps] <Industrial Gothic Metal, Darkwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1060665.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Revolution (Intro)
+2. Liebe Glaube Monster
+3. Wunderschön
+4. Monster(   Читать дальше...   )Жанр: Industrial Gothic Metal, DarkwaveПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16ACC04733DAD3145F86688370A7705CE1A5ECAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,64 +747,6 @@ Stormsorrow - The Blood Red Horizon (2025) [MP3|320 Kbps] <MDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B815A53E45794E83DF90538AB2DE3BDEED9DC0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841366   (1048017) от 11.12.2025
-
-Sakis Tolis - Everything Comes To An End (2025) [MP3|320 Kbps] <Gothic Metal, Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048017.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Orkizome [00:04:22]
-2. In Youth We Learn,in Age We Understand [00:03:23]
-3. One Voice,One Flame [00:03:54]
-4. Hail Thy Mighty Rock N’ Roll [00:02:50](   Читать дальше...   )Жанр: Gothic Metal, Dark MetalПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4416347C230D86A831320000DBC2DE9BDE4C4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840327   (1047096) от 04.12.2025
-
-Tesseract - Radar (2025) Live [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural Disaster
-02. Echoes
-03. Nocturne
-04. Tourniquet(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31496382D27A236B2B29C7F41F394A6FC653FD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

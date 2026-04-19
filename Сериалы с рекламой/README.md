@@ -1,13 +1,13 @@
 https://t.me/izofen
-###  Публикация: 1863297   (1063833) от 
+###  Публикация: 1863297   (1063094) от 07.04.2026
 
-Последний бык / Der letzte Bulle (2025) WEBRip [H.264/1080p] (сезон 6, серии 1 из 8) ViruseProject [AD] (Обновляемая)
+Последний бык / Der letzte Bulle (2025) WEBRip [H.264/1080p] (сезон 6, серии 1-4 из 8) ViruseProject [AD] (Обновляемая)
 
 >>Зарубежные сериалы
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063094.jpg" />
 </div>
 
 
@@ -18,7 +18,7 @@ https://t.me/izofen
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:602956FA340D9C2F82999BAA15235F68AF5B1496
+magnet:?xt=urn:btih:9432E3FFF6C3FD038145041FFEF653AC0A14B9B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,15 +26,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863298   (1063831) от 
+###  Публикация: 1863298   (1063093) от 07.04.2026
 
-Последний бык / Der letzte Bulle (2025) WEBRip (сезон 6, серии 1 из 8) ViruseProject [AD] (Обновляемая)
+Последний бык / Der letzte Bulle (2025) WEBRip (сезон 6, серии 1-4 из 8) ViruseProject [AD] (Обновляемая)
 
 >>Зарубежные сериалы
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063093.jpg" />
 </div>
 
 
@@ -45,7 +45,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81A4FBB087CCFB21E681DD18D4177743FC6CBB94
+magnet:?xt=urn:btih:360ED2D19E53B3D7314E8294C15192723BEAC8D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,7 +53,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859772   (1061475) от 
+###  Публикация: 1859772   (1061475) от 26.03.2026
 
 Профайл / Профилирование / Profilage / Paris Murders (2009) BDRip [H.264/1080p] (сезон 1, серии 1 из 6) ViruseProject [AD] (Обновляемая)
 
@@ -80,7 +80,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859773   (1061473) от 
+###  Публикация: 1859773   (1061473) от 26.03.2026
 
 Профайл / Профилирование / Profilage / Paris Murders (2009) HDRip (сезон 1, серии 1 из 6) ViruseProject [AD] (Обновляемая)
 

@@ -1,3 +1,90 @@
+###  Публикация: 1154871   (537070) от 01.08.2017
+
+Rings Of Saturn - Ultu Ulla (2017) [MP3|320 Kbps] <Technical Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Servant of This Sentience
+02. Parallel Shift
+03. Unhallowed
+04. Immemorial Essence(   Читать дальше...   )Жанр: Technical DeathcoreПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05D5A6A426505473191BA30A80C084BE41B508A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050506   (536079) от 09.09.2016
+
+Pain - Coming Home (2016) [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Designed To Piss You Off
+ 02. Call Me
+ 03. A Wannabe
+ 04. Pain In The Ass(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA5F48136C2954F176F8590F60920D4E6AEC99C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926135   (535587) от 09.08.2015
+
+Stormzone - Seven Sins (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bathsheba
+02. Another Rainy Night
+03. Your Time Has Come
+04. The One That Got Away(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA79F6A50CC634B2D1EBC8278B1B17852CD50621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926331   (535470) от 09.08.2015
 
 The Black Dahlia Murder - Abysmal (2015) [MP3|320 кб/с]<Melodic Death Metal>
@@ -651,92 +738,6 @@ Eisregen - 2 EP, 1 альбом (2014 - 2015) [MP3|320 кб/с]<Dark Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D8CAC6339EDB06B1DA30CA12C99F6AA90FEF750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 69748   (523771) от 14.08.2015
-
-Bullet For My Valentine - 5albums + 2EPs + 7singles (2004-2015) [MP3|320kbps] <Heavy Metal, Metalcore>
-
->>След.
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Metal, Hard Rock, Metalcore |Продолжительность: 00:07:21
-01  Waking The Demon                    4:07
-02  Say Goodnight (Acoustic)            3:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB8B96C4E6CC8BC1F5D1636CE66895072F195B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313512   (523751) от 09.07.2019
-
-Abbath - Outstrider (2019) Deluxe Edition [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523751.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Calm In Ire Of Hurricane
-2. Bridge Of Spasms
-3. The Artifex
-4. Harvest Pyre(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6F562B99089C0F78E497E4E9A000CD8C0C5A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313581   (523743) от 09.07.2019
-
-Power Tale - Семь Подземных Королей (2018) [MP3|320 Kbps] <Металл-опера>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523743.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:06] 1. Ловкость Рук
-[3:26] 2. Верный Друг
-[3:42] 3 Злая
-[7:15] 4. Я И Ты(   Читать дальше...   )Жанр: Металл-операПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB204AFB7AC5E778D959DA6C1FDC411891A10BDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

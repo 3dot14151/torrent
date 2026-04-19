@@ -1,3 +1,90 @@
+###  Публикация: 1840038   (1047056) от 02.12.2025
+
+VA - Deep House Night Drive, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SlaXy - Midnight Skyline [02:26]
+02. Flyby - Neon Pulse [03:19]
+03. Synthix - Drive Into the Night [03:39]
+04. VoxLum - Electric Horizons [02:39](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A70C0D353911A74215EF8F4E8BCBA29E7E2F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839866   (1046874) от 01.12.2025
+
+VA - Deep Reflections: Winter Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lester Isaac & M-Sol DEEP - Keep Knocking (Original Mix) [6:02]
+02. TEO (SL) & M-Sol DEEP - Spirit Bloom (Original Mix) [7:35]
+03. Random Thoughts & M-Sol DEEP - Malt (Original Mix) [5:03]
+04. Will Flint & M-Sol DEEP - Twilight (Original Mix) [5:49](   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7B855F8A8DF7B73055CD10A713FE90841DE156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602904   (1045943) от 07.01.2023
+
+VA - Best Of Winter (2022) [MP3|320 Kbps] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. dub.format - Keep
+02. Ohmz - Golden Temple
+03. Missfeat - Friends Lovely Friends
+04. Tebra - Endless(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDC08A859BDF3D64D54D6A6A698BA05303820A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603021   (1045849) от 08.01.2023
 
 VA - Ibiza Session 2023 - For DJs Only [MP3|320 Kbps] <House>
@@ -658,93 +745,6 @@ VA - Ballaton Nightlife (2023) [MP3|320 Kbps] <Deep-House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CE91D128CA2FC3C02C81BA4241B3F5761C80AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616879   (1035610) от 05.03.2023
-
-VA - Alternative EDM Party 2023 (2023) [MP3|320 Kbps] <Dance, Electronic, Club, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naksi, Erik Ray & Iwaro - Only You (02:33)
-02. Mattia falchi - Under the Stars (Extended) (03:41)
-03. Jon + Larsen - Dream (Club Radio Edit) (03:23)
-04. John David - Break of Dawn (03:14)(   Читать дальше...   )Жанр: Dance, Electronic, Club, HouseПродолжительность: 01:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950475DD1F0B2AA500DA1391B20304B8B4923587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616593   (1035583) от 05.03.2023
-
-VA - By the Way...Sounds Good, Size Two (2023) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Monkey - No Faxxx (Extended Mix) (3:03)
-02. Mea - Scream (Extended Mix) (4:39)
-03. JORDVN PRINCE - VLL VBOUT (Extended Mix) (2:50)
-04. Joey Antonelli - Melody (Extended Mix) (3:18)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEE7E4ACA264AEBE8644C3B36DE49E14D88F236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616932   (1035570) от 05.03.2023
-
-VA - Deep House Summer Hits (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abee Sash - Ain't Nobody (04:52)
-02. A-mase & Sharliz - Sky (Deep Radio Edit) (04:31)
-03. Abriviatura IV & Kamensky - Tears Away (Gus One Remix) (04:35)
-04. Alberto Miliziano - Thinking (02:28)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722D9436A51FE130E8BB7D2978E49B1E535D2513
 ```
 
 https://mybot314.ru/tekegram_catalog/

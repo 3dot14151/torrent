@@ -1,3 +1,32 @@
+###  Публикация: 907167   (639645) от 11.06.2015
+
+VA - KuschelRock The Most Beautiful Duets (2015) 2CD [MP3|320 кб/с]<Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Michael Duet With Elton John - Don t Let The Sun Go Down On Me
+02. Phil Collins & Marylin Martin - Separate Lives
+03. Bill Medley & Jennifer Warnes - (I ve Had) The Time Of My Life
+04. Joe Cocker & Jennifer Warnes - Up Where We Belong (An Officer And A Gentleman-Soundtrack(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 02:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5DFFC34095F597DE4BDDAE0B1D879FE76EB2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228104   (639397) от 30.05.2018
 
 VA - Pop Remixes Mixed By Christian Bartasek (2018) [MP3|320 Kbps] <Dancecore, Hands Up, Hard Dance, Pop>
@@ -625,6 +654,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682294   (632276) от 22.07.2013
+
+Lenka - Дискография / Discography (3 Albums, 1 EP, 2 Singles) - 2008-2013, MP3 (tracks), 243-320 kbps
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_632276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Will Not Grow Old (The Woodstock Sessions) (03:28)
+02. Heart Skips A Beat (03:21)
+03. Heart To The Party (03:05)Жанр: Pop |Продолжительность: 00:09:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908520   (632244) от 15.06.2015
 
 Walk Off the Earth - Sing It All Away (2015) [MP3|320 кб/с]<Indie Pop>
@@ -706,76 +763,6 @@ Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97AC1DFD37A86C96099618BE2D76E746F48047FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520565   (631435) от 09.07.2012
-
-Medina - Forever (2012) [MP3|320 кб/с]<Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever (03:31)
-02. Butterflies (03:41)
-03. Scars (03:39)
-04. Happening 04:03)
-05. Boring (04:02)
-06. Hotels (03:29)
-07. Good To You (04:02)
-08. Close To Nothing 03:52)
-09. Keep Me Hangin' (03:20)
-10. Black Lights(03:45)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43FA30E071F123A49EA8528C00891A150E79F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520689   (631134) от 09.07.2012
-
-Gusttavo Lima - E Voce (2011)(Live) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631134.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cor De Ouro
-2. Balada
-3. Demais Da Conta
-4. Eu Vou Tentando Te Agarrar
-5. Arrasta
-6. Fora Do Comum
-7. Refém
-8. Tornado
-9. Calafrio
-10. Inventor Dos Amores(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D01583042BB518012D4A56E19381FD552052B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1468018   (1017247) от 07.05.2021
+
+VA - Smooth Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larry Carlton - It's a Groove Thang
+02. George Benson - Down Here On the Ground
+03. George Duke - Love Can Be So Cold
+04. Bob James & Earl Klugh - Movin' On(   Читать дальше...   )Жанр: JazzПродолжительность: 03:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D679D81BE3888BA66AE5A130849479872F3DA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468743   (1016799) от 10.05.2021
 
 Bobby Hackett - 1938 - 1940 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Dixieland>
@@ -716,35 +745,6 @@ Dawda Jobarteh - Northern Light Gambian Night (2011) [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7BCDE1EB367A66F5A7CEC7B5F5919FB5767C519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473162   (1013884) от 28.05.2021
-
-Ella Fitzgerald - Ella Fitzgerald At Mister Kelly's 1958 (2017) 2CD, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013884.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Your Red Wagon [3:00]
-02. Nice Work If You Can Get It [2:36]
-03. I'm Glad There Is You [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0468019204C4C00C58C37D3766958D6E18968637
 ```
 
 https://mybot314.ru/tekegram_catalog/

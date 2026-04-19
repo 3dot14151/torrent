@@ -1,3 +1,234 @@
+###  Публикация: 461166   (79558) от 02.03.2012
+
+Ringo Starr and the Roundheads - Live (2005) BDRip[720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Ринго Старр в США, штат Иллинойс, исполнены хиты со времён Битлов и сольные работы не стареющей рок звезды.
+Издан на BluRay в 2012 году1. It Don't Come Easy
+2. Octopus's Garden
+3. Choose Love
+4. I Wanna Be Your Man
+5. Who Can It Be Now? (featuring Colin Hay)
+6. Don't Pass Me By
+7. I'm the Greatest
+8. Give Me Back the Beat
+9. Memphis in Your Mind
+10. Photograph(   Читать дальше...   )Жанр: RockРежиссер: Image EntertainmentАктеры: Ringo Starr and the RoundheadsПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455702   (77580) от 21.02.2012
+
+Lee Ritenour & Dave Grusin - Jazzfestival Montreux 2011 (2011) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт в аудитории Стравинского на  Jazzfestival Montreux 2011 известного гитариста Lee Ritenour и американского пианиста, композитора, аранжировщика Dave Grusin
+http://www.leeritenour.com/
+http://en.wikipedia.org/wiki/Lee_Ritenour
+http://en.wikipedia.org/wiki/Dave_GrusinЖанр: ДжазРежиссер: LEE RITENOURАктеры: LEE RITENOUR - Guitars ; DAVE GRUSIN - Piano, keyboard ; MELVIN DAVIS - Bass ; SONNY EMORY - DrumsПеревод: ОтсутствуетПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454797   (77221) от 19.02.2012
+
+Adele: Live at the Royal Albert Hall (2011) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись, пожалуй лучшего, концерта Адель "Live At The Royal Albert Hall" доступна на DVD и Blu-Ray. Включает полную 90-минутную версию концерта. Впервые все хиты Адель на одном диске.01. Hometown Glory
+ 02. I'll Be Waiting
+ 03. Don't You Remember
+ 04. Turning Tables
+ 05. Set Fire To The Rain
+ 06. If It Hadn't Been For Love
+ 07. My Same
+ 08. Take It All
+ 09. Rumour Has It
+ 10. Right As Rain(   Читать дальше...   )Жанр: Soul, Blues, VocalРежиссер: Paul DugdaleПеревод: ОтсутствуетПродолжительность: 1:41:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454641   (77184) от 19.02.2012
+
+Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockРежиссер: Joe Thomas
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453629   (76800) от 17.02.2012
+
+Анна Нетребко и Роландо Вильясон Концерт в Париже / Anna Netrebko & Rolando Villazon Paris concert (2007) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ОпераАктеры: Анна Нетребко (сопрано) , Роландо Вильясон (тенор) , Бельгийский национальный оркестрПродолжительность: 01:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D288E2B753B03CA729D6C5DE64C13360D755AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453655   (76767) от 17.02.2012
+
+Pink: Funhouse Tour - Live in Australia (2009) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pink выступила в Австралии на концерте в поддержку своего нового альбомаЖанр: Pop,RockРежиссер: Larn Poland, Баз ХэлпинАктеры: Alison Faulk, Reina Hidalgo, Leo Moctezuma, Sebastien Stella, Nikki Tuazon.Перевод: ОтсутствуетФормат: MKVПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453014   (76762) от 17.02.2012
+
+Meat Loaf - 3 Bats Live (2007) (BDRip-720p)
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт  Марвина Ли Эдейла (англ. Marvin Lee Aday) , более известного под сценическим псевдонимом Мит Лоуф (англ. Meat Loaf), ,снятый в 2007 году в Ontario (Canada).
+Meat Loaf - американский рок-певец, кино- и театральный актёр. Получил широкую известность после выхода успешных альбомов Bat out of Hell и нескольких песен к кинофильмам, а так же весьма зрелищным клипамЖанр: RockПродолжительность: 02:24:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450586   (76266) от 15.02.2012
+
+Paul Rodgers  - Live in Glasgow (2006) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 450623   (76117) от 14.02.2012
 
 Robert Plant & The Band Of Joy - Live From The Artists Den (2011) HDTV
@@ -509,234 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19C171E8630529261294850F4534E9E3D70EA1C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782658   (70000) от 01.03.2025
-
-Paul Van Dyk - Live at Mayday (2000) TVRip [H.264/1080p-LQ] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись ежегодного музыкального фестиваль "Mayday" c немецкого музыкального ТВ-канала VIVA. Данный фестиваль прошёл 30 апреля 2000 года в спорткомплексе "Westfalenhallen Dortmund", который расположен на улице Rheinlanddamm в Дортмунде.01. Xmas partys now (DJ Winners)
-02. Beta blocker (John Rees & Helios)
-03. Sandstorm (Darude)
-04. Welcome to the dance (Des Mitchell)(   Читать дальше...   )Производство: ГерманияЖанр: Techno, TranceРежиссер: Vandit RecordsАктеры: Paul Van DykПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DE7C79F9554A6C02259F614EE55522583582F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783851   (69713) от 08.03.2025
-
-МузЛофт-Дети / МузLoft. Владимир Сорокин (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Сорокин. Сын маминой подруги о том, как заработать на гитару.
-Встречайте, смотрите, слушайте новый выпуск шоу Музлофт-дети. Возможно, благодаря вашему просмотрю, этот харизматичный парень станет настоящей звездой, а пока просто послушайте как он поет и главное взросло мыслит.Производство: Россия | Y-GenerationУчастники: Владимир СорокинПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A925019686AF332BC0DA1DAD2BCD2B5520979A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784072   (69652) от 09.03.2025
-
-Квартирник у Маргулиса. ARTEMIEV (08.03.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллектив был основан в 2010 году бывшим солистом группы «Корни» Павлом Артемьевым. Изначально он назывался 21GRAMM, но в скором времени сменил название. За время своего существования московская группа меняется и развивается, но остается преданной первоначальной идее независимого творческого коллектива. Музыканты создают лиричную музыку по мотивам своих путешествий (   Читать дальше...   )00:00:04 140
-00:07:29 Смешнее
-00:12:23 Тропы
-00:19:40 Инстинктивно(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: PopЯзык озвучки: РусскийПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46EF0DFFA41198FCE9701C20ABAF1849C8443E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785511   (69285) от 16.03.2025
-
-Квартирник у Маргулиса. Хмыров (15.03.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Филипп Хмыров — яркий петербургский артист, который умело соединил в своем творчестве бодрый хип-хоп и задушевный русский рок. Он с детства мечтал стать музыкантом и уже в 11 лет придумывал песни в стилистике группы «Кино», но боялся осуждения родителей. Филипп сам пишет, записывает и сводит свои композиции. В его треках сочетаются питерская романтика, дворовая честность, (   Читать дальше...   )00:00:07 Коллектор
-00:05:42 Euro
-00:10:15 Аппаратура
-00:16:21 Ничего Святого(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Рок, хип-хопЯзык: РусскийПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DC2AD5DED3EE3631F7F10AAC4E782125842F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785521   (69262) от 16.03.2025
-
-Paul Van Dyk - Live at opening Kazantip Z17 (2009) TVRip [H.264/1080p] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись диджейского сета Пола Ван Дайка, который он представил на открытии музыкального фестиваля «КаZантип Z17» 1 августа 2009 года (Крым, Евпатория). На Украине запись эксклюзивно транслировалась на ТВ канале «М1». В России её можно было увидеть только на канале «MUSICBOX-Россия».01. Intro
-02. For an angel (Vandit club mix)Производство: УкраинаЖанр: Techno, TranceРежиссер: Никита МаршунокАктеры: Paul Van DykПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C6EC311429BAC89420A883C2C9F1C97970AF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788429   (67938) от 12.04.2025
-
-Scooter - Jumping all over the world - Live in Berlin (2008) DVDRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео с концерта записанного в Берлине в 2008 году, в рамках концертного тура "Jumping All Over The World". Специальным гостем на протяжении всего тура, была танцевальная команда "Sheffield Jumpers".01. Intro
-02. Call Me Manana
-03. Jumping All Over The World
-04. The Question Is What Is The Question?(   Читать дальше...   )Производство: ГерманияЖанр: ScooterTechno, Happy Hardcore, JumpStyleРежиссер: Mark AchterbergАктеры: H.P. Baxxter, Rick J. Jordan, Michael SimonСубтитры: РусскиеПродолжительность: 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353DC684206E2F57977147C6FF96B7F641AC7A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789770   (67931) от 12.04.2025
-
-Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись диджейского сета Пола Ван Дайка, который он представил в ночном клубе «Green Valley» 14 ноября 2010 года (Бразилия). Запись ТВ трансляции была взята с Австрийского ТВ канала «ServusTV».01. PvD ft. Vega 4 - Time of our lives (UK club mix)
-02. Mike Shiver vs. Fandy - Sique (Ronski speed rmx)
-03. Tritonal - Sky nights (David Forbes rmx)
-04. John O'Callaghan ft. Sarah Howells - Find yourself (Heatbeat rmx)(   Читать дальше...   )Производство: Бразилия / Red Bull Media HouseЖанр: Trance, Progressive TranceСубтитры: Русские, английские (hardsub)Продолжительность: 02:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0691C6310B7B0566C19D8997AC429F288765423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792647   (67638) от 20.04.2025
-
-Scooter - Live in Dnepropetrovsk (1999) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы, который состоялся на стадионе «Метеор» в Днепропетровске. Именно с него начался гастрольный тур Scooter по Украине в 1999 году.01. Keyser soze / Watch out
-02. Faster Harder Scooter
-03. I'm raving
-04. The age of love(   Читать дальше...   )Производство: УкраинаЖанр: Techno, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Rick J. Jordan, Axel CoonПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330AA1F0E74DFDFF4F1756863BB3DBFA69EB77A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

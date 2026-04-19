@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1865282   (1065269) от 15.04.2026
+
+Gabriella Quevedo - Collection (2026) [MP3|320 Kbps] <Acoustic, Pop>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Brick in the Wall (4:27)
+02. Back (3:44)
+03. Blackbird (2:30)
+04. Californication (5:57)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 03:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A276B203E146E12AB2810F6D7A31E359E7C130A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842749   (1048891) от 16.12.2025
 
 Anna Zueva - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
@@ -745,35 +774,6 @@ VA - Love Classics Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165D1A8EEEA9E253111D0FB3677EA19231257F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357897   (971729) от 05.02.2020
-
-VA - Music Collection Vol.2 (2019) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971729.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2illusions - Rainy Day (Original Mix)
-002 AA-Shaa - Wonder
-003 Acud - Fliegepeter (Radio Mix)
-004 Afterlife Feat. Cathy Battistessa - Speck Of Gold(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, Ambient, Relax, ElectronicПродолжительность: 16:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2C0861044C5934F823A35AC028EA927A18770D
 ```
 
 https://mybot314.ru/tekegram_catalog/

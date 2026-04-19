@@ -1,3 +1,29 @@
+###  Публикация: 1137225   (667567) от 26.05.2017
+
+Microsoft Classic Board Games (2000) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667567.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 классических настольных игр от компании Microsoft. В нашем случае имеются 12 развлечений: традиционные шахматы, шашки, нарды, реверси, домино и го, а также несколько менее известные Taipei, Chinese Checkers, Chinese Chess, 4-in-a-Line, Gomoku и Shogi.Тип издания: UnofficialРазработчик: Oxford SoftworksЖанр: Board, Puzzle, Logic (Casual)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F528147B82E698D4B6CEFAEDBC25FC380E9FB333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224517   (665817) от 10.05.2018
 
 Getting Over It with Bennett Foddy (2017) [Ru/Multi] (1.52) License HI2U
@@ -645,32 +671,6 @@ Fort Meow (2015) [En] (1.0.0) Repack ZEKE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9193F9BAFDB938E5156AAF9B5696765655FA3E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046916   (550737) от 28.08.2016
-
-Klocki (2016) [Ru] (1.5) Repack WetGrapesStudio
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра от создателей hook и oO. Нам предстоит решать разные головоломки с сменой деталей, разворотом, перекручиванием, перемещением и прочими действиями. В игре  84 уровня, некоторые из них очень простые, могут занять пару секунд, некоторые более сложные. По ходу прохождения мы открываем все новые и новые типы головоломок.Тип издания: RepackРазработчик: Maciej Targoni, Wojciech WasiakЖанр: Инди, Казуальная игра, ГоловоломкаЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B40DAEA5906F33F3FE51CF6E3EAC573918C7B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

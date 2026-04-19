@@ -1,3 +1,175 @@
+###  Публикация: 1421882   (315550) от 06.11.2020
+
+VA - Cappuccino Lounge: Chillout Your Mind (2020) [AAC|~304 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Free Floating (Original Mix) (6:00)
+02. Chillson, Marc Hartman - Streets of Love (Original Mix) (3:52)
+03. Lounge Groove Avenue - Cover It Up (3:38)
+04. Pier-O - Arthur (Original Mix) (4:44)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53E2B1916F93564F9662C3671B65438F4D99DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422008   (315548) от 06.11.2020
+
+VA - Calm Evening Lounge: Chillout Your Mind (2020) [AAC|~324 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Sundowner (Original Mix) (3:42)
+02. Michael e - Where the River Flows (Original Mix) (5:34)
+03. The Soul Crusaders - When the Night Falls (4:15)
+04. Chillson, Marc Hartman - New Beginnings (4:59)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5AD66F9E39522C03207DC64402D40D305C69F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421890   (315547) от 06.11.2020
+
+VA - Cafe Bossa Lounge: Chillout Your Mind (2020) [AAC|~324 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St Project - Mood of Mine (2:29)
+02. Brazil Beat - Triste (2:39)
+03. Francesca Gramegna - All to Lose (3:54)
+04. Giovanni Tornambene, Marco Lo Russo - Sunset Boulevard (4:06)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08CF3A336636003401DCC0C0B2EFC736F073E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421977   (315531) от 06.11.2020
+
+VA - Rainy Lofi Lounge: Chillout Your Mind (2020) [AAC|~318 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - I Feel in Love (Original Mix) (6:10)
+02. Michael e, Tim Gelo - All That We Are (7:46)
+03. Chillson, Marc Hartman - New Beginnings (4:59)
+04. Lounge Groove Avenue - Fly Away (3:15)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104D92968ED135F7B893DC29DFB92FE118D4D579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421917   (315221) от 06.11.2020
+
+System Of A Down - Protect The Land / Genocidal Humanoidz (2020) [AAC|~374 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Protect The Land (5:08)
+02. Genocidal Humanoidz (2:35)Жанр: RockПродолжительность: 00:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D140B4D3AEBDE8A8399175BEBD429CB9F5D1566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421797   (315219) от 06.11.2020
+
+Машина Времени - В метре (2020) [AAC|~335 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Просыпается ветер (4:08)
+02. Пой песню, пой, дульсимер (4:33)
+03. Мы рядом (4:33)
+04. Свет рождает свет (3:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BBB980166AD26EC2950114329A41A645CB02F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182410   (314457) от 11.11.2017
 
 Шанхайский перевозчик / S.M.A.R.T. Chase (2017) WEB-DL [1080p] ATV
@@ -529,174 +701,6 @@ VA - Coffee Jazz (2020) [AAC|~327 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C8A1084DCFF758B70E1CE0F1F895E0010C3584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422339   (310906) от 08.11.2020
-
-VA - Morning Coffee Lounge: Chillout Your Mind (2020) [AAC|~329 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Liege - Morning Coffee (Original Mix) (4:16)
-02. Marga Sol - French Kiss (Original Mix) (4:36)
-03. Evandro Reis - Sunny Beach (2:20)
-04. Michael e - One Love Bossa Nova (Original Mix) (6:26)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56FC8019C0D109846AA40F67FEE91084DA673C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076380   (310829) от 26.11.2016
-
-Ледокол  (2016) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основано на реальных событиях. 1985 год. Навстречу ледоколу «Михаил Громов» движется огромный айсберг. Уходя от столкновения с ним, судно попадает в ледовый плен и оказывается в вынужденном дрейфе вблизи побережья Антарктиды. Вокруг зловещая тишина и жуткий холод. Горючее на исходе… Нервы на пределе… И даже если можно было бы уйти — деваться все равно некуда. У командования (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Николай ХомерикиАктеры: Пётр Фёдоров, Сергей Пускепалис, Анна Михалкова, Ольга Филимонова, Александр Яценко, Александр Паль, Виталий Хаев, Алексей Барабаш, Дмитрий Муляр, Артур ЧиргадзеПеревод: Не требуетсяСубтитры: НетПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6FCA32B53416C0EC2A3DE041CF77DBC48523439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422311   (310818) от 08.11.2020
-
-VA - Deep Blue Sea Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Bronco, Tenor Turner - Atlantis (Original Mix) (4:29)
-02. Schwarz & Funk - La Otra Cara (Remastered) (6:55)
-03. Marco Moli - A Piano and a Trumpet (Original Mix) (5:36)
-04. The Soul Crusaders - When the Night Falls (4:15)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCCE4D26C9E8D6F25148439C05131CFD3755611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422367   (310709) от 08.11.2020
-
-Whitesnake - Love Songs (2020 Remix) (2020) [AAC|~338 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Will Set You Free (2020 Remix) (4:08)
-02. The Deeper The Love (2020 Remix) (4:02)
-03. All I Want, All I Need (2020 Remix) (5:42)
-04. Too Many Tears (2020 Remix) (6:09)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF51F608B54052D6B11CD1A706ED001A3B4DEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422375   (310618) от 08.11.2020
-
-Whitesnake - The ROCK Album (2020 Remix) (2020) [AAC|~339 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Of The Night (2020 Remix) (6:50)
-02. Best Years (2020 Remix) (5:16)
-03. Tell Me How (2020 Remix) (5:28)
-04. Love Ain't No Stranger (2020 Remix) (4:15)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30812EC8D8BD0DDD4958EC56A695F934DB82E6C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076061   (310537) от 26.11.2016
-
-Любой ценой / Hell or High Water (2016) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два брата-лузера решают наведаться в хранилища пары-тройки банков, которые много лет безбожно обкрадывают своих должников. Расследование дерзких ограблений с грубым почерком увенчает карьеру шерифа Маркуса. Но куда выведет это нехитрое дело?Производство: СШАЖанр: Драма, криминалРежиссер: Дэвид МаккензиАктеры: Джефф Бриджес, Крис Пайн, Бен Фостер, Джил Бирмингем, Дейл Дикки, Уильям Стерчи, Бак Тейлор, Кристин Берг, Кит Мэривезер, Жакмо БуззелПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4262534A05251E21188E204D7818760B888B63EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

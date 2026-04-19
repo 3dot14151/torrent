@@ -1,3 +1,107 @@
+###  Публикация: 1025320   (711672) от 11.06.2016
+
+Проекты - VideoHive - Luxury Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа или слогана в голливудском стиле.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79BADE6B116E534424F6863FD22A025BACA7389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025353   (711648) от 11.06.2016
+
+Проекты - VideoHive - Particle Effect vol.3 (3 in 1) [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа. Вы можете быстро и легко изменить размер, форму и число частиц, цвет, включить или отключить дрожание камеры или изменить длительность.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE87A6AA4E1BD774E956E9E4CA43830C38DF3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025357   (711633) от 11.06.2016
+
+Проекты - VideoHive - 90's tv opener [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телевизионный проект для демонстрации Вашего логотипа или слогана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01207E4E0207AF59C87E7F978B1DDA979C2BA970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025132   (711604) от 11.06.2016
+
+Проекты - VideoHive - Clean White Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой и стильный проект для демонстрации Вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE0A3A378998CF581797BDF00119AB10151A7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025131   (711464) от 11.06.2016
 
 Проекты - VideoHive - Music Logo [AEP]
@@ -566,110 +670,6 @@ Electric Storm Light Logo - эпический кинематографичес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD6FFD58E24D7AB40A74BC62E07BA5A8E33585C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220801   (700182) от 21.04.2018
-
-Проекты - VideoHive - Fire Dance Logo Reveal - 18709390 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fire Dance Logo Reveal - проект, который может помочь вам создать очень крутую анимацию для показа вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505A95DBE58D09283F88BF841C727BEB855BAF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027010   (699959) от 17.06.2016
-
-Проекты - Pond5 - Logo Slam - 34502440 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logo Slam - таинственный, темный , эпический показ логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82004116584C66635D3701B48DC19C3EC28AF6DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026977   (699953) от 17.06.2016
-
-Проекты - Pond5 - Brushed Logo - 1002381 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания высокоэнергичного логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E4F64F85EA10E747B2CF33069FAC6D5BCC5147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132850   (698375) от 10.05.2017
-
-Проекты - VideoHive - Ice And Fire Logo - 19847721 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ice And Fire Logo проект After Effects, который придаст вашему логотипу оригинальный внешний вид.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7465E03DF1C91E4C881BD88A29FC49BD6F73F4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

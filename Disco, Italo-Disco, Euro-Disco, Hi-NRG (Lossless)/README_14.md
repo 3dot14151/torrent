@@ -1,3 +1,154 @@
+###  Публикация: 1304176   (567104) от 24.05.2019
+
+Linda Jo Rizzo - Greatest Hits & Remixes (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567104.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 - You're My First, You're My Last (7' Version) (00:03:37)
+02 - Fly Me High (Radio Version) (00:04:22)
+03 - Heartflash (Tonight) (7' Version) (00:04:02)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94D3B1EAA299536E416192B114B936A46260740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 363543   (566990) от 15.07.2011
+
+Savage - Don't Cry (Greatest Hits) 2CD (1994) [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Don't Cry Tonight (Continental Mix)
+02.Only You (Tech Mix)
+03.Don't Cry Tonight (F.O.S. Noise Vocal)
+04.Don't Cry Tonight (E.U.R.O. Mix)
+05.Don't Cry Tonight (Space Mix)
+06.Don't Cry Tonight (Original Version)
+07.Don't Cry Tonight (Mr. Marvin Shadow Mix)
+08.Don't Cry Tonight (Voice Mix)
+09.Don't Cry Tonight (Grand Mix)
+10.Don't Cry Tonight (F.O.S. Noise Dub)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152685   (565162) от 23.07.2017
+
+Digital Emotion - Best Of (2015) Compilation [FLAC|Lossless|tracks + .cue] <Electro, Hi NRG, Disco, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up, Action
+02. Go Go Yellow Screen
+03. The Beauty & The Beast
+04. Don't Stop(   Читать дальше...   )Жанр: Electro, Hi NRG, Disco, EurodanceПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A2F098E8026273027D7559201B0D62492D6802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234942   (563802) от 09.07.2018
+
+C.C. Catch - The Album -Remastered (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Euro House, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley 2010 [06:44]
+02. You Are My World (Radio Version) [04:21]
+03. Supernature [03:21]
+04. Unborn Love (Remastered) [03:36](   Читать дальше...   )Жанр: Electronic, Euro House, Euro-DiscoПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B860C3944F2DB2832E7C7FDC152C8996C0A830D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153652   (558188) от 27.07.2017
+
+Macho Gang - The Best Of (2002) Strictly Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Start The Dance (Instrumental) 7:44
+02. I Naughty Boy (House Mix) 5:40
+03. Sahara (Extended Version) 6:38
+04. My Lion (Extended Version) 6:26(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1EC48D29E8886E3BFD72CEF7F6D174447B1476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308838   (553499) от 16.06.2019
 
 Камоn!!! - Каблы, Камоn!!!  (2010) [FLAC|Lossless|tracks + .cue]<Euro-Disco, Electronic>
@@ -599,163 +750,6 @@ Sabrina - All of Me (1988) [APE|Lossless]<Italo dance>
 ###  Подробнее
 
 Жанр: Italo danceПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241479   (520247) от 17.08.2018
-
-RSF - RSF (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Leftfield>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520247.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Valentino (6:12)
-2. Michael (4:10)
-3. Chez Konrad (6:01)
-4. Beduine (6:32)(   Читать дальше...   )Жанр: Italo-Disco, LeftfieldПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D44F8EAF75B03DA2568B0600F84AE5FD06427E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536465   (514272) от 18.08.2012
-
-VA - Best Of Dance '85 '86 '87 ZYX Music (1995-1997) [FLAC|Lossless]<Pop, Disco, Retro, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick Astley - Never Gonna Give You Up [03:34]
-02. Delegation - Where Is The Love (We Used To Know) [04:18]
-03. OFF - Electrica Salsa [03:34]
-04. Man To Man Meet Parish - Male Stripper [04:06]
-05. Mel & Kim - Showing Out [05:10]
-06. Eddy Huntington - U.S.S.R. [03:26]
-07. Tina Charles - I Love To Love [03:06]
-08. Silver Pozzolli - Pretty Baby (Italo Boot Mix) [01:54]
-09. Albert One - For Your Love (Italo Boot Mix) [01:56]
-10. Solo - Harem (Italo Boot Mix) [00:56](   Читать дальше...   )Жанр: Pop, Disco, Retro, Italo-DiscoПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375685   (513090) от 14.08.2011
-
-C.C. Catch - Super Disco Hits (1989) [FLAC|Lossless]<Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak Hotel (''Room 69'' Mix)   [04:55]
-02. One Night's Not Enough (Maxi Version)   [05:17]
-03. Back Seat Of Your Cadillac   [05:21]
-04. I Can Lose My Heart Tonight (Extended Club Remix)   [05:54](   Читать дальше...   )Жанр: Disco, Euro-DiscoФормат: CD, CompilationПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 829184   (511620) от 26.08.2015
-
-VA - ZYX Italo Disco New Generation. Vol. 1-6 (2012-2015) [FLAC|image+.cue]<Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - ZYX Italo Disco New Generation Vol. 1
-2013 - ZYX Italo Disco New Generation Vol. 2
-2013 - ZYX Italo Disco New Generation Vol. 3(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9F09456CAAE5320AD401BE9CA9BCF5361980EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376235   (511112) от 16.08.2011
-
-Ottawan - The Best (2006) [FLAC|Lossless]<Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.I.S.C.O. (English Version)
-02. You're O.K. / T'es O.K. (English & French Version)
-03. Hands Up (Give Me Your Heart) (Maxi Version)
-04. Crazy Music (Maxi Version)
-05. Shalaia-Song
-06. Comme Aux U.S.A.
-07. A.I.E. Is My Song
-08. Shubidube Love
-09. Doudou Rumba
-10. Hello Rio(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 00:54:06
 
 ## Скачать торент
 ```bash

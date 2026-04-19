@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1864023   (1062939) от 08.04.2026
+
+Maura O’Connell - Helpless Heart (1989) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Stop the Girl    [0:03:13.42]
+02. Helpless Heart    [0:04:47.10]
+03. Summerfly    [0:03:02.60]
+04. Trouble in the Fields    [0:03:24.60](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE4961BD2FB61BD59B149C998F385B7AEA204CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857829   (1060040) от 07.03.2026
 
 Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
@@ -715,35 +744,6 @@ VA - Союз нерушимый... - Песни и танцы народов С
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353689   (990691) от 19.01.2020
-
-Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   Slow   (3:25)
-02.   Almost Like The Blues   (3:28)
-03.   Samson In New Orleans   (4:39)
-04.   A Street   (3:33)(   Читать дальше...   )Жанр: Contemporary folk, Soft rock, Singer/SongwriterПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E595AC3E693FD766F63A049757B867C37C352168
 ```
 
 https://mybot314.ru/tekegram_catalog/

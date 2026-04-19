@@ -1,3 +1,32 @@
+###  Публикация: 1168914   (401216) от 29.09.2017
+
+Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unleashed (feat. Merethe Soltvedt) [05:25]
+02. One Above All (feat. C.C. White & Felicia Farerre) [03:49]
+03. Impossible (feat. Merethe Soltvedt) [08:55]
+04. Rune (feat. Uyanga Bold) [03:34](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 03:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DCD735EA65BD086F5C246400152F1B9EDE0E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170586   (399290) от 01.10.2017
 
 VA - Pulp Fiction (Collector's Edition) (2002) [MP3|320 Kbps] <Soundtrack>
@@ -735,35 +764,6 @@ Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:795F54AB66CD149E53EEBD9FED64F05053E76019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 252174   (370985) от 01.11.2010
-
-VA - Музыка Экрана. Коллекция Ридерз Дайджест (2008) 3CD [MP3|320 kbps] <Soundtrack, Classical>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник популярных мелодий из кинофильмов несомненно украсит ваш досуг. Поможет насладиться мелодиями и песнями в исполнении лучших современных оркестров и музыкантов, окунуться в атмосферу приятных воспоминаний о любимых фильмах, и вновь пережить самые волнующие моменты. CD 1 - Незабываемые 60-70-е; CD 2 - Мелодии любви; CD 3 - Шедевры кинематографа.01. из к/ф "Афера"
-02. из к/ф "Выпускник"
-03. из м/ф "Розовая пантера"
-04. из к/ф "Бонни и Клайд"(   Читать дальше...   )Жанр: Soundtrack, ClassicalПродолжительность: 03:24:46
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

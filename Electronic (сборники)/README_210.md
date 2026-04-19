@@ -1,3 +1,177 @@
+###  Публикация: 1694652   (120833) от 26.01.2024
+
+VA - Trance 2024 (Extended Versions) (2024) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eximinds & Costa & Sue McLaren - Into The Unknown (Extended Mix) (05:38)
+02. Two&One & Sarah Russell - One More Sunrise (Extended Mix) (05:46)
+03. Sarah Lynn & Raz Nitzan & Trance Classics - Safe In Your Arms (Extended Mix) (05:30)
+04. Eddie Lung - Run Away (Extended Mix) (06:21)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1A3126A5D4EAF90406E45268C06E93F24BABE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694710   (120808) от 26.01.2024
+
+VA - Compilation Electronic part 47 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ERMAC - Back To Me
+02. ENZA - Fatima
+03. KENZO - Enta Eih
+04. Rainshow - Move(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55A3BD72FEB05BBAFBFB69BDFAD496B1EEA2721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695353   (120312) от 29.01.2024
+
+VA - Compilation Electronic part 48 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dndm - Morocco
+02. Musdige - The Mafia Has Feelings
+03. Jeem Dj - Sofia
+04. Kasimoff - Baby(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85705F723D8988C7E1733BB45F55B8E988790F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695835   (120128) от 30.01.2024
+
+VA - Compilation Electronic part 49 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jambeats - See the Sun
+02. Sansasmody - Eyslay
+03. Imazee - All My Fault
+04. Alsa - Teneritas(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8710D450DB089EAA8948039ED25A5DB9E12A3CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696221   (119863) от 01.02.2024
+
+VA - Compilation Electronic part 50 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azimov - Galaxy
+02. Enza - Maldives
+03. Umar Keyn - Last Minute
+04. Dndm - Not Mine(   Читать дальше...   )Жанр: ElectronicПродолжительность: 08:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95D4D083481A8A762A7DC875D9F28B3AA3736DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696827   (119421) от 04.02.2024
+
+VA - Deep Night Deep House 6 (2024) [MP3|320 Kbps] <Deep House, House, G-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Tong, Jem Cooke, Jules Buckley - Heat Rising (CamelPhat Extended Remix) (7:52)
+02. Anton Ishutin - Eternal (7:43)
+03. Gar1sson, Margaryan - HOT (Original Mix) (7:36)
+04. Forrest - Bad Girls Go to Heaven (Los Suruba Remix) (7:28)(   Читать дальше...   )Жанр: Deep House, House, G-HouseПродолжительность: 08:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F2D6B84AD44DD1B474E40B5748FF51C80C8876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696822   (119163) от 05.02.2024
 
 VA - Compilation Electronic part 51 (2024) [MP3|320 Kbps] <Electronic>
@@ -571,180 +745,6 @@ VA - Electronic compilation part 61 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F40E51F22B0476AFCD11F02FDB6ADC52A201B04E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706596   (113582) от 13.03.2024
-
-Sterling Angel - Collection (2008-2023) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raining Down [04:38]
-02. Survive [04:16]
-03. Betrayal [04:56]
-04. Innocence [06:42](   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 03:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE0432457C4F9FB0332E5E44C7C13BBC2D7356C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710328   (112648) от 27.03.2024
-
-VA - Trance In Motion Vol.373 (2024) [MP3|320 Kbps|image + .cue]
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamy & Josie Sandfeld - Pathetic Fallacy (Extended Mix)
-02. Vinny DeGeorge Official - Paradiso (Extended Mix)
-03. Alex Wright - Isthmus (Extended Mix)
-04. ALIGASH - Quicksand (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:29:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E236F18182B9FC042CD3FCBA73068714E610B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711312   (112496) от 30.03.2024
-
-VA - Dance Party Night (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galantis - One, Two, & 3 (03:26)
-02. Tiësto - Waterslides (02:38)
-03. Bebe Rexha - Satellite (Alle Farben Remix) (03:24)
-04. Robin Schulz - One by One (feat. Oaks) (02:41)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA21FABD878453E33A012FCB7833E6B120C04EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712729   (112126) от 03.04.2024
-
-VA - Electronic compilation part 67 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limora - Lucid
-02. Menda - Leili
-03. Riltim - Save My Heart
-04. Davit Barqaia - Amor Mio(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007AFBC8553D80B514DFF1BCC1C284FE0BE1D4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712906   (112038) от 04.04.2024
-
-VA - Trance In Motion Vol.372 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allende - Fading Light (Original Mix)
-02. Andy Elliass & ARCZI - Life Is An Odyssey (Extended Mix)
-03. C-Systems & Aina - Take Me Home (Extended Mix)
-04. Davey Asprey - Catch (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D64A6895701DD9AF6978600DEED0F060E738DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715558   (111569) от 12.04.2024
-
-VA - Electronic compilation part 69 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dndm - Bring Me Her Love
-02. Azimov - Calm Sea
-03. Azambey - Cloud
-04. Menda - Dark(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269E82F1FF5423CE62825C69C4F756F80315B9D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1819271   (1643) от 21.09.2025
+
+3D print - Cults3D - Yongblood Sculpture - Yoshimitsu - Tekken 8 [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yoshimitsu (Tekken 8)Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59113DE3378280E4017B4FFA16246688145F144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819243   (1640) от 21.09.2025
 
 3D print - MyMiniFactory - Flesh of Gods - Rage Unbound - 357534 [STL, LYS]

@@ -1,3 +1,61 @@
+###  Публикация: 1308628   (553775) от 15.06.2019
+
+VA - No Schlager No Party (Von Discofox bis Mallorca - Die besten Hits 2019 im Mallorcastyle bis zum Karneval, Fasching und Oktoberfest 2020) (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kay Dörfel - Malinconia
+02. Michael Fischer - Unser Moment
+03. Justin Winter - Die Spannung steigt
+04. Neon - 100.000 Volt(   Читать дальше...   )Жанр: PopПродолжительность: 04:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C7607719DEA357F8ABF8FBCB84C3ABB807801F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308399   (553746) от 15.06.2019
+
+VA - Discofox Stars (Die besten Schlager Hits 2019 für deine Fox Party) (2019) [MP3|320 Kbps] <Disco, Schlager & Volksmusik, Neue Deutsche Welle>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Fischer - Unser Moment
+02. Neon - 100.000 Volt
+03. Andreas Lawo - Verlorenes Glück
+04. Axel Fischer - Bella Ciao (Radio Edit)(   Читать дальше...   )Жанр: Disco, Schlager & Volksmusik, Neue Deutsche WelleПродолжительность: 04:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268796B36713B43C50583192E743B423EDE1E6E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308612   (553733) от 15.06.2019
 
 VA - Discofox 2019 (Die besten Fox Schlager Hits zu deiner Sommer Tanz Party) (2019) [MP3|320 Kbps] <Schlager & Volksmusik, Neue Deutsche Welle, Disco>
@@ -693,64 +751,6 @@ VA - Synth Planet (2010) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60469AB39681003894234EF04152949C1E48D791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310966   (544537) от 27.06.2019
-
-VA - Mellow Gold: 70s Classics (2019) [MP3|320 Kbps] <Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bread – If
-02. Seals and Crofts – Hummingbird
-03. America – Muskrat Love
-04. Gerry Rafferty – Look at the Moon(   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 01:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0428220E97F5D539B094CAD7A8524FE3AE881C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238942   (543772) от 02.08.2018
-
-VA - Top Of The Pops: Love (3CD) (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543772.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Elton John - Your Song 4:00
-02. UB40 - Can't Help Falling In Love 3:26
-03. Aswad - Don't Turn Around 3:37(   Читать дальше...   )Жанр: PopПродолжительность: 03:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E2956F9FF25FA02AF3B21C72E6252B26AF4EA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

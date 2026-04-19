@@ -1,3 +1,32 @@
+###  Публикация: 1259981   (316917) от 05.11.2018
+
+Primus - Sailing the Seas of Cheese (1991) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seas Of Cheese (0:42)
+ 02. Here Come The Bastards (2:55)
+ 03. Sgt. Baker (4:16)
+ 04. American Life (4:33)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05DDCE4D6FF680585BC83FCA380596EE5950250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259978   (316910) от 05.11.2018
 
 Primus - Pork Soda (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -713,35 +742,6 @@ Editors - Black Gold (2019) Compilation 2CD [FLAC|Lossless|tracks + .cue] <Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7C400A4B3C064FF05924D2E757652C55EA787EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184735   (298705) от 18.11.2017
-
-Green Day - Greatest Hits: God's Favorite Band (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Punk Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2000 Light Years Away (1992) - 2:24
-02. Longview (1994) - 3:53
-03. Welcome To Paradise (1994) - 3:44
-04. Basket Case (1994) - 3:01(   Читать дальше...   )Жанр: Alternative Rock, Punk Rock, Pop Punk, Garage RockПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52224E567F50791BA5E9121D9E61C25488E37816
 ```
 
 https://mybot314.ru/tekegram_catalog/

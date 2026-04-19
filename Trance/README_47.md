@@ -1,3 +1,90 @@
+###  Публикация: 1649588   (229109) от 28.07.2023
+
+VA - Trance Aliens (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyperphycron - Universe Exploration (Extended Mix) [8:56]
+02. Ros Tibler - Blow Me (Original Mix) [5:25]
+03. Sven Nielsen - Dreams Of Infinity (Original Mix) [5:28]
+04. Saphire & weimaR - Learn To Live (DJ Saphire Remix) [6:06](   Читать дальше...   )Жанр: TranceПродолжительность: 03:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB936BFD15DDB52F243966250433759C7EFD281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268291   (228179) от 10.12.2018
+
+VA - Redux Presents: The Finest Selection 2018 (Mixed By Rene Ablaze) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228179.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Derek Ryan feat. Melissa R. Kaplan - Ripples (Rene Ablaze Remix)
+002. TrancEye - Distant Dream (Brent Rix Remix)
+003. Sven E feat. Zara Taylor - Forgiven (Original Mix)
+004. Kiyoi & Eky - Heritage (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1252E2660787CD3DAF7753D2D78BD646212C11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268510   (226552) от 11.12.2018
+
+VA - Grotesque 350 (Mixed by RAM, Alex M.O.R.P.H. & Alex Di Stefano) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon O'Shine - Paradise Cove (Original Mix)
+02. Solis & Sean Truby - Tell Me More (Original Mix)
+03. John Newall - New Beginning (Original Mix)
+04. Cenk Basaran & Koray - Acid Harmony (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2949B0233960C25773A10E7FA293D10E8B85AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268656   (226513) от 11.12.2018
 
 VA - The Best Of Suanda Voice 2018 (Mixed By Dennis Graft) (2018) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Trance Universe Vol.01 (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB73E9DDAFE8D2EEE425B300D0F8748B6D6DB163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514271   (219486) от 02.12.2021
-
-VA - Best of Progressive Vocal Trance (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raz Nitzan & Elara - Paralyzed 3:19
-02. Costa & Cathy Burton - Always 2021 3:45
-03. Zetandel & Tiff Lacey - Higher Ground (Costa & Aurosonic Remix) 3:45
-04. Aurosonic, Spark7 & Sarah Russell - Touched By An Angel 4:09(   Читать дальше...   )Жанр: TranceПродолжительность: 04:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4E4E1FEAAAD3D24624484F295242D52B47D6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343368   (218638) от 06.12.2019
-
-VA - Suanda Music Radio Top 20 (December) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Feel - Reflection (Original Mix)
-02. Ruslan Radriges & Lennard Elliot - A New Age (Extended Mix)
-03. Papulin & Kate Miles - Home (Original Mix)
-04. Maywave & Sodality - Contrast (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D77A5496B3C05FE92106DE88DD4B9F0B22841EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586155   (218215) от 25.10.2022
-
-VA - Summer Uplifting Trance (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lessika - Moments of Life (Alex Fibonacci Remix)
-02. Tony Grand & YURI PIKE pres. Incredia - Horizon (Original Mix)
-03. JonFerstion & Sanderlift - Leave The Night Endless (Original Mix)
-04. Evebe - Free To Fly (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B48961D8790B3DFCA505EB9617BD1F48FA0EFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,24 +1,25 @@
-###  Публикация: 1277021   (787214) от 18.01.2019
+###  Публикация: 1202837   (789121) от 31.01.2018
 
-Марина Александрова | Время любить (2019) [FB2]
+James Murray - Killing Ghosts (2017) Home Normal [FLAC|Lossless|tracks+.cue] <Ambient, Drone, Experimental>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Второй роман цикла «Соль».
-
-На пороге великой империи война. Для такой, как Соль, это возвращение кошмаров минувших дней. Можно спрятаться и подождать или же ринуться в омут с головой, надеясь, что у нее есть крошечный шанс все изменить. Выбор непрост… Вот только сражаться придется не только за жизнь, но и за свою любовь.Жанр: Книги про волшебников, Любовное фэнтезиФормат: FB2
+01. Footsteps (06:55)
+ 02. Grace (05:11)
+ 03. First Hand (07:34)
+ 04. Soldier, Returned (08:12)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:44:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8473FD5C7E5017A7A201972EE16DBAE77B63E7D7
+magnet:?xt=urn:btih:109D56E5AFCEB31B28D5716FD5CA2D26669D58AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276840   (787213) от 18.01.2019
+###  Публикация: 1202755   (789120) от 31.01.2018
 
-Н.Н. Шульговский | Занимательное стихосложение (2009) [PDF]
+VA - Melodic House Sessions, Vol. 04 (2017) [MP3|320 Kbps] <House>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Известно, что поэтами рождаются, но знать секреты стихосложения важно не только стихотворцам, но и любителям поэзии. Как создать бесконечное стихотворение? Буриме - с чем его едят? Что скрывают стихи и каким образом? Чем отличается мадригал от эпиграммы? Можно ли нарисовать стихотворение? Обо всем этом и о многом другом подробно и интересно рассказывается в увлекательной (   Читать дальше...   )Жанр: Поэзия, обучающая литератураФормат: PDF
+01. Mike La Funk - Alive (Extened Mix) (feat. Lyla Bull)
+02. Reggie Steele - Higher (BPM Experience Vocal Mix)
+03. Lesamoor - All You Got To Do (Samy K Remix) (feat. Fat Groovyz Band)
+04. Disk Nation - Kandido (David Grant Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CBF69BBB3AEFE2308DBDD138C5F986D531BCF2E
+magnet:?xt=urn:btih:6EE945A5CB3CFF67D9B38BAF4EA382858FF8E5B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276837   (787212) от 18.01.2019
+###  Публикация: 1202842   (789119) от 31.01.2018
 
-VA - Imagine: John Lennon 75th Birthday Concert (Live) (2019) [FLAC|Lossless|tracks] <Rock, Pop>
+Jeroen van Rooij - Building Memories (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Experimental>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steven Tyler - Come Together (Live) 4:55
-02. Brandon Flowers - Instant Karma (Live) 3:57
-03. Sheryl Crow & Brandon Flowers feat. Chris Stapleton - Don't Let Me Down (Live) 4:09
-04. Pat Monahan - Jealous Guy (Live) 4:21(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:17:50
+01. Building Memories (05:53)
+ 02. Dreams of Legends (04:55)
+ 03. Anxiolytica (04:42)
+ 04. Continuation of Despair (08:19)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 01:17:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E51934BD47F88933893FFDD7F8A7905CA5F82CE
+magnet:?xt=urn:btih:79EED5848E1586156D02D13A98C17BC848A1CB53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,28 +85,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276829   (787211) от 18.01.2019
+###  Публикация: 1202789   (789118) от 31.01.2018
 
-Н.Ф. Чужак | К диалектике искусства. От реализма до искусства как одной из производственных форм (1921) [PDF]
+Лыжные гонки. Кубок мира 17-18. 6-й Этап. Дрезден (Германия). Спринт. Свободный стиль. Финалы (13.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789118.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 января 2018 года, суббота. 14:20 МСК
+6-й Этап Кубока Мира по лыжным гонкам 2017-2018.
+Дрезден (Германия).
+Женщины, Мужчины. Спринт. Свободный стиль. ФиналыТелекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F401B0360E9E1D4A80952258077A2F857D45FDBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202830   (789117) от 31.01.2018
+
+Fonica - Ripple (2003) Tomlab [FLAC|Lossless|tracks+.cue] <Abstract, Leftfield, Experimental, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soar (01:06)
+ 02. Twang (04:13)
+ 03. Whirr (05:58)
+ 04. Perch (05:10)(   Читать дальше...   )Жанр: Abstract, Leftfield, Experimental, AmbientПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D83E742D38CA752E7F8658D23BAC66ECD8FD475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202822   (789116) от 31.01.2018
+
+Endurance - Echoic Architecture (2017) Polar Seas Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Towers (12:52)
+02. Varying Distances (03:08)
+03. Twilight Arcade (08:31)
+04. Automata (05:16)(   Читать дальше...   )Жанр: Ambient, MinimalПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF87875573FA94F281CB88D72E50BFE82AF0677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202879   (789115) от 31.01.2018
+
+Relmic Statute - Morning Tapes (2010) hibernate [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Abstract, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 05:00 Hrs (06:52)
+02. A Test For Tapes And Memories (06:02)
+03. Enarso Lipathe (05:23)
+04. Green Fountain (03:32)(   Читать дальше...   )Жанр: Ambient, Field Recording, Abstract, MinimalПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9499270D3BF760D93DF27A8F2D8F60C1BD340F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202898   (789114) от 31.01.2018
+
+Ю. А. Жуков | Эти семнадцать лет... (1963) [DJVU]
 
 >>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Введение:
-
-Из вороха газетных и журнальных статей, написанных за время сибирской ссылки, автором выбрано для переиздания только кое что теоретически- полемическое, намечающее марксистский подход к культуре, чаще — к культуре художества. Некоторые неполемические статьи введены для уяснения общей позиции автора.
-(   Читать дальше...   )Жанр: История, политология, искусство, философия, культурология, журналистикаФормат: PDF
+Имя журналиста-международника, обозревателя газеты «Правда» Юрия Жукова знакомо читателям. Настоящая книга родилась из непосредственных впечатлений автора, побывавшего в разных странах, на разных континентах. В ней во многом нашли отражение гигантские перемены, происшедшие в мире, в политической жизни народов за время от первых послевоенных лет и до наших дней.Жанр: История, политология, журналистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFA5AEE58314F3B2B49A45DEED53D258086C5565
+magnet:?xt=urn:btih:AD94F7F38006C5F5A1B2CC7528A70CF7BE473A0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,27 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276778   (787210) от 18.01.2019
+###  Публикация: 1202810   (789113) от 31.01.2018
 
-The Cure - Mixed Up (2018) 3CD, Deluxe Edition, RM. RE. [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, New Wave>
+Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Мужчины. Гонка преследования (27.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1. Mixed Up
-CD2. Mixed Up Extras 2018 - Remixes 1982-1990
-CD3. Torn Down - Mixed Up Extras 2018Жанр: Alternative Rock, Post-Punk, New Wave |Продолжительность: 03:37:57
+27 января 2018 года, суббота. 15:00 МСК
+Открытый чемпионат Европы по биатлону 2018 года. Риднау-валь-Риданна (Италия)
+Мужчины. Гонка преследования 12,5 км
+Арена: Риднау (Риднау-валь-Риданна, Италия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:47:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9558CB8D161342179DAB5BFEF75E456A8227A087
+magnet:?xt=urn:btih:0F16482A555283D0FF904BCEB41E132822963F63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,27 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276943   (787209) от 18.01.2019
+###  Публикация: 1202856   (789112) от 31.01.2018
 
-Вера Чиркова | Возвращение (2018) [FB2]
+Marcus Fischer - Loss (2017) 12k [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Второй роман цикла «Дочь двух миров».
-
-Вернувшись в мир, где родилась, Варя очень скоро осознала, как непросто будет привыкнуть к незнакомым порядкам и правилам. Но выстоять против амбициозных планов авантюристов всех рангов, мигом распознавших в ней мощное орудие для достижения собственных целей, оказалось намного труднее. А самым тяжелым ударом стало предательство (   Читать дальше...   )Жанр: Любовное фэнтези, ПопаданцыФормат: FB2
+01. Nocturna (03:45)
+02. Veering (04:37)
+03. Strand (06:17)
+04. Loss (04:46)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:40:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67D6AF48E972B114923877B20E35B700413E9717
+magnet:?xt=urn:btih:609BBBF711FF6AE0F46CFDD9BD46D8E304CEEBE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,26 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277033   (787208) от 18.01.2019
+###  Публикация: 1202976   (789111) от 31.01.2018
 
-Мика Ртуть | Галактическая няня (2018) [FB2]
+VA - Ice Pack 2018 House: Deep House (2018) [MP3|320 Kbps] <House, Deep House>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кто сказал, что воспитатель – это не работа мечты?
-Когда красавец-наниматель предлагает путешествие в соседнюю галактику, отказываться глупо. Вперед, навстречу приключениям и фантастической любви! Вот только чужая планета полна неожиданностей, законы на ней странные, работодатель холоден, а его окружение явно принимает меня за кого-то другого. Но русские няни не (   Читать дальше...   )Жанр: Любовно-фантастические романы, Попаданцы, Юмористическая фантастикаФормат: FB2
+01.  Tony Schwery  -  Schizophrenia (Original Mix)  7:22
+02.  Michael Lami  -  Machinarium (Original Mix)  4:07
+03.  O$O  -  Utbrudd (Original Mix)  5:03
+04.  Purecloud5  -  It's Not Too Late (Original Mix)  7:37(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:23:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB00C591365B1D3F5C9E6076E9E1D89EFE2A7ACF
+magnet:?xt=urn:btih:415CC40E7B33F36553518E63552A9A49753ACD9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,25 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277041   (787207) от 18.01.2019
+###  Публикация: 1202947   (789110) от 31.01.2018
 
-Горшенев - Имена (2019) Single [MP3|320 Kbps] <Rock>
+VA - Uplifting Trance Sessions Vol. 05 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фигура музыканта, автора, композитора и вокалиста Алексея Горшенева в особенном представлении не нуждается. За годы своей разнообразной творческой карьеры он снимался в полнометражных фильмах, работал над музыкой к популярной зонг-опере ТОDD, и, конечно же, на протяжении двух десятилетий с успехом гастролировал по всей стране в составе собственного коллектива «Кукрыниксы», (   Читать дальше...   )1. ИменаЖанр: RockПродолжительность: 00:03:34
+01. Nick V - Taste Of Time (Original Mix)
+02. Nikolauss - Star 48 (Original Mix)
+03. Amber Traill - Ibiza Space (Exouler Remix)
+04. Attila Syah - Malang Rain (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:06:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0E78CA6CCA4ED868979B160011627554D310694
+magnet:?xt=urn:btih:B18DF9F47933DBB81E27998B20E01BC02A419BE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,28 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276661   (787206) от 18.01.2019
+###  Публикация: 1203026   (789109) от 31.01.2018
 
-Johnny Hallyday - Album De Sa Vie (2019) [MP3|320 Kbps] <Rock>
+VA - Progressive Psychodelic Trance (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
 
 >>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Marie
-002. Sang pour sang
-003. Ça ne change pas un homme
-004. Diego, libre dans sa tête (Live à Paris-Bercy / 1990)(   Читать дальше...   )Жанр: RockПродолжительность: 05:59:49
+01.  Nerso  -  Spectral Waves (Original Mix)  6:17
+02.  Sean Tyas  -  People (Extended Mix)  8:07
+03.  Ace Ventura & Ryanosaurus  -  Still Searching (Original Mix)  7:57
+04.  Animato & Pettra  -  Feelings (Original Mix)  7:46(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:45:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1542CFA20BD942630F6387A2842AEF7D1906E37E
+magnet:?xt=urn:btih:036985501846AC7F92637E93C1794A2C680FCDCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,25 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276892   (787205) от 18.01.2019
+###  Публикация: 1202859   (789108) от 31.01.2018
 
-Wise Care 365 Pro 5.2.4.519 Final RePack (& Portable) by elchupacabra [Multi/Ru]
+Markus Guentner - Doppelgaenger (2009) Sending Orbs [FLAC|Lossless|tracks+.cue] <Ambient>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+01. Angelpunkt (06:24)
+02. Das Haus Steht Leer (07:07)
+03. Doppelgaenger (08:32)
+04. Flimmerfrequenz (07:12)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:11:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A069EBE8DE7C449A5360B28F649AB1AB1226A0E2
+magnet:?xt=urn:btih:85C9133688F7863701E239FB6CFBCD9C313251A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,82 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276975   (787204) от 18.01.2019
+###  Публикация: 1202843   (789107) от 31.01.2018
 
-VA - A Fair Forgery Of Pink Floyd (2003) 2CD [MP3|320 Kbps] <Progressive Rock, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Hopes (Shark & The Smoke) - 7:28
-02. Astronomy Domine (Mike Keneally Band) - 3:52
-03. Corporal Clegg (Samarin, Morgan and Hull, LLP) - 4:19
-04. Let There Be More Light (Glass) - 4:24(   Читать дальше...   )Жанр: Progressive Rock, PsychedelicПродолжительность: 02:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FC9F6E31E3836ABC586F2EF8E5A06FB63737D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276832   (787203) от 18.01.2019
-
-Маргарита Блинова | Команда «мечты» (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Факультет закрытых знаний»
-
-﻿"Ноэми, хочешь ли ты изменить мир?" Знай черная пантера-оборотень заранее, чем дело обернется, никогда бы не призналась, что хочет. И клятву верности младшему наследнику, да еще на крови, никогда бы не дала. А все проклятое кошачье любопытство и азарт! Теперь остается уповать на собственное везение, (   Читать дальше...   )Жанр: Любовное фэнтези, Магические академииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6753C5E92EF227B22981861E614FB0780B30A52C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276899   (787202) от 18.01.2019
-
-Icecream Slideshow Maker PRO 3.49 RePack (& Portable) by TryRooM [Multi/Ru]
+Julien Neto - Le Fumeur De Ciel (2005) Type [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Glitch, Downtempo>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Icecream Slideshow Maker - это приложение для создания видео слайдшоу на основе Ваших любимых фотографий. Оживите свои фото с помощью большого количества эффектов и наложения музыки. Программа не требует специальных навыков и позволяет создать слайдшоу всего за несколько минут: добавьте фото, выставите нужные настройки для каждого кадра, проверьте с помощью предпросмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. I (One) (03:20)
+ 02. Sketch (04:05)
+ 03. VI (Featuring Keith Kenniff) (04:13)
+ 04. IV (Keats) (04:29)(   Читать дальше...   )Жанр: Ambient, Modern Classical, Glitch, DowntempoПродолжительность: 00:43:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B26FAE50F6F55E696414B865396AF48F75DF6F71
+magnet:?xt=urn:btih:642A33C905CFB9AF8962A7451C4227EB20C089A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,54 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276833   (787201) от 18.01.2019
+###  Публикация: 1202811   (789106) от 31.01.2018
 
-The Cranberries - I Still Do (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Do
-02. Dreams
-03. Sunday
-04. Pretty(   Читать дальше...   )Жанр: RockПродолжительность: 03:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E20A81AD1C341282FB9E09EB3AFA7CEDAFEA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276997   (787200) от 18.01.2019
-
-CleanMyPC 1.9.10.1942 RePack (& Portable) by elchupacabra [Multi/Ru]
+Northaunt - Night Paths (2017) The Last Bleak Days Records [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Ambient>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CleanMyPC очищает компьютер от ненужных файлов, системного мусора, остатков ранее удалённых приложений и освобождает место на диске, а также обеспечивает более быструю работу Windows. Также продукт позволяет безопасно и без возможности восстановления удалять файлы с диска, управлять расширениями и плагинами браузеров, гаджетами рабочего стола, чистить реестр, очищать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. I Don't Regret Anything (05:51)
+02. Skjelletering (05:07)
+03. Blood Trail (02:46)
+04. Beneath The Ice (05:39)(   Читать дальше...   )Жанр: Dark Ambient, AmbientПродолжительность: 01:05:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB6AD3236B8522A6AA8713326DFEBB7F4BFA06ED
+magnet:?xt=urn:btih:4CEEB4BD5E5D1BB1B7FF3C413E153A305CED084C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,25 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276848   (787199) от 18.01.2019
+###  Публикация: 1202877   (789105) от 31.01.2018
 
-Г.Р. Кадырова | Интеллектуальные системы (2017) [PDF, DJVU]
+Paul Menska - Travel Memoirs (2016) Terminal Dream [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract>
 
->>Научная и техническая литература
->>Учебники
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Основные понятия, касающиеся теории искусственного интеллекта (ИИ) и интеллектуальных систем (ИС). Типичными примерами интеллектуальных систем являются экспертные системы и искусственные нейронные сети. Общие вопросы построения экспертных систем, их архитектуре, режимам работы, этапам разработки. Взаимосвязь таких понятий, как ИИ, машинное обучение и искусственные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, DJVU
+01. Travel Memoirs (04:20)
+02. Sundown Night (04:06)
+03. Garden Birds (04:56)
+04. Night Walks (04:06)(   Читать дальше...   )Жанр: Ambient, AbstractПродолжительность: 00:47:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42A44D03471C17CD44B89F6913EE9F897FC0CB5D
+magnet:?xt=urn:btih:A66EA6D90FF585F4B94F01C14350ACC915BBB9E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,26 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276627   (787198) от 18.01.2019
+###  Публикация: 1202886   (789104) от 31.01.2018
 
-Б.А. Горлач | Ряды. Интегрирование. Дифференциальные уравнения (2017) [PDF]
+The Winterhouse - Until Voices Wake Us (2017) DataObscura [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
 
->>Научная и техническая литература
->>Учебники
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изложение соответствует программам математической подготовки бакалавров и специалистов в области экономики, входящей в направление «Науки о природе». Экономическая направленность учебника определяется рассмотренными приложениями математики к решению конкретных экономических задач.
-Разобраны решения типовых задач. Даны условия задач для самостоятельного решения и (   Читать дальше...   )Жанр: Математика, экономикаФормат: PDF
+01. Solitary Rooms (12:49)
+02. Night Falls (11:00)
+03. Patience (10:17)
+04. There Will Be Time (10:21)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:54:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE24A334FDF40A14453991B086B6673FAACAEB28
+magnet:?xt=urn:btih:19E91EEF892311900BC1D5EC22489750D35AFBF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,25 +517,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277025   (787197) от 18.01.2019
+###  Публикация: 1202889   (789103) от 31.01.2018
 
-LibreOffice 6.1.4 Portable by PortableApps [Multi/Ru]
+VA - Cozy Chillout Times (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light in Color - Take Cover 05:27
+02. Georgette Gabel - Sin Moon 04:08
+03. Aaron Steve - Sir Tingeling 03:42
+04. Elias Harmon - Sonic Flow 05:02(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E6B5CE89EF5C77E20D8A8B1AC085CC2532124A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202799   (789102) от 31.01.2018
+
+Лыжные гонки. Кубок мира 17-18. 6-й Этап. Дрезден (Германия). Командный спринт. Свободный стиль. Финалы (14.01.2018) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+14 января 2018 года, воскресенье. 13:15 МСК
+6-й Этап Кубока Мира по лыжным гонкам 2017-2018.
+Дрезден (Германия).
+Командный спринт. Свободный стиль. ФиналыЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:05:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6369A99446DF9C602D4110753AF5E0DC6DA6D4C9
+magnet:?xt=urn:btih:B110CA4000DF2615C1699757A5F7C02B6D04D17E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,25 +575,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276896   (787196) от 18.01.2019
+###  Публикация: 1202687   (789101) от 31.01.2018
 
-MediaHuman YouTube Downloader 3.9.9.11 RePack (& Portable) by TryRooM [Multi/Ru]
+Н.В. Маслов | Благодатный старец. Схиархимандрит Иоанн (Маслов) (2006) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Схиархимандрит Иоанн (в миру Иван Сергеевич Маслов, в монашестве Иоанн) принадлежал к тем редким исключительным людям, которые соединяли в себе широкие познания, огромное трудолюбие и ясновидящую мудрость, основанную на глубокой вере. Магистр богословия, автор множества богословских работ, он являет собой образ духовника, к которому люди обращались и обращаются как (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D87B5F44951B01345FE98B716D77CFAB173F84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202890   (789100) от 31.01.2018
+
+Wintersilence - Slow Focus (2016) Musical Philosophy [FLAC|Lossless|tracks+.cue] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Focus (09:29)
+02. Snow Realm (07:14)
+03. Isolation (09:09)
+04. Winterzauber (03:44)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3288A703B6FECACAD381A05C976A13873DF96BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203068   (789099) от 31.01.2018
+
+Microtrauma - Sonar (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonar (08:18)
+ 02. Vona 1.2 (06:44)
+ 03. Filamenta (06:59)
+ 04. 5254 (05:13)(   Читать дальше...   )Жанр: Techno, Progressive House, MinimalПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0785EEC134D394FAB49CE2B876E545D74E0AA028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202973   (789098) от 31.01.2018
+
+Гандбол. Чемпионат Европы 2018. Загреб (Хорватия). 1/2 Финала. Дания — Швеция (26.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MediaHuman YouTube Downloader - удобное приложение с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер с YouTube, и сохранить его на ПК в любом доступном формате. Достаточно добавить ссылку на ролик, выбрать качество скачиваемого видео, указать необходимый формат и начать загрузку. Кроме того программа может отслеживать буфер обмена, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+26 января 2018 года, пятница. 22:30 МСК
+Чемпионат Европы по гандболу среди мужчин 2018. Загреб (Хорватия)
+1/2 Финала
+Дания — Швеция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AF6BC4BE9D43A934E4622777D8B22582D2E745D
+magnet:?xt=urn:btih:AAF20C7F954371359C126332653501E078F69983
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,25 +688,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276947   (787195) от 18.01.2019
+###  Публикация: 1202979   (789097) от 31.01.2018
 
-Инсайт / Озарение (2009) TVRip
+Makia Blue - Electra (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
 
->>Зарубежное кино
->>Фильмы ближнего зарубежья
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У психотерапевта Анны Сергеевны Бочкаревой есть все, что принято считать показателями успеха и состоятельности в жизни. Она читает курс лекций в институте, ее статьи печатаются в уважаемых научных изданиях, у нее собственная практика и дом в идеальном порядке. Но однажды система, в которую превратила свою жизнь героиня, разрушается из-за одной единственной встречи. (   Читать дальше...   )Производство: Беларусь / БеларусьфильмЖанр: ДрамаРежиссер: Рената ГрицковаАктеры: Богдан Ступка, Ирина Розанова, Ольга Иванова, Алексей Шедько, Виктор Рыбчинский, Анатолий Терпицкий, Алла Поплавская, Андрей Душечкин, Владимир Мищанчук, Оксана ЛеснаяЯзык озвучки: русскийСубтитры: ОтсутствуютПродолжительность: 01:24:58
+01. Set Off 03:42
+02. Along the Way 03:39
+03. A Short Rest 03:33
+04. Electra 04:01(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 01:04:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3D0C154CE2478494A43BB06910EC3C36FFE0816
+magnet:?xt=urn:btih:53F77CE89F52DBAF0A21DBE12ED4257ED19443F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,162 +717,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276946   (787194) от 18.01.2019
+###  Публикация: 1202884   (789096) от 31.01.2018
 
-PreSonus - Studio One Professional 4.1.2.50657 (x64) [En]
+VA - Best Of The Best Suanda Vol 4 (2018) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Studio One — Полноценный секвенсор(DAW) для создания музыки, которое делает звукозапись, MIDI-секвенсинг и аудио-мастеринг простым, предоставляя пользователю множество профессиональных функций.
-Программа снабжена не только всеми профессиональными функциями, которые могут встречаться в других аналогичных программах, но также новыми разработками, выделяющих Studio (   Читать дальше...   )Язык интерфейса: Английский
+01. Roman Messer, Roxanne Emery -Lullaby (Original Mix)
+02. LTN -Maldives (Original Mix)
+03. Armos, Lucid Blue, Ruslan Radriges -Call Of The Wild (Ruslan Radriges Radio Edit)
+04. Frainbreeze -Back To The Future (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C1025D325340D7A03B43A30729722F4026DF111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276591   (787193) от 18.01.2019
-
-Александр Барсуков | Кто есть кто в робототехнике. Компоненты и решения для создания роботов и робототехнических систем [2 выпуска] (2005, 2008) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель данной серии справочников — содействие в практическом создании роботов и робототехнических систем, а также действующих моделей-копий техники, электронно-механических игрушек и т. п. Кроме того, справочник будет полезен при роботизации среды обитания человека: построении интеллектуального жилища, внедрении электроники и малой механизации на садовых участках. (   Читать дальше...   )Жанр: РобототехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E275569635F302CAC762BBB8B381C580CD0EFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276580   (787192) от 18.01.2019
-
-Дэн Симмонс | Восход Эндимиона (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы снова попадаем в мир ИскИнов, космических Бродяг, и великой реки Тетис, пересекающей множество миров. Трое отважных странников путешествуют по бесконечной реке в поисках овеянной легендами Старой Земли, и в тяжелом, смертельно опасном плавании им помогает таинственный Шрайк – Повелитель Боли и Ангел Окончательного Искупления.Жанр: зарубежная фантастика, космическая фантастикаПродолжительность: 30:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA5B7C940984A40534A91D51BB83AF96AA098E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276908   (787191) от 18.01.2019
-
-Два капитана 2 (1993) DVDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало 20 века. Безрассудство фанатиков толкает человечество к пропасти. В России начинается революция. Сумасшедший доктор Фаркус вызывает оргазм неживой материи.
-Активизируются белые марокканские карлики. На небе появляется второе Солнце. В этой непростой обстановке капитаны самоотверженно противостоят силам хаоса, удерживая космический баланс истории.Производство: Россия, ГерманияЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Сергей ДебижевАктеры: Сергей Курехин, Борис Гребенщиков, Элеонора Мовилло, Тимур Новиков, Сергей Бугаев, Дмитрий Месхиев, Михаил Файнштейн-Васильев, Андрей Романов, Сергей ЛосевПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E93B49BA26ABB6EE819825F690E69CB34DF4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276895   (787190) от 18.01.2019
-
-Jeff Wayne - The War of the Worlds (1986) 2xCD, Reissue, Remastered [FLAC|Lossless|image + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787190.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. The Eve of the War
-02. Horsell Common and the Heat Ray
-03. The Artilleryman and the Fighting Machine(   Читать дальше...   )Жанр: Prog RockПродолжительность: 01:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EFA485720A19E1F79FCFEB91C50CB906CA271A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277006   (787189) от 18.01.2019
-
-Angel Delacruz | Светлые Боги (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магия и физика на перекрестках миров; кровь и вино во дворцах и на аренах. Третья мировая как предтеча первой войны кланов беспринципной новой знати и хищной старой аристократии.
-Молодые боги пришли в этот мир, чтобы взять все. Но на их пути встают хранители древних знаний, бесстрашные перед ликом дерзких владык.
-«Не нам, Господи…» - как и прежде, в разгорающемся (   Читать дальше...   )Жанр: Фантастика, Киберпанк, ЛитРПГФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6AA85F548FA693EE9255B02629FC996CD129DB5
+magnet:?xt=urn:btih:B098BD1620907F116F3CF8F489765DBF514D2945
 ```
 
 https://mybot314.ru/tekegram_catalog/

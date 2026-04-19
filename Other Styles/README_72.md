@@ -1,3 +1,177 @@
+###  Публикация: 1136724   (672877) от 23.05.2017
+
+VA - Thai Massage Lounge: Asian Zen Spa Relaxation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wellness Sounds Relaxation Paradise - Thai Massage Lounge 100
+02. Tranquility Spa Universe - Asian Zen Spa Relaxation 5
+03. Sauna & Massage Academy - Wellness Center 111
+04. Soul Therapy Group - Ayurveda Treatment 50(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D6ADC03F8E0C6B1048629195DC09FD598ED09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136756   (672537) от 23.05.2017
+
+VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Notorious B.I.G. - Hypnotize (03:50)
+02. Sean Paul - No Lie (feat. Dua Lipa) (03:41)
+03. A$AP Rocky - Everyday (feat. Rod Stewart, Mark Ronson & Miguel) (04:21)
+04. Vince Staples - BagBak (02:40)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE8FA1C0CF4EFC2006F5976FBB641C14AE843BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290857   (672350) от 23.03.2019
+
+The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caroline (03:33)
+02. Get It While the Gettin's Good (03:03)
+03. New America (03:56)
+04. Shame Shame (04:29)(   Читать дальше...   )Жанр: Contemporary Folk, CountryПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0F92DB062575CF3A97B4E32259D8EB8FDB7C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030757   (672291) от 01.07.2016
+
+Offrandes - Best of 2008-2015 (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Myriads of Light
+02.	Eternal Gratitude
+03.	Vision of the Soul
+04.	Beauty Elvish(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51737C26A5283887250317EE3788D99D4B042170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030736   (672289) от 01.07.2016
+
+Louis Landon - Ebb and Flow - Solo Piano (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Scenes [00:05:16]
+02. I'll Be Loving You [00:04:34]
+03. Ebb and Flow [00:03:20]
+04. Life Is but a Dream [00:04:23](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FBACD3FD13539F3D09043A502FDBB62D884205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030472   (672278) от 01.07.2016
+
+Aetos - Aetos (2016) [FLAC|tracks|WEB-DL]<Post-Metal, Post-Rock, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672278.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:11] 01. Burn Down The Gate
+[06:23] 02. Bait The Wolf
+[04:33] 03. The Green
+[03:16] 04. A Sybaritic Experience To Be Savoured(   Читать дальше...   )Жанр: Post-Metal, Post-Rock, InstrumentalПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9E19C73B308D6BA71CE0C4C55FDA1CF42D21FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290947   (672218) от 23.03.2019
 
 Royal Philharmonic Orchestra London - Rock Dreams (Unknown) Box Set, 4CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -590,185 +764,6 @@ CD1. Telegraphs in Negative: (00:43:56)
 06. Kill Fatigue Frequencies (01:28)
 07. In Prelight Isolate (15:11)
 08. Tehran In Seizure / Telegraphs In Negative (05:56)2001-2003Жанр: Post-Rock, Instrumental, Ambient, ExperimentalПродолжительность: 01:28:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031237   (668441) от 03.07.2016
-
-James Last - Instrumental Forever (1998) [APE|Lossless|image + .cue] <Instrumental, Pop, Latin>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A String Of Pearls
-02. Tico Tico
-03. Granada
-04. Brazil(   Читать дальше...   )Жанр: Instrumental, Pop, LatinПродолжительность: 00:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43FF4AC862A208E9AE2A516B31FFD8F8A613042C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031247   (668433) от 03.07.2016
-
-Medwyn Goodall - The Dreamworld (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamweaver
-02. Where Imaginations Meet
-03. Orbit
-04. Eye of the Wolf(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC6FFF517AF9E939D491A59ED82A57452AC7508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031221   (668428) от 03.07.2016
-
-Ennio Morricone - Ennio Morricone 2016 Meisterwerke der Filmmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chi mai (from "The Professional" & "Maddalena") [3:35]
-02. Il forte (from "The Good, the Bad and the Ugly") [2:24]
-03. The Good, the Bad and the Ugly (from "The Good, the Bad and the Ugly") [2:42]
-04. Once Upon a Time in the West (from "Once Upon a Time in the West") [3:11](   Читать дальше...   )Жанр: Soundtracks, ScoreПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7AD0AA63AF3694F93C34AB205979027D306F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137518   (667810) от 26.05.2017
-
-Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richter & Woodapple) (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take a Deep Breath - Luke Woodapple
-02. Le Onde - Luke Woodapple
-03. Metamorphosis II - Luke Woodapple
-04. Departure (Lullaby) - Luke Woodapple(   Читать дальше...   )Жанр: Classical, Piano, New AgeПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27117DA459CC6D3842820E0718277DEDB09D227A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339494   (667318) от 20.05.2011
-
-Orquestra Club da Valsa - As Mais Belas Valsas Brasileiras (1999) [MP3|320 Kbps] <Instrumental, Latin, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Velho Realejo 		(03:02)
-02. Deusa da minha rua 		(02:59)
-03. Branca 			(02:48)
-04. Abismo de Rosas 		(03:33)(   Читать дальше...   )Жанр: Instrumental, Latin, Easy ListeningПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CABE22813CF7A4ABC88DB1A5A9C6C2D2326FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511347   (667225) от 16.06.2012
-
-Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimental, Post-Rock, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of The Closet (13:07)
-02. Pai Nai (01:44)
-03. Early Reptilian Memories (03:20)
-04. Monobrow (08:32)
-05. Half Life (06:55)
-06. Beluga (02:39)
-07. Harpie (06:24)
-08. Vegas Radiation (04:46)
-09. Skin Job (04:20)2001-2005Жанр: Instrumental, Experimental, Post-Rock, AmbientПродолжительность: (00:51:49)
 
 ## Скачать торент
 ```bash

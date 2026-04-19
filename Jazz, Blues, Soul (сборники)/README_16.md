@@ -1,3 +1,32 @@
+###  Публикация: 712805   (403216) от 19.10.2013
+
+Sade - 25 Best Songs (2012) [MP3|209 - 248 кб/с]<Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No ordinary love 1992
+02. Smooth operator 1984
+03. Your love is king 1984
+04. Hang on to your love 1984(   Читать дальше...   )Жанр: SoulПродолжительность: 01:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12C26695E2E8E8396CFD691A4E6E04E39E7BE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 712966   (403176) от 19.10.2013
 
 Chris Rea - 25 Best Songs (2012) [MP3|197 - 270 кб/с]<Blues-Rock>
@@ -725,35 +754,6 @@ VA - Americans Swinging in Paris (Collection) (2002) [MP3|320 кб/с]<Retro, Sw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B92AA5E7877877E0A76983FA72F5C2B5C085B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328776   (356410) от 03.10.2019
-
-The Heavy Horses - Murder Ballads & Other Love Songs (2012) [MP3|320 Kbps] <Country, Folk, Acoustic>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:22
-02. Anyone Can Tell 05:16
-03. Copper & Gold 03:13
-04. Into The Earth 03:34(   Читать дальше...   )Жанр: Country, Folk, AcousticПродолжительность: 00:41:25 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8179856F11F09565BB3F6C0E775A04B9F7004B0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

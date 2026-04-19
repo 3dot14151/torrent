@@ -1,3 +1,236 @@
+###  Публикация: 1343528   (216159) от 07.12.2019
+
+Enya - Christmas Secrets (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic, Christmas>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oíche Chiúin (Silent Night)
+02. We Wish You a Merry Christmas
+03. White Is in the Winter Night
+04. Adeste, Fideles(   Читать дальше...   )Жанр: New Age, Celtic, ChristmasПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73A138A92482CB3ABA0520DBA8D7186D6D749A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343285   (216135) от 07.12.2019
+
+Shinnobu - The Enigma VIII (What Once It Was) (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216135.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Only by Love 10:34
+2. Hypnotic Eyes 08:55
+3. Stay with Me 10:14
+4. For Ever and Ever 06:41(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7EBBF650DF9947762DA382DA0579A154D08AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270128   (215888) от 17.12.2018
+
+Opycham - Kudesa (2018) [MP3|320 Kbps] <New Age, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215888.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Кудеса» завершает цикл из 4 альбомов проекта под названием OPYCHAM, который придумал и записал барабанщик тувинской группы Ят-Ха / Yat-Kha Евгений Ткачёв. Название OPYCHAM (читается как «опычам») на самом деле открывает слушателю имя автора, полученное им от тувинских шаманов - Орус Хам, что означает "русский шаман".
+Название альбома так же имеет глубокие (   Читать дальше...   )1. The Road (feat. Bolot Bairyshev)
+2. Meeting (feat. Alena Minulina)
+3. Kudesa
+4. Time of Joy (Spiritual Poetry)Жанр: New Age, FolkПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2796C2E6EB6C28E8A9F39A260DF7F32C3C010B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270080   (215684) от 17.12.2018
+
+Сергей Безруков & группа Крёстный папа - Заповедник (2018) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Соло #1
+02. Твои письма
+03. «А вы Пушкина любите?»/Заповедник
+04. Онегин(   Читать дальше...   )Жанр: OSTПродолжительность: 00:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD8C618721ADBDEB6BB607CC1BEF9681F3D3110C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514700   (215556) от 04.12.2021
+
+Peter Kater - How the West Was Lost (2011) 2CD [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Kater, R. Carlos Nakai - How the West Was Lost (Overture)
+02. Peter Kater, R. Carlos Nakai - How the West Was Lost (Seminole)
+03. Peter Kater, R. Carlos Nakai - Themes for the Cherokee
+04. Peter Kater, R. Carlos Nakai - Hand in Hand(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 02:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98C79F0D01C0775FFD8A46CACEFD3F174AD6170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514651   (215359) от 04.12.2021
+
+VA - Гармонь России 1-2 (2005-2006) 2CD [MP3|320 Kbps] <Фольклор, Русские народные песни>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Митрофановна - Никто тебя не любит так, как я (3:19)
+02. Митрофановна - Все татары, кроме я (2:08)
+03. Валентина Гуряшина - Одуванчик (2:23)
+04. Валентина Гуряшина - Ягода-смородина (3:23)(   Читать дальше...   )Жанр: Фольклор, Русские народные песниПродолжительность: 01:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47699D4B16874EB033267D4B2A8DE735DA26BBB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514750   (215325) от 04.12.2021
+
+Blackmore's Night - Nature's Light (2021) 2CD, Mediabook [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215325.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Once Upon December
+2. Four Winds
+3. Feather In The Wind
+4. Darker Shade Of Black(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AB36B46CA504B6DAC1EEF6EB13ECC8B0B5F58A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084298   (215217) от 20.12.2016
+
+VA - Бременские Музыканты. По следам Бременских Музыкантов (2001) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бременские музыканты
+
+01. Вступление - 01:01
+02. Песенка друзей - 02:27(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD31F5964FD69DFCFE42B08876B154858B152B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426446   (214818) от 24.11.2020
 
 Pregnancy and Birthing Specialists - Pregnancy Music New Age Collection 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -511,238 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E9DD8154C9A3DA62B5C2F43622F4E869BCAD26E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649473   (207761) от 28.07.2023
-
-Theodor Bastard - Oikoumene (2012) 10th Anniversary Edition, 2023, Theodor Bastard [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Trip-Hop, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oikoumene [00:07:40]
-02. Gerda [00:05:55]
-03. Tapachula [00:07:06]
-04. Takaya Mija [00:05:35](   Читать дальше...   )Жанр: Darkwave, Trip-Hop, FolkПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655FB39EB0D3C9D225FD32D81B36237F4892F741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649320   (207740) от 28.07.2023
-
-VA - Folk Country Songs USA (2023) [MP3|320 Kbps] <Country, Folk, Country Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronnie Dunn - Broken Neon Hearts [03:21]
-02. Caitlin Rose - Own Side [03:56]
-03. Hayes Carll - You Get It All [03:08]
-04. Jim Croce - Operator [03:46](   Читать дальше...   )Жанр: Country, Folk, Country RockПродолжительность: 05:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F47624F790AF6DA37C81358CFC7DE2DD49C070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274964   (206918) от 07.08.2023
-
-Дневник полярной экспедиции / Antarctic Journal / Namgeuk-ilgi (Kenji Kawai) (2005) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206918.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Main Theme (02:44)
-2. Eye In The Ice (00:55)
-3. Flag (02:39)
-4. Hole (02:25)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A99FA8A6450E4933C4753BF8CCB0C15A1C6FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613203   (206889) от 20.02.2023
-
-Ennio Morricone - Love Songs and Romantic Scores (2023) [OGG Vorbis|480 Kbps] <Film Soundtracks>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Califfa (Main Theme)
-02. D'amore Si Vive
-03. Love Theme (Version 2)
-04. Prima E Dopo L'amore(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 01:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179D1E4B1A9FB813D5643132279D5C006C7A13D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651905   (206888) от 08.08.2023
-
-Король и Шут - Король и Шут (Официальный саундтрек), Часть 2 (2023) [MP3|320 Kbps] <OST, Punk Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Алексей Горшенёв - Ели мясо мужики [00:02:10]
-02-Алексей Горшенёв - Лесник (Инструментал) [00:04:37]
-03-Горшок - Иван Факов [00:02:11]
-04-Александр Бузин - Девушка на время [00:04:02](   Читать дальше...   )Жанр: OST, Punk RockПродолжительность: 00:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33195B6AF6A47E9585EF5FB2DF1D2876DD06C65E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651911   (206882) от 08.08.2023
-
-Король и Шут - Король и Шут (Официальный саундтрек), Часть 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, Punk Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Алексей Горшенёв - Ели мясо мужики [00:02:10]
-02-Алексей Горшенёв - Лесник (Инструментал) [00:04:37]
-03-Горшок - Иван Факов [00:02:11]
-04-Александр Бузин - Девушка на время [00:04:02](   Читать дальше...   )Жанр: OST, Punk RockПродолжительность: 00:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C86856305A2C55BFEA516815A8F4872C45EF54B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651888   (206744) от 09.08.2023
-
-Chris Spheeris & Paul Voudouris - Enchantment (1991) [FLAC|Lossless|image + .cue] <Instrumental, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enchantment (4:31)
-02. Through the Wall (4:53)
-03. Pura Vida (3:50)
-04. Golden Days (3:44)(   Читать дальше...   )Жанр: Instrumental, New Age, AmbientПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A4C0BFC98481749CFA940C28ECAC21AB7A6C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652199   (206693) от 10.08.2023
-
-Sexy Lovers Music Collection - Barcelona Romantic Cafe: Spanish Guitar Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Guitar, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Coffee
-02. Romantic Weekend
-03. Sexy Summer
-04. Play Your Game(   Читать дальше...   )Жанр: Instrumental, Guitar, Easy ListeningПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80EF1A2A5EEB6DACA553345BB10DC2C2A004DACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

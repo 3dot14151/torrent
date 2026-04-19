@@ -1,3 +1,208 @@
+###  Публикация: 605384   (995809) от 19.01.2013
+
+Лучшие клипы / The best videos of all time (Country) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carrie Underwood - Cowboy Casanova
+02. Caitlin Rose -  Own Side
+03. Chad Brownlee - Carried Away
+04. Chris Cagle -  What A Beautiful Day(   Читать дальше...   )Жанр: Музыка, CountryПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334837832A4569BF43B28D1E8CAAB4232D137AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604785   (995794) от 19.01.2013
+
+Лучшие клипы / The best videos of all time (Blues) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alvin Youngblood Hart - Illinois Blues
+02. B.B. King - Rock Me Baby
+03. Blues Brothers & Ray Charles - Shake a tailfeather
+04. Big Bad Blues -  Furthur(   Читать дальше...   )Жанр: Музыка, Blues, Blues-rockПродолжительность: 01:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B17F7A6C30583BD1AE734FC6E026A4B3A2ACE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605457   (995789) от 19.01.2013
+
+Лучшие клипы / The best videos of all time (Glamrock) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Accept - Teutonic Terror
+02. Aerosmith - Crazy
+03. Alice Cooper - Bed of nails
+04. Antony Bellicourt - Glam Rock(   Читать дальше...   )Жанр: Музыка, GlamrockПродолжительность: 01:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720963E7CE5D0B53030A6C78FCEBF540E7424B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604523   (995702) от 19.01.2013
+
+Сборник клипов - DJ VJ Magrao - Full Video Collection (2003-2012) 15хDVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995702.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ VJ Magrao (настоящее имя- Luis Eduardo) - известный Бразильский радио ди джей, ви джей - один из пионеров музыкального, клубного направления - видеомикс - является одним из самых известных ви джеев мира, совладелец Бразильского музыкального лейбла - "Uberaba MG".
+Magrao - один из пионеров видеомикс-направления.
+Отличительной чертой его миксов является (   Читать дальше...   )001 - DJ Magrao - Intro
+002 - Dr.Alban - Look Who's Talking
+003 - Dr.Alban - Away From Home
+004 - Ace Of Base - The Sign(   Читать дальше...   )Жанр: Pop, Club, Dance, HouseПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B890491763E41EEB25FD1E2BB4BE403E75DF50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605410   (995498) от 20.01.2013
+
+ABBA - ABBA (Deluxe Edition) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995498.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ABBA In Australia (Television Special)
+a. Mamma Mia
+b. Hasta Mañana
+c. Ring Ring(   Читать дальше...   )Жанр: Pop, DiscoЯзык субтитров: Шведские, английские, французкие, немецкие, испанские, португальскиеПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AD1BE57D6D8FD79C4B9B056196E26E24213D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605831   (995443) от 20.01.2013
+
+Лучшие клипы / The best videos of all time (Enigmatic) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Era  - Come Into My World
+02. Messiah project -  Insomnia
+03. Enigma - Sadeness
+04. Devaldi - Indian Sunrise(   Читать дальше...   )Жанр: Музыка, EnigmaticПродолжительность: 01:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDA46B161AA648515988428CC1A1EC60D5B318D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605938   (995439) от 20.01.2013
+
+Лучшие клипы / The best videos of all time (Disco) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - He Is Your Brother
+02. Donna Summer - I feel love
+03. Arabesque - Friday Night
+04. Bad Boys Blue - Come Back And Stay(   Читать дальше...   )Жанр: Музыка, DiscoПродолжительность: 01:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F657D92D66FAF09AB783F0705A1966CBC4FC7BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605695   (995366) от 20.01.2013
 
 Dance Hits 90's - Retro Dance Party (2011) [H.264] DVDRip
@@ -501,194 +706,6 @@ Avril Lavigne - Alice (2010) BDRip [h.264,1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78642697EB3FDDEC279B1E2C2CC19DE951DD2B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610263   (990073) от 29.01.2013
-
-Rihanna - Diamonds (2012) HDRemux [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R&BПродолжительность: 00:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69B99EEF19938C5562DA4292E5E6E1BFBAF309E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610865   (989230) от 30.01.2013
-
-BAZUKA - Stand Up (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, ElectroПродолжительность: 00:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F5B74880FAF7514FB816B934E46B36BC256EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351791   (988865) от 21.01.2020
-
-Lindemann (2015-2019) WEB-DL [H.264/1080p-LQ] (12 видеоклипов)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоклипы Lindemann (2015-2019)
-2015 -  Lindemann - Fish On (00:05:17)
-2015 -  Lindemann - Praise Abort (00:05:13)
-2018 -  Lindemann - Mathematik ft. Haftbefehl (00:04:06)(   Читать дальше...   )Жанр: Industrial Ural MetalПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FE287C3553A80C3AAC43C461FAF655DD97F39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610556   (987256) от 01.02.2013
-
-Flo Rida - Whistle (2012) HDRemux [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rap, Hip-hop, R'n'BПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6455DEE0B3112A84A9D00D44A8E55ECF742226C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611234   (987098) от 01.02.2013
-
-Shakira ft. Dizzee Rascal  - Loca (2010) HDRemux [h.264,1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC727D72A0E9D3B8D9B2136F06CCFB12D8312B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611218   (987009) от 01.02.2013
-
-Shakira - Addicted To You (2012) HDRemux [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD635E7CA6DC75C72300832B764D196632E31FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354753   (986984) от 23.01.2020
-
-Каста - 12 Music Videos (2014-2020) WEB-DL [VP9/2160p, H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986984.jpg" />
-</div>
-
-
-###  Подробнее
-
-2014 Каста - Корабельная песня (Official Video) (1920 x 1080).mp4
-2014 Каста - На весь район (Official Video) (1920 x 1080).mp4
-2014 Каста - Романс для Анны (Official Video) (1920 x 1080).mkv
-2015 Каста - Решено (Official Video) (1920 x 1080).mp4(   Читать дальше...   )Жанр: Альтернативный РЭБПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CF25D75032969F9286108527943B83C825430E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1341147   (262911) от 26.11.2019
+
+VA - Luky Number: Electronic Euphoria (2019) [MP3|320 Kbps] <Electronic, Synthetics Sound>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262911.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mugwump - Empty Peculiar
+002. Daniel Jaeger - Generation Change
+003. Sainmusic - To Dream Alone
+004. Lower Synth Department - Fall Of Man(   Читать дальше...   )Жанр: Electronic, Synthetics SoundПродолжительность: 11:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B322AF62005975714ADBBA7A805F97A5DD53549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192637   (262828) от 18.12.2017
+
+VA - Empire Records - Classic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleeping Conference - Shallow
+02. Pianochocolate - Sunshower
+03. Alekzander & Julia Lav - Like A First Time (Adam Navel's Extended Out Mix)
+04. Steams - Lachrymose Radio(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49299D74359C0B123C1F401654154512074FD24D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192644   (262750) от 18.12.2017
+
+VA - Empire Records - Classic 2 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George D - Simple Solution
+02. Chronos - Woodchip
+03. Mari Billa - Kids of the Moon
+04. G Fox - Heart (Instrumental Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05253633D0A001162B7D6F3337789073746EBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341168   (262614) от 27.11.2019
+
+VA - Classic Trance Vocals (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin vаn Buurеn fеаt. Susаnа - Shivеrs
+002. Bеtsiе Lаrkin & Andу Mооr - Nоt Afrаid
+003. Gаrеth Emеrу & Alаstоr - Hаnds
+004. W&W - Thе Onе (Rаdiо Edit)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 08:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64DEF41D6CBDCE7591B07E471F52D873A209BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192955   (262530) от 19.12.2017
+
+VA - Amazing Vocal Future Bass 2 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aceaxe x Patrick Moreno feat. Jonny Rose — Chasing Love (Downtempo Extended Version) (4:15)
+02. Alesso — Falling (Nick Martin Remix) (3:49)
+03. Arno Cost — 1000 Suns (Devin Rayden & Yono Remix) (3:49)
+04. Blasterjaxx feat. HALIENE — Revelation (Extended Mix) (3:38)(   Читать дальше...   )Жанр: Future Bass, ElectronicПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAE1D5A5967C1DB9F909D9024037FE0B3188C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192890   (262494) от 19.12.2017
+
+VA - Innovations Deep House (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262494.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Electro Beat Orchestra - Make Me Fly (Extended Mix)
+002. EUCARIONTES - Tell Me More (Original Mix)
+003. Achtabahn, Matt Andersen - Ain't No Sunshine
+004. Fly & Sasha Fashion - Wake Me Up (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F0F903FA864485BB1D40465DF618761121E761A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192996   (262493) от 19.12.2017
 
 VA - Deep House Collection vol.148 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -609,192 +783,6 @@ LIYNA - Favorites Collection (2025) [MP3|320 Kbps] <Vocal Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FED13B8003BE14AC443511A925986ADD4B636C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837086   (256847) от 15.11.2025
-
-Delih - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rise
- 02 - More You
- 03 - Universe
- 04 - Lost Without You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCD35EBED8A7CE6E50C14E8D69A768FA1AE01FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837084   (256846) от 15.11.2025
-
-VA - No name compilation part 5 Electronic, Other, AI (2025) [MP3|320 Kbps] <Electronic, Other, AI>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dj Lava - On Our Way
-02 - D-Beats - Night & Day
-03 - Novi - Belongs to You
-04 - Diazza - November Rain(   Читать дальше...   )Жанр: Electronic, Other, AIПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78737F1226D9BC3FB7BFB6D6EE122A3448E4ED63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837206   (256845) от 15.11.2025
-
-VA - 60 minutes. Old School Dance Music vol.31 (mixed by Dj V) (2025) [MP3|320 Kbps] <Progressive Trance, Vocal Trance, Euro Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Alucard - Lighthouse (Original Mix)
-02-Ronski Speed & Sebastian Sand - Sole Survivor (Sebastian Sand Mix)
-03-Reflekt Feat. Delline Bass - Need To Feel Loved (12'' Club Mix)
-04-Nalin & Kane - Open Your Eyes (Re-Worked Club Mix)(   Читать дальше...   )Жанр: Progressive Trance, Vocal Trance, Euro TranceПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9751B52C1B4772BBD030C33EBB9B11D0F298441A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499731   (256336) от 21.05.2012
-
-VA - Sexy Trance #35 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256336.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nic Chagall & Duderstadt feat. Relyk - Alone With You [07:42]
- 002. Orjan Nilsen - Between The Rays (Original) [06:44]
- 003. Rosie Romero & Kyfu - Black Magic [07:04]
- 004. Oliver Smith - Butterfly Effect (Club Mix) [06:53]
- 005. Michael Jay Parker - Canberra (Original Mix) [08:23]
- 006. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix) [05:12]
- 007. Sean Bay feat. Arabella - Deep Inside (Intro Mix 2011) [08:01]
- 008. Physical Phase feat. Loreen Chimenti - Donne Moi Ton Corps (Vincent Licata Remix) [05:39]
- 009. Nick Callaghan & Will Atkinson - Eastern Spirit (Original Mix) [08:02]
- 010. Running Man - Eastern Sun [07:30](   Читать дальше...   )2012Жанр: Uplifting Trance, TranceПродолжительность: 03:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E521AB2C7C46BFD2A73832AE806C3C835A4B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498970   (256011) от 20.05.2012
-
-VA - Trancern 35.1 - Official Compilation (May 2012) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fafaq - 21st Century (06:37)
-02. Aly & Fila - 200 - FSOE 200 Anthem (Ummet Ozcan Mix) (06:31)
-03. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) (08:28)
-04. Dan Stone - Baltic (Ost & Meyer Remix) (08:28)
-05. John Askew - Bastard (Original Mix) (07:56)
-06. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix) (08:49)
-07. Miroslav Vrlik - Charisma (Original Mix) (06:51)
-08. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix) (05:12)
-09. Darren Porter - Daytona (Eight Minus Eight Remix) (07:27)
-10. Andreas Mats - Elate (Mike Danis Remix) (07:50)(   Читать дальше...   )May 2012Жанр: Trance, Vocal TranceПродолжительность: 03:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2186A8661C21703F25C4C34451947C8FEC2827C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836936   (255698) от 13.11.2025
-
-Oblivion - Collection (2021) [MP3|320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Orbit (Around The Earth) (4:57)
-02. Dancing With The Morning Sun  (Pulse Version) (6:07)
-03. End Of Journey (5:59)
-04. Exclusion Area  (Radioactivity Theme) (7:27)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 04:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9177B8EB8B543887ACE91EFE403C013FE469CFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

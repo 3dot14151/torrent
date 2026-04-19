@@ -1,3 +1,90 @@
+###  Публикация: 1259945   (316134) от 05.11.2018
+
+Space - Magic Fly (1977) 1983, Compilation [FLAC|Lossless|image + .cue] <Electronic, Synth-Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316134.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:22] 01. Magic Fly
+[8:20] 02. Carry On, Turn Me On
+[4:24] 03. Air Force
+[6:42] 04. Save Your Love For Me(   Читать дальше...   )Жанр: Electronic, Synth-PopПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B57683BB307399595D5725BD82B7E767B87F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959501   (314831) от 25.11.2015
+
+Parralox - Aeronaut (2015) Limited Edition [FLAC|Lossless|image + .cue]<Electropop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeronaut
+ 02. Atmosphere
+ 03. Companion
+ 04. Do You Feel What I Feel(   Читать дальше...   )Жанр: Electropop, SynthpopПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D49BAC4F7847F65C813B8A8302051768E8D8A8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583224   (314507) от 13.10.2022
+
+St. Lucia - Utopia (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indie>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. () [00:01:06]
+02. Separate World [00:04:52]
+03. Another Lifetime [00:04:37]
+04. Rocket On My Feet [00:04:07](   Читать дальше...   )Жанр: Synthpop, IndieПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6675CC20522AD4E7D6E5F21BBAF452D9F4AEEDEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959626   (314385) от 25.11.2015
 
 OFF - Organisation For Fun (1988) [FLAC|tracks+.cue]<EBM, Electro, New Beat, Synth-pop>
@@ -655,93 +742,6 @@ mindXpander - Triumphant Return (2012) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCDDE6E36EAC528E1D20855172F03402235884B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334370   (296371) от 28.10.2019
-
-mindXpander - A Tribute To Laserdance (2000) [FLAC|Lossless|image + .cue] <Spacesynth, Synthdance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Run (6:00)
-02. Enemy On Earth (5:39)
-03. The Challenge (5:56)
-04. New Adventures (5:54)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E39333374DB22D23ABE1C4B275054F136EFAE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334367   (296369) от 28.10.2019
-
-Humphrey Robertson - Synthesizer Dance Christmas Edition (2005) [FLAC|Lossless|tracks + .cue] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come All Ye Faithful (4:21)
-02. White Christmas (6:17)
-03. Jingle Bells (4:28)
-04. The Christmas Song (3:52)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309A353F0EF985F8821211DCCF165B7B8C55B72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961929   (295204) от 04.12.2015
-
-Fancy - Voices From Heaven (2004) [FLAC|tracks+.cue]<Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voices From Heaven (3:25)
-02. Snowwhite Tigers (3:44)
-03. Still In The Mood For Christmas (4:32)
-04. Jingle Bells And Candy Canes (4:07)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24E20B04289E0B80565152A850F1AB38ECC9968
 ```
 
 https://mybot314.ru/tekegram_catalog/

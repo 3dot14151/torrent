@@ -1,3 +1,61 @@
+###  Публикация: 1505778   (802487) от 28.10.2021
+
+VA - Deep House, Baby 2 (2021) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Forsberg - I Labyrintens Mitt. (8:04)
+02. Dellmon West.K - You39ll Find Me (Deepjack Mr.Nu Remix) (7:47)
+03. Cut - Out of Touch (Deepness Feat. Enzo Paradiso Remix) (7:18)
+04. Paul Diep - Like Jewerly (HIGHLITE Remix) (7:05)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758F36B609A9BCA88AF8CA746D3670664DCD3D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010606   (802253) от 25.04.2016
+
+VA - Chillout 2016 From Chilled Cafe Lounge to del Mar Ibiza the Classic Sunset Chill Out Session (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Going Home [05:29]
+02. Various Artists - Exuma Sweet Like Dat [03:56]
+03. Minke - One Last Push [04:49]
+04. Pulped Fiction - Never Get Enough [04:48](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8006E318BB440B2280B8368985AC4B2984AB551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120559   (802115) от 31.03.2017
 
 VA - Beatport Trance  Pack (31.03.) (2017) [MP3|320 Kbps] <Trance, Energy, Uplifting, Emotional, Blissful, Progressive>
@@ -684,64 +742,6 @@ VA - Beatport Future House: Electro Sound Pack #97 (2020) [MP3|320 Kbps] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CA32CD804F30804901C9A26FC650CF2C8EFC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384837   (800198) от 23.05.2020
-
-VA - Beatport Deep House: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800198.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sans Souci - Alvaro (Extended Mix)
-002. Ben Lucky - Heartwave
-003. Criptosk - El Heladero
-004. Swedz - Nights (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 12:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8063EFCFB4617A7090637C24126AEFB973517D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384838   (800196) от 23.05.2020
-
-VA - Beatport Techno Hypnotic: Sound Pack #88 (2020) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800196.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Booka Shade - Understanding
-002. François X - Absolute Therapy
-003. Benny Aims - Picture This
-004. Mojeaux - Detach (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 13:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685CAFF5B238C91154E4D24C1CEE2733FDE5A4AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

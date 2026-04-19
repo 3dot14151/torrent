@@ -1,3 +1,206 @@
+###  Публикация: 1307710   (554885) от 10.06.2019
+
+Unto Ashes - Pretty Haunted Things (2019) [FLAC|Lossless|WEB-DL|tracks] <Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m Living in a Coma                                                   [06:25]
+02. Letter from Choco to Melody                                            [03:12]
+03. Alone (words Edgar Allen Poe)                                          [03:28]
+04. I’m Too High                                                           [05:13](   Читать дальше...   )Жанр: NeofolkПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A00F9A9F5C2D423210DAC6BC1C782DD9A46CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236499   (554451) от 17.07.2018
+
+Lewellynl - Reiki Gold 2 (2018) [MP3|320 Kbps] <New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pathway to Home (5:00)
+02. Reiki Truth (5:02)
+03. Reiki Love and Peace (5:06)
+04. Reiki Stillness and Rest (5:04)(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F6605E2005E51AD916A489C123836EBE09B0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236473   (554444) от 17.07.2018
+
+Piano Peace - Piano Sleep Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep with Piano 03:38
+02. Twilight Piano 03:00
+03. Tranquility 03:10
+04. Peaceful Memories 03:21(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A94EC4494BE18D70AAC77BF03AC541055FEF65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307552   (554182) от 13.06.2019
+
+Olivier Deriviere - A Plague Tale: Innocence (Original Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plague Tale
+02. Father
+03. Grieving
+04. In Shock(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9270C373140AE7D62C6F1F8BCAD9F215B3A6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308112   (554176) от 13.06.2019
+
+Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Alternative>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Ghost I (02:14)
+02. For the Sun (03:29)
+03. Watch the Time (02:17)
+04. Space Ghost II (03:09)(   Читать дальше...   )Жанр: Indie Folk, AlternativeПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF4B27FFB8A818FA7B481A732D2B9B3E618BE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236543   (554027) от 19.07.2018
+
+Piano Peace - Sleep Piano Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sleep Lullaby 02:52
+02. Sleep Dream Love Song 02:57
+03. Music for a Good Night's Sleep 03:03
+04. Mystery of Love 03:03(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DBFEDF6D600F57840F968DFBA6540BB514AD2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308321   (553723) от 15.06.2019
+
+Calexico & Iron & Wine - Years to Burn (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Heaven's Left (04:52)
+02. Midnight Sun (04:14)
+03. Father Mountain (02:54)
+04. Outside El Paso (01:51)(   Читать дальше...   )Жанр: Folk, Indie RockПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE06D5E6076553A4F4B579A141F7CEC4F4B3FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308200   (553528) от 16.06.2019
 
 Jeff Scroggins & Colorado - Over the Line (2019) [FLAC|Lossless|tracks + .cue] <Country, Bluegrass>
@@ -542,209 +745,6 @@ Courtney Marie Andrews - Honest Life (2016) [FLAC|Lossless|tracks] <Country, Ame
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2825629EFDA3A516C081FB09EDEA5B4A5692EF16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047219   (550013) от 29.08.2016
-
-Aenigmatica - Sanctum (2016) [MP3|320 Kbps] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigmatic (5:43)
-02. Back to the Past (6:44)
-03. Awakening (5:49)
-04. Eyes of Truth (6:39)(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AFE8332803B4D64557CAD5F20FF338637C22C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237888   (549729) от 26.07.2018
-
-Marchese - Joyful Peace (2018) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Dreaming (5:08)
-02. Joyful Peace (5:12)
-03. Soft Breathing (5:12)
-04. Enlightened and Melodious (5:49)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BD1A0B7824976D4704EF857E8F6AB4E4C3DC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605467   (549197) от 21.06.2019
-
-Виктор Цой - Минусовки (2010) [MP3|96-256 kbps] <Rock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549197.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Невесёлая песня 04:20
-2. Следи за собой  04:35
-3. Спокойная ночь  06:17
-4. В наших глазах  03:37(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22F4960AB074D82FA2AF69189866A601771F797F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238061   (548779) от 27.07.2018
-
-VA - Summer: The Donna Summer Musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soundtrack, Musicals>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LaChanze & Original Broadway Cast of Summer - The Queen Is Back (2:29)
-02. LaChanze & Original Broadway Cast of Summer - I Feel Love (2:51)
-03. Ariana DeBose & Original Broadway Cast of Summer - Love To Love You Baby (2:40)
-04. Storm Lever, Kimberly Dodson, Wonu Ogunfowora & Original Broadway Cast of Summer - I Remember Yesterday (2:39)(   Читать дальше...   )Жанр: Pop, Soundtrack, MusicalsПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA42EE4097535A9313EACCBA6C9E0968E20176E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310042   (547844) от 23.06.2019
-
-Sun Kil Moon ‎ - I Also Want To Die In New Orleans (2019) 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coyote (12:31)
-02. Day in America (15:06)
-03. L-48 (04:51)
-04. Cows (09:58)(   Читать дальше...   )Жанр: Indie Rock, Folk RockПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBE75B6679AF06AF5D258EA118DDB877AB340F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047957   (547352) от 01.09.2016
-
-Casey Barnes - Live As One (2016) [MP3|320 Kbps] <Country Rock, Pop Rock, Blues>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live As One  03:23
-02. Saving All My Love  03:17
-03. The One You Love  03:08
-04. Flesh & Bone  02:52(   Читать дальше...   )Жанр: Country Rock, Pop Rock, BluesПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E5B2A44A6632C8A0B13A1E875C72AB8307F1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309960   (546950) от 24.06.2019
-
-Алексей Айги (Alexei Aigui) - Гибель Империи (2005) [FLAC|Lossless|tracks + .cue] <Score, Orchestral>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гибель империи. Пролог (2:09)
-02. 1914 (4:29)
-03. Война объявлена (4:16)
-04. Петербургская ночь (3:46)(   Читать дальше...   )Жанр: Score, OrchestralПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8933060F16CB83C1A5D848B671DC63D4D060CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

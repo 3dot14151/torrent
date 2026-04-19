@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1861309   (1062573) от 
+###  Публикация: 1865266   (1065223) от 15.04.2026
+
+Spyro Gyra - Heart of the Night (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart of the Night [0:04:34.02]
+02. De La Luz [0:05:15.03]
+03. Westwood Moon [0:04:55.32]
+04. Midnight [0:04:26.55](   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:53:43.093 (142 138 416 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD09B6AA97951936BCB5FD7C2EC0B40EC83D3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861309   (1062573) от 25.03.2026
 
 VA - The Detective's Tears (Noir Jazz Compilation) (2026) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, Ambient Jazz>
 
@@ -28,7 +57,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861421   (1062494) от 
+###  Публикация: 1861421   (1062494) от 25.03.2026
 
 Vandell Andrew - 2.14 (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
@@ -57,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860619   (1061867) от 
+###  Публикация: 1860619   (1061867) от 21.03.2026
 
 Norman Brown - Authentically Norman (2026) [FLAC|Lossless|WEB-DL|tracks] <Smoth Jazz>
 
@@ -86,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860620   (1061866) от 
+###  Публикация: 1860620   (1061866) от 21.03.2026
 
 Chris Standring - Time of Change (2026) [FLAC|Lossless|WEB-DL|tracks] <Smoth Jazz>
 
@@ -718,35 +747,6 @@ Electro Swing Radio - Bootleg Boogie (Electro Swing Trance Jazz Music) (2025) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E91D891476CA055BD5D60FFFA716C31DC978E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846007   (1051040) от 04.01.2026
-
-Electro Swing Radio - Swingin' Into Christmas (Chrismas Electro Swing Jazz Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Swingin' Sleigh Ride (Christmas Electro Swing Music) (1:56)
-02.  Santa's Swing Parade (Christmas Electro Swing Music) (1:31)
-03.  Snowman Shuffle (Christmas Electro Swing Music) (1:41)
-04.  Candy Cane Charleston (Christmas Electro Swing Music) (1:39)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68BAF372AA1C072678C37302C641C07BCF7BC66F
 ```
 
 https://mybot314.ru/tekegram_catalog/

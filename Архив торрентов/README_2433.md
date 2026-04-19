@@ -1,22 +1,22 @@
-###  Публикация: 540142   (504978) от 28.08.2012
+###  Публикация: 1542920   (508774) от 09.07.2022
 
-Nature Wallpapers (27.08.12) [Wallpapers]
+Рыцарь-скелет в ином мире | Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another World [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Однажды проснувшись, Арк оказывается в теле своего персонажа из онлайн-игры. Все бы ничего, но он — Рыцарь-скелет, и живые существа считают его своим врагом. Сможет ли монстр сделать свой мир немного лучше? Как он поведет себя, встретившись лицом к лицу с настоящим злом? Ответы на эти вопросы узнаем уже совсем скоро.Производство: Япония / Студия Studio Kai, HornetsЖанр: Приключения, фэнтезиРежиссер: Оно КацумиЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 24 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66A70D53B777DBDB4456706783D78F5E9448C5D5
+magnet:?xt=urn:btih:E89D8D40DDF0E988D1CCAF18263FD3D607BD6281
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540132   (504977) от 28.08.2012
+###  Публикация: 931930   (508759) от 29.08.2015
 
-Nature Wallpapers (26.08.12) [Wallpapers]
+FL Studio Producer Edition 12.1.3 [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Image-Line FL Studio Producer Edition - это законченное решение для создания музыки и самый быстрый способ воплощения идей. Запись музыкального материала, обработка аудио, включая редактирование питча, гармонизацию, подгонку материала под темп проекта, определение битов и продвинутая система нарезки аудио, автоматизация интерфейса большинства плагинов и всех параметров (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E784364A3A52F996F827D56A17285D68D32601B8
+magnet:?xt=urn:btih:EE50B3CAAE66A5206E571C335C67489F4BC60D38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540131   (504976) от 28.08.2012
+###  Публикация: 932309   (508754) от 29.08.2015
 
-Best HD Wallpapers Pack (26.08.12) [Wallpapers]
+Stardock Start10 1.0 RePack by PainteR [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Stardock Start10 – утилита, предназначенная для применения классического стиля меню "Пуск" и проводника Windows 7 в ОС Windows 10. Поддерживает скины, имеет полностью настраиваемый интерфейс и обладает высокой функциональностью.Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C34F2BED809861F0C2B418516DD414CFF5841D3
+magnet:?xt=urn:btih:369ECCBA369B16DB2BEFC22B82C4D2B593C310EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539343   (504974) от 28.08.2012
+###  Публикация: 932623   (508753) от 29.08.2015
 
-Nature Wallpapers (25.08.12) [Wallpapers]
+Омерзительная восьмерка / The Hateful Eight (2015) WEBRip [H.264/1080p] [Трейлер]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Действие фильма развернется после гражданской войны. Охотник за головами держит путь в небольшой пустынный городок, везя с собой заключенную. По дороге они встречают еще нескольких путешественников и двигаются дальше уже в расширенном составе. Попав в снежную бурю, герои решают укрыться в галантерейной лавке, где обнаруживают пеструю компанию: генерала, предполагаемого (   Читать дальше...   )Производство: США / Weinstein CompanyЖанр: ВестернРежиссер: Квентин ТарантиноАктеры: Kурт Расселл, Сэмюэль Л. Джексон, Тим Рот, Ченнинг Татум, Дженнифер Джейсон Ли, Майкл Мэдсен, Уолтон Гоггинс, Брюс Дерн, Демиан Бичир, Зои Белл, Ли ХорслиПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:02:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D155C7EE08936AC727C477F8198E92B362D15C9
+magnet:?xt=urn:btih:DE44122E423EE79FC4D132B36C2045BA913F8F7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538093   (504973) от 28.08.2012
+###  Публикация: 932343   (508752) от 29.08.2015
 
-Nature Wallpapers (22.08.12) [Wallpapers]
+Rufus 2.3 (Build 709) Final Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7B6A2D3744E9BECD44D84BE23E9DFF9FC90F0B2
+magnet:?xt=urn:btih:B9BCB64B13ADE21978CC66251C60A4ACCCB2877E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540140   (504972) от 28.08.2012
+###  Публикация: 1316103   (508734) от 23.07.2019
 
-Computer Desktop Wallpapers Collection (27.08.12) [Wallpapers]
+Opera GX 62.0.3331.96 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508734.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F42F96CB269BADE0E7F1BF1F85AFF69E88CB2AA
+magnet:?xt=urn:btih:DDB2A2583AB4A8D2AEA36CCBF365E78CB962E193
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539307   (504971) от 28.08.2012
+###  Публикация: 1316001   (508731) от 23.07.2019
 
-Nature Wallpapers (24.08.12) [Wallpapers]
+Ample Sound - Ample Guitar M III 3.01 VSTi, VSTi3, AAX x64 [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Ample Sound Guitar M это виртуальная акустическая гитара, созданная на основе сэмплов гитары Martin D-41. Инструмент включает несколько артикуляций и техник игры, в том числе сустейн, скольжение вниз и вверх, глушение ладонью, натуральные гармоники, легато с различной длинной и многие другие. Tab Player позволит загружать и воспроизводить несколько распространенных (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD65AE3F44C5D85B54EB92512FF91315212E8BBC
+magnet:?xt=urn:btih:3EC4628C61C3C3D09C5DF728D35F982FA849A609
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +180,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538119   (504970) от 28.08.2012
+###  Публикация: 1316115   (508719) от 23.07.2019
 
-Nature Wallpapers (23.08.12) [Wallpapers]
+ApeakSoft Android Data Recovery / Toolkit 2.0.20 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Apeaksoft Android Data Recovery создана для восстановления утерянных/удаленных файлов с мобильных телефонов, планшетов на Android и SD-карт. Программа легко восстановит текстовые сообщения, вложения, контакты, историю вызовов, фото, изображения, видео, музыку и документы.
+Android Data Recovery  совместима с Android 2.3 и другими более новыми версиями операционной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6317D74018C8E607B483A0EF517353F3400C075
+magnet:?xt=urn:btih:DA097013660218844AE0E918FBB083DDB13B83C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,28 +207,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539756   (504968) от 28.08.2012
+###  Публикация: 538558   (508716) от 24.08.2012
 
-David Salvans - Montseny (1994) [MP3|320 кб/с]<New age, Electronic>
+VA - Vocal Trance Volume 40 (2012) [MP3|320 кб/с]<Vocal Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(11:06) 1. Turo de grenys
-(12:22) 2. Fragments
-(14:18) 3. Montseny
-(03:30) 4. Tufts & MusicЖанр: New age, ElectronicПродолжительность: 00:41:16
+001. DNS Project feat. Madelin Zero - Another Day (Original Mix)
+002. Cerf, Mitiska & Jaren - Another World (Shogun Remix)
+003. David Forbes feat. Antonia Lucas - Because Of You (Pulser Remix)
+004. E.P.I.C. feat. Julie Thompson - Breathe (K.Blank & Moelamonde Remix)
+005. Armin van Buuren feat. Fiora - Breathe In Deep (The Blizzard Remix)
+006. Danilo Ercole feat. Marcie - Broken Wings (Original Mix)
+007. Ana Criado - Can't Hold Back The Rain (Stuart Trainer Remix)
+008. Cosmic Gate & Cathy Burton - Drifting Away (Original Mix)
+009. Andy Duguid feat. Julie Thompson - Falling (Original Mix)
+010. EDX feat. Sarah McLeod - Falling Out Of Love(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:51:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E12F216AB9A1573898B07BA9042AB1FFAA4B5949
+magnet:?xt=urn:btih:11ECD10132C56A49B84D68ABA06113A24766A922
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,25 +242,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539345   (504967) от 28.08.2012
+###  Публикация: 1316106   (508705) от 23.07.2019
 
-Desktop wallpapers (25.08.12) [Wallpapers]
+Bandicam 4.4.3.1557 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508705.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C9831615A249590CAF589BAD4CE4D7E48EE1F21
+magnet:?xt=urn:btih:29EEBA98D7E15334296825E71DF215B411E3922F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -261,25 +268,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538094   (504966) от 28.08.2012
+###  Публикация: 1315979   (508700) от 23.07.2019
 
-Landscapes HD Wallpapers (22.08.12) [Wallpapers]
+RarmaRadio Pro 2.72.4 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+RarmaRadio - программа для прослушивания и записи интернет-радиостанций. Обладает большим набором возможностей, обеспечивая комфортное прослушивание радиостанций и удобную запись транслируемых данных. Программа содержит множество станций рассортированных на группы в зависимости от жанра музыки, битрейта, сети и региона, имеет функцию поиска станций, автоматически (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, Белорусский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79C9E909A8E4CCEA2575D17101B6809CEDF1E5CA
+magnet:?xt=urn:btih:6B26C621B066E2D29AB1117C5EDD76D2A07866B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,25 +294,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539344   (504965) от 28.08.2012
+###  Публикация: 1315997   (508696) от 23.07.2019
 
-Landscapes HD Wallpapers (25.08.12) [Wallpapers]
+Дизайн Календарей 12.0 RePack (& Portable) by TryRooM [Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Дизайн Календарей - это доступная и удобная программа для создания красивых календарей с фотографиями на любой год или месяц. Достаточно выбрать формат и оформление проекта, добавить фотографии - и получить превосходный результат. Программа позволяет подготовить сотни вариантов календарей в самых разных стилях: классическом и современном, строгом или изящном, деловом (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AD6107FE8D20E5D4C18F55B685372CA7D5248C4
+magnet:?xt=urn:btih:A93A4D96A214588629A4EC5B604C778E483C54FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,242 +320,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540205   (504938) от 28.08.2012
+###  Публикация: 538594   (508692) от 24.08.2012
 
-Nature Wallpapers (28.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE89BBA1D3C4E58D9736EE62965EEC0ADB0A324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538117   (504937) от 28.08.2012
-
-Computer Desktop Wallpapers Collection (23.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84CC597B44E6771EB7ADC87EEB1FD72FEAB8608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538095   (504936) от 28.08.2012
-
-Nature HD Wallpapers (22.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B3BA976C5FB477EC99DF35B505FBC3AC6790288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539420   (504935) от 28.08.2012
-
-Computer Desktop Wallpapers Collection (26.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DD521BA046219890F629B8F96441FFB87C131F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538096   (504934) от 28.08.2012
-
-Design and interior of the wallpaper (22.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417F1BA87D2167F10F6C349B940CCB3475B73963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537877   (504933) от 28.08.2012
-
-Nature Wallpapers (21.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CDCE1EE4BBA024BEDEFFAE074A4EA7F5E59D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539342   (504932) от 28.08.2012
-
-Best HD Wallpapers Pack (25.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1D04F50933EFC54FFA611978F49867D882462F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538097   (504931) от 28.08.2012
-
-Design and interior of the wallpaper part.2 (22.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7335708E0E2074971D56A0CF1CB5C87B091CA170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539095   (504930) от 28.08.2012
-
-Neosis - Neosis (2012) [MP3|320 кб/с]<Progressive Math Death, Modern Cyber Metal>
+Big Balls Cowgirl - Bulletride (2012) [MP3|320 кб/с]<Hard Rock, Metal, Female Vocals>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Everlasting Mind Collapse 04:57
- 02. Unwilling Fate 05:07
- 03. Worship Mindset 05:08
- 04. The Deconstruction Of Reality 05:35
- 05. Neo-Euhemerism 05:10
- 06. Supremacy Design 05:05
- 07. Fragmentary Alteration 03:59
- 08. Chronic Absolutism 03:52
- 09. The New Paradigm 04:56
- 10. Cerebral Helix 04:55Жанр: Progressive Math Death / Modern Cyber MetalПродолжительность: 00:48:49
+01. Go For The Lead 02:56
+02. Upon My Oath 02:22
+03. Bulletride 02:59
+04. Stick To Your Guns 02:56
+05. Black Soul 03:21
+06. All Set Up 03:12
+07. One-Man Business 04:03
+08. Hard-Boiled Cowgirl 03:46
+09. Autumn Sun 03:28
+10. Beat The Creep 02:51(   Читать дальше...   )Жанр: Hard Rock, Metal, Female VocalsПродолжительность: 00:44:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F158949D324DBBB7F55BEF50266012ADAC513C8
+magnet:?xt=urn:btih:59437DAB1815B84F959012F53CD9ECCEBCCDF6B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,25 +355,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538121   (504929) от 28.08.2012
+###  Публикация: 538463   (508687) от 24.08.2012
 
-Desktop wallpapers (23.08.12) [Wallpapers]
+4H Community - Fourth Chakra 001 - 005 (2012) [MP3|320 кб/с]<Deep House, Deep Techno, Techno>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+1 hour 
+01. Christian Loffler feat. Mohna - Eleven (06:24)
+02. Monika Kruse - Cycle Of Trust (06:47)
+03. Markus Masuhr - Reshaption (04:28)
+04. Roberto Clementi - Motion A (06:23)
+05. SCSI-9 feat. Ogris Debris - I'm lost (03:44)
+06. Darling Farah - Body / Pat King - Another Late Night (06:40)
+07. Jean Le Grand - Contaminate (06:37)
+08. Neotnas - Atlantika (06:19)
+09. Royksopp - Sparks (Losout Remix) (07:03)(   Читать дальше...   )Жанр: Dark Progressive, Deep House, Atmospheric Breaks, Psy Chill, Deep Techno, Techno, Progressive HouseПродолжительность: 10:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D68FA5AB084924AC1F80C4306042C782AC1BBDA8
+magnet:?xt=urn:btih:C4E65035B2522B86950624E75E80AF3D70555C99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,25 +390,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538120   (504928) от 28.08.2012
+###  Публикация: 538860   (508683) от 24.08.2012
 
-Landscapes HD Wallpapers (23.08.12) [Wallpapers]
+Футбол. Суперкубок Англии 2012. Челси - Манчестер Сити (2012) SATRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Футбол. Суперкубок Англии 2012. Челси - Манчестер Сити. 12.08.2012 SATRipЖанр: СпортПродолжительность: 01:40:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE4B0E03636AADC0832BB9CDB51031A6AF43F351
+magnet:?xt=urn:btih:118B142E9F6BFC4B69C0BFB7D0ED40BDD759A5F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,25 +416,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540143   (504927) от 28.08.2012
+###  Публикация: 538146   (508680) от 24.08.2012
 
-Desktop wallpapers (27.08.12) [Wallpapers]
+ANIME-PATCHWORK (23.08.2012) [Графика]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+ANIME-PATCHWORK (23.08.2012)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4ED4C1F0F47A8A6F0D6483C3AD9668EA4D6F5355
+magnet:?xt=urn:btih:D1C3D4BF271184B1B39A090205E4F4F0AF8646EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,25 +442,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 537880   (504926) от 28.08.2012
+###  Публикация: 538778   (508676) от 24.08.2012
 
-Design and interior of the wallpaper (21.08.12) [Wallpapers]
+Журнал | АиФ. Спецвыпуск. Вопросы и ответы № 15 [2012] [PDF]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Этот спецвыпуск, как и все предыдущие, тоже появился по вашим просьбам, но он значительно отличается от всех предыдущих.
+Писем с предложениями сделать специальный выпуск "АиФ" для отдыха  накопилось немало. Кто-то предлагает выпустить сборник анекдотов, кто-то - номер сканвордов, судоку или тестов. Редакция решила объединить все пожелания в одном выпуске, чтобы каждый смог найти то, что ему интересно. Добавили еще занятные головоломки, задания для эрудитов и немного любопытнейшей информации. А также собрали коллекцию фирменных "АиФафоризмов". Запасайтесь ручкой, карандашом, хорошим настроением и отдыхайте с удовольствием! Для разминки предлагаем вам улыбнуться и разгадать вот такой сканворд. Ответы на все задания - в конце номера.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:155BF55FDCED36466FCBDAC2B034F05AACD51B9F
+magnet:?xt=urn:btih:FF53325268EA051431FEB8CE763E5B2A6395A772
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,25 +469,233 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540203   (504925) от 28.08.2012
+###  Публикация: 538717   (508674) от 24.08.2012
 
-Computer Desktop Wallpapers Collection (28.08.12) [Wallpapers]
+Журнал | Любимая дача [Украина]. Спецвыпуск №4 [сентябрь 2012] [PDF]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Спецвыпуск журнала «Любимая дача» посвящен теме — плодовый сад. Этот выпуск поможет вам определиться в многообразии сортов и методов ухода за плодовыми деревьями. Кроме тонкостей ухода за каждой культурой вы найдете здесь практичные и понятные фотомастер-классы, которые помогут правильно осуществить обрезку, окулировку и прививку деревьев.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C43F34F801A4601601F6E54622B41DED9BA86EA
+magnet:?xt=urn:btih:B3349E9F4D8AA35D02E00037D24B1EEDF5A90664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537905   (508673) от 24.08.2012
+
+Rub-a-Duckie: художник и фотограф из сингапура [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rub-a-Duckie: художник и фотограф из сингапура
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7996D5A8520509919BC08B32AD6FA256A4E1D776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315672   (508672) от 23.07.2019
+
+Microsoft Visual Studio 2019 Professional 16.1.6 (Offline Cache, Unofficial) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual Studio Professional 2019 - полный набор инструментов, с помощью которых процесс реализации инновационных замыслов разработчика легко воплощается в жизнь. Visual Studio предоставляет минимальный функционал, при помощи которого можно создавать уникальные программные продукты.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F758CF97573AF62C611FFD752F11D76497E38096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316067   (508671) от 23.07.2019
+
+Покемон. Детектив Пикачу / Pokemon Detective Pikachu (2019) BDRemux [H.264/1080p] [MVO] [PR]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508671.jpg" />
+</div>
+
+
+###  Подробнее
+
+История начинается с таинственного исчезновения частного детектива экстра- класса Гарри Гудмана, расследовать которое предстоит его 21-летнему сыну Тиму. Помощь в расследовании ему окажет бывший партнер отца, детектив Пикачу — уморительный, остроумный и обаятельный сыщик, который является загадкой даже для себя самого. Обнаружив, что они каким-то фантастическим образом (   Читать дальше...   )Производство: США, Япония / Warner Bros., Legendary Entertainment, The Pokemon CompanyЖанр: Фантастика, Фэнтези, Детектив, Приключения, СемейныйРежиссер: Роб ЛеттерманАктеры: Райан Рейнольдс, Джастис Смит, Кэтрин Ньютон, Билл Найи, Кэн Ватанабэ, Крис Гир, Сьюки Уотерхаус, Джозетт Саймон, Алехандро Де Меса, Рита ОраПеревод: Многоголосый профессиональныйСубтитры: Русские (Full), Английские, Испанские, Французские, ПортугальскиеПродолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8048094C446359202375A287091E486C1A72101D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316025   (508659) от 23.07.2019
+
+Bandicam 4.4.3.1557 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350CA29B9EA614AF94BE7A08617E2716744E58EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316064   (508654) от 23.07.2019
+
+CyberLink PowerDVD Ultra 19.0.1912.62 RePack by qazwsxe [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508654.jpg" />
+</div>
+
+
+###  Подробнее
+
+CyberLink PowerDVD - один из самых мощных на данный момент программных проигрывателей, позволяющий просматривать DVD-Video и Video-CD на вашем компьютере. Главными преимуществами этого проигрывателя можно назвать высокое качество изображения, удобный интерфейс с возможностью смены скинов и лёгкую настройку. Кроме просмотра фильмов с компакт-дисков (DVD и Video-CD), (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9A396B021ADD88B52BCDE741D8ADBCABA72CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538140   (508652) от 24.08.2012
+
+ANIME-PATCHWORK (22.08.2012) [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508652.jpg" />
+</div>
+
+
+###  Подробнее
+
+ANIME-PATCHWORK (22.08.2012)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA3DC007F94DC0F7D6F5B2FFCE4FF21B60B427A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538769   (508651) от 24.08.2012
+
+Заснеженные кедры / Snow Falling on Cedars (1999) HDTVRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508651.jpg" />
+</div>
+
+
+###  Подробнее
+
+В небольшой приморский городок пришла смерть… Карл Хайне, местный рыбак, был найден мертвым. Его обнаружили запутавшимся в сетях, со страшной раной на голове. Другой рыбак, по имени Казуо, был обвинен в убийстве Карла и арестован. В городе начинается судебный процесс, на котором постоянно присутствует молодой местный журналист Ишмаэл Чэмберс. На это у него есть свои, сокровенные причины: жена подсудимого была первой и единственной любовью Ишмаэла. Он решает сам расследовать обстоятельства таинственного происшествия.Жанр: Детектив, Мелодрама, ТриллерРежиссер: Скотт ХиксАктеры: Итан Хоук, Джеймс Кромуэлл, Ричард Дженкинс, Джеймс Реборн, Сэм Шепард, Эрик Тал, Макс фон Зюдов, Йоуки Кудо, Рик Юн, Ян Рубеш, Селия Уэстон, Макс Райт, Ариджа Барейкис, Желько Иванек, Каролине Кава, Зак Орт, Кэри-Хироюки Тагава, Дэниэл Фон БаргенПеревод: Многоголосый закадровыйПродолжительность: 02:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B33DD53FB23B8A7208AC1CB55B7BCD7D9590F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538866   (508647) от 24.08.2012
+
+Internet Download Manager 6.12 Build 10 Retail [Multi/Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного быстрее! Internet Download Manager имеет встроенный логический ускоритель загрузки, включающий интеллектуальную динамическую сегментацию файла и безопасную многослойную технологию загрузки, что способствует ускорению загрузки. Комплексная система анализа ошибок и возможность докачки, поможет продолжить загрузку, прерванную из-за потери соединения, проблем в сети, выключения компьютера или перепадов в подаче электроэнергии. Простой графический интерфейс делает IDM удобным и дружественным к пользователю.Название программы: Internet Download ManagerЯзык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

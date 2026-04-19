@@ -32,7 +32,7 @@ NG: Тайное оружие Гитлера / Hitler's (Nazi) Secret Weapon (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_935956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935956.jpg" />
 </div>
 
 

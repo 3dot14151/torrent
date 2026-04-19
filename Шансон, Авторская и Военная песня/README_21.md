@@ -1,3 +1,61 @@
+###  Публикация: 1136933   (671034) от 24.05.2017
+
+ВОЛК - Песни высшей пробы (2010) Compilation [FLAC|Lossless|image + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Близкая ходка (03:57)
+02. Роза ветров (04:57)
+03. Рыбалка (03:50)
+04. Кто сказал (03:48)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FD963407F1D3E907CEB019636D6A5E3C1BB64D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291361   (670499) от 24.03.2019
+
+Наталья Дудкина и Раиса Нур - Нас двое (2005) [FLAC|Lossless|image + .cue]<Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Какой большой ветер
+02. Ах, как долго едем
+03. Пирога
+04. Строки(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003CE56A2679DFB08F250337B84A07A9F62354FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030823   (670469) от 02.07.2016
 
 Владимир Двинской - Надо жить (2014) [FLAC|Lossless|image + .cue] <Chanson>
@@ -263,6 +321,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339390   (667250) от 20.05.2011
+
+Charles Aznavour - Duos [2CD] (2008) [FLAC|Lossless]<French Shanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charles Aznavour & Elton John - Yesterday When I Was Young [03:28]
+02. Charles Aznavour & Liza Minnelli - Quiet Love [05:27]
+03. Charles Aznavour & Sting - Love Is New Everyday [04:09]
+04. Charles Aznavour & Frank Sinatra - Young At Heart [02:55]
+05. Charles Aznavour & Nana Mouskouri - To Die Of Love [04:03]
+06. Charles Aznavour & Bryan Ferry - She [02:29]
+07. Charles Aznavour & Paul Anka - I Didn't See The Time Go By [03:53]
+08. Charles Aznavour & Celine Dion - You And Me [03:37]
+09. Charles Aznavour & Josh Groban - La Boheme (English version) [03:30]
+10. Charles Aznavour & Placido Domingo - El Barco Ya Se Fue [02:28](   Читать дальше...)Жанр: French ShansonПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138231   (665253) от 28.05.2017
 
 Иван Кучин - Человек в телогрейке. Лучшие песни (2001) Compilation [FLAC|Lossless|image + .cue] <Шансон>
@@ -314,6 +407,41 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1706E0DDF5AC34CA6A02BC68B11DFEAB4CAC9425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341025   (662288) от 24.05.2011
+
+Владимир Асмолов - Лучшее (2011) [MP3|320 kbps]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Славянский базар
+02. Поэты и цари
+03. Все это ты
+04. Раскосая колдунья
+05. В кинозале темном
+06. Звезды
+07. Болтовня
+08. Я так люблю тебя
+09. Курортный сезон
+10. Скука(   Читать дальше...)Жанр: ШансонПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877A9D6EFD5074B3976D902FBB3A9E10CD6F32AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,122 +771,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27C6FBFD1420DF84B86032023725C7F10A0B03C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540546   (652531) от 30.03.2022
-
-Группа Сентябрь - Моя царица (2022) [MP3|320 Kbps] <Поп, шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Моя царица
-02 - Ты только знай
-03 - Сердце плачет
-04 - Погода шепчет(   Читать дальше...   )Жанр: Поп, шансонПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:918DE797D6E66ECF9E3C273CC7EA81F7639782ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031460   (651803) от 04.07.2016
-
-Владимир Шандриков - Где мои берега (2003) [FLAC|Lossless|image + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поговорим за жизнь
-02. Исповедь одной ночи
-03. Про подземную вселенную
-04. Про русского Ивана(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4F7ED493612DA50BB79F9E5C930D48CD6C23FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031415   (651795) от 04.07.2016
-
-Вика Чинская и ансамбль «Ланжерон» - Билет до Магадана (1996) [FLAC|Lossless|image + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Билет до Магадана
-02. Несчастная девчонка
-03. Ах, Барбут!
-04. С малых лет...(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6CAFE6AE1FCABFCFB76B307838ED95822B706C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798817   (651672) от 23.06.2014
-
-Joe Dassin - Integrale Albums (2000) 15CD Box Set, Limited Edition [FLAC (image+.cue)|Lossless]<French Chanson, Ballad, Disco>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родился Джо Дассен (Joe Dassin, полное имя Джозеф А́йра Дассен) - 5 ноября 1938 года. Он родился в Нью-Йорке, а родителями Джо были Жюль Дассен (известный кинорежиссер) и Беатрис Лонер (виртуозная скрипачка-виртуоз и солистка оркестра Пабло Кассаля).CD 1 - Joe Dassin A New York (1966)
-CD 2 - Les Deux Mondes De Joe Dassin (1967)
-CD 3 - Les Champs-Elysees (1969)
-CD 4 - La Fleur Aux Dents (1970)(   Читать дальше...   )Жанр: French Chanson, Ballad, DiscoПродолжительность: 08:26:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A395B1B79F554D53B3521B13CA00C70B4C9DE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -483,7 +483,7 @@ Tom Clancy’s Rainbow Six: Vegas (2007) [PS3] [USA] 1.70 [Cobra ODE / E3 ODE PR
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_841942.jpg" />
 </div>
 
 

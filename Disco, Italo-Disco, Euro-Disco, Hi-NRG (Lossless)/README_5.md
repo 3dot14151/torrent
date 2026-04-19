@@ -1,3 +1,148 @@
+###  Публикация: 992701   (898862) от 03.03.2016
+
+Ottawan - All Gold Of The World (2004) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.I.S.C.O. (English Maxi Version) (5:01)
+02. You're O.K. (5:15)
+03. Hands Up (Give Me Your Heart) (4:52)
+04. Crazy Music (5:31)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461CB344D8E5B82F955C544A119DE01F85D6BC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491529   (898842) от 01.09.2021
+
+MFSB - Philadelphia Freedom & Summertime   (2010)  2CD [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Picnic In The Park (04:16)
+02. Summertime (04:54)
+03. Plenty Good Lovin' (04:35)
+04. Sunnin' And Funnin' (04:17)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A7F2A87D5E024066ED8930D8B236BE35178EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992979   (898586) от 03.03.2016
+
+Gazebo - The Collection (1998) [FLAC|Lossless|tracks + .cue] <talo-Disco, Electro, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Telephone Mama (5:44)
+02. Strategy (3:40)
+03. Solitaire (4:34)
+04. For Anita (5:56)(   Читать дальше...   )Жанр: Italo-Disco, Electro, Synth-popПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9317BD5696971B8133D176DA11740FE4839E92E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100922   (897504) от 05.02.2017
+
+Digital Emotion - Digital Emotion & Outside In The Dark (1984-1986) Compilation, 2002, Break Records [FLAC|Lossless|image + .cue] <Italo-Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up, Action [4:44]
+ 02. Go Go Yellow Screen [6:01]
+ 03. The Beauty & The Beast [5:06]
+ 04. Don't Stop [4:38](   Читать дальше...   )Жанр: Italo-Disco, ElectroПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68A9B58C9EC03E0F32088F3BB899174FBB8B773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294605   (897416) от 12.02.2011
+
+Chilly - Ultimate Collection  Non-Stop (2010) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine Of Your Love :: 6:29
+02. Play Me A Classic Symphony :: 2:54
+03. We Are The Popkings :: 4:02
+04. Doll Queen :: 2:26(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:20:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101173   (895951) от 06.02.2017
 
 VA - ZYX Italo Disco New Generation Vol.9 (2016) [FLAC|Lossless|tracks + .cue] <Disco, Pop, Synth Pop>
@@ -598,151 +743,6 @@ Silver Pozzoli - Greatest Hits & Remixes (2020) 2CD, Compilation [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A58FF3A700F302D35C0013FCF5F7BEB42E4274A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376322   (858687) от 18.04.2020
-
-VA - 80's Revolution Dance Movement (2006) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Synth-pop, Italodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MC Dirty Dan - I Can't Forget (3:30)
-02. Dr Phones - Drop the Rules (3:24)
-03. Indiansphere - Don't Use No Violence (3:46)
-04. Perfect Times - Time (3:08)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Synth-pop, ItalodanceПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380D00ED7A52553DB08DDF9CFAAB5402D20132B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376315   (858677) от 18.04.2020
-
-Spatial Vox - Cause Of Shining In Your Eyes (The 1'st Album) (2019) [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cause Of Shining In Your Eyes (4:09)
-02. Right To My Self (3:17)
-03. Call My Name (3:38)
-04. Love Will Never Die (4:06)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F0BF952A9A079225B95E38DE43CF2960DDC4B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109310   (858660) от 27.02.2017
-
-VA - The Best Disco '80 (Syndicate) (1980) Unofficial Release [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Ocean - Stay The Night (4:01)
-02. La Flavour - Mandolay (6:21)
-03. Lipps, Inc. - Funky Town (8:08)
-04. Ottawan - You're O.K. (5:13)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F25E9D2D0CD3CC0A9DDF4F39219802C89693AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879073   (838832) от 17.03.2015
-
-Arabesque - Complete Box (2015) 10CD /Japan/ [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1978 - Friday Night (Arabesque)
-1979 - Peppermint Jack (Arabesque II / City Cats)
-1980 - Marigot Bay (Arabesque III)(   Читать дальше...   )Жанр: Disco |Продолжительность: 06:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2157732E29BD25FB285FEF1694B3588CA8405CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502056   (831825) от 12.10.2021
-
-Enzo Persuader - Pretty Lover (Single) (1983) Remaster, 2019, Borgatti/Sweet Moon [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831825.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 PRETTY LOVER (Disco Mix version) 07:00
-2 PRETTY LOVER (Radio version) 03:59
-3 PRETTY LOVER (Instrumental) 06:57
-4 PRETTY LOVER (Mix 128 B.p.m.) 06:34(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DD455BC89B7027555D111D67D00AAC83DE6E80
 ```
 
 https://mybot314.ru/tekegram_catalog/

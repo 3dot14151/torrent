@@ -1,3 +1,32 @@
+###  Публикация: 995402   (884509) от 11.03.2016
+
+Apollo Brown - Grandeur (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally (0:25)
+02. Neva Eva (feat. Barrel Brothers) (3:19)
+03. What You Were Looking For (feat. Oddisee) (3:38)
+04. Detonate (feat. M.O.P.) (3:16)(   Читать дальше...   )Производство: Mello Music Group – MMG-00077-2Жанр: Hip HopПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE0E07217ADD9BB00BE6FE15E45824C7572E3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372666   (883861) от 04.04.2020
 
 Гуляй Рванина - Дар речи (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -714,35 +743,6 @@ Anacondaz - Выходи за меня (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45E2666C77125BB5252C16C690184FEBE0AD8737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108173   (863803) от 24.02.2017
-
-Anacondaz - Выходи за меня (2017) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Спаси, но не сохраняй
-02 - Чего ради
-03 - Смотри на меня
-04 - Рокстар(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CF8992A8AC61C2908807652A8477BEA4E56504
 ```
 
 https://mybot314.ru/tekegram_catalog/

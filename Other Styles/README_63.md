@@ -1,3 +1,177 @@
+###  Публикация: 1024936   (714134) от 10.06.2016
+
+Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Joy of Quiet Rain Mix
+02. Soft Focus Ocean Mix
+03. Velvet Morning Rain Mix
+04. In Fields of Peace Ocean Mix(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B50D5D512837B0C2FFE67D04A0860F69449DE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024868   (714083) от 10.06.2016
+
+Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [FLAC|Lossless|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Joy of Quiet Rain Mix [00:09:49]
+02. Soft Focus Ocean Mix [00:08:54]
+03. Velvet Morning Rain Mix [00:08:54]
+04. In Fields of Peace Ocean Mix [00:08:59](   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24B6113120D1E789A55D65E4D428423AE2D454B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024741   (714075) от 10.06.2016
+
+Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer & Lang Lang – Oogway's Legacy (02:00)
+02. Hans Zimmer - Hungry for Lunch (01:15)
+03. Hans Zimmer – The Power of Chi (04:12)
+04. Hans Zimmer – The Arrival of Kai (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967182C7E7560018639B9076FC23D30BA6FD7527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024907   (713994) от 10.06.2016
+
+Terry Oldfield & Soraya - Namaste (2016) [MP3|320 кб/с] <New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Namaste
+02. Always Perfect
+03. Celtic Blessing
+04. Into Your Hands(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E05642D49AFD8356637C38F406939B3BA4F067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024576   (713962) от 10.06.2016
+
+VA - Are Lonesome Tonight. 23 Romantic Instrumentals (UY) Unofficial Release [APE|Lossless|image + .cue] <Jaz, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Camels Pick-Nick
+02.  Linger A While
+03.  Concerto D'Aranjuez
+04.  Plaisir D'Amour(   Читать дальше...   )Жанр: Jaz, Easy ListeningПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C4862E1DA82FC36E73A9F7FE6805B8F4A032D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025047   (713796) от 10.06.2016
+
+Nature Sounds & Yoga Tribe - The Natural Orchestra (2016) [MP3|320 кб/с] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stargazing
+02. Evening Music
+03. Unforeseen Adventure
+04. Call to Play(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D959E4A1B1609B7C8FBFE50E8EB78A496D3FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219499   (713353) от 14.04.2018
 
 Danheim - Herja (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
@@ -570,180 +744,6 @@ Jed Kurzel - Alien: Covenant / Чужой: Завет (Original Motion Picture S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0413B49AC1FE70E8B02298BACE17326B1D05F8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025614   (708203) от 13.06.2016
-
-Jonn Serrie - Flightpath (1989) Reissue, 1995, Miramar, BMG [MP3|320 кб/с] <Ambient, New Age, Space>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flightpath (4:35)
-02. Sky Safari (10:28)
-03. Muroc (6:46)
-04. Outreach (4:30)(   Читать дальше...   )Жанр: Ambient, New Age, SpaceПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73CE757D09D2F8CCAF605AEBDA548B76027877C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025537   (708123) от 13.06.2016
-
-Robin Spielberg - Another Time, Another Place (2015) [FLAC|Lossless|tracks] <New-Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Dance (4:35)
-02. Ship to Shore (4:23)
-03. Another Time, Another Place (5:54)
-04. Cherry Blossom (4:07)(   Читать дальше...   )Жанр: New-Age, Instrumental, PianoПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F20145F4C945A012E890EAECD8FC8820FCFB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025592   (708113) от 13.06.2016
-
-Liquid Mind - XI: Deep Sleep (2016) [FLAC|Lossless|tracks] <New-age, Ambient, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Whispers (9:08)
-02. Teach Me to Love (Pt. 1) (5:00)
-03. Teach Me to Love (Pt. 2) (7:02)
-04. Dreamland (8:01)(   Читать дальше...   )Жанр: New-age, Ambient, RelaxПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5858F5D834E4F7FC2A88886BF1F5784A1D285027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025953   (708021) от 13.06.2016
-
-Spirit Nation - 2 альбома (1998-2006) [MP3|320 кб/с] <Native American, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celebration (4:45)
-02. Animal Clans (5:04)
-03. Earthwalk (5:29)
-04. Yaneeha Sweet Daughter-Moon (5:22)(   Читать дальше...   )Жанр: Native American, Enigmatic, WorldПродолжительность: 01:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54CB00E4B6CB9E8B0E1AA1472D12F27DDF46F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025690   (708018) от 13.06.2016
-
-Blue Tribe - Deep Spirit (2006-2012) 3CD [MP3|320 кб/с] <Native American, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Sun (5:14)
-02. The Medicine Wheel (5:16)
-03. Yellow Moon Woman (5:50)
-04. Spirit Wolf Calling (5:05)(   Читать дальше...   )Жанр: Native American, Enigmatic, WorldПродолжительность: 02:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2EC2F3782050A5F31C165482BA0C2232164A41B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219793   (707998) от 17.04.2018
-
-VA - Fitness Latino Party Vol. 2, 3CD (2018) [MP3|320 Kbps] <Reggaeton, Zumba, Merengue, Other>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Fonsi - Echame La Culpa 2:54
-02. Mc Fioti - Bum Bum Tam Tam 3:34
-03. Daddy Yankee - Dura 3:21
-04. Joey Montana - Suena El Dembow 3:16(   Читать дальше...   )Жанр: Reggaeton, Zumba, Merengue, OtherПродолжительность: 03:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721C3E354321A56B7C6E4EB4CA57D65364EB4B5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

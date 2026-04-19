@@ -1,25 +1,22 @@
-###  Публикация: 1097202   (916067) от 26.01.2017
+###  Публикация: 632476   (919481) от 20.03.2013
 
-VA - River's Lounge: Stage Selection (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+Журнал | Cosmopolitan [Россия] №4 (апрель 2013) [PDF]
 
->>Electronic
->>Easy listening
+>>Журналы
+>>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Enrico Donner - Sensual Education  5:57
-02.  Don Gorda Project - In Silencio  5:07
-03.  Cane Garden Quartet - Ageless  5:52
-04.  Baghira - Way Too Long  5:43(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:25:23
+Cosmopolitan – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEBEFA8C1A8608CA79E32523615047CFBB5C9724
+magnet:?xt=urn:btih:02ED63A6D56D5D7CF6284B96F249948B2307EA24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097145   (916064) от 26.01.2017
+###  Публикация: 632787   (919480) от 20.03.2013
 
-Maynard Ferguson - A Message From Newport (1958) 1989, Roulette[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Big Band>
+Mylene Farmer - Je Te Dis Tout (2013) HDTV [H.264/1080i]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.The Fugue [03:29]
- 02.Fan it, Janet [03:17]
- 03.The Waltz [04:05]
- 04.Tag Team [05:09](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Big BandПродолжительность: 00:44:13
+Жанр: PopПродолжительность: 00:04:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF734E79DBF78A394832092697F68EA6FB6D7958
+magnet:?xt=urn:btih:51AC95D15BDB86E412FEEE7614B712A83924C4F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097134   (916062) от 26.01.2017
+###  Публикация: 757172   (919463) от 15.02.2014
 
-Gerry Mulligan - Jeru (1962) 2016, Sony Music[FLAC|Lossless|image + .cue] <Cool, West Coast Jazz>
+Элиза  Бёрнетт | Таинственный сад. Маленький лорд Фаунтлерой. Маленькая принцесса. Приключения Сары Кру (2010) [FB2]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Capricious [05:48]
- 02.Here I'll Stay [05:01]
- 03.Inside Impromptu [05:33]
- 04.You've Come Home [05:41](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:36:27
+Произведения Фрэнсис Бернетт любимы многими поколениями разных стран. Может быть, потому, что в них рассказывается о детских горестях, радостях и приключениях очень искренно, без назиданий и занудства. Писательница родилась в Англии, рано потеряла отца, в восемнадцать лет потеряла и мать. Так девушке пришлось стать опорой своим четырем младшим братьям. Пройдя нелегкую (   Читать дальше...   )Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:558B43D2344A1D3A18D291D013DFBC4EE52F06D1
+magnet:?xt=urn:btih:4187BBDEB8078B60AFD80E2A7B463D4AAA092B10
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,331 +76,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 632837   (916061) от 22.03.2013
+###  Публикация: 632094   (919441) от 20.03.2013
 
-Земля 2100 / Earth 2100 (2009) [H.264/720p] HDTV
+Охота за Янтарной комнатой / Die Jagd nach dem Bernsteinzimmer (2012) BDRip [H.264/720p-LQ]
 
->>Зарубежные TV-бренды
->>Мир будущего
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Идея, перед которой большинство из нас не стояло бы - что в течение следующего столетия, жизнь, какой мы знаем ее, может закончиться. Наша цивилизация может разрушиться, оставляя только следы человеческого существования. Чтобы изменить будущее, сначала Вы должны вообразить это. Это кажется диковинным, чрезвычайным - даже невозможным. Но согласно ультрасовременному научному исследованию, это - очень реальная возможность. И если мы продолжим жить как живем теперь, это может обязательно случится.Жанр: Документальный, ФантастикаПеревод: Многоголосый закадровый, любительскийПродолжительность: 01:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9ECEC7063E0757870CBA7FE1C57B7A49D9701E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097110   (916058) от 26.01.2017
-
-Хоккей. Неделя Звёзд хоккея. Мастер-Шоу Матча Звезд КХЛ 2017 (21.01.2017) IPTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916058.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 января 2017, cуббота
-Матч Звезд КХЛ 2017 – ежегодный праздник с участием лучших игроков, выступающих в чемпионате КХЛ.
-Программа Матча Звезд КХЛ 2017 традиционно включает в себя встречу звездных команд и Мастер-Шоу Матча Звезд КХЛ 2017 – серию увлекательных конкурсов, в которых участники демонстрируют различные грани своего мастерства:
-(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC3FA3127E4352AF2B534E9C4C19BBE223FFFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097234   (916055) от 26.01.2017
-
-VA - Chillout Fantasies (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lamar Ensemble - Zero Hour  5:33
-02.  The Sura Quintet - Keep Me Company  6:05
-03.  Logophilia - Gaillardia  5:49
-04.  The Biosnakes - Sav  6:03(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A68134E7C3ABC84947DA5C59445FAD8BB6BC9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097261   (916051) от 26.01.2017
-
-VA - Снежный презент Выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916051.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evan Rai - Лети На Солнце 3:03
-002. Solterov - Алтайский Экспресс 4:20
-003. Андрей Витвитский - Улетаю 3:40
-004. Dee Flack & Gen Ree - Рубежи 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E536F50F2E7FAF03FE215B27C19852DEB0F435D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097141   (916046) от 26.01.2017
-
-Reggie Lucas - Survival Themes (1975) Remaster, 2015, Universal[FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Slewfoot [03:08]
- 02.Tender Years [04:33]
- 03.The Barefoot Song [09:45]
- 04.Survival Themes [23:13]Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E32620C671ACF56AF3F396B8C404D57D03C38DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757877   (916043) от 17.02.2014
-
-Ю.П. Лисицын, П.И. Сидоров | Алкоголизм. Медико-социальные аспекты (1990) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство является фундаментальной работой, в которой обобщены данные о факторах риска и этиологии, медико-социальных проявлениях, распостраненности и предупреждении алкоголизма. Подчеркнута роль первичной профилактики алкоголизма. Рассмотрены особенности организации наркологической помощи в различных географических и экономических регионах, проанализирован накопленный опыт медико-социальной реабилитации больных алкоголизмом. особое внимание обращено на практику реализации антиалкогольной политики и направления перестройки деятельности наркологической службы. Для организаторов здравоохранения, наркологов и практических врачей.Жанр: Медицинские исследования, диагностикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E483A114BD741AA371F754282F5EFF183FA4B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097089   (916042) от 26.01.2017
-
-VA - Зимняя сотка хитовая. Версия № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916042.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Елена Есенина - Тамтамы 3:00
-002. Анастасия Царькова - Оригами 3:37
-003. Layah - Дети Неба 3:13
-004. Таша Белая - Море Пополам 2:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FDF585730C2689BB944178404FAAEF7EC6B3F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096518   (916040) от 26.01.2017
-
-Константин Вагинов | Козлиная песнь (2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная тема писателя — жизнь ленинградской интеллигенции, столкновение высокой духовности и обыденной жизни. Прозе Вагинова свойственны глубокий лиризм и "карнавализованная" ирония, сквозь которые слышны щемящая боль за судьбу русской культуры. Достоверно и ярко передается атмосфера Ленинграда 20-30-х гг.Жанр: ПрозаПродолжительность: 06:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C71C967B24A306FA2BA5C893F37A3C2421C2E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097193   (916036) от 26.01.2017
-
-VA - Best Of 2016 (2017) [MP3|320 Kbps] <Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mass Digital – The Wall (06:28)
-02. Maximiljan – This World (07:17)
-03. DJ Le Roi – Avoid (07:12)
-04. Darlyn Vlys & Forrest – ColoursЖанр: Tech HouseПродолжительность: 01:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D696DDE97C3A2350A9063EB6FAF988ED93EE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097358   (916030) от 26.01.2017
-
-CG & The Hammer - Live in Tel Aviv (2010) [APE|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let the Good Times Roll (05:19)
-02. Same Old Fool (04:36)
-03. Highway Blues (05:05)
-04. Bad Luck (08:56)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF0B5C444F1A90D1E0B853BD88A6B6CBD14363A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097297   (916029) от 26.01.2017
-
-Big Monti Amundson - Dangling From A Rope (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Can't Take It Anymore (03:11)
-02 Dangling From A Rope (04:47)
-03 High Noon (04:06)
-04 Depths Of Blue (03:46)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE4E2C7D14165BA89838C725CA4AFD5E310F4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633385   (916028) от 22.03.2013
-
-Что творят мужчины! (2013) BDRemux [1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неприступные женщины, полмиллиона долларов и четверо героев, которым предстоит принять участие в игре «Секс-лото», организованное миллионером. Суть игры — за пять дней соблазнить как можно больше женщин на морском курорте. Получив задания, великолепная четверка бросается в бой.  Но все цели совсем не простые — бабушка, жена олигарха, девственница, феминистка, сектантка (   Читать дальше...   )Производство: Enjoy MoviesЖанр: КомедияРежиссер: Сарик АндреасянАктеры: Таир Мамедов, Константин Крюков, Роман Юнусов, Гавриил Гордеев, Равшана Куркова, Кристина Асмус, Наталия Медведева, Екатерина Скулкина, Анна Хилькевич, Даша АстафьеваПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:26:36
+Знаменитый кладоискатель Эйк Майерс, занимаясь поисками Янтарной комнаты, исчезнувшей в годы II Мировой войны, попадает в жестокий переплет: оказывается, не он один хочет ее найти. Ему противостоит могущественный концерн, у которого есть свои интересы: ведь комната хранит тайну, способную изменить мир...Жанр: Боевик, ПриключенияРежиссер: Флориан Баксмейер / Florian BaxmeyerАктеры: Кай Визингер, Соня Герхардт, Фабиан Буш, Беттина Циммерманн, Анника Блендл, Клеменс ШикПеревод: Одноголосый закадровый, любительскийЯзык субтитров: Русский, английскийПродолжительность: 01:48:43
 
 ## Скачать торент
 ```bash
@@ -421,28 +102,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097086   (916026) от 26.01.2017
+###  Публикация: 632678   (919434) от 20.03.2013
 
-VA - Зимний русский музобоз. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
+Резня в долине динозавров / Nudo e selvaggio (1985) DVDRip
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Гена Селезнев - Мира Мало 2:56
-002. Hann - Счастливый Случай 3:17
-003. Tiana - Без Лишних Истерик 3:17
-004. Andre Durgaryan - Любовь Между Нами 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+Небольшой самолет терпит крушение в дебрях Амазонки. Часть пассажиров погибла, живые решают выбираться сами, потому что помощи ждать бесполезно. И совсем скоро они позавидуют тем, кто умер на месте катастрофы, сразу и без мук. Потому как, чем дальше в джунгли — тем кошмарнее ожидающая их смерть: змеи, пираньи, крокодилы и ужас из ужасов — племя каннибалов…Производство: Бразилия, ИталияЖанр: Боевик, Приключения, УжасыРежиссер: Мишель Массимо ТарантиниАктеры: Майкл Сопкив, Сюзан Карвальо, Милтон Родригез, Марта Андерсон, Жофре Суарес,
+Глория Кристал, Сьюзэн Хан, Мария Реис, Энди Сайлэс, Леонидас БайерПеревод: Многоголосый закадровый (Cinema Prestige)Продолжительность: 01:24:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C98B5DDE8F7530C5CB2058E6F85FFF808C3E5D17
+magnet:?xt=urn:btih:60FCF25660E4C595A9191DDA2BA931A2CFDD2CFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,26 +129,257 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097332   (916022) от 26.01.2017
+###  Публикация: 757245   (919423) от 15.02.2014
 
-The Blues Rebels - 2CD (2015-2016) [FLAC|Lossless|image + .cue] <Blues Rock>
+Def Leppard - Slang (Deluxe Edition) (2014) 2CD /Scene/ [FLAC (tracks)|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn To Dust (1st Draft – Phil Verse Vocal)
+02. Raise Your Love
+03. All I Want Is Everything (1st Draft)
+04. Work It Out (1st Draft)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 02:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E055D3C4ABB85900F15640ACEBD1A301BF0C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095809   (919418) от 24.01.2017
+
+Cкелетон. Кубок мира 2016-2017. 5-й Этап. Санкт-Мориц (Швейцария). Мужчины (20.01.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919418.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 января 2017, пятница. 11:30 МСК
+Кубок мира 2016-2017. 5-й Этап. Санкт-Мориц (Швейцария):
+Мужчины. 1-я и 2-я попытка
+(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196C5241213AACA5B3EAF4DD1BA646F3DFFD7C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096597   (919417) от 24.01.2017
+
+Лыжные гонки. Кубок мира 2016-2017. Ульрисехамн (Швеция). Мужчины. Эстафета 4х7.5 км (22.01.2016) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919417.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 января 2017 года, воскресенье. 15:00 МСК
+Этап Кубка Мира по лыжным гонкам 2016-2017. Ульрисехамн (Швеция):
+Мужчины. Эстафета 4х7.5 кмТелекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76726A180655B1A0C7E9B2BA4EBF85C9B817B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096590   (919415) от 24.01.2017
+
+Лыжные гонки. Кубок мира 2016-2017. Ульрисехамн (Швеция). Женщины. Эстафета 4х5 км (22.01.2016) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919415.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 января 2017 года, воскресенье. 13:30 МСК
+Этап Кубка Мира по лыжным гонкам 2016-2017. Ульрисехамн (Швеция):
+Женщины. Эстафета 4х5 кмТелекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE269C4A64BF0FAC344C4791336A68C539573D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095590   (919413) от 24.01.2017
+
+Гандбол. Чемпионат Мира 2017. Мужчины. Группа A. 5-й тур. Россия - Бразилия (19.01.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919413.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 января 2017 года, четверг. 16:00 МСК
+Чемпионат Мира 2017. Мужчины. Предварительный раунд
+Группа A. 5-й тур. Россия - Бразилия
+(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080F53AD18F31CB349C6B2DF5E7726577ACE56FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096535   (919411) от 24.01.2017
+
+VA - Sun Emotions Vol.1 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Pantelis - That Summer (The Balearica Anthem)  4:16
+02.  Florito - A La Playa  5:29
+03.  DJ Quincy Ortiz - The Way Home  7:01
+04.  Todoroff - Lost Without You (feat. David Paul)  6:36(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD76BA7E58381B0FD7498FE130C8088000578BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096534   (919409) от 24.01.2017
+
+Downie 2.6.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+
+Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 января 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC9B4F82CD74AB143BCCAD0822D4D393CED1AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096588   (919407) от 24.01.2017
+
+VA - Chill Party Chillout Fine Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)  7:00
+02.  Don Gorda Project feat. Solanos - Festa Do Sol (Funk Edit)  4:47
+03.  Enrico Donner - The Place  6:17
+04.  Solanos - Infinite Fields  5:24(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA862FC6F744BDB75918B355E120D72EEE681C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096554   (919406) от 24.01.2017
+
+The Modern Jazz Quartet - The Last Concert (1974) 2CD, 2005, Atlantic[FLAC|Lossless|tracks + .cue] <Cool>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Начиная с двухтысячных в Израиле блистал блюз-роковый тандем CG & The Hammer. Канадский гитарист Си Джи и американский харпер Дов Хаммер, неоднократно признанный лучшим исполнителем на губной гармошке в Израиле, при поддержке добротной ритм-секции исполняли заводной и драйвовый блюз-рок собственного сочинения. Музыканты пели на два голоса, дополняя друг друга (   Читать дальше...   )2015 - Open Road
-2016 - Voodoo LandЖанр: Blues RockПродолжительность: 01:49:06
+CD1:
+01.Softly As In A Morning Sunrise [06:25]
+02.The Cylinder [05:26]
+03.Summertime [07:48](   Читать дальше...   )Жанр: CoolПродолжительность: 02:27:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73BD20839053AE64DDD3153CDB0CEE3E5F0B74A8
+magnet:?xt=urn:btih:DD6C52C1058B879D8927525A747A383710FE4BF5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,53 +387,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 633242   (916021) от 22.03.2013
+###  Публикация: 1096363   (919404) от 24.01.2017
 
-Onimusha: Dawn Of Dreams [PS2] [RUS] [NTSC] (2006)
-
->>Консольные Игры
->>PS2
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916021.jpg" />
-</div>
-
-
-###  Подробнее
-
-После поражения Nobunaga в предыдущей игре, темная армия Genma исчезла, и казалось, что в феодальной Японии образовался мир. Но все мы знаем, что мир не длится долго, не так ли? Тем более игра о мирном самурае была бы не столь интересна.Прошло 15 лет. Слуга Нобунаги, Хидеоши, появилась, снова вызывая неприятность рядом с возобновленной армией Genma. В последствии это принесло много бедствий и неудач, подобно землетрясениям и вулканам, что начало разорять страну. Вы возьмете под свой контроль нового воина по имени Soki – наделенный сверхъестественными способностями и обладающий внешностью известного японского актера. И вместе с вашими сторонниками вы должны будете нанести поражение Hideyoshi и Genma и восстановить мир.
-Вы начинаете с простого меча. а так же имеете нападение высшего качества, которое возрастает по мере того, сколько врагов вы уничтожили. Как и в предъидущих частях, убитые противники выпускают свою энергию, которую вы можете использовать как силу, оружие или броню. Что бы поглотить эту энергию, нажмите (   Читать дальше...   )Жанр: Action -> AdventureЯзык интерфейса: RUS, ENG, JAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A36B00E042FAA44D308EB63309491778D7D1F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097166   (916020) от 26.01.2017
-
-Beardfish - +4626-Comfortzone (2015) Limited Edition 2CD Digipak [FLAC|Lossless|tracks + .cue] <Eclectic Prog>
+Paradigm Shift - Becoming Aware (2016) [FLAC|Lossless|image + .cue] <Neo Progressive>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1: +4626-COMFORTZONE
-Disc 2: The Early Years - Outtakes and DemosЖанр: Eclectic ProgПродолжительность: 02:20:48
+1. A Revolutionary Cure (14:49)
+2. An Easy Lie.(8:47)
+3. The Void.(3:19)
+4. The Shift (4:33)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 00:50:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:117E4A20A7FE7338065AF14673B338121669E3BF
+magnet:?xt=urn:btih:E8242085E42269AEC062CA44154E0EA229DE4E75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,54 +416,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 633370   (916019) от 22.03.2013
+###  Публикация: 1096493   (919402) от 24.01.2017
 
-Что творят мужчины! (2013) BDRip [720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неприступные женщины, полмиллиона долларов и четверо героев которым предстоит принять участие в игре «Секс-лото», организованное экстравагантным миллионером. Суть игры — за пять дней соблазнить как можно больше женщин на морском курорте. Получив задания, великолепная четверка бросается в бой. Но все цели совсем не простые — бабушка, жена олигарха, девственница, феминистка, (   Читать дальше...   )Производство: Россия / Enjoy MoviesЖанр: КомедияРежиссер: Сарик АндреасянАктеры: Таир Мамедов, Константин Крюков, Роман Юнусов, Гавриил Гордеев, Равшана Куркова, Анна Хилькевич, Кристина Асмус, Наталия Медведева, Екатерина Скулкина, Даша АстафьеваПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097279   (916015) от 26.01.2017
-
-National Suicide - Anotheround (2016) [MP3|320 Kbps] <Thrash Metal>
+Internal Cold - 1 album, 1 EP (2013-2016) [MP3|192-320 Kbps] <Atmospheric Black Metal, Depressive Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Shot No Dead
-02. I Refuse To Cry
-03. Scene Of The Crime
-04. Anotheround(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:44
+1. Cold And Cursed
+2. In A Pursuit Of Death
+3. Nothing Will Turn Out Well
+4. The Morbid Spectre Of Disease(   Читать дальше...   )Жанр: Atmospheric Black Metal, Depressive Black MetalПродолжительность: 00:51:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97A8329DCE06C16D88AC42A6D95732A1C13E1306
+magnet:?xt=urn:btih:DC2E600F57AAA2F84377D0DB8476FEA746DC540A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,28 +445,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097196   (916012) от 26.01.2017
+###  Публикация: 1096563   (919400) от 24.01.2017
 
-VA - Cycles 8 (Mixed By Max Graham) (2017) [MP3|256 Kbps] <Deep House, House, Progressive House>
+Igor Butman, Eddie Gomez, Andrei Kondakov, Lenny White - Jazz 4х4 (1997) Союз[FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Любовные письма [06:01]
+ 02.Французские связи [04:39]
+ 03.Заброшенный парк [08:34]
+ 04.Щёки [06:19](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB29177045A02BE736B39D3424C84C53037F2E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096551   (919397) от 24.01.2017
+
+Arktis - On The Rocks (1976) Reissue, 1997, Garden Of Delights [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919397.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dangerous Love
+2. Since You've Been Gone
+3. Never Come Back
+4. Please, Call Me(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B18375F67EAC85843411F6741CFEE5C0726623A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096397   (919395) от 24.01.2017
+
+VA - Redux Presents: The Finest Selection (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919395.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Para X - Extasia (original mix) (07:08)
+2. UDM - Omega (extended mix) (06:09)
+3. F.G. Noise & TrancEye - The Mist (original mix) (06:42)
+4. Kayan Code - False Reality (feat Juha V - Dreamy Banging vocal mix) (07:49)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4154ABE052B72972E4BAE3B95151D701F2D2D6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095805   (919393) от 24.01.2017
+
+Southbound Snake Charmers - Rhythm 'n' Rust (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Dirty Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Don't Speak Too Soon 06:31
+02 Out In The Cold 05:13
+03 Shot Down 03:56
+04 Set Ya'll Free 04:01(   Читать дальше...   )Жанр: Blues, Dirty BluesПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3324DBB7DFB7ED377D46B977C7D39A16BB5B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096732   (919391) от 24.01.2017
+
+VA - Abora Recordings Best Of 2016 (Mixed by Ori Uplift, Receptive & Illitheas) (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Diversion feat. Tania Zygar - On Your Mind (Intro Mix)
-02. Christian Monique - Seven (Dimuth K Remix)
-03. Max Graham - BCN
-04. Conjure One - Serac (Eddie Murray Remix)(   Читать дальше...   )Жанр: Deep House, House, Progressive HouseПродолжительность: 01:17:58
+01. Illitheas & Johannes Fischer - Tears of Hope (Intro Mix) (6:17)
+02. Type 41 - I'm Sorry (feat. Danny Claire - Original Mix) (7:13)
+03. Type 41 - Heiwa (Original Mix) (8:01)
+04. Attila Syah - Letters To Heaven (Original Mix) (7:44)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:01:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4564379EC4CDA92E34DCF2D9A8C8A45962ED5440
+magnet:?xt=urn:btih:A3FDDFA6EE807EFC74EFA66B113569640D900FC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,21 +590,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 633425   (916011) от 22.03.2013
+###  Публикация: 631940   (919386) от 20.03.2013
 
-Paragon Alignment Tool 4.0 Build 14819 Professional + Boot Media Builder [Английский]
+VA - MTV Top the Hits 2013 3CD (2013) [FLAC|Lossless]<Pop, Dance, Rock, R&B, Trance, Other>
 
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Paragon Alignment Tool (PAT) - это утилита, позволяющая ускорить работу современных жестких дисков, RAID-массивов, виртуальных дисков, а также увеличить срок жизни SSD-накопителей за счет оптимизации размещения логических разделов. Paragon Alignment Tool (утилита выравнивания разделов) – средство, которое позволит Вам использовать передовые технологии наиболее эффективно! (   Читать дальше...   )Язык интерфейса: Английский
+Обычно на трекере размешаются в основном МР3ки. Сборник хитов в приличном качестве довольно большая редкость. Тем более, что все, представленные в этом сборнике треки действительно хиты!CD1Жанр: Pop, Dance, Rock, R&B, Trance, OtherПродолжительность: 01:08:49
+
+1. Pitbull Ft. Christina Aguilera - Feel This Moment (3:50)
+2. Rihanna Ft. David Guetta - Right Now (3:02)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -641,21 +619,47 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 633699   (916005) от 22.03.2013
+###  Публикация: 1096507   (919385) от 24.01.2017
 
-Что творят мужчины! (2013) BDRip [1080p]
+В. Каринский | Про Мишу и козла Тишу (1927) [PDF]
 
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Неприступные женщины, полмиллиона долларов и четверо героев, которым предстоит принять участие в игре «Секс-лото», организованное миллионером. Суть игры — за пять дней соблазнить как можно больше женщин на морском курорте. Получив задания, великолепная четверка бросается в бой.  Но все цели совсем не простые — бабушка, жена олигарха, девственница, феминистка, сектантка (   Читать дальше...   )Производство: Enjoy MoviesЖанр: КомедияРежиссер: Сарик АндреасянАктеры: Таир Мамедов, Константин Крюков, Роман Юнусов, Гавриил Гордеев, Равшана Куркова, Кристина Асмус, Наталия Медведева, Екатерина Скулкина, Анна Хилькевич, Даша АстафьеваПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:26:36
+Стихи для детей младшего школьного возраста.Жанр: Детская проза, стихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B1309C3ED3EEEFE289D886F1927B34F8DB25AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632621   (919383) от 20.03.2013
+
+ESET Smart Security 6.0.314.2 RePack (x86/x64) by SmokieBlahBlah [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919383.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET NOD32 Smart Security 6.0 - новая версия комплексного антивируса NOD32. Решение "все-в-одном" с многоуровневой защитой. Включающий антивирус на движке известного антивируса NOD32, брандмауэр, антишпионский модуль и фильтр для защиты от спама. Антивирус совместно с функцией поиска шпионских модулей поможет обнаружить и удалить самые разные виды вредоносных приложений. Защитите свой компьютер или ноутбук от потери или кражи с помощью функциональности нового компонента Анти-Вор. Функция Анти-вор (Anti-Theft) позволяет обнаружить местоположение и вернуть потерянный или украденный ноутбук или компьютер.Название программы: ESET Smart Security 6.0.314.2 RePack (x86/x64) by SmokieBlahBlahЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -667,28 +671,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 989328   (915998) от 23.02.2016
+###  Публикация: 1096148   (919382) от 24.01.2017
 
-Футбол. Чемпионат Италии 2015-2016. 26 тур. Рома - Палермо. (21.02.2016) HDTVRip [H.264/720p-LQ]
+Lou Gazzara - Musical Love Affair (2017) [FLAC|Lossless|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-21 февраля 2016, воскресенье. 22:45 МСК
-26-й тур
-
-Стадион: Олимпико (Рим, Италия) , вместимость: 72698(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 00:50:54 + 00:49:29
+01. I'm Gonna Live Till I Die [01:54]
+02. Birth Of The Blues [03:17]
+03. If I Can Dream [02:48]
+04. At Last [03:05](   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF0612FCE1A7316F719E26A0C3D00E3D0C7AAF51
+magnet:?xt=urn:btih:A363385AFC5FA867E558BBF1E1DA6C0844B5CE0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,28 +700,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 989820   (915996) от 23.02.2016
+###  Публикация: 1096490   (919380) от 24.01.2017
 
-Хоккей. КХЛ 2015-2016. Плей-офф. 1/4 финала - Восток. Авангард - Нефтехимик. 1-й матч. (22.02.2016) HDTVRip [H.264/720p-LQ]
+Svartby - Swamp, My Neighbour (2015) [MP3|320 Kbps] <Folk Metal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22 февраля 2016, понедельник. 14:00 МСК
-1/4 финала - Восток. 1-й матч
-
-Стадион: Арена-Омск (Омск, Россия) , 10 180 зрителей (99 % при вместимости 10 318)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортПродолжительность: 02:09:14
+1. Morbid Quag
+2. Trojansk Ratta
+3. Goat Crack
+4. Karl’s Egg Farm(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:34:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:711516C58C04C4199A4F49260673986A3BE88868
+magnet:?xt=urn:btih:0293C63A64B82D978DC2B843712CCCF7E32C5B73
 ```
 
 https://mybot314.ru/tekegram_catalog/

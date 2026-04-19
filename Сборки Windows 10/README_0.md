@@ -1,3 +1,30 @@
+###  Публикация: 1440461   (1038613) от 17.01.2021
+
+Windows 10 20H2 (Build 19042.746) (40in2) x86/x64 by Sergei Strelec [Ru]
+
+>>След.
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ Windows 10 с интегрированными обновлениями по 16.01.2021
+Интегрированы обновления исключительно средствами DISM.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E3B31F6CE7F60BB42F7A6F87426A1946CBBCC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443927   (1034754) от 31.01.2021
 
 Windows 10.0.17763.316 Enterprise LTSC Version 1809 (x64) [v.Special] by YelloSOFT [RU]
@@ -662,32 +689,6 @@ Windows 10 4in1 (x86/x64) VL Elgujakviso Edition (v.21.10.17) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DB1B1475C2434B3E6081C88E8DF0861068016B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253557   (362893) от 18.10.2018
-
-Windows 10 1803 Pro x86x64 By Vladios13 v.09.10 [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362893.jpg" />
-</div>
-
-
-###  Подробнее
-
-За основу для этих сборок были взяты оригинальные образы ru_windows_10_consumer_edition_version_1803_updated_aug_2018_x64_dvd_910ae7a5 и ru_windows_10_consumer_edition_version_1803_updated_aug_2018_x86_dvd_d1b36c95. Установлены все важные и рекомендуемые обновления на момент создания сборки 09 октября 2018 года.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0217AAE32D248E5CA8902951B5C4233696E578
 ```
 
 https://mybot314.ru/tekegram_catalog/

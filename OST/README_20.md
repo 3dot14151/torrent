@@ -1,3 +1,32 @@
+###  Публикация: 1076669   (311869) от 26.11.2016
+
+Clint Eastwood, Christian Jacob & The Tierney Sutton Band - Sully / Чудо на Гудзоне (Music from and Inspired by the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sully Suite (09:24)
+02. Sully Wakes Up (02:40)
+03. Flying Home (Sully's Theme) (02:59)
+04. Boarding (00:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29F04A01FE4E7E4B28CD921512F8110DF473014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332831   (308948) от 22.10.2019
 
 Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -719,35 +748,6 @@ Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Чел�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25B5DC23CFEC91A2812BED54669F85490475A686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335093   (289409) от 01.11.2019
-
-Tom Holkenborg - Терминатор: Темные судьбы / Terminator: Dark Fate (2019) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminated
-02. My Name Is Dani
-03. REV 9
-04. Iron Spike(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3B5717482CEC6AF6180EE4DAE8A8D7FE34064A
 ```
 
 https://mybot314.ru/tekegram_catalog/

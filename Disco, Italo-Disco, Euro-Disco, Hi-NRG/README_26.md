@@ -1,3 +1,62 @@
+###  Публикация: 1054189   (494209) от 19.09.2016
+
+Boris Midney - 11 Albums (1978-1999) Reissue CD (2012-2014) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boris Midney - Борис Мидный - американский диско-продюсер, композитор, маэстро, аранжировщик, дирижер и мульти-инструменталист родом из России. Является одним из главных архитекторов звука Eurodisco. Одним из первых стал использовать весь потенциал 48-дорожечной записи.
+Изначально классически обученный композитор, обратившись к диско, он обнаружил свое истинное призвание. (   Читать дальше...   )Список альбомов:
+1978 - Beautiful Bend - Make That Feeling Come Again!
+1978 - USA-European connection - Come Into My Heart
+1979 - Caress - Caress(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 07:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272283DBCD7C9D9FCDD57C9A01BF19801BDD1AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243229   (494126) от 26.08.2018
+
+Peter Wilson - The Passion and The Flame (2018) 2CD [MP3|320 Kbps] <Italo-Disco, Synth-pop, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Careless Nights (3:55)
+02. Diamond Eyes (4:34)
+03. Angel Of Love (3:52)
+04. Take Me Over (3:24)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, EuropopПродолжительность: 02:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DF9773F8F1DE1279026D1B9B8FE711F141B93D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318782   (492839) от 07.08.2019
 
 VA - Italo Made In Spain 5 (2018) 2xCD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco>
@@ -683,64 +742,6 @@ Nation In Blue - Discography (2016-2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A2B6E6BAB68F21E18AA5E209639944F524DB5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320543   (468905) от 19.08.2019
-
-Digital Emotion - 2 Albums, 4 Singles & EPs (1984-2019) Collection [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландская евродиско-группа, изначально состоявшая из Гленна Ван Дер Хоффа и Стива Гуде. Успех первых синглов и необходимость съёмки видео и сценических выступлений привели к появлению симпатичных фронтменов: Жана Франсуа Коломбо и двух девушек: Кики Де Бир и Мирны Балрак. Впрочем, судя по немногочисленным фото, они постоянно менялись.Список альбомов:
-1984 - Digital Emotion
-1985 - Outside In The Dark
-1986 - Jungle Beat(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 02:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563847EF027D87307125B9379C0D3724523FB208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245872   (467883) от 08.09.2018
-
-Ronnie Jones - Games (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Video Games (7:43)
-02. We Make The Music (4:09)
-03. You Don't Know Like I Know (4:03)
-04. Montego Bay (3:52)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18609BCAC853C0427721CC9751A8B133914DC09C
 ```
 
 https://mybot314.ru/tekegram_catalog/

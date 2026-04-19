@@ -1,3 +1,61 @@
+###  Публикация: 1555435   (568732) от 04.06.2022
+
+Geoff Love's Big Disco Sound - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джефф Лав - музыкальный директор, аранжировщик, композитор и одна из самых популярных музыкальных личностей Великобритании с 1957 года. В 70х, на волне востребованного диско, создал оркестровую группу Geoff Love's Big Disco Sound.Список альбомов:
+1976 - Dance Dance Dance
+1977 - You Should Be Dancing - Volume 2
+1978 - Big Disco Movie Hits(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 03:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C6DD42965763812E59116EC764802123A78C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234551   (567954) от 07.07.2018
+
+Krono - Krono (1979) LP [MP3|320 Kbps] <Electronic, Space Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bareback (5:42)
+02. Jamaica Electric (6:30)
+03. Manhattan (6:29)
+04. Krono (6:51)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE7C9E1B521E6725B17ADD1715A6B6B971752FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234635   (567896) от 07.07.2018
 
 Ken Laszlo - Best Of 1990-1998 (Maxi Singles & More) (2018) Compilation, Limited Edition [MP3|320 Kbps] <Disco, Dance-pop>
@@ -690,64 +748,6 @@ VA - Underground Nu-Disco Sessions Vol.6 (2016) [MP3|320 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7146578305A0A31F7E13104999495616A36C2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046609   (551858) от 27.08.2016
-
-VA - Unclassics: Obscure Electronic Funk & Disco 1978-1985 (2004) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Deep House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untro -  Untro (0:07)
-02. Discotheque -  Disco Special (4:54)
-03. Zodiac -  Pacific (3:49)
-04. Pluton & Humanoids -  World Invaders (4:46)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Deep House, DiscoПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78441F2EE157C72E74E3C9A898D279AE855327B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046468   (551847) от 27.08.2016
-
-Moon Birds - 2 Albums (1977, 1978) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский студийный проект в стиле "спейс-диско" композитора, продюсера и режиссера Гумберта Ибахе (Humbert Ibach, настоящее имя Умберто Петруччи) с привлечением сессионных музыкантов.01. Cosmos No. 1 (2:20)
-02. Fly In The Night (3:08)
-03. Safari Rock 1 (2:17)
-04. Safari Rock 2 (2:20)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A0C5FD5E3C4E5E08FAC1DBB3C0BC6CC1D1BDD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

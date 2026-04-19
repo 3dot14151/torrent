@@ -1,3 +1,171 @@
+###  Публикация: 1422339   (310906) от 08.11.2020
+
+VA - Morning Coffee Lounge: Chillout Your Mind (2020) [AAC|~329 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Liege - Morning Coffee (Original Mix) (4:16)
+02. Marga Sol - French Kiss (Original Mix) (4:36)
+03. Evandro Reis - Sunny Beach (2:20)
+04. Michael e - One Love Bossa Nova (Original Mix) (6:26)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56FC8019C0D109846AA40F67FEE91084DA673C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076380   (310829) от 26.11.2016
+
+Ледокол  (2016) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основано на реальных событиях. 1985 год. Навстречу ледоколу «Михаил Громов» движется огромный айсберг. Уходя от столкновения с ним, судно попадает в ледовый плен и оказывается в вынужденном дрейфе вблизи побережья Антарктиды. Вокруг зловещая тишина и жуткий холод. Горючее на исходе… Нервы на пределе… И даже если можно было бы уйти — деваться все равно некуда. У командования (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Николай ХомерикиАктеры: Пётр Фёдоров, Сергей Пускепалис, Анна Михалкова, Ольга Филимонова, Александр Яценко, Александр Паль, Виталий Хаев, Алексей Барабаш, Дмитрий Муляр, Артур ЧиргадзеПеревод: Не требуетсяСубтитры: НетПродолжительность: 02:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6FCA32B53416C0EC2A3DE041CF77DBC48523439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422311   (310818) от 08.11.2020
+
+VA - Deep Blue Sea Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco, Tenor Turner - Atlantis (Original Mix) (4:29)
+02. Schwarz & Funk - La Otra Cara (Remastered) (6:55)
+03. Marco Moli - A Piano and a Trumpet (Original Mix) (5:36)
+04. The Soul Crusaders - When the Night Falls (4:15)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCCE4D26C9E8D6F25148439C05131CFD3755611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422367   (310709) от 08.11.2020
+
+Whitesnake - Love Songs (2020 Remix) (2020) [AAC|~338 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Set You Free (2020 Remix) (4:08)
+02. The Deeper The Love (2020 Remix) (4:02)
+03. All I Want, All I Need (2020 Remix) (5:42)
+04. Too Many Tears (2020 Remix) (6:09)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF51F608B54052D6B11CD1A706ED001A3B4DEB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422375   (310618) от 08.11.2020
+
+Whitesnake - The ROCK Album (2020 Remix) (2020) [AAC|~339 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Of The Night (2020 Remix) (6:50)
+02. Best Years (2020 Remix) (5:16)
+03. Tell Me How (2020 Remix) (5:28)
+04. Love Ain't No Stranger (2020 Remix) (4:15)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30812EC8D8BD0DDD4958EC56A695F934DB82E6C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076061   (310537) от 26.11.2016
+
+Любой ценой / Hell or High Water (2016) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два брата-лузера решают наведаться в хранилища пары-тройки банков, которые много лет безбожно обкрадывают своих должников. Расследование дерзких ограблений с грубым почерком увенчает карьеру шерифа Маркуса. Но куда выведет это нехитрое дело?Производство: СШАЖанр: Драма, криминалРежиссер: Дэвид МаккензиАктеры: Джефф Бриджес, Крис Пайн, Бен Фостер, Джил Бирмингем, Дейл Дикки, Уильям Стерчи, Бак Тейлор, Кристин Берг, Кит Мэривезер, Жакмо БуззелПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4262534A05251E21188E204D7818760B888B63EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075776   (310536) от 26.11.2016
 
 Любой ценой / Hell or High Water (2016) BDRip [1080p] ATV
@@ -522,174 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A27BDC785626BFCC7AB75E3B51BE74FF7BFACA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332340   (306755) от 23.10.2019
-
-Одесса (2019) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одесса, август 1970 года. Самая жара. Город забит курортниками. В гости к тестю с тёщей, Григорию Иосифовичу и Раисе Ировне Давыдовым, прилетают из Москвы их зять Борис, журналист-международник, и его восьмилетний сын Валерик. Но именно в день их прилета в Одессе объявляют холерный карантин, город закрывают. Так приехавший на пару дней московский зять погружается (   Читать дальше...   )Производство: Россия / Мармот-фильм, МосфильмЖанр: ДрамаРежиссер: Валерий ТодоровскийАктеры: Ирина Розанова, Евгений Цыганов, Леонид Ярмольник, Ксения Раппопорт, Евгения Брик, Степан Середа, Станислав Эвентов, Вероника Устимова, Сергей Сосновский, Сергей МуравьёвПеревод: Не требуется (русский) (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD41EE6E899EBB6C46B57B8843E7F4AD30C6C9EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332325   (306552) от 23.10.2019
-
-Трое из ада / Three from Hell (2019) BDRip [1080p] ATV (DVO)
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три знаменитых маньяка чудом выжили в зверской перестрелке с полицейскими, и после этого каждый отправился отбывать срок. Капитана Сполдинга казнили, а Отис при помощи родного брата умудрился сбежать и теперь любой ценой постарается вытащить отмороженную сестрицу Бэйби из-за решётки.Производство: США / Capital Arts Entertainment, Spookshow InternationalЖанр: Криминал, ТриллерРежиссер: Роб ЗомбиАктеры: Шери Мун Зомби, Билл Моусли, Ричард Брэйк, Сид Хэйг, Эмилио Ривера, Дэнни Трехо, Клинт Ховард, Дэниэл Робак, Джеффри Дэниэл Филлипс, Дэвид УриПеревод: Любительский двухголосый (LakeFilms)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8463F695BD78C43A7310F72C91C80614B5FA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422796   (306415) от 10.11.2020
-
-VA - The New Spirits Of Jazz (2000) [AAC|~308 Kbps] <Downtempo, Future Jazz, Trip Hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Newman - Dead Already (3:18)
-02. Kinobe - Slip Into Something More Comfortable (4:54)
-03. Ollano - Latitudes (Original Mix) (3:34)
-04. S-Tone Inc. - Colazone Da Tiffany (4:18)(   Читать дальше...   )Жанр: Downtempo, Future Jazz, Trip HopПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4ECE9F3E7F6753BA8112460405FA597527EFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422788   (306414) от 10.11.2020
-
-VA - Electronic Species (1996) [AAC|~311 Kbps] <Dub, Downtempo, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alec Empire & Ian Pooley - Pulse Code 3 (10:02)
-02. Move D - Nimm 2 (7:45)
-03. PWOG - True (4:46)
-04. Isk - + Tzaziki (7:02)(   Читать дальше...   )Жанр: Dub, Downtempo, AmbientПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B97D2839A2552257B71E344216DCCA22AA902B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422802   (306413) от 10.11.2020
-
-VA - Summer Memories Lounge: Chillout Your Mind (2020) [AAC|~315 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Sol, Nera - Sensuality (Ballad Mix) (4:02)
-02. Triangle Sun - Tonight (Original Mix) (4:24)
-03. Marga Sol - Soulheaven (Original Mix) (5:50)
-04. Gary B - Without You (Original Mix) (4:11)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1866AC4083F463D0E8899F50C288E4BBE5B604E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422798   (306410) от 10.11.2020
-
-VA - By the Lake Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ T.H., Robin Vane - Be My Hero (Gambrita Instrumental Remix) (3:41)
-02. Project Blue Sun - Be with Me (Original Mix) (6:08)
-03. Patiotic - Hold Me (Original Mix) (4:32)
-04. Nacho Sotomayor - Wonderful (Marga Sol Chill Rmx) (6:52)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8546F7B8D92FC735B06C8F3C64ADF8357D857FC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

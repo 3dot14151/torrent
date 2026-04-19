@@ -531,7 +531,7 @@ LittleBigPlanet 2 / Little Big Planet 2 [PS3] [EUR] [Multi16] [3.50] [3k3y / Cob
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_859514.jpg" />
 </div>
 
 

@@ -1,3 +1,73 @@
+###  Публикация: 811228   (580572) от 08.08.2014
+
+Latin Lover - Casanova Action (2007) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casanova Action (Long & Hot-Version) 6:24
+02. Laser Light (Original Version) 5:25
+03. Dr.Love (Passion Mix) 5:53
+04. Laser Dance 5:46
+05. Laser Light (Remix '87) 6:40
+06. Casanova Action (87' Re-Edit) 6:17
+07. Dr.Love (Dub Mix) 5:43
+08. Casanova's Dance (Insrtrumental) 6:23
+09. Megamix 6:11
+10. Laser Light (Chernobyl Mix) 6:35(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8456999CDC4B9679CD2BA9E921B5467B059BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811579   (579518) от 09.08.2014
+
+King Kong & D'Jungle Girls - King Kong Greatest Hits (2000) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boom Boom Dollar (Red Monster Mix) 5:54
+02. Walkie Talkie 3:59
+03. Love & American Dollars 5:27
+04. Lies 4:15
+05. Bingo 6:34
+06. Love Of The Angel 5:41
+07. Gimme Gimme Gimme 6:04
+08. Panic In New York 6:29
+09. It's So Funny 2:53
+10. Don't Let Me Be Misunderstood 3:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293DF28A83DBC842085D8D54D92567C5A4B3BBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042435   (579416) от 12.08.2016
 
 Emly Starr - Emly Starr (1980) [MP3|320 Kbps] <Electronic, Disco>
@@ -719,64 +789,6 @@ Tommy Seebach - Disco Tango (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC49AFE2433D781565F33535AC374140AAFAEED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555435   (568732) от 04.06.2022
-
-Geoff Love's Big Disco Sound - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джефф Лав - музыкальный директор, аранжировщик, композитор и одна из самых популярных музыкальных личностей Великобритании с 1957 года. В 70х, на волне востребованного диско, создал оркестровую группу Geoff Love's Big Disco Sound.Список альбомов:
-1976 - Dance Dance Dance
-1977 - You Should Be Dancing - Volume 2
-1978 - Big Disco Movie Hits(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 03:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C6DD42965763812E59116EC764802123A78C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234551   (567954) от 07.07.2018
-
-Krono - Krono (1979) LP [MP3|320 Kbps] <Electronic, Space Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bareback (5:42)
-02. Jamaica Electric (6:30)
-03. Manhattan (6:29)
-04. Krono (6:51)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE7C9E1B521E6725B17ADD1715A6B6B971752FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

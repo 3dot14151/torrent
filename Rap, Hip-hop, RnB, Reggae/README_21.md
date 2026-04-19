@@ -1,3 +1,90 @@
+###  Публикация: 1165730   (430476) от 14.09.2017
+
+Juicy J - Stay Trippy (2013) Best Buy Exclusive [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stop It (3:22)
+02 - Smokin' Rollin' (feat. Pimp C)  (2:37)
+03 - No Heart No Love (feat. Project Pat) (4:03)
+04 - So Much Money (3:32)(   Читать дальше...   )Производство: Kemosabe Records, Columbia – 88883764212Жанр: Hip-HopПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C66B2748E39C6C4E20ACEB91D5AA3C834909F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165891   (430038) от 14.09.2017
+
+25/17 - Ева едет в Вавилон (2017) [MP3|320 Kbps] <Rap, Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Она не такая, как все
+02. Скелеты
+03. Комната
+04. Клыки (feat. Аффинаж)(   Читать дальше...   )Жанр: Rap, RockПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B01ACEF434E56C9348363E5B7D28EB2466426B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411475   (427345) от 25.09.2020
+
+Хаски - Хошхоног (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [03:33]
+02. Шаг влево, шаг вправо [02:33]
+03. Никогда-нибудь [02:25]
+04. Люцифер [02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F199BFC78A6FEC2A2FFCC7D5C71A6208FD9116A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324254   (427331) от 08.09.2019
 
 The Dualers - Palm Trees and 80 Degrees (2019) [MP3|320 Kbps] <Funk, Ska, Reggae>
@@ -664,93 +751,6 @@ Ram & Kommo - Starscream (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35EF09FB3DCA6F5606ECFC2B4529AB0EDB619E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414638   (383624) от 09.10.2020
-
-ВЕТЕР - Прыжок в неизвестность (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прыжок в неизвестность [03:36]
-02. Последний герой [04:36]
-03. Искренность намерений [03:01]
-04. Осталось дёрнуть за верёвочку [02:36](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF16A81B4412787676F4838C18FFB92D984BE252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414637   (383619) от 09.10.2020
-
-Plc - Новый (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (Instrumental) [01:06]
-02. Точка сборки [02:29]
-03. Миллион [03:39]
-04. Скит (Instrumental) [01:03](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151EB9E8B41089FFBA004D5A811EE7FA26FCC082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414640   (383410) от 09.10.2020
-
-Рыночные Отношения - 2020 (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Область ч.2 [02:35]
-02. Бездарь (feat. Loc-Dog) [03:48]
-03. Классика [03:33]
-04. Соковыжималка (feat. Pra(Killa'Gramm)) [03:33](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39ADE4F93A826C58ADD3B106D2A2E2B00032011
 ```
 
 https://mybot314.ru/tekegram_catalog/

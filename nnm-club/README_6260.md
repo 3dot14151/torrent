@@ -1,22 +1,25 @@
-###  Публикация: 1501975   (800829) от 30.10.2021
+###  Публикация: 1198842   (802955) от 14.01.2018
 
-Планета страха / Planet Terror (2007) BDRip [H.264/1080p]
+VA - Best Of LW House II (2018) [MP3|320 Kbps] <House, Club, Dance>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полиция крохотного городка вынуждена иметь дело с жертвами смертельного вируса, превращающего людей в зомби. Народное ополчение возглавляет Черри с автоматом вместо ножного протеза и владеющий боевыми искусствами Рэй.Производство: США / Dimension Films, Troublemaker Studios, Rodriguez International PicturesЖанр: ужасы, фантастика, боевик, триллер, комедия, приключенияРежиссер: Роберт РодригесАктеры: Роуз МакГоун, Фредди Родригес, Марли Шелтон, Джош Бролин, Майкл Бин, Джефф Фэйи, Брюс Уиллис, Навин Эндрюс, Майкл Паркс, Том Савини, Квентин Тарантино, Электра Авеллан, Элиз Авеллан, Ребел Родригес, Стэйси ФергюсонПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, украинские, английскиеПродолжительность: 01:45:33
+01.  Audiowhores  -  Sometimes (Sean Finn Recall)  5:56
+02.  JB & Charlie Hedges  -  Best Night Oml (Pt. 2) (Lindo Martinez Remix)  7:01
+03.  Damon Hess & Emilie Cunliffe  -  Dancefloor (Original Mix)  5:21
+04.  Afrojack  -  Chords (George F, Eran Hersh & Darmon 'Blow Your Mind' Remix)  9:03(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:11:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19944559C1CB595FD99EA56032100E5954892EBD
+magnet:?xt=urn:btih:800C76E3BAF0631BB5173F4E52346DFE863715DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506389   (800828) от 30.10.2021
+###  Публикация: 1505400   (802954) от 28.10.2021
 
-Здесь ты найдешь меня / Finding You (2021) BDRip [H.264/1080p]
+The Black And Blues Band - Flick The Switch (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Electric Blues>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Во время учебы в Ирландии, молодая талантливая музыкант Финли встречает красавца-актера Бекетта, который снимается в новом фантазийно-средневековом фильме. Странная парочка быстро находит общий язык, и помогает друг другу найти самих себя. Но когда звездность Беккетта начинает влиять на их отношения, Финли приходится думать, чем она готова рискнуть ради любви.Производство: США / Nook Lane Entertainment, Red Sky Studios, MK1 ProductionsЖанр: Драма, мелодрамаРежиссер: Брайан БофАктеры: Роуз Рейд, Джедидайя Гудакр, Кэтрин МакНамара, Патрик Бергин, Сирша-Моника Джексон, Джудит Хоаг, Фиона Белл, Анабель Суини, Том Эверетт Скотт, Ванесса РедгрейвПеревод: Профессиональный (дублированный) (КиноПоиск HD)Субтитры: Русские (Full), Английские, (Full)Продолжительность: 01:59:27
+01 - Flick the Switch (00:04:59)
+02 - Coming Home (00:03:11)
+03 - Where the River Flows (00:04:02)
+04 - Been Down This Road (00:03:50)(   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:44:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF69916DD3F877E52FC2D84FC47E685786A13BF7
+magnet:?xt=urn:btih:B7D310E65B320E118987A107E44C179A84632AAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,26 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506324   (800827) от 30.10.2021
+###  Публикация: 1198911   (802953) от 14.01.2018
 
-Greyscalegorilla, Nik V | Topology Crash Course (2020) PCRec [EN]
+Jeremy Steig - Jigsaw (1992) Triloka Records [FLAC|Lossless|image + .cue] <Jazz Fusion>
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот ускоренный курс по топологии даст вам прочную основу в знании топологии и проложит путь к более сложным решениям проблем. Вы узнаете о различных типах топологии, о том, как они влияют на ваш конечный результат и как решать общие проблемы с топологией.
-Этот курс также научит вас, как использовать наиболее распространенные инструменты моделирования в Cinema 4D. (   Читать дальше...   )Производство: GreyscalegorillaЖанр: 3D моделирование, ТопологияЯзык озвучки: АнглийскийПродолжительность: 01:15:52
+01. Washington Place [04:02]
+02. Seascape [04:49]
+03. While My Lady Sleeps [05:53]
+04. Tears For Charlie Street [04:54](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:51:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4A432147E540009510D1B8E5049A191531712E0
+magnet:?xt=urn:btih:6CE50380C5BC2BC7BF6772F561F22220996325B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,79 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506308   (800826) от 30.10.2021
+###  Публикация: 1505421   (802952) от 28.10.2021
 
-Другой мир 2: Эволюция / Underworld: Evolution (2006) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
+Asoka - 3 albums (1971-2009) [FLAC|Lossless|tracks + .cue] <Prog Rock, Hard Rock, Psychedelic Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В мире, недоступном простым смертным, идет борьба между вампирами и оборотнями. События фильма повествуют об истоках этой вражды, ставшей для вампира Селин и Майкла, полуоборотня, проклятьем. Сражаясь с врагами из обоих кланов, они познают тайну своего происхождения. Их ждет великая битва, которая покончит с вечным противостоянием.Производство: США, Канада /  Screen Gems, Lakeshore Entertainment, Vancouver Film StudiosЖанр: Фэнтези, боевик, триллерРежиссер: Лен УайзманАктеры: Кейт Бекинсейл, Скотт Спидман, Тони Кёрран, Дерек Джекоби, Билл Найи, Стивен Макинтош, Шэйн Бролли, Брайан Стил, Зита Гёрёг, Scott McElroyПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full)Продолжительность: 01:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1E840152B1DA56FB9C0E95BC145A79E2B25013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506237   (800825) от 30.10.2021
-
-Particular Software, Udi Dahan | Advanced Distributed Systems Design (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс по основам проектирования распределенных систем представляет строительные блоки для разработки масштабируемых, отказоустойчивых и надежных программных систем. Рассматриваются ошибки при построении подобных систем, основы обмена сообщениями и то, как они делают ПО более надежным и удобным в обслуживании, проектирование длительных процессов, и продажа концепции (   Читать дальше...   )Производство: Particular SoftwareЖанр: Разработка ПОЯзык озвучки: АнглийскийПродолжительность: ~10:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30B8B9F8318093335B3524F4861E96D2F11191F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506231   (800824) от 30.10.2021
-
-BELOFF [dp] 2021.10.4
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник программ для автоматической установки драйверов в Windows x86-x64.
+Группа образовалась в начале 70-х в Мальмё, Швеция на обломках группы "Taste Of Blues", позже "Take Off". Трое из членов этих групп - Клас «Clabbe» Эрикссон, Роберт «Роббан» Ларссон и Патрик Эриксон объединились с братьями Кентом «Тджоббе» Бенгтссоном и Альфом «Даффи» Бенгтссон, сформировав группу Асока. В 1971 вышел одноимённый дебютный альбом (   Читать дальше...   )--------------------------
 
-Приятного времяпрепровождения за компьютером!
+01. Visst är det bättre, men int' är det bra (3:51)
+02. Jag gick mig åt körka (4:32)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock |Продолжительность: 02:38:00 |
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAA22A96B80D05AFF334EB4DC8041E05B429D550
+magnet:?xt=urn:btih:57BBEC0224FC56663C22DD99462348EC5119DB1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506345   (800823) от 30.10.2021
+###  Публикация: 1198644   (802951) от 14.01.2018
 
-Stan Prokopenko | How To Draw Gesture (En) (2013) WEB-DL [En]
+VA - Lemongrass Garden Vol.8 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мини-курс по рисованию жестами на английском языке. Автор курса, Стэн Прокопенко покажет как можно освоить рисунок жестами. На что стоит обратить внимание, и какие детали можно опустить. На практическом задании нужно будет нарисовать фигуру в течение 30 секунд. На последнем занятии художник Маршалл Хэндруфф и Стэн Прокопенко выскажут свое мнение о работе студентов. (   Читать дальше...   )Жанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 02:29:05
+01.  Marc Hartman  -  Love Can Save The Day (To Roberto Concina)  5:36
+02.  Eskadet  -  Stars In Your Eyes  5:54
+03.  Malkou  -  Chateau De Vincennes  3:49
+04.  Roberto Bronco  -  Rollin  5:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C270CC790510476C63FA6BB00D1281EDFE40614
+magnet:?xt=urn:btih:F59583FA9EB9F291BBF9BB8E9CCF210325628B43
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,28 +143,140 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506247   (800822) от 30.10.2021
+###  Публикация: 1505548   (802950) от 28.10.2021
 
-Котаро Исака | Hitman (Книга 2). Поезд убийц (2021) [MP3, Игорь Князев]
+VA - Beatport Hardstyle: Electro Sound Pack #360 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-НАЦИОНАЛЬНЫЙ БЕСТСЕЛЛЕР ЯПОНИИ
-ПРОДАНО ОКОЛО 1 000 000 КНИГ
+001. Alex Fury - Fair Enough
+002. Al Storm - Flashbacks
+003. Rob Iyf & Al Storm - Bitter, Sweet
+004. Korsakoff - Ready To Go(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectroПродолжительность: 07:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F315D3DC176959A78EC4B3F05082B4F1F85C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198745   (802949) от 14.01.2018
+
+VA - Black Hole Trance Music 01-18 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jam & Spoon  -  Odyssey To Anyoona (Markus Schulz vs. Jam El Mar Remix)  4:16
+02.  Alex Karweit  -  Choosing His Angels (Extended Club Mix)  7:33
+03.  Ferry Corsten  -  Wherever You Are (feat. HALIENE) (Solis & Sean Truby Extended Remix)  6:49
+04.  Dirkie Coetzee  -  Nymeria (Extended Mix)  5:34(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EF61E892EE5A96184BAD86229C6201E78918C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505866   (802948) от 28.10.2021
+
+OmniPlayer Pro - Media Player 1.4.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802948.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.13+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24A9B408CDA5B4B692F1F448F25AE2B77B8DC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198848   (802947) от 14.01.2018
+
+York - Peace (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Farewell To The Moon  6:33
+02.  Angels Will Help You  5:32
+03.  The Awakening  5:05
+04.  Inmortal  6:21(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874CA8A0DD372516F8D7A8BB1E099653731BA7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505744   (802946) от 28.10.2021
+
+С. Тимченко (сост.) | Утешения старца Кирилла (Павлова). Духовные наставления (2018) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если по немощи нашей и придётся впасть в те же грехи, в которых милосердие Божие простило нас, то мы не должны отчаиваться. Если и тысячу раз согрешим, но потом опять прибегнем к покаянию, то снова очистимся от скверн и от соделанных нами беззаконий.
 
-Из Токио в Мориока отправляется скоростной поезд – синкансэн. На первый взгляд, все его пассажиры – вполне обычные люди, едущие по своим обычным делам. Но кое-кто оказался здесь далеко не случайно…(   Читать дальше...   )Жанр: Зарубежный детектив, триллерИздательство: INSPIRIA, ЭксмоПродолжительность: 18:46:40
+Пусть никто не отчаивается в своём спасении, ведь примеры святых указывают нам, что люди всякого сословия и пола (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A73F9130C955B7B046B326E7E46C0A2E310D8FF
+magnet:?xt=urn:btih:3012143FB1FA5C89047B5657C74F04092C6F8EF9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +284,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506241   (800821) от 30.10.2021
+###  Публикация: 1198897   (802945) от 14.01.2018
 
-Live Or Die (2021) [En] (1.0) License DARKSiDERS
+VA - Future Electronic Chillout - Top Downbeat Lounge Grooves (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 
->>Win Игры
->>Adventure/Quest
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На тебя пал выбор известно серийного убийцы по имени Game Master. И теперь ты - участник запутанной игры-головоломки на выживание... Используя свою интуицию и навыки, сможешь ли ты быть на шаг впереди Мастера Игры или же станешь еще одной из его многочисленных жертв?Тип издания: LicenseРазработчик: Diabolical, ZygobotЖанр: Хоррор приключение, Экшен, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+01.  Moon Pub  -  Across The Horizon (Spheric Dance Mix)  4:52
+02.  Kling One  -  Going Up (Mystical Electronic Downtempo Mix)  5:04
+03.  Kevin Engelstein  -  Until We See The Ocean (Balearic Downtempo Mix)  4:45
+04.  Ryan Pearce  -  Use Your Words (Melancholic Downbeat Mix)  4:39(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:05:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FF7E1AA68A10025903756D3786DA5211FB26F1C
+magnet:?xt=urn:btih:29BC6CE9B38B485504C6064747E0D51AA118F5CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +313,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505899   (800820) от 30.10.2021
+###  Публикация: 1505547   (802944) от 28.10.2021
 
-Уязвимость в WinRAR позволяла запускать произвольный код без ведома пользователя
+Chicago - Love Songs (2005) [FLAC|Lossless|tracks + .cue] <Rock, Jazz Rock>
 
->>Компьютеры и комплектующие
->>Компьютерные новости
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_800820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для атаки требовался доступ в ту же сеть, взломанный роутер либо поддельная точка Wi-FiКомпания RarLab поблагодарила эксперта Positive Technologies Игоря Сак-Саковского за обнаружение уязвимости в архиваторе WinRAR. Данный продукт используют более 500 млн пользователей в разных странах мира. Атака, для которой уязвимы версии WinRAR до версии 6.02 beta 1, может проводиться (   Читать дальше...   )
+01. You're The Inspiration
+02. If You Leave Me Now
+03. Saturday In The Park
+04. Hard To Say I'm Sorry / Get Away(   Читать дальше...   )Жанр: Rock, Jazz RockПродолжительность: 01:17:02
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9BEA7F572F3204F441CCE4CD974AA94F281D35EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,25 +342,344 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199605   (800819) от 16.01.2018
+###  Публикация: 1198962   (802943) от 14.01.2018
 
-Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6784.5000 RePack by KpoJIuK (2018.01) [Multi/Ru]
+VA - Hamid Production - The Best Of 2017 [MP3|192-320 Kbps] <Pop, Dance, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802943.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Arash & Mohombi - Se Fue
+002 Anca Pop - Ederlezi
+003 Katy Perry - Roulette
+004 Mozhdah - Boro(   Читать дальше...   )Жанр: Pop, Dance, TranceПродолжительность: 05:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE5E69BC62E0C3175C35107340CF293796F2B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505455   (802942) от 28.10.2021
+
+Marshall - Old Rockers Never Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wake up America (00:04:56)
+02 - Coltan Wars (00:05:34)
+03 - Burn the Ships (00:04:31)
+04 - The Rope (00:04:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5A2DA6E5113A05E8F3BC750197BA25BC5D6986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199023   (802941) от 14.01.2018
+
+The Go Getters - Love & Hate (2017) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love & Hate (03:07)
+02. Maria (04:10)
+03. Red Hot Mama (03:44)
+04. Don't Get Started (03:28)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5938065DEE55EB203126BE711CBEB4A17FACA4A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505717   (802940) от 28.10.2021
+
+Brandy Kills - The Silent And The Blocked (2018) [FLAC|Lossless|image + .cue] <Synth-pop, Post-punk>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Of Death And The Holy Rose (4:05)
+02. Sin In Me (7:09)
+03. Jetpack (6:27)
+04. Icy Helly (4:31)(   Читать дальше...   )Жанр: Synth-pop, Post-punkПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EA4975568F32EBD5AECD1B64BE82ECB53BDF6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199097   (802939) от 14.01.2018
+
+ScAnDroid Experiment's - Disconostalgie (EP) (2018) Авторская раздача [MP3|320 Kbps] <Disco, Italodisco, Synthwave>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disconostalgie
+02. Disconostalgie (No Voice)
+03. The Past Doesn't Want To Leave
+04. Disconostalgie (Another Version)(   Читать дальше...   )Жанр: Disco, Italodisco, SynthwaveПродолжительность: 00:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A8E9E7234C6CA43FE5128D11220DFBE1E312B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505344   (802938) от 28.10.2021
+
+VA - Synth of Waves 5 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Mortal - Hex Machina (Gertrudda Edit) (5:08)
+02. Alex Boychuk - Escape (5:13)
+03. Michael Cassette - My Name Is Michael Cassette (Extended Mix) (5:28)
+04. FM Attack - Cinematic (4:37)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC8FDC4B660251228ECCDB7A0CE7D034AF2D783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198915   (802937) от 14.01.2018
+
+группа Перерыв - Гром (1996) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гром
+02. Пожелай мне...
+03. Соната
+04. Времена года(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E4CE33BC7935D63AE3C1C13ECD120ED269B29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505677   (802936) от 28.10.2021
+
+Kryst The Conqueror - Deliver Us From Evil (1990) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunder Thruster
+02. In God We Trust
+03. Trial Of The Soul
+04. March Of The Mega-Mites(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67037B26102066F86361AADF8ADFD008CE7FCCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199021   (802935) от 14.01.2018
+
+William T. & The Black 50's - Rock'n'Roll... Baby!!! (2018) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock'n'Roll Queen (02:37)
+02. Katherina Corinna (02:50)
+03. I've Been Fooled (02:40)
+04. Never Give Up (03:21)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398E0AF4C2CCC0EB58A8F2426FC32772F793E71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505794   (802934) от 28.10.2021
+
+Bobby Solo - Rock'n'Roll (1979) LP [MP3|320 Kbps] <Rock & Roll, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Pie - Medley (5:20)
+02. Babe Babe (2:36)
+03. Guitar Boogie (3:02)
+04. My Darling (2:52)(   Читать дальше...   )Жанр: Rock & Roll, PopПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C79BA4E346A1281EC1C8F6866E14FA7FB5B93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199117   (802933) от 14.01.2018
+
+Pink Fairies - What A Bunch OF Sweeties (1972) Reissue, 2002, Polydor [MP3|320 Kbps] <Psych-Prog, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802933.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Prologue
+2. Right On, Fight On
+3. Portobello Shuffle
+4. Marilyn(   Читать дальше...   )Жанр: Psych-Prog, Hard RockПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5239B6CF52F50B4BCD83AD5C2F5E3786CE4F747D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505872   (802932) от 28.10.2021
+
+FE File Explorer Pro 3.2 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Office 2007 предоставляет удобные и простые средства для увеличения продуктивности работы отдельно взятой персоны, а также упрощения командной работы, оптимизации бизнес-процессов и документооборота, а также проведения бизнес-анализа. Полностью пересмотрены существующие принципы организации пользовательского интерфейса для того, чтобы облегчить конечным (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+FE File Explorer - это мощный файловый менеджер для macOS, iOS, Android и tvOS. Он может получать доступ к файлам не только в локальном хранилище, но также на вашем компьютере, NAS и облачных хранилищах. Переносите файлы из любого места в любое место. Транслируйте фильмы и музыку на свои мобильные устройства или Mac. Непосредственно просматривайте и управляйте документами, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: Skyjos Co., Ltd.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Итальянский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66E0805E2B205D32D015BDC834B7B97481519A33
+magnet:?xt=urn:btih:BE0CC4A4EF0F288BF4730E67E6377A83A976F833
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,25 +687,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199464   (800818) от 16.01.2018
+###  Публикация: 1198921   (802931) от 14.01.2018
 
-DYING: Reborn (2018) [Multi] (1.0) Repack MAXSEM
+Известия. Главное (14.01.2018) SATRip
 
->>Win Игры
->>Adventure/Quest
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DYING: Reborn - это игра-головоломка в жанре «Эскейп-рум» от первого лица, в которой игроки должны решать всевозможные загадки в серии темных и жутких комнат. В первой из шести глав главный герой Мэтью просыпается в незнакомом отеле, лишь смутно припоминая о том, что привело его туда. В это время с ним связывается таинственный персонаж, утверждая, что он подготовил (   Читать дальше...   )Тип издания: RePackРазработчик: NEKCOM EntertainmentЖанр: Adventure, Horror, Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Японский, КитайскийЯзык интерфейса: Английский, Японский, Китайский
+Это обзор главных событий за неделю в стране и мире, анализ причин и последствий важных современных процессов.
+Сегодня, когда зритель получает новости в режиме интенсивного потока, главными отличительными особенностями этой программы стали мобильность, компетентность, доступность, внимание к подробностям и мнению экспертов.
+Главное - это уникальный авторский взгляд (   Читать дальше...   )В этом выпуске: Золотая молодёжь или сливки общества «с душком»? Почему от них надо держаться подальше? Как вместе с деньгами растёт ощущение безнаказанности? Одни им завидуют, вторые — считают кумирами, но ровно до тех пор, пока не столкнулись с их хамством лично.
+Равнодушный врач страшнее любого диагноза. Почему пациенты умирают в клиниках, так и не дождавшись помощи? Что такое (   Читать дальше...   )Телекомпания: Пятый каналЖанр: Телепередача, Информационно-аналитическая программаПродолжительность: 00:46:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:939A9D8CA32988CE6E340366F7C0CA7A962D7949
+magnet:?xt=urn:btih:1DE0E9B0FDE1A4AE0D0F472A3C03AECE912E9637
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,370 +716,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199520   (800817) от 16.01.2018
+###  Публикация: 1505808   (802930) от 28.10.2021
 
-Дэнни Грегори | Скетч на завтрак. Сотня способов добавить в жизнь творчества, даже если времени нет совсем (2018) [PDF]
+Наталия Сухинина | Какого цвета боль? (2007) [PDF, DJVU]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Знаете ли вы, что даже 10 минут занятий рисованием в день наполняют жизнь радостью, помогают снять стресс, развивают память, воображение и логику? Вдохновляющее руководство художника Дэнни Грегори сделает творчество частью вашей жизни, даже если вы очень заняты и времени не хватает вообще ни на что. До краев полная стратегий и идей, эта книга учит выкраивать время (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+"Какого цвета боль?" - сборник очерков известной журналистки и писательницы Наталии Сухининой. Говорят, что тюрьма - это "землетрясение души", и тем трагичнее и страшнее, когда в эпицентр этого землетрясения попадает женщина. Главные героини новой книги Наталии Сухининой - простые женщины, наши современницы, оказавшиеся в тюрьме. Каждая из них, (   Читать дальше...   )Жанр: Современная проза,  Православная литератураФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C7CD0A7AFC00E418B0366F78EFC5F21F9B683F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199487   (800816) от 16.01.2018
-
-Проекты - VideoHive - Ambient Logo - 21038585 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3936736358B78EA005F3A9264937D930124BA0C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199547   (800815) от 16.01.2018
-
-Bike Rush (2018) [Ru/Multi] (1.0) License HI2U
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bike Rush - это шутер от первого лица на байке. Вы должны достичь финиша как можно скорее, контролируя свой мотоцикл, чтобы не разбиться о препятствия. Используйте "нитро" и трамплины, чтобы прорваться через оцепления полиции! Уничтожьте всех преследователей в дорожных перестрелках! Bike Rush - это экшен-гонка со скоростными перестрелками на дороге. Вся (   Читать дальше...   )Тип издания: LicenseРазработчик: Axyos GamesЖанр: Racing, Action (Shooter), 3D, 1st PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FB8C51FC1B3CE69371D8C6E2D23541A70A990DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199479   (800814) от 16.01.2018
-
-Проекты - VideoHive - Cinematic HUD Titles - 20928546 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция анимационных титров. Пакет включает в себя 18 различных вариантов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD1F150CA6E887D5AC75B6ADA4F99A4524EF64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199470   (800813) от 16.01.2018
-
-Эксперимент «Офис» 2 / Mayhem (2017) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800813.jpg" />
-</div>
-
-
-###  Подробнее
-
-На человечество обрушился вирус ID7. Заражённые не могут себя контролировать. На 8 часов они оказываются во власти инстинктов: ярости, похоти, страха.
-Дерек упорно работал, чтобы добиться высокого положения в крупной фирме. Босс его подставил и уволил с позором. Именно в этот момент в офис попадает вирус ID7. Прекрасный шанс оторваться и восстановить справедливость.Производство: США / Circle of Confusion, Royal Viking EntertainmentЖанр: Ужасы, Боевик, КомедияРежиссер: Джо ЛинчАктеры: Стивен Юн, Самара Уивинг, Стивен Брэнд, Кэролайн Чикези, Керри Фокс, Даллас Робертс, Марк Фрост, Клер Левин, Андре Эриксен, Никола КентПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Субтитры: АнглийскиеПродолжительность: 01:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02ABC10A15F84E80C71E13865EC12E6190237010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199421   (800812) от 16.01.2018
-
-Дмитрий Портнягин | Трансформатор. Как создать свой бизнес и начать зарабатывать (2017) [MP3]
-
->>След.
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дмитрий Портнягин – простой парень родом из Тынды, который рано потерял отца и, оказавшись в сложной ситуации, в окружении людей без целей, смог поднять себя за шиворот и привести к своей мечте – быть богатым и знаменитым.
-Его путь – дорога постоянных вызовов самому себе, суровых уроков и важных выводов. В книге Дмитрий раскрывает всего себя перед читателями, показывает (   Читать дальше...   )Жанр: Бизнес литератураПродолжительность: 07:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42EE5E7C5CF1E729845173E2E1977AA85140019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029916   (800811) от 16.01.2018
-
-The Beatles: 1 (1962-1970) 2015 [remastered] BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для моего поколения они - кумиры. Мы, даже не видя их и не слыша их музыки, уже знали это волшебное слово - Битлс. А когда сначала услышали, а потом, много позже (с появлением видеомагнитофонов в середине 80-ых) еще и увидели, легенда стала явью. Обыкновенные люди, только жутко талантливые, и появившиеся именно в то время, когда было нужно. Это - Beatles.01. Love Me Do 2:25
-02. From Me to You 1:56
-03. She Loves You 2:23
-04. I Want to Hold Your Hand 2:31(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FF034E2DFD3F80392B029B0D48B273FCC6C685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199247   (800810) от 16.01.2018
-
-Найден способ увеличить мощность любого старого компьютера в четыре раза
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_800810.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Китае один из пользователей нашел способ увеличить мощность старого компьютера в четыре раза. Известно, что энтузиаст смог разогнать процессор, выпущенный 16 лет назад, и повысил его тактовую частоту.Экспериментатор из Китая, известный под ником WYTIWX, провел эксперимент, в результате которого смог разогнать процессор, который был выпущен еще шестнадцать лет назад, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199522   (800809) от 16.01.2018
-
-Microsoft .NET Framework 1.1 - 4.7.1 Final RePack by D!akov [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800809.jpg" />
-</div>
-
-
-###  Подробнее
-
-.NET Framework — программная платформа, выпущенная компанией Microsoft. Основой платформы является исполняющая среда Common Language Runtime (CLR), способная выполнять как обычные программы, так и серверные веб-приложения. .NET Framework поддерживает создание программ, написанных на разных языках программирования. Платформа необходима для установки и корректной работы (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635D067D1652CEFF307D10374E1980F16D929E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199571   (800808) от 16.01.2018
-
-Pillars of Eternity (2015) [Ru/Multi] (3.07.0.1318/dlc) Repack xatab [Definitive Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте мир, где каждый ваш поступок и выбор так или иначе влияет на судьбу ваших героев. Obsidian Entertainment – студия-разработчик Fallout: New Vegas™ и South Park: The Stick of Truth™ – и Paradox Interactive с гордостью представляют вам игру Pillars of Eternity. Вам предстоит вновь – как в старые-добрые времена – ощутить радость исследований и приключений, (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7A8D59A0BFFA7F97AA983C47518B03709F5306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198941   (800807) от 16.01.2018
-
-Google разрешила бесплатно звонить на абсолютно всех Android-смартфонах
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_800807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смартфоны, работающие на операционной системе Android, пользуются очень большой популярностью во всем мире. Причина успеха заключается в том, что у этой платформы попросту нет конкурентов. Конечно, есть различные поколения iPhone, работающие на iOS, однако все эти мобильные устройства стоят невероятно дорого, поэтому когда встает вопрос о покупке какого-то нового (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 673621   (800806) от 16.01.2018
-
-Пинк Флойд Стена / Pink Floyd The Wall Movie (1982) HDTVRip [H.264] [AVO]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все смешалось в номере некоего лос-анджелесского отеля, в котором заперт рок-музыкант Пинк — пространство и время, реальность и кошмар. Каждый кирпич в «Стене» — его чувства, мысли, воспоминания.
-Действие фильма основано на двойном альбоме группы «Pink Floyd» — «The Wall», 23 раза получавшем статус платинового и распроданном по всему миру общим тиражом 11,7 миллионов (   Читать дальше...   )Жанр: Драма, МузыкаРежиссер: Алан Паркер / Alan Parker, Джералд Скарф / Gerald ScarfeАктеры: Боб Гелдоф /Bob Geldof/, Кристин Харгривс /Christine Hargreaves/, Боб Хоскинс /Bob Hoskins/, Джеймс Лоренсон /James Laurenson/, Алекс МакЭвой /Alex McAvoy/, Дэвид Бингэм /David Bingham/, Кевин МакКеон /Kevin McKeon/, Элеанор Дэвид /Eleanor David/, Дженни Райт /Jenny Wright/, Эллис Дэйл /Ellis DaleПеревод: Авторский одноголосый
-Язык озвучки: English, AVO Ю. СербинСубтитры: РусскиеПродолжительность: 01:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAB30BE4CB45B7CA39F87834562B9C8AEA449B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199476   (800805) от 16.01.2018
-
-Битва преподов / Fist Fight (2017) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьная комедия о взрослых разборках. Интеллигентный и кроткий школьный учитель Энди Кэмпбелл (Чарли Дэй) никак не может найти общий язык со своим брутальным и взрывным коллегой Роном Стриклэндом (Айс Кьюб). Единственный выход – добиться увольнения соперника, что Энди с успехом проворачивает, устроив очередной конфликт. Но он не подозревает, чем это может для него (   Читать дальше...   )Производство: США / New Line Cinema, Village Roadshow Pictures, 21 Laps EntertainmentЖанр: КомедияРежиссер: Ричи КинАктеры: Чарли Дэй, Айс Кьюб, Трэйси Морган, Джиллиан Белл, Дин Норрис, Кристина Хендрикс, Кумэйл Нанджиани, Дэннис Хэйсбёрт, ДжоАнна Гарсиа СуишерПеревод: Дублированный (iTunes), любительский (многоголосый, закадровый) | Paradox&Omskbird RecordsСубтитры: Русские, АнглийскиеПродолжительность: 01:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DCE44C1541AAF1F0D4DF7D34D19E39CDC995D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196390   (800804) от 16.01.2018
-
-MAFIA Community ModPack (2017) [Ru/En] (1.0) Mod mafia-game
-
->>След.
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800804.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мафия" - это 3D action от третьего лица, разработанный компанией Illusion Softworks, создателями награжденного многими призами хита Hidden and Dangerous. 1930-й год. Америка. Томми Анджело - простой водитель такси. Он занят любимым делом, и ничто в его жизни не предвещает беды. Однако случайное знакомство с двумя гангстерами, Поли и Сэмом, навсегда меняет (   Читать дальше...   )Тип издания: ModРазработчик: Illusion SoftworksЖанр: Экшн, Приключение, Open WorldЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405EB300B747C030C0242BCAA81C2182FAD08630
+magnet:?xt=urn:btih:87D91C9CEEC717DD3E80BC499486A8C92B470AE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

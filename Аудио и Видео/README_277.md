@@ -1,3 +1,206 @@
+###  Публикация: 1525051   (129946) от 19.01.2022
+
+Fusion Bass - Seasons (2021) [AAC|~345 Kbps] <Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. July (Original Mix) (4:21)
+02. August (Original Mix) (3:44)
+03. September (Original Mix) (3:32)
+04. October (Original Mix) (3:47)(   Читать дальше...   )Жанр: Chill Out, DowntempoПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9EE5D04C005A66DD8F97E9BFC724FBF6DA8324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525056   (129933) от 19.01.2022
+
+VA - C Recordings 2021 (2022) [AAC|~309 Kbps] <Drum & Bass, Liquid Funk, Deep Dubstep>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferice, Solr - Tides (4:54)
+02. Echomatics - Shouldn't We (5:49)
+03. Ferice - What You've Done (4:51)
+04. Soul Connection - Body Love (5:31)(   Читать дальше...   )Жанр: Drum & Bass, Liquid Funk, Deep DubstepПродолжительность: 03:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C799D65227610383052689E1D101C952D5923D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525052   (129930) от 19.01.2022
+
+VA - The Best of Transensations (2018 - 2020) (2021) [AAC|~338 Kbps] <Progressive House, Melodic House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gorkiz - Strutter (Kamilo Sanclemente Remix) (8:36)
+02. RIGOONI - Sopdet (8:07)
+03. Carlos Tk - Hope (Weird Sounding Dude Remix) (8:00)
+04. Fel C - Floripa in Chaos (Andre Moret Remix) (8:00)(   Читать дальше...   )Жанр: Progressive House, Melodic House, Organic HouseПродолжительность: 05:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961A9474E55BB0A76588EE43FBB5C4255D48BBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525428   (129556) от 20.01.2022
+
+VA - Ambiental Journey: Chillout Your Mind (2022) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Sylvan Bliss (Original Mix) (6:06)
+02. Michael e, Diego Porchile - When Eyes Speak (Original Mix) (5:21)
+03. Matt Sour - Longing for the Sea (4:06)
+04. Simon Le Grec - Sibir (Radio Mix) (4:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A37AD469CB98E0BDBAB0719215E449874A234B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525402   (129552) от 20.01.2022
+
+VA - Lofi Evening (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Lo-Fi>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pueblo Vista - Autumn In Sagano Forest (1:59)
+02. Hybro, Chillmob, Christoph Israel, Swonderful Orchestra, Catherine Larsen-Maguire - Jolis sapins (Lofi Edit) (1:44)
+03. Dpsht, Pueblo Vista - Falling Leaves (2:17)
+04. Mr. Jello - Warm & Cozy (1:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo-FiПродолжительность: 01:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C134BC90ECCEEF247C0B53E952A8370D44F223C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525413   (129518) от 20.01.2022
+
+VA - Reggaeton World, Vol. 5 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lalo Ebratt, J Balvin, Trapical - Mocca (Remix) (3:23)
+02. Don Omar - Dile (3:27)
+03. Cali Y El Dandee - Ay Corazón (3:10)
+04. Daddy Yankee, Nicky Jam, Plan B - Shaky Shaky (Remix) (3:55)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF027416B997F619D7F8BD735F575C90F0E76E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525355   (129515) от 20.01.2022
+
+Guenter Haas - Famous People (2020) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mister Gossip (4:50)
+02. Prayer (4:09)
+03. Requiem (4:30)
+04. Love Me or Leave Me Alone (5:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC41D1ED0BA2D440A4E49202258C122ED02A4F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525403   (129513) от 20.01.2022
 
 VA - Reggaeton World, Vol. 4 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
@@ -539,209 +742,6 @@ VA - Street King Presents Winter 2022 (2022) [AAC|~319 Kbps] <Deep House, Soulfu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D24260F18DDA2C518C201F68508AF6624314B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525540   (129175) от 21.01.2022
-
-VA - The Very Best of Chill Out, Vol. 1 (2015) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass, Jane Maximova - Deep River (6:29)
-02. SilverNight - Silence (6:55)
-03. Barclay & Cream - Surrender (Alexander Metzger Beach Mix) (3:55)
-04. Jens Jakob - Antimatter 1 (10:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CC06264E351249CCA685E6E2B5DF1B4E2866D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525544   (129172) от 21.01.2022
-
-VA - The Very Best of Chill Out, Vol. 3 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York - Interlude (0:57)
-02. Marga Sol, Mike Vale, NDKj - Say My Name (Marga Sol's Chill Mix) (3:43)
-03. CaPa - The Way We Live (3:48)
-04. Eskadet - A Bientot (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96282DBE6FD68E9FA16C679521062E46F4E7D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525676   (129170) от 21.01.2022
-
-Paul Oakenfold - Shine On (2022) [AAC|~310 Kbps] <EDM, House, Drum & Bass>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zanzebaar (1:47)
-02. Paul Oakenfold, Baby E - Shine On (2:33)
-03. Paul Oakenfold, Lizzy Land - Waterfall (Orchestral Mix) (2:42)
-04. White Lights (3:19)(   Читать дальше...   )Жанр: EDM, House, Drum & BassПродолжительность: 00:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6242D6C4261B26EF291A2FBFA44AA0EC444902CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525785   (129153) от 21.01.2022
-
-VA - Relaxing Chillout (2022) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Logophilia - Surfaces (6:03)
-02. Ace Of Duty - Prerogatives (6:13)
-03. Chiffre 100 - Summer Longing (Radio Mix) (3:48)
-04. Lusser - Asterism (5:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75093B23F8F62F5C04F922F600315366A8BB456D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525690   (129141) от 21.01.2022
-
-VA - Buddah's Chill 3 (2013) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoungh Ann - Rufiyaa (4:51)
-02. Katoey - Pattaya Hood (3:42)
-03. Keisuke Sakai - Yama Nemuru (6:44)
-04. Michael e - Precious Jewel (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4BE34F0E3A2CB54695571FAA66AE9197155CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525716   (129139) от 21.01.2022
-
-VA - Buddah's Chill 6 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joey Supaporn - 1001 Bangkok Nights (3:40)
-02. Krystian Shek, Ray Maddison - Thai Palm Bay (Play At Beach Mix) (4:43)
-03. Billy Esteban - Aliman (3:44)
-04. Lazy Hammock - Apocalyptic Journey (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F90C609D5C462186B1468CDA0CA90BEF729C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525697   (129133) от 21.01.2022
-
-VA - Buddah's Chill 4 (2015) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Latif Rayhan - Aleppo (2:26)
-02. Djadi - Open Sesame (3:06)
-03. Dewi Lestari - Bunga Mawar (2:53)
-04. Michael e - Reminiscence (6:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD27E0054736667AB5D283A170F77B4DC556820E
 ```
 
 https://mybot314.ru/tekegram_catalog/

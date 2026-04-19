@@ -1,3 +1,30 @@
+###  Публикация: 1554101   (232497) от 28.05.2022
+
+Blender Cloud, Pablo Vazquez | Cartoon Character Creation - Venom's Lab! 2 (2014) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь создавать персонажа с нуля в Blender.
+Хотя некоторые особенности из предыдущего курса Venom's Lab! будут использоваться, это новое издание использует обновленную меш систему Blender и новую систему для волос и меха, UV-инструменты и многое другое, чтобы вернуться к техникам, описанным в предыдущем DVD.Производство: Blender CloudЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 04:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58FCA19B8ADBE96899781734D01368903F9B6BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554338   (232391) от 29.05.2022
 
 FlippedNormals, Emiel Sleegers | Creating Custom Decals for Games - In-Depth Tutorial Course (2022) PCRec [EN / RU, EN, ES, CN Sub]
@@ -675,32 +702,6 @@ Pyro II Flames & Sparse Pyro — это курс, призванный помо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C22C56E95856B6CFD659248EECFD2DD387C3EFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556487   (230413) от 09.06.2022
-
-Skillshare, Yassine Larayedh | Create Realistic Looking Forests & Mountains in Blender (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230413.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы узнаете, как создавать горы и озера в Blender, используя уже встроенное дополнение A.N.T. Landscape. И не только это, к концу курса вы научитесь создавать текстуры, освещать сцену и создавать реалистичное окружение. Наряду с множеством техник, советов и рабочих процессов, которые поднимут ваши навыки 3D на новый уровень.Производство: SkillshareЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 02:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13EF64EB71C23EDB4B9EDB55E5C7C1713093273
 ```
 
 https://mybot314.ru/tekegram_catalog/

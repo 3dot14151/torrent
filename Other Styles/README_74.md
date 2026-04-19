@@ -1,3 +1,183 @@
+###  Публикация: 1139511   (660008) от 02.06.2017
+
+John Barry - The Real... John Barry (2016) 3CD [FLAC|Lossless|tracks + .cue] <Soundtrack, Stage & Screen>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. The James Bond Theme
+2. 007
+3. From Russia With Love(   Читать дальше...   )Жанр: Soundtrack, Stage & ScreenПродолжительность: 02:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D163C8F3B750B453ABE29F482EEBFC83BBA4C7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139395   (660006) от 02.06.2017
+
+Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rupert Gregson-Williams - Amazons of Themyscira (06:48)
+02. Rupert Gregson-Williams - History Lesson (05:16)
+03. Rupert Gregson-Williams - Angel on the Wing (03:45)
+04. Rupert Gregson-Williams - Ludendorff, Enough! (07:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E3208AAC262B98ED367CCBE8842B158B2A9AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139396   (659910) от 02.06.2017
+
+Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|tracks+ .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rupert Gregson-Williams - Amazons of Themyscira (06:48)
+02. Rupert Gregson-Williams - History Lesson (05:16)
+03. Rupert Gregson-Williams - Angel on the Wing (03:45)
+04. Rupert Gregson-Williams - Ludendorff, Enough! (07:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADDB831BFD28C4A9325062B5F02323159DE5DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902762   (659611) от 29.05.2015
+
+Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quixotic (Scattle Remix) [03:52]
+02. Dust (Carpenter Brut Remix) [04:59]
+03. Bloodline (M|O|O|N's Extra Cheese Mix) [06:53]
+04. Roller Mobster (Scattle Remix) [03:59](   Читать дальше...   )Жанр: OSTПродолжительность: 03:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4398509BD462B3276C4A74461882B4064D6278E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514207   (659283) от 23.06.2012
+
+VA - Treme: Music From the Original HBO Series Season 2 (2012) [MP3|320 кб/с]<Jazz, Blues, Folk, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659283.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hot 8 Brass Band - New Orleans After The City (4:13)
+ 2. Galactic, Juvenile, Dirty Dozen Brass Band - From The Corner To The Block (3:45)
+ 3. The Subdudes - Carved In Stone (3:55)
+ 4. John Boutté, Michiel Huisman, Lucia Micarelli, Paul Sanchez - Sisters (3:30)
+ 5. David Torkanowsky, Lucia Micarelli - Spring Can Really Hang You Up The Most (4:02)
+ 6. Tom McDermott, Evan Christopher, Lucia Micarelli - Heavy Henry (3:19)
+ 7. Henry Butler - Mama Roux (3:58)
+ 8. Kermit Ruffins & The Barbeque Swingers - What Is New Orleans (2:48)
+ 9. Rebirth Brass Band - Take It To The Street (3:11)
+ 10. DJ Davis & The Brassy Knoll - Road Home (2:42)(   Читать дальше...   )2012Жанр: Jazz, Blues, Folk, SoundtrackПродолжительность: 01:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389D42F07123DC4B3FD930B911EA82CED62B8BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903194   (659214) от 30.05.2015
+
+Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2007) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ikuo Kakehashi - Singanushiga (3:32)
+02. Joe Hisaishi - Prologue - When Madness Sets In (4:22)
+03. Joe Hisaishi - Just Call Me Aloysha (1:09)
+04. Joe Hisaishi - Madman On A Tree (1:17)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544E0A6223E1332AE5E1982EFE9EDACDD8B3D29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139662   (659194) от 03.06.2017
 
 David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassical, New Age>
@@ -621,177 +801,6 @@ VA - Life Force: Natural Meditation, Total Relaxing, Anxiety Free Life (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E018D1CE640ADC371B4523C29FC01BF14D514BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140952   (653856) от 08.06.2017
-
-Chris Snelling, Jonathan Sarlat - Peaceful Classical Music Playlist: 14 Relaxing and Calm Classical Pieces (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Questions - Chris Snelling
-02. Raindrops - Jonathan Sarlat
-03. Fyrsta - Chris Snelling
-04. White Light (Eastfjord Mix)Жанр: Classical, InstrumentalПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A254F98660E00196ADAF1B85B4751FB0511B334E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226856   (653785) от 22.05.2018
-
-Joseph L Young - Every Moment (2018) [MP3|320 Kbps] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prism 05:37
-02. Falling Through Time 04:50
-03. Every Moment 05:07
-04. Twilight 04:20(   Читать дальше...   )Жанр: New ageПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4131B30A2C9FDDD19D10087560BF93E7289A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031614   (651997) от 04.07.2016
-
-Catherine Duc - Voyager (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Owen's Boat [00:03:21]
-02. Inishowen Dawn [00:03:16]
-03. Vardo [00:04:50]
-04. Mantra [00:03:26](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A91698AC1D8518029B58D861F98B82B25C04AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031468   (651807) от 04.07.2016
-
-Paul Sills - Night Spa (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Space [00:18:02]
-02. Angelic Whispers [00:11:14]
-03. Lit by Stars [00:12:35]
-04. Floating Spa [00:12:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F834A88065C4083719463A607C451BF6CCE69EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031043   (651789) от 04.07.2016
-
-Llewellyn - Angel Sleep: Music for Blissful Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Sleep. Music for Blissful Sleep (Full Album Continuous Mix) [01:02:38]Жанр: New AgeПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4E66E9068805A631AC6BB281F9B746EFED2D88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031594   (651656) от 04.07.2016
-
-Music From The World Of Osho - Shadow Of The Pines (2000) [FLAC|Lossless|tracks] <New Age, Folk, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hot Season    04:23
-02.  Ummon's Hut    02:38
-03.  Lord of the Full Moon    04:21
-04.  Ancient Echoes    02:25(   Читать дальше...   )Жанр: New Age, Folk, WorldПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C59A7BC80F898597C3A961311F21C4C04DCF83E
 ```
 
 https://mybot314.ru/tekegram_catalog/

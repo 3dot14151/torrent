@@ -1,3 +1,61 @@
+###  Публикация: 1265487   (274127) от 28.11.2018
+
+VA - Future Trance - Return to the Millennium 2000er (2018) 3CD [MP3|320 Kbps] <Italo Dance, Hardstyle, Hard Trance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274127.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Gigi D'Agostino - L'Amour Toujours (Small Mix)
+02. Scooter - Weekend!
+03. Groove Coverage - Moonlight Shadow(   Читать дальше...   )Жанр: Italo Dance, Hardstyle, Hard TranceПродолжительность: 03:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3CA6DD37E77F391D1910448F9C006399884654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188909   (273332) от 03.12.2017
+
+VA - 100 Superhits From the 80's (1998) 5CD, Compilation [MP3|320 Kbps] <Electronic, Hip Hop, Rock, Reggae, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - The Reflex (4:22)
+02. Afrika Bambataa & Ub40 - Reckless (3:52)
+03. Tracey Ullman - They Don't Know (2:58)
+04. Harold Faltermeyer - Axel F (3:00)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Reggae, DiscoПродолжительность: 06:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A21F40446E46AD51D595D1CAB90F6502F7A8DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265833   (273104) от 29.11.2018
 
 VA - Le Son Dancefloor 2019 (2018) 4CD [MP3|320 Kbps] <Dance>
@@ -687,64 +745,6 @@ Inna - Nirvana (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCFDC2F4798B799116DF2E9E2DAAE86187ACFA0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190730   (266038) от 11.12.2017
-
-Francesca Longrigg - True Noise (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanging in Mid Air
-02. Could It Be Me
-03. Baby, I
-04. Love, Why Are You so Late?(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D770354C9B21FD5995B19A7CE178C63EB758A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267572   (265804) от 07.12.2018
-
-VA - Best Driving EDM 2019 (2018) [MP3|320 Kbps] <Big Room, Dance, Progressive House, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MaxRiven - Moonlight Shadow (Original Mix) 3:38
-02. Turbotronic - Disco Night (Radio Edit) 2:39
-03. Raph & 2room - Apache (Radio Edit) 3:09
-04. Geo Da Silva - Tonight Is The Night (Radio Edit) 3:26(   Читать дальше...   )Жанр: Big Room, Dance, Progressive House, ElectroПродолжительность: 02:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB27485A14E46D273184C349B8DFFC52CCBC184
 ```
 
 https://mybot314.ru/tekegram_catalog/

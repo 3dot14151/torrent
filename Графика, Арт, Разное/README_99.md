@@ -1,3 +1,29 @@
+###  Публикация: 944637   (440089) от 07.10.2015
+
+Обои - Creative Art HD Wallpapers Mix 5 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему креативаФормат: JPGРазрешение файлов: 1920x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6602C54980C7AA9D762F8CC24C513EBF32A89647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944529   (439739) от 07.10.2015
 
 Современное искусство - Работы Michael MacRae [JPG]
@@ -642,32 +668,6 @@ Desktop Wallpapers Full HD. Part (507) [JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09E27D24F5E1DD418CFA5A0B1E2565832AB22559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323602   (435811) от 04.09.2019
-
-Desktop Wallpapers Full HD. Part (509) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DD9FC2AF30E9B27B523688CB07C90AFAA4DE8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

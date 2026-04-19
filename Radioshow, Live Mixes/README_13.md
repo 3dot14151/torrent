@@ -1,3 +1,234 @@
+###  Публикация: 1321499   (459087) от 24.08.2019
+
+Jorn van Deynhoven - Live @ Dance For Love Festival, MTW Club Offenbach, Germany 2019-07-13 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kamaya Painters - Wasteland (Alex M.O.R.P.H. Remix)
+02. Paul Oakenfold - Madagascar
+03. Midway - Cobra (Niko Zografos Remix)
+04. Greg Downey - Midnight (Stoneface & Terminal Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7446164932D35710737652317E46DF1860C4C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321514   (459085) от 24.08.2019
+
+Neptune Project - Live @ Chateau De Woo Atlanta, United States 2019-08-10 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lustral - Broken (Way Out West Remix)
+02. Lightscape - Inner Warmth
+03. BT - Mercury & Solace (Quivver's Transatlantic Remix)
+04. Luminary - My World (Andy Moor Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90BC0029F1293B0EE018A6750C9963D82ABDDEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321502   (459083) от 24.08.2019
+
+VA - Adrenalin Sessions pres. Wrecked, Egg London, United Kingdom 2019-08-03 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashley Waters & Ed Lynam @ Adrenalin Sessions pres. Wrecked, Egg London, United Kingdom 2019-08-03:
+
+HOUR 1: ASHLEY WATERS
+01. Lee Walls & Ashley Waters - Lost ConnectionЖанр: TranceПродолжительность: 03:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5359ED4610360425566306E2DFB9C756411833D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247175   (455113) от 14.09.2018
+
+VA - Ori Uplift & Luis A. Moreno - Uplifting Only 292 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE 290: Sandro Mireno & Aleksey Gunichev - Inspiration (Original Mix)
+02. Tycoos - Future Horizons (Extended Mix)
+03. Manuel Rocca - Esperanza (Blue5even Remix) (EXCLUSIVE PREMIERE)Жанр: Trance,Uplifting TranceПродолжительность: 02:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7872D2B0AF195A334E9B9F0654E98E9AFB693D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247177   (455110) от 14.09.2018
+
+VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gareth Emery featuring Evan Henzi - Call to Arms (Davey Asprey Remix)
+02. Ferry Corsten & Saad Ayub - Synchronicity (Global Selection)
+03. Driftmoon & Robert Nickson presents Astrosphere - Fire Which Burns Us All
+04. John Christian - The Trip(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484B7E97E0BEB00CC43C7D35E0ECBB072525A26E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569312   (453826) от 12.08.2022
+
+39 Kingdom - Live @ Kaliningrad Stadium, Russia (2022-08-03) [MP3|320 Kbps] <Progressive House, Tech House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Food - Flying Steps
+02. Monastetiq ft. Starving Yet Full - Call On You
+03. Off Night ft. Elly Ball - Young (Nørequest Remix)
+04. Space Food - Dark Force w/Tinlicker X Robert Miles - Children(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C8337C06DD4F10E3821702CF2106526BD836C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247503   (452657) от 15.09.2018
+
+VA - Armin van Buuren - A State Of Trance ASOT 881 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Hour - Regular & Guests:
+01. Above & Beyond - Rocket Science
+02. Andrew Rayel & David Gravell - Trance Reborn (Mark Sixma Remix)
+03.GXD & Elle Vee - A Dream(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E508BDDAFE4EC18A2D7961E93DAA04B0DB6C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559490   (449558) от 14.08.2022
+
+Sevenn - Sevenn Hours 001-008 (2022) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sevenn - Champagne & Pizza
+02. ID-ID
+03. Tom & Collins - Nuestro Amigo
+04. The Organism - Teripschore (Musmeci Remix)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 07:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A520E94A8915FBC347FB934DDEC0052607E0855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451096   (448579) от 14.08.2022
 
 Timmy Trumpet - SINPHONY Radio 001-077 (2021-2022) [MP3|320 Kbps] <Electro House, Hardstyle, Big Room>
@@ -510,238 +741,6 @@ VA - Aly & Fila - Future Sound Of Egypt 515 (2017) [MP3|320 Kbps] <Trance,Uplift
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16226DCF5E6494B64377ACA49215B3A8CAD1A72C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169880   (400611) от 30.09.2017
-
-VA - Ori Uplift & Ahmed Romel - Uplifting Only 242 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afternova - The One
-02. Malek Slim - Lost Temple (Jeitam Osheen Remix) (EXCLUSIVE PREMIERE)
-03. Maratone - Sunrise (Asteroid Remix) (EXCLUSIVE PREMIERE)
-04. BREAKDOWN OF THE WEEK: Sajjad Zakaria - Emotional EncounterЖанр: Uplifting TranceПродолжительность: 02:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AE5A510B084D5F0A18F768427E1E3A1BB6CD91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171467   (396778) от 04.10.2017
-
-VA - Ahmed Romel - Orchestrance 212 (2017) [MP3|256 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Soul - Devotion (Suduaya remix)
-02. Omniks - Oracle (Melodic Mix)
-03. Exouler - Era (Original Mix)
-04. Jorn Van Deynhoven - Rising High (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55ADB83BA1C902F4963A7B68AD672DD1C7A1F0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171611   (395751) от 05.10.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 516 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eelke Klein - De Orde Van De Nacht (Extended Mix)
-02. Paul Thomas - Alpha Papa (Extended Mix)
-03. Grum - Inflight (Extended Mix)
-04. Paul Hawcroft - Dont Stop (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92F62A07A58C4F1CB4A4D82E30A836208C989E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171891   (394897) от 06.10.2017
-
-VA - Markus Schulz - Global DJ Broadcast (Watch the World Deluxe Special) (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz featuring Delacey - Destiny (Dream Sequence Remix) (World Premiere)
-02. Markus Schulz - A Better You (Daxson Remix)
-03. Cosmic Gate & Arnej - No Strings Attached
-04. Radion6 - Sonorous(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75413340B784B80DAF35BCE6C4631ED4958D502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173097   (391360) от 10.10.2017
-
-VA - Ahmed Romel - Orchestrance 213 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Sky Feat. Sonia Suvagau - To Be Who We Truly Are (Afternova Remix)
-02. Saints And Sinners - Peace (Breakfast Remix)
-03. Amine Maxwell - Aspen (Alexey Ryasnyansky Remix)
-04. Sepehr Nazari Presents Hypersia & Sebastian Montano - Legends (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8274B4495FC750391D8E57D18AE7C88E0C1B895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253999   (377511) от 12.10.2018
-
-VA - Markus Schulz - Global DJ Broadcast - We Are the Light Album Special (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Jared Lee - Together (from We Are the Light)
-02. Ummet Ozcan - The Cell (Instrumental Mix)
-03. Markus Schulz featuring Nikki Flores - We Are the Light (from We Are the Light)
-04. Markus Schulz & Alina Eremia - You Light Up the Night (from We Are the Light)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8C9827DB4B08F4FB0636B9C4DC0AE9093746CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254595   (373325) от 14.10.2018
-
-Binary Finary - Live @ Spin San Diego, United States Of Trance Classics, (2018-10-06)  [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solid Globe - North Pole
-02. Signum - First Strike (Signum Signal 2004 Remake)
-03. Sander van Doorn - Riff
-04. CRW - I Feel Love (Raf By Picotto Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5015CCFBF8CB8BDC1CDA7D26D2343526242ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255731   (361666) от 19.10.2018
-
-VA - Markus Schulz - Global DJ Broadcast - Amsterdam Dance Event Edition (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - The Awakening (Transmission 2018 Theme)
-02. Giuseppe Ottaviani & Ferry Corsten vs. Selena Gomez & Marshmello - Magenta Volves (Markus Schulz Mashup) (Mashup of the Week)
-03. DIM3NSION & ZAA - Mezcal
-04. Moogwai - Viola (Elevation Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CB820F5D57BE4D5AC36B92DB90CAB93186FA40
 ```
 
 https://mybot314.ru/tekegram_catalog/

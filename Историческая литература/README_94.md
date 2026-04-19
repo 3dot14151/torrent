@@ -1,3 +1,30 @@
+###  Публикация: 1728516   (54085) от 07.06.2024
+
+Rob Houston (editor) | History of the World Map by Map (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54085.jpg" />
+</div>
+
+
+###  Подробнее
+
+More than 140 detailed maps tell the story of pivotal episodes in world history, from the first human migrations out of Africa to the space race.
+Custom regional and global maps present the history of the world in action, charting how events traced patterns on land and ocean-patterns of exploration, discovery, or conquest that created empires, colonies, or theaters (   Читать дальше...   )Жанр: КартографияЯзык: английскийИздательство: Dorling Kindersley Limited, SmithsonianФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5435D9E32997276614DA58A6FAD1C54427BF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735549   (50643) от 08.07.2024
 
 В.О. Ключевский | Сказания иностранцев о Московском государстве [3 книги] (1866, 1916, 1918) [PDF]
@@ -648,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FC1272ADF091E149AF286D8AE6C228133C22FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756333   (39762) от 20.10.2024
-
-Н.Н. Непомнящий | 100 великих достижений СССР (2024) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский Союз – большое и сильное государство, занимавшее одну шестую часть суши Земли, – был настоящей фабрикой достижений. В любой отрасли, будь то наука, оборона, культура или спорт, в СССР было кем и чем гордиться! Первыми – и главными! – достижениями советского времени 1920-х гг. стали электрификация всей страны, ликвидация безграмотности, преодоление последствий (   Читать дальше...   )Жанр: история СССРИздательство: Москва: «Вече»Формат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EF79AD981B10DF344E3A62BC7554F1843F4119
 ```
 
 https://mybot314.ru/tekegram_catalog/

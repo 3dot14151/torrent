@@ -1,3 +1,32 @@
+###  Публикация: 950782   (363878) от 29.10.2015
+
+VA - Genuine Houserockin' Music, Vol. 2 (1987) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Albert Collins / I Ain't Drunk (4:06)
+02.  Big Twist & The Mellow Fellows / The Sweet Sound Of Rhythm And Blues (3:23)
+03.  Koko Taylor / I'd Rather Go Blind (4:40)
+04.  Lil' Ed & The Blues Imperials / Pride And Joy (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F909C61F70B4D237BDC657AD8B392107555DDE96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950793   (363876) от 29.10.2015
 
 VA - Genuine Houserockin' Music, Vol. 4 (1990) [MP3|320 кб/с]<Blues>
@@ -716,35 +745,6 @@ Bob Daisley & Friends - Moore Blues For Gary (2018) [MP3|320 Kbps] <Blues, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAF24A275C33B24EA0D99215C5CAC1342F8EB74F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179903   (342790) от 03.11.2017
-
-Willie May - Haunted House (2017) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Big Fannie (03:18)
-02. Haunted House (04:45)
-03. Ain't It Funny (04:01)
-04. Another Moon Song (03:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078670A92F1193A82BC7E0CF0738273115928B72
 ```
 
 https://mybot314.ru/tekegram_catalog/

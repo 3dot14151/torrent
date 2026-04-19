@@ -1,3 +1,32 @@
+###  Публикация: 973463   (980256) от 08.01.2016
+
+Yuki Kajiura - Akiresu to kame (Ахиллес и черепаха) (2008) [OGG|Lossless] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omoide no e (1:41)
+02. Tora no e (1:19)
+03. Hirame no e (0:47)
+04. Shuumatsu no e (1:58)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F2A4EE14DABE5E199082D5A488F2A779D3CD63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356324   (979122) от 30.01.2020
 
 Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -733,35 +762,6 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27F40433441F3009E5E9644611739FCDECD7A0A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360238   (961887) от 14.02.2020
-
-Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961887.jpg" />
-</div>
-
-
-###  Подробнее
-
-|06:41| 01. Mombasa Mission
-|02:36| 02. Martin Axe
-|02:02| 03. Wake Up
-|02:37| 04. Second Chance(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C0918D3102684527877FAE0559CB626A2BAF27
 ```
 
 https://mybot314.ru/tekegram_catalog/

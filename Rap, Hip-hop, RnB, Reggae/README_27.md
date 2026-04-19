@@ -1,3 +1,90 @@
+###  Публикация: 1459744   (241311) от 04.04.2021
+
+Jahmal TGK - СНЕГОПАД Underground (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свинцовый зонт [02:34]
+02. ЧБ [02:33]
+03. В городе без метро [03:24]
+04. Надбровная дуга [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268C9047D398FE4EE27C87C9A7C542D339BD2BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626765   (240100) от 17.04.2023
+
+NF - Hope (2023) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - HOPE [00:04:24]
+02 - MOTTO [00:03:37]
+03 - CAREFUL [00:03:29]
+04 - MAMA [00:03:28](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC076B0014F667FC7BBF32370D97F682748119B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626930   (240058) от 16.04.2023
+
+ХЛЕБ - Последний (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дэб
+2. Убили Кирилла
+3. Марина
+4. Дети(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C162ED1D69E3CEAF5DDB784764E7F09175DC3295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635137   (240052) от 24.05.2023
 
 KAYTRAMINE - KAYTRAMINE (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
@@ -664,93 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:355054813FE6BE15FFC06E1ACDF929D2C7CD56C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342736   (221897) от 03.12.2019
-
-Каста - Об Изъяне Понятно (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прошел через
-02. Привет, придурок
-03. Молодой с молодой
-04. Колокола над кальянной(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19AD290008FA8641B9A85168002C59FC4712E49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425237   (221864) от 20.11.2020
-
-Санчес - Продано, Ч. 2. Конец (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здесь много кто скрывается [04:11]
-02. Равнодушие [02:22]
-03. Джаз Кодеин [01:35]
-04. Пламенем [03:10](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018E9F2BB60F3B84FEBC116C68B8294E93839A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425245   (221549) от 20.11.2020
-
-Баста - 40 (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [02:25]
-02. С самых низов [05:39]
-03. Верил всегда (feat. Odi) [05:44]
-04. Время догонит нас (feat. Moscow Gospel Team) [06:06](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C79B6FFBF1418FD755E2D10911F5E4BD3C3790C
 ```
 
 https://mybot314.ru/tekegram_catalog/

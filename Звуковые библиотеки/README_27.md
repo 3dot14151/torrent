@@ -1,3 +1,58 @@
+###  Публикация: 1818515   (2315) от 17.09.2025
+
+Пресеты - Develop Device - Hybrid Metal Drums II Superior Drummer 3 Preset [SD3P]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hybrid Metal Drums II: раскройте всю мощь своих произведений.
+
+Вы рок- или метал-продюсер, ищущий идеальный звук барабанов? Больше не ищите! Представляем Hybrid Metal Drums II — готовый к записи альбома пресет Superior Drummer 3, который выведет ваше творчество на новый уровень!
+(   Читать дальше...   )Формат: SD3p
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76D90C46FC3E24FF0C7C9069D171838C0A7A2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818591   (2292) от 17.09.2025
+
+Звуковые библиотеки - NOIIZ - Saturated Kit [WAV, MID, ALP, NBKT, EXS, NKI, MXGRP, SXT, SFZ]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опасно: риск возгорания. Эти звуки барабанов обработаны аналоговым сатуратором для получения насыщенного и яркого звучания.Формат: WAV, MID, ALP, NBKT, EXS, NKI, MXGRP, SXT, SFZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A969CF46BEB737777DFDA52E60A9CBE9A3381C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818542   (2291) от 17.09.2025
 
 Звуковые библиотеки - Payhip - yurkiez october kit [WAV, FST, VOX, OGG]

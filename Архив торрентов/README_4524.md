@@ -1,28 +1,59 @@
-###  Публикация: 471832   (97500) от 23.03.2012
+###  Публикация: 480688   (99234) от 10.04.2012
 
-VA - Power Of Love vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
+Машина / La machine (1994) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гениальный психиатр Марк Лекро создаёт фантастическую машину, способную переносить разум одного человека в тело другого и решает при помощи своей машины внедриться в мозг одного из пациентов психиатрической клиники. Он выбирает убийцу, страдающего комплексом агрессии к собственной матери и потому ненавидящем всех женщин.
+
+ Эксперимент по изучению психологии маньяка (   Читать дальше...   )Жанр: Ужасы, Триллер, ФантастикаРежиссер: Франсуа ДюперонАктеры: Жерар Депардье, Натали Бэй, Дидье Бурдон, Наталиа Вёрнер, Эрван Байно, Клод Берри, Марк Андреони, Alain Azerot, Кристиан Бюжо, Жюли Депардье, Patty Hannock, Арсен Жироян, Кристиан Перейра, Кристиан Рюше, Паскаль Тернизьен, Aude Thirion, Alexis Nitzer.Перевод: Одноголосый закадровыйПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EF3F74FC638BA6761C9305FAC4275D5B1F073F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478817   (99231) от 10.04.2012
+
+Hot Chocolate - Their Greatest Hits (1993) [FLAC|Lossless]<Pop Rock, Ballad, Disco>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Power Of Love vol.1 (2012)Год: 2012
-Жанр: Electro House, House
-Продолжительность: 01:54:34Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01.Axwell, Ivan Gough & Feenixpawl Ft. Georgi Kay - In My Mind (Aylen & Xristo Remix)
-02.Sound Dizturber's - Freaky Boyz (Original Mix)(   Читать дальше...   )
+01. You Sexy Thing [04:04]
+02. It Started With A Kiss [04:01]
+03. Brother Louie [04:43]
+04. Girl Crazy [03:22]
+05. So You Win Again [04:29]
+06. Put Your Love In Me [05:41]
+07. Love Is Life [03:34]
+08. I'll Put You Together Again [03:51]
+09. No Doubt About It [04:27]
+10. Every 1's A Winner [04:01](   Читать дальше...   )1993Жанр: Pop Rock, Ballad, DiscoФормат: CD, CompilationПродолжительность: 01:15:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90A81D0A4910B270596C9BAA8BEF85C501DB8E9D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -30,29 +61,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472403   (97499) от 23.03.2012
+###  Публикация: 481231   (99230) от 10.04.2012
 
-[Wallpapers] Best Wallpapers Pack 10
+Эти свободные бабочки (1993) VHSRip (Русский театр Эстонии)
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Best Wallpapers Pack 10
-Название: Best Wallpapers Pack 10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1400х900 - 2560х1600
-Расширение (тип) файлов: jpg, pngВремя раздачи: С 07:00 до 22:00
+В нью-йоркской квартире случайными соседями оказываются молодой человек, с рождения обделённый природой, и очаровательная, но легкомысленная девушка. В их отношения постоянно вмешивается мудрая и любящая мать героя.Жанр: КомедияРежиссер: Валерий ФилоновВ ролях: Дональд Бейкер - Александр Ивашкевич
+Джил Теннер - Лариса Саванкова
+Миссис Бейкер - Тамара Солодникова
+Ральф Остин - Владимир АнтиппПродолжительность: 01:43:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92400E6230BB6C6998D24DF7217445E2A3A780A1
+magnet:?xt=urn:btih:A5559EB02784EC440EADED53435DEAA0BAB8BE82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -60,29 +90,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472416   (97498) от 23.03.2012
+###  Публикация: 480820   (99218) от 10.04.2012
 
-[Wallpapers] HD Pictures №11
+Время земляники (2008) DVD5
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №11
-Название: HD Pictures №11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Герой фильма — успешный молодой человек, в жизнь которого вмешивается его величество случай. Буквально за несколько дней он теряет работу, предает любовницу, попадает на войну, не считая таких мелочей, как участие в драках, гонках, бесконечных тусовках.Жанр: ДрамаРежиссер: Виталий ГалилюкАктеры: Владимир Колганов, Алексей Петренко, Ксения Каталымова, Александр Лыков, Сергей Мигицко, Анна Алексахина, Анна Слынько, Татьяна Колганова, Иван Паршин, Виталий Салтыков, Андрей ПеровичПродолжительность: 01:27:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B4170B36E9F916842840624FB891F3296E8476F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -90,32 +116,90 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471779   (97497) от 23.03.2012
+###  Публикация: 480885   (99212) от 10.04.2012
 
-VA - Modern House Music vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
+Парад идиотов / Le bal des casse-pieds (1992) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятидесятилетний ветеринар прекрасно находит общий язык с животными, но люди, люди... Он называет их недотепами, занудами, прилипалами - и как магнит притягивает к себе именно такой тип людей. Будучи человеком мягким и интеллигентным, он мечтает лишь об одном - чтобы от него отстали и дали ему вздохнуть спокойно. Встретив Луизу, которая кажется ему глотком свежего воздуха по сравнению с зацикленными на себе друзьями и родственничками, он решает бороться за нее, пусть даже она не свободна!Жанр: КомедияРежиссер: Ив Робер / Yves RobertАктеры: Жан Рошфор, Жан-Пьер Бакри, Жан Карме, Миу-Миу, Мишель Пикколи, Виктор Лану, Элен Венсен, Жак Вильре, Клод Брассер, Ги БедоПеревод: Многоголосый закадровыйПродолжительность: 01:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D53ABD6E78C9B2A184884DE9120E7A651473993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481163   (99208) от 10.04.2012
+
+FeedDemon 4.0.0.22 [Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99208.jpg" />
+</div>
+
+
+###  Подробнее
+
+FeedDemon - Одна из наиболее достойных программ для чтения RSS-лент, позволяющая настроить получение и просмотр новостей на локальном компьютере. FeedDemon предлагает удобные способы сохранения созданной структуры просматриваемых новостных лент и управления их просмотром. Добавляемые RSS-ленты можно объединять в группы.
+
+Встроенный браузер позволяет отображать содержимое новостей непосредственно в окне программы. Окно FeedDemon состоит из трех частей. Крайняя правая представляет собой встроенный полноценный браузер, здесь есть панель инструментов, позволяющая реализовать все привычные для браузера возможности. Крайняя левая панель представляет собой группы новостей. В центре размещены заголовки новостей ленты, выбранной слева. В зависимости от настроек можно отображать здесь только заголовки, либо заголовки и первые несколько предложений новости. Но при этом следует отметить, что программа отображает содержимое новости во встроенном браузере только при установленном Internet Explorer 6.0.
+
+Удобно отображаются (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480867   (99197) от 10.04.2012
+
+Susan Justice - Eat Dirt (2012) [MP3|320 кб/с]<Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Modern House Music vol.1 (2012)
-Год: 2012
-Жанр: Electro House, House
-Продолжительность: 02:18:01Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01.Jerry Rekonius vs Lady Gaga - Marry The 10TH (DJ Newklear Mashup Mix)
-02.Dada Life - Happy Violence (Shuval bootleg remix)(   Читать дальше...   )
+01. Born Bob Dylan
+02. Eat Dirt
+03. Forbidden Fruits
+04. Paper Planes
+05. I Wonder
+06. My Sweater
+07. Just Imagine
+08. Don’t Be A Stranger
+09. Hello Goodbye
+10. You Were Meant To Sing(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3CD0F94E5F3B452D52FDDD6448036DB7C1C189F
+magnet:?xt=urn:btih:B2E87BBFFAE9B3C7E5E3D707BC927FD8C8729828
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -123,50 +207,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472144   (97496) от 23.03.2012
+###  Публикация: 480860   (99186) от 10.04.2012
 
-VA - Музыкайф. Зарубежный Суперсборник (2012) [MP3|256 кб/с]<Dance, Рор>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97496.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Houseshaker Feat. Alexander - War Anthem (Radio Edit)
- 002. Crystal Rock & Hornyshakerz - How Will I Know (From St. Tropez With Love Mix)
- 003. No beef - Afrojack & Steve Aoki (Radio Edit)
- 004. Tango & Cash - In Your Eyes (Radio Edit)
- 005. RLS - Close to heaven
- 006. Madonna feat. Nicki Minaj & M.I.A. - Give Me All Your Luvin'
- 007. Mossano - Zingarinho
- 008. The Saturdays - So Stupid
- 009. Bob Sinclar feat. Pitbull &_ DragonFly &_ Fatman Scoop - Rock The Boat (Club )
- 010. Devin - Miracle2012Жанр: Dance, РорПродолжительность: 07:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638ADEB9A3B31A470A752F785F4AB1DAED808E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472077   (97495) от 23.03.2012
-
-[Wallpapers] Cinema Wallpapers (23.03.12)
+[Wallpapers] Wallpapers Sexy Girls (10.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99186.jpg" />
 </div>
 
 
@@ -176,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:519D9F7343694A10307D45D7F288DC3798BC40F4
+magnet:?xt=urn:btih:4EC276ECD85BE2801770F6E3D60C8C22644342FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,139 +233,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472091   (97494) от 23.03.2012
+###  Публикация: 480863   (99185) от 10.04.2012
 
-Claudio Merlini - Enchantment WEB (2012) [FLAC|Lossless]<Electronic, New Age, Chill Out, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Claudio Merlini - Enchantment WEB (2012)
-Год: 2012
-Жанр: Electronic, New Age, Chill Out, Ambient
-Продолжительность: 01:18:37Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: tracks + .cueТрек лист:
-01. Desire (3:40)
-02. Portraits (3:50)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B3DBA0ABE2D3CDCA976E7638574089887C0BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472193   (97492) от 23.03.2012
-
-Журнал | Империя вкуса №2 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специализированное издание, посвященное алкогольным и безалкогольным напиткам, а также ресторанному бизнесу, удачно сочетающее профессиональную и популярную подачу материалов, полезную и интересную информацию.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1756D55CC8D2B0B88F54411C07BAFBFE4EF63198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471959   (97491) от 23.03.2012
-
-VA - XXXL Блатной Весна (2012) [MP3|256 кб/с]<Шансон>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анатолий Полотно и Федя Карманов - За друзей!
-02. Александр Новиков - Три дня
-03. Ирина Круг - Любить не страшно
-04. Кира Дымов и Любовь Успенская - Берегу и Кораблю
-05. Афина и Кронштадт - Голос
-06. Ляля Размахова и Джалал Аббасов - Хочется
-07. Андрей Федосеев - Вошла несмело
-08. Семен Канада - Как мне быть
-09. Алена Андерс - Рябина
-10. Михаил Загот - Не закрывай глаза2012Жанр: ШансонПродолжительность: 06:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D10E37FE112433B263FC5B3CD3B8B931D11CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472413   (97490) от 23.03.2012
-
-[Wallpapers] HD Pictures №8
+[Wallpapers] HQ Wallpapers by KSV (10.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97490.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №8
-Название: HD Pictures №8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 4000х3000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E095870BA53047A9F376006D0D5E1D7E12870743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472076   (97489) от 23.03.2012
-
-[Wallpapers] Girls Wallpapers (23.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99185.jpg" />
 </div>
 
 
@@ -326,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:718B15E6A13E31FCFCDDB9151ED783DF717519F4
+magnet:?xt=urn:btih:B0DDB115C99275DABB7A042553D12CC68C0973B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,45 +259,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472417   (97488) от 23.03.2012
+###  Публикация: 480856   (99184) от 10.04.2012
 
-[Wallpapers] Green Wallpapers 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97488.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Green Wallpapers 2
-Название: Green Wallpapers 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AADC260185796E0E93E11FA777B67CD0BEDA3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472267   (97487) от 23.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (24.03.12)
+[Wallpapers] Computer Desktop Wallpapers Collection (10.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99184.jpg" />
 </div>
 
 
@@ -382,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E84069836F16B43C288CB1D5ECC0657C608F423A
+magnet:?xt=urn:btih:12F3CC2BB8EEC5309CCB65D390E22FDD943C8BEA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,25 +285,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472439   (97486) от 23.03.2012
+###  Публикация: 480847   (99182) от 10.04.2012
 
-Формула 1. Гран-При Малайзии. 1-ая свободная практика (2012) HDTV [1080i]
+Эпицентр / Epicenter (2000) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент ФБР Аманда Фостер работает под прикрытием. Ее задача арестовать Ника Константина, сотрудника военного учреждения в Сан-Франциско, который, используя феноменальную изобретательность и сноровку, пытается похитить секретные документы и продать их террористам.
+
+Взяв Ника с поличным, Аманда должна доставить его в Федеральную тюрьму Лос-Анджелеса. Однако в это время в Лос-Анджелесе происходит землетрясение страшной силы.
+
+Находясь по разные стороны закона, преследуемые безжалостными убийцами и продажными полицейскими, потерявшими на несостоявшейся сделке большие деньги, Ник и Аманда вынуждены объединить свои усилия, чтобы разыскать потерявшуюся дочь Аманды, выбраться из разрушенного города и найти способ остаться в живых.Жанр: Фантастика, Боевик, ТриллерРежиссер: Ричард ПепинАктеры: Трейси Лордс , Гэри Дэниелс , Джефф Фэйи, Даниела Нэйн, Константин Котиманис , Кэти Стюарт, Эндрю Френсис , Генри Бекман, Тревор УайтПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:38:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480297   (99181) от 10.04.2012
+
+Величайшие автомобили: GTO / Great Cars: GTO (2004) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:41:40
+В 50-е годы 20-го века Pontiac переживал кризис. Он должен был измениться или исчезнуть. Его машины были невзрачны, требовалось что-то новое. Компания решила выпустить привлекательную, быструю и доступную машину. Эта простая задумка спасла Pontiac и привела к разработке одного из культовых автомобилей GTO.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4EA46EFBA73774396301ADA253AAF413A6B739B
+magnet:?xt=urn:btih:DD2DBC94B19192964E8B37EBDF7E6F52C84FA978
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,25 +341,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472444   (97480) от 23.03.2012
+###  Публикация: 480887   (99179) от 10.04.2012
 
-Формула 1. Гран-При Малайзии. 2-ая свободная практика (2012) HDTV [1080i]
+[Wallpapers] Mixed Wallpapers 0.3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микс из обоев на разные темы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF709D5887B90C588B59E0202901BA6AB2D3DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480320   (99177) от 10.04.2012
+
+Величайшие автомобили: Астон Мартин / Great Cars: Aston Martin (2004) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:40:10
+Название "Aston Martin" образовано от названия гонок "Aston Hill Clean" и имени основателя компании Вайнела Мартина. Эту машину предпочитали Джеймс Бонд и многие гонщики, желавшие бросить вызов Ferrari. Когда у завода начались трудные времена, его спасла американская компания. Сейчас Aston Martin снова стал эксклюзивной маркой мирового класса.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76EF954EB8C0FD769CC7384F5CBE91A529E7D916
+magnet:?xt=urn:btih:83F6D9E72CF43AE846C540403D8DAA72FC6FC724
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,25 +393,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472050   (97479) от 23.03.2012
+###  Публикация: 481124   (99176) от 10.04.2012
 
-[Wallpapers] Desktop wallpapers (22.03.12)
+Marc O' Tool - Serious (2012) [MP3|320 кб/с]<House>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99176.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Serious Intro (Original Mix)
+02. I Know (Original Mix)
+03. No Need To Worry (Ft. Stu Patrics - Original Mix)
+04. Feel So Good (Ft. Marc Vision - Original Mix)
+05. Party 1994 (Original Mix)
+06. What Is Up (Ft. Criss Source - Original Mix)
+07. Take Me To The River (Original Mix)
+08. You Got It (Ft. Christian Hinzer - Original Mix)
+09. I Call You (Original Mix)
+10. The Final (Original Mix)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:17:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:233F40E3E7A4E3F750613649302FCF92748AA6D1
+magnet:?xt=urn:btih:8D375DB91F53988CC43A72B8DE8BAD5E98102F0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,81 +428,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472043   (97477) от 23.03.2012
+###  Публикация: 480597   (99174) от 10.04.2012
 
-[Wallpapers] Computer Desktop Wallpapers Collection (22.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB89B0F8576D8ECBE05DC750E26B68D20DB71636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472044   (97476) от 23.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (22.03.12)
+[Wallpapers] Avto Desktop Wallpapers Pack 6
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE479A87E60327744187EA637DA804824BA2AB53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472401   (97472) от 23.03.2012
-
-[Wallpapers] HD Pictures №7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97472.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №7
-Название: HD Pictures №7
+[Wallpapers] Avto Desktop Wallpapers Pack 6 
+Название:  Avto Desktop Wallpapers Pack 6 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Разрешение файлов: 1280х1024 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6612A261603468982326119ADE089A6577951A5D
+magnet:?xt=urn:btih:DE4B7BEC4C1CCA6330558CEE67ADAE93036C529E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,15 +458,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472265   (97471) от 23.03.2012
+###  Публикация: 480842   (99170) от 10.04.2012
 
-[Wallpapers] Computer Desktop Wallpapers Collection (24.03.12)
+[Wallpapers] Sexy Girls Pack Wallpapers (09.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99170.jpg" />
 </div>
 
 
@@ -568,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC291A407757D4E69E3A079CCEE4B731C7281D62
+magnet:?xt=urn:btih:C575A97843B62F1F5146F25363C371EE82638BDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,15 +484,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472054   (97470) от 23.03.2012
+###  Публикация: 479828   (99168) от 10.04.2012
 
-[Wallpapers] Films Wallpapers (22.03.12)
+Ani DiFranco - ? Which Side Are You On ? (2012) [FLAC|Lossless]<Folk Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Boat [04:09]
+02. Unworry [04:16]
+03. Which Side Are You On? [00:00]
+04. Splinter [04:36]
+05. Promiscuity [03:20]
+06. Albacore [04:08]
+07. J [05:15]
+08. If Yr Not [02:50]
+09. Hearse [04:04]
+10. Mariachi [04:03](   Читать дальше...   )Жанр: Folk RockФормат: CD, Album, PromoПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480926   (99166) от 10.04.2012
+
+VA - BIG Trance 2012.2 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99166.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dabruck & Klein - 2.48AM (Extended Mix) (6:45)
+2. Dave Horne - 11 Hours (Original Mix) (7:45)
+3. Anaki - 333 (Original Mix) (8:58)
+4. Andrew Rayel - 550 Senta (Original Mix) (7:31)
+5. Hydrogenio - 777 (Ben Gold Remix) (7:18)
+6. Artento Divini - Adhd (Original Mix) (5:55)
+7. Eximinds - Afterlight (Original Mix) (6:15)
+8. Christian Drost & DK Project - Always Connected (Original Mix) (8:03)
+9. 187rec - Amelie (7:30)
+10. Basil O'Glue - Angular Momentum (Original) (7:35)2012Жанр: Trance, Uplifting TranceПродолжительность: 18:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29C6FB2509251E34098B065D1C99D88ECBDF67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480858   (99161) от 10.04.2012
+
+[Wallpapers] Best Wallpapers (10.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99161.jpg" />
 </div>
 
 
@@ -594,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00B23C5E0D2CE8771071563801792973E0767880
+magnet:?xt=urn:btih:86F0C26319DF171E072C5CB455FB22ED5E66DC34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,25 +580,121 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471881   (97469) от 23.03.2012
+###  Публикация: 480752   (99156) от 10.04.2012
 
-Водная жизнь (серия 3 из 26) / Water Life (2007) BDRip [720p]
+Антарктида - Край (2012) [MP3|320 кб/с]<Heavy Metal / Female Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Край
+ 02. Странное безумие
+ 03. Выбор
+ 04. Холодные волны
+ 05. Я — не я
+ 06. Четыре слова
+ 07. Битва за любовь
+ 08. Белое безмолвие
+ 09. 21-й мировой порядок
+ 10. Прелюдия №10(   Читать дальше...   )2012Жанр: Heavy Metal / Female VocalПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB3A734D282896F3985D24E7F8CF6EAC660FCED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480857   (99154) от 10.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (10.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3F27C424754DE3500B4A2A6A6C9C4013596666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479689   (99153) от 10.04.2012
+
+S.K.V. - Обратно на Землю (2012) [MP3|256 кб/с]<Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Смотри
+02. Звезда
+03. Unknown artist уч.dj Zlon, Данил Дфакто, Точка Ру, Омар
+04. Не сон
+05. Запомнить
+06. Эпизоды уч. 4пыль
+07. Экзюпери (4пыль)
+08. Воскресенье
+09. Беккер (ЦивилЪ)
+10. Обратно на Землю(   Читать дальше...   )2012Жанр: RapПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898B531196AC96A8145E844E218D8D80F0AC6199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481232   (99150) от 10.04.2012
+
+Каникулы в Мексике - 2. Выпуск №27 (2012.04.10) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:29:27
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:49:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA98D70C168CA289DD2E5AF21318A74D6F546EAA
+magnet:?xt=urn:btih:B4ECDC2BF560D121C1140C39B9B7EB08642AD19C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,29 +702,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472418   (97468) от 23.03.2012
+###  Публикация: 480304   (99149) от 10.04.2012
 
-[Wallpapers] Nature Pictures №34
+Величайшие автомобили: Бентли / Great Cars: Bentley (2004) SATRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №34
-Название: Nature Pictures №34
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Bentley всегда привлекали внимание - они всегда были стильными и быстрыми. Они приковывают взгляд, но всегда знают меру. Это машины для людей со вкусом, которые желают почувствовать рай - не выставляя напоказ свое богатство. Не важно - скорость их призвание или гламур, Bentley - это машины на которых хочется ездить...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3CB1E89F8B59EFFB1AF71EE14FE2616A2AD5C13
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,77 +728,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472071   (97467) от 23.03.2012
+###  Публикация: 479114   (99136) от 09.04.2012
 
-[Wallpapers] Computer Desktop Wallpapers Collection (23.03.12)
+VA - Бездна Party 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+001 Sarvi - Amore (Chuckie radio edit)
+002 5sta Family - Вместе Мы
+003 Aura Dione - Geronimo
+004 Светлана Разина - Радио НАХ
+005 Nicola Roberts - Memory of you
+006 Каникулы В Мексике - Мексикана-Мама (Radio Version)
+007 Javi Reina & Alex Guerrero feat. Syntheticsax - Oig
+008 ВИА Гра - Диско
+009 Christopher S feat. Max Urban - Star (Mike Candys remix)
+010 Яжевика - Город Тает(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:53:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0B3A07E60DF26FC47C0F7996AE5199CE87E2A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472270   (97466) от 23.03.2012
-
-[Wallpapers] Best HD Wallpapers (24.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8291924B466B48325091C7628CE00FF82C32D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472078   (97465) от 23.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (23.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA020B7BAB07EC430B344C75A683E0D21699C80B
+magnet:?xt=urn:btih:DB038F7EC0E660C4798743667E080E48F98A5398
 ```
 
 https://mybot314.ru/tekegram_catalog/

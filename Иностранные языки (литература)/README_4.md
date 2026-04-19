@@ -1,3 +1,30 @@
+###  Публикация: 1855263   (1057930) от 22.02.2026
+
+А.Н. Новиченко | Практикум по совершенствованию навыков говорения. 22 способа самостоятельно тренировать и развивать навыки говорения на английском языке без репетитора (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что мешает Вам бегло говорить на английском? Отсутствие регулярной языковой практики для преодоления языкового барьера. В этой книге репетитор и преподаватель с 12 летним стажем Алексей Новиченко делится с Вами 22 доступных способов прокачивания своих навыков говорения на конкретных разобранных пошагово примерах.
+Используя эти способы Вы сможете самостоятельно тренировать (   Читать дальше...   )Жанр: Английский языкИздательство: СамиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BD564ED2018F4030CBA24F0F4066447EBAA11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855262   (1057929) от 22.02.2026
 
 В.А. Державина | Английский язык. Тренажер по чтению и говорению для полных нулей (2025) [PDF]
@@ -670,32 +697,6 @@ English Vocabulary is Social CapitalIf you want to improve or build up your word
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:555321E43C885010CB8370D77D39A63CE09B4A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849227   (1053440) от 21.01.2026
-
-Brandon Smith | Illustrated Dictionary of Computer Science. 3Ed Edition (2024) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Covers a wide range of entries in computer science, providing a thorough introduction to the field for students and professionals alike. The book includes detailed explanations of key concepts such as algorithms, data structures, programming languages, operating systems, and artificial intelligence. Third edition of this dictionary incorporates many new definitions (   Читать дальше...   )Жанр: Словари, Английский язык, КомпьютерыЯзык: АнглийскийИздательство: 3G E-learningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACB49DB37FEE36F4EF39843009E75F48B39BA1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

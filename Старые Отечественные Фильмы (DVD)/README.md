@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1862842   (1063441) от 
+###  Публикация: 1862842   (1063807) от 02.04.2026
 
 Оленья охота (1981) DVD5
 
@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063807.jpg" />
 </div>
 
 
@@ -25,7 +25,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861534   (1062427) от 
+###  Публикация: 1861534   (1062427) от 26.03.2026
 
 Страховой агент (1985) DVD5
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_926370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926370.jpg" />
 </div>
 
 

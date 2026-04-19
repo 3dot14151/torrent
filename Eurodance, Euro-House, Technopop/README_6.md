@@ -1,3 +1,32 @@
+###  Публикация: 1698381   (118454) от 09.02.2024
+
+VA - Magic Dance Vol. 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Me & My - Dub I Dub (MG Radio Remix)
+02.  Playahitty - 1-2-3 (Train With Me) (The Love Train Mix)
+03.  Real McCoy - Come And Get Your Love (Long Version)
+04.  Jam Tronic - Wish You Were Here (Maxi Version)(   Читать дальше...   )Жанр: Electronic, Euro HouseПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABF2A74655A5AD832064124B37D9563563FB901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466436   (81727) от 12.03.2012
 
 Dr. Alban - Greatest Hits (2008) [MP3|320 кб/с]<Eurodance>

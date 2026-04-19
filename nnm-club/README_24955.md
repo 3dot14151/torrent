@@ -1,22 +1,25 @@
-###  Публикация: 1707117   (62888) от 15.03.2024
+###  Публикация: 1802623   (66030) от 18.06.2025
 
-Psiphon 3 build 181 (14.03.2024) Portable [Multi/Ru]
+VA - A State of Trance - Classics Top 10, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66030.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Disc 1:
+01. Armin van Buuren & Cathy Burton - Rain (04:05)
+02. Southside Spinners - Luvstruck (Marco V & Benjamin 2000 Remix) (04:32)
+03. Signum & Scott Mac - Coming On Strong (03:19)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:48:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9A8723722FF462AD6745A68CA3694E4DCA1D719
+magnet:?xt=urn:btih:C36E8D2273343B7BBC2A92E51D4E290330E67893
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707107   (62887) от 15.03.2024
+###  Публикация: 1802546   (66029) от 18.06.2025
 
-WinToHDD 6.3 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
+Brewer's Droop - The Booze Brothers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66029.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10/8.1/8/7 без использования CD/DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский, другие
+01. Where Are You Tonight? [00:04:09]
+02. Roller Coaster [00:03:32]
+03. You Make Me Feel So Good [00:03:43]
+04. My Old Lady [00:03:40](   Читать дальше...   )Жанр: RockПродолжительность: 00:54:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04253417ADABCEEB52E73B00DBABFE0FE6835B41
+magnet:?xt=urn:btih:4B7759649C3B50C9D81A5850C7581A6512A0761D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707110   (62886) от 15.03.2024
+###  Публикация: 1802618   (66028) от 18.06.2025
 
-Topaz Photo AI 2.4.2 (x64) Portable by 7997 [En]
+VA - A State of Trance - Classics Top 10, Vol. 4 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+Disc 1:
+01. Armin van Buuren & Cathy Burton - Rain (04:05)
+02. Southside Spinners - Luvstruck (Marco V & Benjamin 2000 Remix) (04:32)
+03. Signum & Scott Mac - Coming On Strong (03:19)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:48:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F0955AA9FDC6F2835ECB4F70FA22FFCB6BEB6D6
+magnet:?xt=urn:btih:EAE883E44F1FE99DC053E804DD7754A213C94E26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707154   (62885) от 15.03.2024
+###  Публикация: 1802656   (66027) от 18.06.2025
 
-Wondershare PDFelement 10.3.0.2672 RePack by elchupacabra + OCR Plugin [Multi/Ru]
+Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Acoustic>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01 - Opening (Live At The GRAMMY Museum®) [1:14]
+02 - Introduction To As Tears Go By (Live At The GRAMMY Museum®) [0:13]
+03 - As Tears Go By (Live At The GRAMMY Museum®) [3:17]
+04 - Introduction To Hail To The King (Live At The GRAMMY Museum®) [0:30](   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:31:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC26BA3AD2ABCE9F916AF96446F9FA938D0F1ADA
+magnet:?xt=urn:btih:D52F62B0B9C3329E0016AF82565BBE47DC93B2C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707177   (62884) от 15.03.2024
+###  Публикация: 1802648   (66026) от 18.06.2025
 
-Остров иллюзий / Influencer (2022) BDRemux [H.264/1080p]
+Chris & Mike - unique (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Инфлюенсерша Мэдисон проводит отпуск на шикарном курорте Таиланда в одиночестве, потому что у её парня, и по совместительству менеджера, в последний момент нашлись более важные дела. Изнывая от скуки, она знакомится с загадочной девушкой, которая очень хорошо знает местность. С новой подругой Мэдисон посещает интересные заведения и, поддавшись соблазну испытать что-то (   Читать дальше...   )Производство: США / Octane Entertainment, SuperchillЖанр: триллерРежиссер: Кертис Дэвид ХардерАктеры: Кассандра Нод, Эмили Теннант, Рори Дж. Сапер, Джастин Сэмс, Пол Спурье, Сара КаннингПеревод: Дублированный (Велес), Многоголосый профессиональный (TVShows), Любительский двухголосый (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), Английские (full, SDH)Продолжительность: 01:32:10
+01.  COLOURS (5:16)
+02.  UNIQUE (5:26)
+03.  RESPECT (6:34)
+04.  TYPICAL (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8471CAEAAD4DBEDE1B63F6DE6F84F1853521BD32
+magnet:?xt=urn:btih:D03BA55C84A9ADA7A845D6D6C948AD9C2413ED18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707017   (62883) от 15.03.2024
+###  Публикация: 1802666   (66025) от 18.06.2025
 
-Вся жизнь / Ein ganzes Leben / A Whole Life (2023) BDRip [H.264] [MVO]
+Fred Hostetler - Blues Back Pages (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В начале двадцатого века молодого сироту по имени Андреаса Эггера отправляют в долину, где он проведет большую часть своей жизни. За восемь десятилетий его существования он столкнется с бедностью, войной и насилием, но также встретит удивительные моменты счастья и любви.Производство: Австрия, Германия / Epo-Film Produktionsgesellschaft, Tobis Filmproduktion, Cine Tirol, Deutscher Filmförderfonds (DFFF)Жанр: драмаРежиссер: Ханс ШтайнбихлерАктеры: Стефан Горски, Август Цирнер, Иван Густафик, Андреас Луст, Юлия Франц Рихтер, Мария Хофштаттер, Марианна Зёгебрехт, Роберт Штадлобер, Томас Шуберт, Лукас ВальхерПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, немецкийСубтитры: английские, немецкиеПродолжительность: 01:55:28
+01.  Hey Corporate Vandals (3:22)
+02.  Your Mind Is on Vacation (4:15)
+03.  Taming the Wolf (7:13)
+04.  Deep Deep Well (5:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E6E45087D41BFB19992A91C1A7431C28667DCAD
+magnet:?xt=urn:btih:294CFA61F8239B254C910B8CF5927DE30A99585C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707031   (62881) от 15.03.2024
+###  Публикация: 1802672   (66024) от 18.06.2025
 
-Пчеловод / The Beekeeper (2024) BDRip [H.265/1080p] [10-Bit] [MVO]
+Leo Cookman - Everyone Left (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Адам Клэй живет в тихом пригороде, занимается разведением пчёл и не распространяется о своей прошлой жизни. Он дружит с пожилой соседкой миссис Паркер, у которой арендует сарай. Однажды миссис Паркер становится жертвой кибермошенников, которые похищают деньги со всех её счетов. Не в силах вынести такой удар, женщина сводит счёты с жизнью. Осознав, что закон в данной (   Читать дальше...   )Производство: Великобритания, США / Miramax, Cedar Park EntertainmentЖанр: Боевик, КриминалРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Эмми Рейвер-Лэмпман, Бобби Надери, Джош Хатчерсон, Джереми Айронс, Дэвид Уиттс, Михаэль Эпп, Тейлор Джеймс, Филишия Рашад, Джемма РедгрейвПеревод: Многоголосый профессиональный (TVShows, Jaskier), двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:45:15
+01.  You Don't Know (3:44)
+02.  In Mine (3:26)
+03.  Let Her Go (3:09)
+04.  Sleeping Dogs (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2052ABCA6486B978B20B7AA0D84B82E5DA2D865
+magnet:?xt=urn:btih:66A3A70A4397936A2CE5BBB383118092190A8A7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,27 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707201   (62880) от 15.03.2024
+###  Публикация: 1802659   (66023) от 18.06.2025
 
-Приключения Икабода и мистера Тоада / The Adventures of Ichabod and Mr. Toad (1949) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+David Cooper - David Cooper (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это сказка о настоящей дружбе, о необыкновенных и очень опасных приключениях веселого лягушонка и его друзей, находчивость и смекалка которых помогают ему в самую трудную минуту.
-
-В деревушке под названием Сонная Лощина поселяется необычный человек по имени Икабод Крэйн. Как-то раз ему рассказывают легенду о таинственном всаднике без головы, который обезглавливает (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, ужасы, фэнтези, комедия, семейныйРежиссер: Джеймс Элгар, Клайд Джероними, Джек КинниПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: русские (full, forced)Продолжительность: 01:08:05
+01.  On My Way Back Home (3:56)
+02.  Shine On (4:01)
+03.  This Rain's Just Passing Through (3:30)
+04.  We Give You Praise (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:890568BB265ADDCF45D63B24DBACF18DAC5FBAD6
+magnet:?xt=urn:btih:6E596BEDFB50AADBDDF24E14AC28AF58D9606D2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707231   (62878) от 15.03.2024
+###  Публикация: 1802671   (66022) от 18.06.2025
 
-Allavsoft Video Downloader Converter 3.26.2.8837 RePack (& Portable) by TryRooM [Multi/Ru]
+Kjartan Hesthagen, Ledfoot, Markus O. Klyve, Tim Scott McConnell - Plain Simple Honesty (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Allavsoft Video Downloader Converter - это мощный видео загрузчик с поддержкой скачивания фильмов, музыкальных клипов, плейлистов, видео, уроков с видеохостингов, таких, как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft также может скачивать и конвертировать скачанное видео в популярные видео (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01.  All You Ever Had (4:10)
+02.  Plain Simple Honesty (3:48)
+03.  My Empty Heart (4:57)
+04.  Burning Blue (2:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:474E2F6E2B2C19BEE34DF1DD7E82EFD657A58AE9
+magnet:?xt=urn:btih:C1F04359E2C1D883773CA6549477454AD149AC1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,27 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 307515   (62877) от 15.03.2024
+###  Публикация: 1802652   (66021) от 18.06.2025
 
-Николай Гейнце | Коронованный рыцарь (2005) [MP3, Олег Фёдоров]
+Clementine Moss - Clem & Clearlight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Исторический авантюрный роман.
-Николай Эдуардович Гейнце (1852–1913) русский писатель, журналист, адвокат, военный корреспондент.
-Роман «Коронованный рыцарь» (1898) переносит в недолгое царствование императора Павла, отмеченное водворением в России орденов мальтийских рыцарей и иезуитов.Жанр: Русская литература, классика, исторический романИздательство: Вира-М (аудио)Продолжительность: 17:56:21
+01.  Hey Sweetheart (6:52)
+02.  Bar Broad Blues (4:21)
+03.  Coming to Meet the Blues (4:11)
+04.  Lt Blues (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5598F9788D4331285BE8500A2DD53EDF628CD855
+magnet:?xt=urn:btih:51C7AA1A82AD246CD67A6194B0D6A3F3F4AE358E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,27 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 307524   (62876) от 15.03.2024
+###  Публикация: 1802675   (66020) от 18.06.2025
 
-Николай Гейнце | Под гнётом страсти (2005) [MP3, Галина Самойлова]
+Los Angeles Side Hustle - Los Angeles Side Hustle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Исторический авантюрный роман.
-Николай Эдуардович Гейнце (1852–1913) русский писатель, журналист, адвокат, военный корреспондент.
-Повесть «Под гнётом страсти» написана в 1898 году. Старый Петербург XIX век. Захватывающие перипетии, любовные интриги, интересные бытовые подробности столичной жизни Северной Пальмиры…Жанр: Русская литература, классика, историческая повестьИздательство: Вира-М (аудио)Продолжительность: 09:38:53
+01.  Bloodshot Eyes (3:45)
+02.  In the Night (3:06)
+03.  Junker's Blues (3:12)
+04.  Can't No Grave Hold My Body Down (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBBAC8AB5C52BD19026FF4A2C927E78919AADA86
+magnet:?xt=urn:btih:B35019F7B712E2F52FE7150C10B56D8A6F622C32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,25 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707218   (62875) от 15.03.2024
+###  Публикация: 1802643   (66019) от 18.06.2025
 
-WinNc 10.7.0.0 (x64) Portable by FC Portables [Multi/Ru]
+BunnyDad - Past Journey (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WinNc - файловый менеджер, обладающий широкими возможностями, который может стать отличной заменой стандартному проводнику Windows. WinNc использует ту же функциональность клавиатуры и мыши, что и DOS-овский вариант файлового менеджера, Norton Commander. Программа предоставляет вам удобный доступ к различным FTP- и локальным серверам, локальным дискам и т.д., благодаря (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01.  Blues Song (2:59)
+02.  Cry Wolf (3:17)
+03.  Hard Time Blues (3:15)
+04.  I Gotta Pay the Blues Man (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFD1BE46CE10C8E8988C8C512AF5198875B78360
+magnet:?xt=urn:btih:9B5DED5EE8FB531C0CD3C43B785608255F84DD31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,25 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707251   (62874) от 15.03.2024
+###  Публикация: 1802550   (66018) от 18.06.2025
 
-Пчеловод / The Beekeeper (2024) BDRip [H.264] [UKR, EN / EN Sub]
+e-Dancer, Kevin Saunderson, Dantiez - e-Dancer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance>
 
->>Зарубежное кино
->>Фильмы с переводом на др. языках
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Адам Клэй живет в тихом пригороде, занимается разведением пчёл и не распространяется о своей прошлой жизни. Он дружит с пожилой соседкой миссис Паркер, у которой арендует сарай. Однажды миссис Паркер становится жертвой кибермошенников, которые похищают деньги со всех её счетов. Не в силах вынести такой удар, женщина сводит счёты с жизнью. Осознав, что закон в данной (   Читать дальше...   )Производство: США, Великобритания / Miramax, Cedar Park Entertainment, Punch Palace ProductionsЖанр: боевик, криминалРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Эмми Рейвер-Лэмпман, Бобби Надери, Джош Хатчерсон, Джереми Айронс, Дэвид Уиттс, Михаэль Эпп, Тейлор Джеймс, Филишия Рашад, Джемма Редгрейв и др.Перевод: Дублированный (укр. ААА Sound)Язык озвучки: украинский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:45:14
+01. Melodica [00:04:03]
+02. Emotions [00:03:38]
+03. Dancer [00:03:32]
+04. Frequency [00:05:07](   Читать дальше...   )Жанр: DanceПродолжительность: 00:42:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6858F5F19654D127E8F29EDEACFA5B8B0B878ADF
+magnet:?xt=urn:btih:714B4D3729B8A2AA42B701D07289A67AB930DDD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,21 +375,309 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707159   (62873) от 15.03.2024
+###  Публикация: 1802678   (66017) от 18.06.2025
 
-Мадам Паутина / Madame Web (2024) WEBRip [H.264] [звук с ТS] [AD]
+Mick Clarke - Mozelle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Медсестра из Манхэттена Кассандра Уэбб открывает в себе способность видеть будущее и понимает, что может использовать эту силу, чтобы его изменить. Столкнувшись с тайнами своего прошлого, Кассандра знакомится с тремя девушками, которым суждено однажды стать великими, если они вместе смогут пережить смертельно опасное настоящее.Производство: США, Канада, Мексика / Columbia Pictures Corporation, Marvel Entertainment, Sony Pictures Entertainment (SPE)Жанр: фантастика, боевик, приключенияРежиссер: С.Дж. КларксонАктеры: Дакота Джонсон, Сидни Суини, Изабела Мерсед, Селеста О'Коннор, Тахар Рахим, Майк Эппс, Эмма Робертс, Адам Скотт, Керри Бише, Заша МэметПеревод: Дублированный (MovieDalen, звук с TS)Язык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:57:34Реклама: Плавающий баннер
+01.  Mozelle (4:38)
+02.  Somebody Been Talkin' (3:43)
+03.  As Long as I Have You (4:14)
+04.  Too Late Brother (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD39B3CB1D4814168F19CC1D8370EE8B715CE521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802684   (66016) от 18.06.2025
+
+Paul Steward - You Can Dance to My Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You Can Dance to My Blues (3:38)
+02.  808 Blues (2:33)
+03.  Omo Phola - Ride With Me (Paul Mix) (2:59)
+04.  Aishiteru (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830BEF03CE789D24883A7B83B4A9D71D58B2F4B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802603   (66015) от 18.06.2025
+
+Seth MacFarlane - Blue Skies (2022) Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's You or No One [2:50]
+02. No Moon at All [2:23]
+03. You'll Get Yours [2:46]
+04. A Hundred Years from Today [3:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00221FFCD21171E19E4EF76459612EFF89608147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802686   (66014) от 18.06.2025
+
+Pieces Of A Dream - We Got This (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heading Out (4:02)
+02.  We Got This (4:37)
+03.  I'm On My Way (3:56)
+04.  Take A Stroll (4:03)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943C896EDA0C6F3733D272963C8349159E65891D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802661   (66013) от 18.06.2025
+
+НХЛ. Кубок Стэнли 2025. Финал. 6-й матч.  Эдмонтон Ойлерз - Флорида Пантерз (17.06.2025) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66013.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 июня 2025, среда 03:00 МСК, Финал. 6-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 983 зрителя (103% при вместимости 19 434)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Крис Руни (Бостон, США); Линейный: Девин Берг (Китченер, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейЯзык озвучки: Русский, английскийПродолжительность: 03:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771326AFE4BED5165783564C676011C9CD26FCA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802682   (66012) от 18.06.2025
+
+Nicole Lawrence - Time In Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Green In The Valley (3:07)
+02.  He's Gone (3:29)
+03.  You Don't Know About Me (2:55)
+04.  Dayz Were Dancing (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398ACA5D71725242125E16AE48F4BE54ED531DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802669   (66011) от 18.06.2025
+
+Grace Potter - Medicine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Before The Sky Falls (4:54)
+02.  Losing You (4:04)
+03.  That Phone (4:32)
+04.  Money (3:44)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71260D03EE35686879370B42BE384F0B3934CE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802581   (66010) от 18.06.2025
+
+AJ Tracey - Don't Die Before You're Dead (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Outta Sight [2:01]
+02 - Second Nature [2:46]
+03 - 3rd Time Lucky [2:40]
+04 - Crush [3:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB8B6F65CCABE0963948E309373091950626601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802543   (66009) от 18.06.2025
+
+Сергей Тимошенко - Опер (2025) [MP3|320 Kbps] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Опер [00:05:24]
+02 - Ни шагу назад [00:02:48]
+03 - Бросок в рай [00:03:32]
+04 - Ледяной рассвет [00:03:48](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3550438EF2BCED635CF29EE03EEBBBAA284A5A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802547   (66008) от 18.06.2025
+
+Darkness - Conclusion & Revival (2025) Remaster [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conclusion and Revival (Remastered) [00:02:56]
+02. Soldiers (Remastered) [00:04:29]
+03. The Omniscient (Remastered) [00:03:52]
+04. Under Control (Remastered) [00:04:26](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11620FD46B870DC363453B87C80871FD56B56292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796451   (66007) от 18.06.2025
+
+Корни / Frewaka (2024) WEBRip [DVO] [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66007.jpg" />
+</div>
+
+
+###  Подробнее
+
+После самоубийства матери, с которой она не общалась, Ши получает предложение подработать сиделкой у пожилой женщины в сельской местности. Та живет в большом доме поодаль от деревни, постоянно твердит, что за ней могут прийти некие они, и заставляет Ши соблюдать множество нелепых правил. Но вскоре девушке начинает казаться, что её подопечная не страдает деменцией (   Читать дальше...   )Производство: Ирландия / Cine4, DoubleBand Films, Fís Éireann / Screen IrelandЖанр: ужасыРежиссер: Эйслинн КларкАктеры: Клэр Моннелли, Бридь Ни Няхьтинь, Александра Быстржицкая, Клер Баррет, Шарлотта Брэдли, Тара Бретнэк, Grace Collender, Пидар Кокс, Jim Cunningham, Дороти Даффи и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:43:34Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
@@ -368,27 +689,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706868   (62872) от 15.03.2024
+###  Публикация: 1802580   (66006) от 18.06.2025
 
-Волшебный школьный автобус / The Magic School Bus (1997) DVDRip [H.265] [10-bit] (сезон 4, серии 1-13 из 13) СВ-Кадр
+AJ Tracey - Don't Die Before You're Dead (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 
->>Мультфильмы
->>Зарубежные Мультсериалы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эксцентричная учительница возит свой класс на удивительные образовательные экскурсии с помощью волшебного школьного автобуса.
-Мисс Фриззл вместе со своим классом отправляется в приключения путешествуя по захватывающим экскурсиям, они открывают для себя места, существ, периоды времени и многое другое, чтобы по пути узнать о чудесах науки.
-Познавательно-приключенческий (   Читать дальше...   )Производство: Канада, США.Жанр: рисованная анимация, детский, развивающий, приключенияРежиссер: Ларри Джейкобс, Чарльз Е. Бастьен, Хью МартинАктеры: Лили Томлин, Дэниэл ДеСанто, Лиза Бойнтон, Тара Мейер, Эрика Латтрелл, Стюарт Стоун, Майя Файлар, Мальколм-Джамал, Уорнер Дэнни, Тамберелли Андре, Оттли-ЛорантПеревод: Дублированный Телесеть ТНТ (СВ-Кадр 2002г.), многоголосый любительский.Язык озвучки: Русский, Английский, Испанский.Субтитры: Русский, Английский.Продолжительность: ~00:26:00 серия
+01 - Outta Sight [2:01]
+02 - Second Nature [2:46]
+03 - 3rd Time Lucky [2:40]
+04 - Crush [3:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4E55072F5C57CEB7CE1829EBCB2754AC77E34AF
+magnet:?xt=urn:btih:07CF67A4A4BCD5FD9391F34B456D20A38DCE1947
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,287 +718,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707168   (62871) от 15.03.2024
+###  Публикация: 1802640   (66005) от 18.06.2025
 
-Topaz Photo AI 2.4.1 (x64) RePack by KpoJIuK [En]
+Bubbles Brown - Colombian Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+01.  Peru (4:48)
+02.  Hold Keep Rock #2 (2:36)
+03.  Funky Jump (3:36)
+04.  In My Room (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A701C72B6A5C2BD9AC5B32B4075C3DDD7EBA4A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707125   (62870) от 15.03.2024
-
-Qubes OS 4.2.0 [x64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Qubes OS — ориентированная на безопасность настольная операционная система, которая призвана обеспечить безопасность через изоляцию. Виртуализация осуществляется на базе Xen. Пользовательская среда может быть основана на Fedora, Debian, Whonix, Windows и других операционных системах.
-
-16 февраля 2014 года Qubes стал финалистом в премии Access Innovation Prize 2014 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C125502E34EAE434EDEDF0D148A6104B20DB39F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707027   (62869) от 15.03.2024
-
-Андрей Никонов | 4-й лорд Звёздной Империи (Книга 1). Пришелец с Земли (2024) [MP3, Александр Сидоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец 21 века, Солнечная система. В поясе астероидов пропадает челнок, и появляется в другой части галактики. Обычный парень из нашего мира попадёт в самую гущу космических сражений, чтобы проложить себе путь к вершинам звёздной империи. Как бы ему не хотелось этого избежать.Всё это – в серии книг «Четвёртый лорд».Жанр: Боевая фантастика, Космическая фантастикаИздательство: ЛитРес: чтец, АвторПродолжительность: 07:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC9704E96386DE5C36EE3B869C904B0ABEF1547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707150   (62868) от 15.03.2024
-
-Журнал | Наука и техника №3 (6) (март 2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62868.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Наука и Техника» - научно-популярный журнал широкого профиля. Люди с техническим складом ума не только найдут здесь полезную информацию о достижениях авиации, кораблестроения, покорении космоса, но также смогут расширить свой кругозор в области естественных и гуманитарных наук.Жанр: Научно-популярный журналИздательство: ООО "Университет дополнительного профессионального образования"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A44F4EED89DE5633A65014768DD2D9AAAD303F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707195   (62867) от 15.03.2024
-
-TreeSize Professional 9.1.3.1877 (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многофункциональный, как швейцарский армейский нож, TreeSize - это ведущий на рынке менеджер файлов и дискового пространства. Программное обеспечение анализирует все данные, хранящиеся в ваших системах, и визуализирует результаты в содержательных диаграммах и статистике. Узнайте с первого взгляда, куда ушло место на диске, и при необходимости примите немедленные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6DDBCF6B3D483A2FC48630ECE5DAB8243698F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707128   (62866) от 15.03.2024
-
-Пять недель на воздушном шаре / Five Weeks in a Balloon (1962) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Самюэль Фергюссон на воздушном шаре собственной конструкции, по просьбе Королевы Англии, совершает путешествие в неизведанную область Африки. Ему необходимо опередить работорговцев и проделать весь путь за пять недель. В пути профессора и его спутников ждут как забавные, так и опасные приключения...Производство: США / Irwin Allen ProductionsЖанр: фантастика, фэнтези, драма, мелодрама, комедия, приключенияРежиссер: Ирвин АлленАктеры: Ред Баттонс, Фабиан, Барбара Иден, Седрик Хардвик, Петер Лорре, Ричард Хейдн, Барбара Луна, Билли Гилберт, Херберт Маршалл, Реджинальд Оуэн и др.Перевод: Одноголосый профессиональный (А.Михайлов)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1D1A8CF09078EDEA9C7F5206451B8913E30236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707146   (62865) от 15.03.2024
-
-Проклятие монахини / The Nun (2018) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в уединенном монастыре в Румынии совершает самоубийство молодая монахиня, расследовать происшествие Ватикан отправляет священника с туманным прошлым и послушницу на пороге невозвратных обетов. Рискуя не только жизнями, но и своими душами, они сталкиваются со злобной силой, принявшей облик демонической монахини, а монастырь становится полем ужасающей битвы между (   Читать дальше...   )Производство: США / Atomic Monster, New Line Cinema, Safran Company, TheЖанр: ужасы, триллер, детективРежиссер: Корин ХардиАктеры: Демиан Бишир, Таисса Фармига, Йонас Блоке, Бонни Ааронс, Ингрид Бису, Патрик Уилсон, Вера Фармига, Лили Тейлор, Шарлотта Хоуп, Сандра ТелесПеревод: ДублированныйЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 01:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFAAEA3EFF7530246C625D72E897B2C283B17C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707084   (62864) от 15.03.2024
-
-StartAllBack 3.7.7 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62864.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC537E69D4CE9EBA748D8ED66FEA0BFD506D071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707077   (62863) от 15.03.2024
-
-KMPlayer 4.2.3.10 Plus (x86) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62863.jpg" />
-</div>
-
-
-###  Подробнее
-
-The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBA61539937FFF2FA60F6057D052192426C8217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707127   (62862) от 15.03.2024
-
-Городские девчонки / Uptown Girls (2003) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молли Ганн ходит по бутикам, прожигает жизнь на вечеринках и смотрит на своих кавалеров сверху вниз. Её отец, известный в прошлом рок-идол, оставил ей громадное наследство, и девушка благополучно его прогуливает. Но сказке приходит конец, когда бухгалтер крадёт все деньги Молли, и единственное, что ей остаётся — это найти работу. После нескольких неудачных попыток (   Читать дальше...   )Производство: США / GreeneStreet Films Inc., Millennium FilmsЖанр: комедия, мелодрамаРежиссер: Боаз ЯкинАктеры: Бриттани Мёрфи, Дакота Фэннинг, Марли Шелтон, Дональд Фэйзон, Джесси Спенсер, Кармен Электра, Пелл ДжеймсПеревод: дублированный, профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C20CC907EDA6A18AC513DF3E0BE3282D2DFB43EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707078   (62861) от 15.03.2024
-
-Яндекс.Браузер 24.1.4.826 (x32) / 24.1.4.827 (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:650F138D16F8D641BECDB4F51409FC8F12E516C5
+magnet:?xt=urn:btih:1C801EE27C0A8D00442708D0ECDF674DCB0E20AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

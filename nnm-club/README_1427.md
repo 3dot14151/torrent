@@ -1,317 +1,25 @@
-###  Публикация: 1454607   (1026168) от 15.03.2021
+###  Публикация: 1451803   (1028075) от 04.03.2021
 
-MAGIX Vegas Pro 18.0 Build 482 RePack by KpoJIuK [En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026168.jpg" />
-</div>
-
-
-###  Подробнее
-
-MAGIX Vegas PRO — профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BCA890D61E77CB27DE32F87C8566DE11D75E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373296   (1026167) от 15.03.2021
-
-Universal TV Remote Pro v1.0.23 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный пульт дистанционного управления №1 - приложение Smart и IR Remotes в более чем 100 странах. Для Smart TV / Устройств, единственная необходимая настройка - это подключить телефон, а также Smart TV / Device к той же сети Wifi. Для ИК-телевизоров ваш телефон должен иметь встроенную инфракрасную функцию, чтобы приложение работало в качестве пульта дистанционного (   Читать дальше...   )Тип издания: Пиратка (Mod: Pro, удалена реклама, лишние пункты об оценке и прочий мусор)Релиз состоялся: 23.01.2021Разработчик: CodeMatics Media SolutionsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B589100890AB306064F644F1C5D1AEF5EDD452C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454504   (1026166) от 15.03.2021
-
-VA - Pop Remix (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Evans, 220 KID, Billen Ted - Wellerman (Sea Shanty 220 KID x Billen Ted Remix) (1:56)
-02. Weird Genius, Sara Fajira, R3HAB - LATHI (R3HAB Remix]) (2:03)
-03. Hot Chip, Dillon Francis, Jarvis Cocker - Straight To The Morning (Dillon Francis vs. Hot Chip Remix) (2:22)
-04. Koosen, Strange Fruits Music - Mood (2:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44839DDE3242CDE35CB2D17961C72757B3384716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454540   (1026165) от 15.03.2021
-
-Adobe Illustrator 2021 25.2.1.236 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Adobe Illustrator 2021 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C8CDD173F97F3A16C03A3275075C3DFB7E7AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454599   (1026164) от 15.03.2021
-
-Новости со всех концов света / News of the World (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Джефферсон Кайл Кидд путешествует из города в город, делясь новостями со всех концов света, а также историями о президентах и ​​королевах, великих сражениях и разрушительных катастрофах. На равнинах Техаса его путь пересекается с десятилетней Джоанной, которая была похищена племенем Кайова и последние шесть лет воспитывалась в традициях индейской (   Читать дальше...   )Производство: США / Perfect World Pictures, Playtone, Pretty PicturesЖанр: Вестерн, драма, приключенияРежиссер: Пол ГринграссАктеры: Том Хэнкс, Хелен Зенгель, Том Эстор, Travis Johnson, Энди Кастелич, Рэй Маккиннон, Мэр Уиннингхэм, Джефф Уэр, Крис Билсма, Джастин ТадэПеревод: Дублированный (Netflix), Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57411467D218F51735679EFBD88D147A39C39F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454533   (1026163) от 15.03.2021
-
-Adobe Premiere Pro 2021 15.0.0.41 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro CC 2020 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C18317F8B37540B8D0AE92910F39EA8D85AA9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454305   (1026162) от 15.03.2021
-
-Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy 03.2021 2DVD
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026162.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборки на основе оригинальных русских образов операционной системы Windows 8.1 (Pro VL) (x86-x64) - (Russian) Final (MSDN) от Microsoft с дополнительным материалом разных разрядностей в 2-х разных установочных образах (x86 и x64) со встроенным пакетом обновления Update 3. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: (   Читать дальше...   )Язык интерфейса: Русский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035C7E80657444F50FFBE3B72D5B88733DBF7D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454595   (1026161) от 15.03.2021
-
-Serhii Zashkaruk | Видеомонтаж в Adobe Premiere Pro - с нуля до результата (2021) PCRec
-
->>След.
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чему вы научитесь
-Практические домашние задания / Полноценное портфолио
-Работа с эффектом CROP / Движение и масштабирование
-От монтажа простых видео до сложных проектов(   Читать дальше...   )Производство: UdemyЖанр: видеоПродолжительность: 03.00.00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A059A570584F38000EF57707A6E05F3994797CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279601   (1026160) от 15.03.2021
-
-VA - Русская Дискотека 70 - 80 - 90 г.  [MP3|256 - 320 Kbps] <Disco, POP, Rock>
-
->>След.
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, POP, RockПродолжительность: 47.08.38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AB9B204C1ED6D27337A1FA153A563BF1A5A2B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278657   (1026159) от 15.03.2021
-
-Variours Artist - Дискотека 70-80-90-2000 [MP3|224-320 Kbps] <Disco, POP, Rock>
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, POP, RockПродолжительность: 209.08.32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB783ACBDBD054E907C4ED28B90C96AEFC54C526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065053   (1026158) от 15.03.2021
-
-Sid Meier's Civilization VI (2016) [Ru/Multi] (1.0.10.15/dlc) Repack Other s [Digital Deluxe]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная легендарным дизайнером Сидом Мейером серия Civilization представляет собой увлекательную пошаговую стратегию, в которой игроку предлагается создать империю, способную выдержать испытание временем. Станьте одним из сильных мира сего, основав собственную цивилизацию, и возглавляйте ее в течение многих эпох. Объявляйте войны, ведите дипломатические переговоры, (   Читать дальше...   )Тип издания: RepackРазработчик: Firaxis GamesЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий  и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEB15F45779D8041B451528DE6CE7C42CBA10D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454707   (1026157) от 16.03.2021
-
-Daemonlord - Hellfire Centuries (2006) [FLAC|Lossless|image + .cue] <Black Metal>
+Eclipse Of The Sun - Brave Never World (2020) [FLAC|Lossless|image + .cue] <Gothic Metal, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rifles And Hammers (4:33)
-02. Riding The Mushhushu (4:58)
-03. Monuments of Bereavement (3:39)
-04. The Shattering (1:26)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:49
+01. Pillars Of Creation (5:22)
+02. Things Called Life (4:46)
+03. Brave Never World (5:35)
+04. Not A Symbol (6:01)(   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 00:49:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:700722FFB623F3160E4246025F7D7B08B1AB5A71
+magnet:?xt=urn:btih:94853DDEF154CBD9F563945B4A33EE9ACBA60E29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454709   (1026156) от 16.03.2021
+###  Публикация: 1451897   (1028074) от 04.03.2021
 
-Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
+Zero People - The Best: Очевидное (2021) [MP3|320 Kbps] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ride The Rainbow
-02. The Fire Of Hades
-03. The Devil Inside
-04. Waves Of War(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:19
+1. Маятник
+2. Джедай
+3. Стена
+4. Ремесло(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:05:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99FF79B1B44B8D6408F285A38C926B27067E114A
+magnet:?xt=urn:btih:076F756326C52A2028E951F00585902D76A71B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,368 +56,661 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454735   (1026155) от 16.03.2021
+###  Публикация: 1451943   (1028073) от 04.03.2021
 
-Crystal Eyes - Confessions Of The Maker (2005) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Charioteer
-02. Confessions Of The Maker
-03. Northern Rage
-04. The Fools' Ballet(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAE3ABEE6D5F31F2DC0822B9DB451577FAA9877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454738   (1026154) от 16.03.2021
-
-Crystal Eyes - Vengeance Descending (2003) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vengeance Descending
-02. Highland Revenge
-03. Child Of Rock
-04. Mr. Failure(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A350C185121EEFF88FC8841B236F9BD08FF44D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454741   (1026153) от 16.03.2021
-
-Crystal Eyes - World Of Black And Silver (1999) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellar War
-02. Gods Of Ohe World
-03. Winds Of The Free
-04. The Power Behind The Throne(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76419B5B7BA02B7C8B1820B5AA7D0FF8F1D601F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454714   (1026152) от 16.03.2021
-
-Crystal Eyes - Dead City Dreaming (2006) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead City Dreaming
-02. Into The Light
-03. The Narrow Mind
-04. Wall Of Stars(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1330F768CA5A46B1E403836A59F69108C35BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454849   (1026151) от 16.03.2021
-
-Multiplex - Discography 10 Releases (1997-2006) Toytronic, U-Cover [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Leftfield, Abstract, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Macao (05:00)
- 02. My Synthesiser (04:50)
- 03. Lito : A (04:17)
- 04. Momensch (06:29)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Electro, Leftfield, Abstract, Ambient •Продолжительность: 07:39:34 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5E26D5937A3990C07DA4D4903A8393EBC9B1AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454666   (1026150) от 16.03.2021
-
-Michael Romeo - The Dark Chapter (1998) [APE|Lossless|image + .cue] <Progressive Neoclassical Metal, Shred>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carpathia
-02. Cask of Amontillado
-03. Psychotic Episode
-04. Masque of the Red Death(   Читать дальше...   )Жанр: Progressive Neoclassical Metal, ShredПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90086F65B9E53E77ED6B35406118B4B4699AD34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454774   (1026149) от 16.03.2021
-
-Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Баффало Сэйбрз (15.03.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026149.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 марта 2021, вторник. 02:00 МСК
-Стадион: Кибэнк-центр (Баффало, США). Матч прошёл без зрителей
-Главный судья: Брайан Почмара (Детройт, США); Главный судья: Митч Даннинг (Текумсе, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E780CE5074140C158CCE1A549E08EBC76E7FB62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454770   (1026148) от 16.03.2021
-
-Хоккей. НХЛ 2020-2021. Бостон Брюинз - Питтсбург Пингвинз (15.03.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026148.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 марта 2021, вторник. 02:00 МСК
-Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 2 800 зрителей (15 % при вместимости 18 673)
-Главный судья: Фурман Саут (Сьюикли, США); Главный судья: Тревор Хансон (Ричмонд, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F023DBB3DB90B40E1CA97DCA54ED9FEFA28DDC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454697   (1026147) от 16.03.2021
-
-Black Diamonds - Once Upon A Time (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tales Untold
-02. The Ghost And The Shadow
-03. Love Stick Love
-04. Romeo & Juliet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE20AC24BB889539B31DA513B552D57A4F82CEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454712   (1026146) от 16.03.2021
-
-Crystal Eyes - Starbourne Traveler (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods Of Disorder
-02. Side By Side
-03. Extreme Paranoia
-04. Starbourne Traveler(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC2607AB50E9BF66F17B3169812205F30879768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454847   (1026145) от 16.03.2021
-
-Схиигумен Иоанн (Алексеев) | Письма Валаамского старца, схиигумена Иоанна (2016) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026145.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге представлено собрание писем известного валаамского подвижника, старца Иоанна (Алексеева) (1873–1958), которые он адресовал своим многочисленным духовным чадам и в которых указывается, как правильно проходить путь спасения во Христе. Душеназидательные письма схиигумена Иоанна принесут пользу всем православным христианам.Жанр: ПравославиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D89CE5A612CE10EBA09482E2342C2FDE26C88EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454690   (1026144) от 16.03.2021
-
-Редьярд Киплинг | 40 норд-50 вест (1931) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для детей младшего и среднего школьного возраста.
-Редкая книга. Первое издание в библиотеке.Жанр: Детская проза, СтихиПеревод: С. МаршакФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F06110AAAE035EB2589FACC0E73A9461231765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454840   (1026143) от 16.03.2021
-
-Леонид Гальперштейн | Моя первая книга о технике (2015) [PDF]
+Александр Тихонов | Самая умная энциклопедия. Жизнь океана (2016) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга-путеводитель по лабиринтам сложных технических изобретений и терминов. Она знакомит маленьких читателей и их родителей с таинственным миром техники. Прекрасные иллюстрации - незаменимый гид в этой увлекательной экскурсии по стране знаний.
-
-Для младшего школьного возраста.Жанр: Познавательная литература для детейФормат: PDF
+Поднимаясь с морского дна на поверхность, юные читатели, взяв в проводники автора энциклопедии – профессора, доктора биологических наук Александра Васильевича Тихонова, рассмотрят в подробностях жизнь подводных жителей: растений, кораллов, моллюсков, больших и крошечных рыб, морских млекопитающих, рептилий и птиц. Отличные фотографии дадут полное представление о (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED9E6EE69AC52F10AB2FD5DEB74D62CEBAC9AA84
+magnet:?xt=urn:btih:DAA6A9D4478E16C5765B0B68165D5BCA2EC74330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451836   (1028072) от 04.03.2021
+
+Opera GX 73.0.3856.408 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E05A14E82D858BD5AA6E21DE89895DAE658757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451937   (1028071) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass, Vol. 14 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hourx - Magic In My Mind (Original Mix) (04:34)
+02. One's Utmost - Bituminous Blast (Original Mix) (04:32)
+03. Unreal - Dubtrip (Original Mix) (05:55)
+04. Randomstar - LoveLoveLove (Original Mix) (03:56)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64555FD15252A14ACD0D1A012392038D36931FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451844   (1028070) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass, Vol. 5 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandemic - Radians (Original Mix) (05:52)
+02. Bsm - Hold Tight (Fireflake Remix) (04:12)
+03. Formal One - Time (Original Mix) (03:50)
+04. Mr Breaks - Illusions (FuckDakz Remix) (03:53)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472A1387A7F1C6ED1B3EE89E3AF4495F734C6560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451910   (1028069) от 04.03.2021
+
+Q-Dir 9.23 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F166084723A02986F5375C57AF435008C90897C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451941   (1028068) от 04.03.2021
+
+Microsoft Visual Studio 2019 Professional 16.8.6 (Offline Cache, Unofficial) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio 2019 -  полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.
+Процедура регистрации:Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC75366938AC0D2E4388DCAA2F8EC8095A2458E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451907   (1028067) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass, Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Technine - Black Ball (Original Mix) (04:30)
+02. Konfront.Audio - Tell Me (Original Mix) (06:02)
+03. Thomas Hayes, Joni Fatora - Neon (Flite Remix) (04:58)
+04. Greekboy - Come On (Original Mix) (05:55)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D7C03F98D9E7FCB830269E46F0901069FF0651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451838   (1028066) от 04.03.2021
+
+VA - The Perfect Sunset Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - After the Storm (05:57)
+02. Will James - Capri (04:33)
+03. Gary B - Volar (04:54)
+04. Beamy - Es Vedra (05:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E523A7167ABA38F6720980608607A009D5D533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451965   (1028065) от 04.03.2021
+
+Opera 74.0.3911.203 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F61AF729222F492C84D0F922045F37691E65C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451903   (1028064) от 04.03.2021
+
+Анна Рэй | Цикл "Арианна Росса" [3 Книги] (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028064.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Арианна и Царства Двух Миров
+Твой возлюбленный — темный маг? У всех свои недостатки. В тебе проснулась древняя сила? Не самое страшное, что может случиться. Твой лучший друг мертв? Нужно его оживить! Остается сущий пустяк — найти дары забытых богов и сотворить чудо. А заодно и проверить, на что ты способна ради спасения близких.
+Вдруг окажется, что отец, которого (   Читать дальше...   )Жанр: любовное фентези, магические академииПродолжительность: 31:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CDE60F50DBC22274F1375DA33EFC5ACB1F601D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451922   (1028063) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass, Vol. 12 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pux - Cosmic Monster (Original Mix) (04:58)
+02. Babylon3 - Blaze Chalwa (Original Mix) (06:12)
+03. Silent Approach - So Close (Original Mix) (05:20)
+04. Rautu - Visuality (Original Mix) (03:12)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78095574E562A09DC78B423F187BA38B7DCDBA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451813   (1028062) от 04.03.2021
+
+VA - Point of Origin, Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Ford, Jolliffe - Circuits (04:34)
+02. Dub Elements - Sacred Geometry (04:56)
+03. Phaction, Leo Wood - Electric Wires (04:55)
+04. Bert H, Hiraeth - All I Want (05:17)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA6CFBD0F70E8172B02C798487C7B0FBB910383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451800   (1028061) от 04.03.2021
+
+Земля, изваянная ветрами / Tuulte tahutud maa (2018) HDTVRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный фильм Йоозепа Матьюса о дикой природе Эстонии, завораживающий потрясающей красотой пейзажей, съемками диких животных и стай перелетных птиц.Производство: Эстония, WildKinoЖанр: Документальный, природа, флора, фаунаРежиссер: Йоозеп МатьюсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5188248F41D5BD693FECDB430D878328E65E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451957   (1028060) от 04.03.2021
+
+Ольга Покровская | Вдребезги (2019) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028060.jpg" />
+</div>
+
+
+###  Подробнее
+
+София смелая и волевая женщина, успешно управляющая корпорацией. Никто не догадывается, что глубоко внутри она хрупкое и ранимое существо. Ведь когда-то Соня пережила чудовищную трагедию, лишившись брата-близнеца. Прилетев в Стамбул по делам, она случайно встречает свое отражение в актере Берканте. Он хочет казаться сильным, и потому, случайно открывшись Софии, жестоко (   Читать дальше...   )Жанр: Современные любовные романыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA376C14EF964D4421D3722B321D4ECFE2DFEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451956   (1028059) от 04.03.2021
+
+Роб Айвз | Почему, зачем и как. Энциклопедия научных экспериментов (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли проводить научные эксперименты в домашних условиях? Ещё как можно! А «Энциклопедия научных экспериментов» содержит подробную и безопасную инструкцию по проведению самых удивительных и самых научных экспериментов. Создай молнию, смастери ракету, разведи костер с помощью льда!
+
+Невидимые чернила и гигантские мыльные пузыри, фонтан из газировки и фотокамера (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураПеревод: Ирина УсоваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FA498E65467E77DDAF96CD3FC0FBFCB8FCEB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451932   (1028058) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass, Vol. 13 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battle Drone - Space Funk (Original Mix) (05:14)
+02. Reflex - Bermuda Cube (Original Mix) (05:12)
+03. Jetfunk - Deep Down Inside (Original Mix) (05:42)
+04. Geeks - Park (Original Mix) (04:31)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0695108EE9CE015B90F99C3C30E0BA2211752728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451947   (1028057) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass, Vol. 15 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic - Hacienda (2016 Remaster) (07:14)
+02. LTN, Kokai, Ai Takekawa - Just Another Man (S9 Remix) (05:12)
+03. Crystal Sky - Falling In Love (Aural Imbalance's Passion Remix) (07:20)
+04. Locksmith - Magic Moments (Original Mix) (06:40)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD41D1FD6E927414D00CEB4144FE9E8A691A8BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451616   (1028056) от 04.03.2021
+
+Дубы-колдуны - Там, за горизонтом (1993) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звёзды континентов (02:55)
+02. О чём плачут гитары (01:59)
+03. Кто тебе сказал (02:41)
+04. Алёшкина любовь (03:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE4776BA78D86B059FF5D56E24AD6E4E540F52A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451916   (1028055) от 04.03.2021
+
+Opera 74.0.3911.203 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4576501F3BBB492F121BA66DFBE79E1A17808B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451310   (1028054) от 04.03.2021
+
+Агитпроп. О чем молчат миллиардеры? (28.02.2021) WEB-DLRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришла весна, снег тает, обнажая прошлогодний мусор и грязь. Денег опять нет, но олигархи опять поучают дурачков в Ютубе, как им разбогатеть. Миллиардер Рыбаков охмуряет своих. Миллиардер Тиньков — своих.Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуетПродолжительность: 00:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17601C994DDC843DEDC426F639B5D93DEB1F4B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451960   (1028053) от 04.03.2021
+
+Меган Миранда | Девушка из Уидоу-Хиллз (2021) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают историю о девушке из Уидоу-Хиллз.
+Арден было шесть, когда ее, блуждающую ночью во сне, смыло грозой и унесло в систему труб под городом. Тогда вся страна с замиранием сердца следила за продолжавшейся три дня спасательной операцией.
+Теперь Арден зовут Оливия. Сменив имя и разорвав все связи, она живет в небольшом доме на окраине, и больше всего боится, что (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBF35617BB7453416CF616B5D4AF7C257CEC0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451939   (1028052) от 04.03.2021
+
+Microsoft Edge 88.0.705.81 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DA69DEE2AB0FC8A71084DC1AC29854664E09D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451966   (1028051) от 04.03.2021
+
+Psilotum - Altered Vision (2021) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Progressive Trance, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rainfall (11:34)
+02. Orionis (09:17)
+03. Noogenesis (09:36)
+04. Tetraktys (11:10)(   Читать дальше...   )Жанр: Psychill, Progressive Trance, AmbientПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B597061C95993C7CAC2C0BD2D40625505B84DEC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451834   (1028050) от 04.03.2021
+
+Пять минут до полуночи / Five Minutes to Tomorrow (2014) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часовщик Рё (Миура Харума) влюблён в Жолань, у которой есть сестра-близнец Жумэй. У сестёр с детства одинаковый вкус, поэтому Жолань тайно влюблена в жениха своей сестры, Тяньлуня. Несмотря на это Рё и Жолань начинают встречаться. Перед свадьбой Жумэй сёстры решают отправиться в путешествие и попадают в кораблекрушение, в котором выживает только Жумэй. После этой (   Читать дальше...   )Производство: Китай, Япония, Amuse, Toei Company, Kinoshita KomutenЖанр: Драма, мелодрамаРежиссер: Исао ЮкисадаАктеры: Джозеф Чан, Сесилия Лю, Харума Миура, Ван Чжихуа, Ню Бэнь, Чжан Ибай, Юй Я, Шэнь Кэсинь, Шэнь Кэи, Цзя Хун, Ай ЦзяниПеревод: Двуголосый любительский (XDUB DORAMA)Субтитры: Английские, китайские - hardsub (неотключаемые)Продолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB779B5FFA08D32C92E6FEB388B34E3ECD3C9077
 ```
 
 https://mybot314.ru/tekegram_catalog/

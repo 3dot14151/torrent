@@ -675,7 +675,7 @@ VA - Atlantic Blues  (1991) 4 CD Box Set [MP3|320 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_761831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_761831.jpg" />
 </div>
 
 

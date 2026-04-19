@@ -1,3 +1,56 @@
+###  Публикация: 720441   (376513) от 09.11.2013
+
+VideoHive - Minimal - 3121303 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильный проект, синхронизированный под классную музыку.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BFBBC2B03FB1359B915AE40D26DCD88C49E84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327370   (376202) от 24.09.2019
+
+VideoHive - Sketch Art Memories - 18374504 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376202.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Sketch Art Memories" забавный шаблон, где вы можете превратить свои фотографии в арт-объект. Просто перетащите свои фотографии и сразу увидите свои произведения искусства. Вы можете использовать настройки по умолчанию или множество элементов управления выражением, чтобы настроить его так, как вам нравится.
+Проект был построен по модульному принципу и структурирован. (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB65EBDCCF8629ED43DD41E4521D4FF5F639E858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069130   (375670) от 03.11.2016
 
 Проекты - Motion Array - Kinetic Urban Slideshow [AEP]
@@ -629,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69ACFFE9EC361AB6C545B3A8ACD86180DB563AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950418   (369721) от 26.10.2015
-
-Проекты - Love's in autumn [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект After Effects на осеннюю тематикуФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F148F32CA7F6A0F2B73C606901DB5F0EECA1DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327770   (369599) от 27.09.2019
-
-VideoHive - Slideshow Opener Transitions - 17691153 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон "Slideshow Opener Transitions" наполнен динамикой и интересными эффектными переходами. Даст вам возможность создать гламурное слайд-шоу, презентацию или вступление для различных мероприятий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6E77641CD7328CF033C072AFA5C8BED5D2C2FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

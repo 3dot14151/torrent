@@ -1,3 +1,207 @@
+###  Публикация: 843615   (313842) от 27.11.2014
+
+Kokuyasou - 6 альбомов (2007-2011) Touhou Instrumental, Vocal /Doujin/ [FLAC|Lossless] <Melodic Death Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2007.08.17 (KKYS-0001) Gothic (C72)
+2007.12.31 (KKYS-0002) ∵Ga(Я)deN∵ (C73)
+2008.05.25 (KKYS-0003) ∞UroboroS∞ (Reitaisai 5)
+2009.08.15 (KKYS-0004) Catharsis (C76)
+2010.03.14 (KKYS-0005) APOCALYPSE -Mundus vult decipi, ergo decipiatur- (Reitaisai 7)
+2011.08.13 (KKYS-0006) Shinku no Kenzoku wa Enkansuru Rasen wo Tanzuru (C80)Тип издания: DoujinЖанр: Melodic Death MetalФормат: Touhou Instrumental, VocalПродолжительность: 00:03:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC5941B8759890081AD31AB580BB97ABB898EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960084   (310096) от 27.11.2015
+
+P∴Rhythmatiq - 24 альбома (2008-2014) Vocaloid /Doujin/ [FLAC|tracks] <Electronic, J-Pop, J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2012.12.15 (PRTQ-0023) BALLAD COLLECTION
+2013.12.30 (PRTQ-0024) FolQ-Lore (C85)
+2014.11.15 (PRTQ-0025) P∴Rhythmatiq act：11Тип издания: DoujinЖанр: Electronic, J-Pop, J-RockФормат: VocaloidПродолжительность: 00:14:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1452A034FBDF4CA6BA3AEF5D61DCD17FC56F7BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182268   (309905) от 03.12.2012
+
+Wu Judy Chin-tai - 3 albums (1999-2001) [MP3|320 kbps]<New age, Nature sounds>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_309905.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:27) 01. Night Falling
+(5:38) 02. Country Wind
+(6:40) 03. Silver River
+(5:21) 04. Gentle Slope
+(7:29) 05. Dreams of Night SpiritsЖанр: New age, Nature soundsПродолжительность: 00:29:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960083   (307571) от 28.11.2015
+
+HARDCORE TANO*C - 31 альбом (2004-2015) /Doujin/ [FLAC|tracks] <Hardcore, Techno, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2014.12.30 (TCPLUS-0014) SPEED BALL EVOLUTION (C87)
+2015.04.26 (TCPLUS-0015) Irregular Nation (M3-35)
+2015.08.16 (TANOCD-0019) HARDCORE SYNDROME 9 (C88)Тип издания: DoujinЖанр: Hardcore, Techno, ElectronicПродолжительность: 01:14:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28626BF34A43053AC693673964E9F194E46F2CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960495   (307560) от 28.11.2015
+
+Yonin Bayashi - Ishoku-Sokuhatsu (1974) Reissue, Unofficial Release, 2009, Erebus [FLAC|image + .cue]<Rock, Prog Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamaebeth (0:47)
+02. Sora To Kumo (5:24)
+03. Omatsuri (11:21)
+04. Ishoku-Sokuhatsu (12:23)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1B3A8AEC543EC8B3634FF7784AB36E8AE1AA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524900   (306635) от 28.11.2015
+
+EXIT TRANCE PRESENTS (EXIT TUNES) - 442 альбома (2003-2015) [MP3|128-320 кб/с]<J-Pop, Ost, J-Trance, Vocaloid>
+
+>>East Asian Music
+>>Doujin Music
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: J-Pop, Ost, J-Trance, VocaloidПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6DB7E1C3DE4AADC251AAD743EB78491D47F28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961360   (300798) от 01.12.2015
+
+PSY - The 7th Album (2015) [MP3|320 кб/с]<K-Pop, Dance, Hip-Hop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Jockey
+ 02. I Remember You (feat. Zion.T)
+ 03. Napal Baji
+ 04. Daddy (feat. CL)(   Читать дальше...   )Жанр: K-Pop, Dance, Hip-HopПродолжительность: 00:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFA75361A7C1006CEAC3D78CB68C07DEED9A0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078783   (297805) от 02.12.2016
 
 Crystal Lake - True North (2016) [MP3|320 Kbps] <Metalcore>
@@ -538,229 +742,6 @@ Sojiro - Forest Of The Ocarina (2016) 2 CD [MP3|320 Kbps] <New Age, Ethnic Fusio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57750EFD3BDC7357E3221A57062185020CE069DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189009   (272054) от 04.12.2017
-
-VA - Animelo Summer Live 2005 -THE BRIDGE- (2005) [MP3|112 Kbps] <JPop, JRock, Anison>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animelo Summer Live 2005 - Opening
-02. Masami Okui&Nana Mizuki - TRANSMIGRATION
-03. Masami Okui - Rinbu-revolution
-04. Masami Okui - MC 01(   Читать дальше...   )Жанр: JPop, JRock, AnisonПродолжительность: 03:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E6244395B2990C14C71DB00DBE023231E56C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265320   (271862) от 30.11.2018
-
-DOLL$BOXX - Дискография (2012-2017) [MP3|320 Kbps] <Hard-rock, Kawaii metal, Electro-pop>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard-rock, Kawaii metal, Electro-popПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9979ABCA24E2D53C9EA00C7B4CDDF99BF7BFEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219136   (266485) от 06.12.2018
-
-Yoshida Brothers - Prism (2009) [FLAC|Lossless]<Японские национальные инструменты с современной аранжировкой>
-
->>East Asian Music
->>Asian Traditional, Ethnic (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The National Anthem (Greenwood)
-02. Seven (Yoshida/Inoue)
-03. One Long River (Hoop)
-04. Red Bird (Akai Tori) (Yoshida/Inoue)(   Читать дальше...   )Жанр: Японские национальные инструменты с современной аранжировкойПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13DEAA419DFE6E06D18531134CA97BF7AFB2D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503713   (259843) от 31.05.2012
-
-John Chen - Songs From Within (1999) [MP3|320 кб/с]<Instrumental, Guitar>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259843.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:48) 01. Reposedly
-(4:48) 02. Autumn Water
-(5:18) 03. Five Elements
-(4:57) 04. From Within
-(4:20) 05. Thoughts of Zen
-(5:07) 06. Essence
-(5:40) 07. Without Intent
-(2:57) 08. Destiny
-(5:00) 09. Quietly
-(5:08) 10. From Within(   Читать дальше...   )1999Жанр: Instrumental, GuitarПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FDE015CCA7171393D3D9E2B8960F8A714B28E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503313   (259592) от 30.05.2012
-
-John Sposito St. James Music - Ouroboros (1999) [MP3|320 кб/с]<New age>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259592.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:06) 01. Ouroboros
-(2:36) 02. Ring
-(3:54) 03. Zen Garden
-(2:44) 04. Japanese
-(3:51) 05. Version
-(1:09) 06. Ram
-(2:30) 07. Laboratory
-(2:43) 08. India
-(3:12) 09. Underground
-(2:11) 10. Deserts(   Читать дальше...   )1999Жанр: New ageПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E161141A8754581601686EF780EDB1A7987F86BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498608   (256094) от 20.05.2012
-
-Desecravity - Implicit Obedience (2012) [FLAC|Lossless]<Technical Brutal Death Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Unknown (1:46)
-02. Enthralled In Decimation (3:04)
-03. Immortals Warfare (3:29)
-04. Demonize The Old Enemy (5:31)
-05. Hades (4:12)
-06. Condemnation (3:17)
-07. The Collapse Of Religion (4:02)
-08. Extinction With Hatred (3:48)
-09. Dark Dimension (3:25)2012Жанр: Technical Brutal Death MetalПродолжительность: 00:32:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497145   (254060) от 18.05.2012
-
-Rainbow - Over The Rainbow (2012) [MP3|320 кб/с]<К-Pop, Dance>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A (エー)
-02. マッハ (Mach)
-03. ガナガナGO! (Gonna Gonna GO!)
-04. Kiss! Kiss! Disco!
-05. Touch me, Feel me, Love me
-06. Alright
-07. ノット ユア ガール (Not Your Girl)
-08. Energy
-09. Hello
-10. ゴシップガール (Gossip Girl)2012Жанр: К-Pop, DanceПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A4A2F463F0CCE34CF8B2869A261AB309008871
 ```
 
 https://mybot314.ru/tekegram_catalog/

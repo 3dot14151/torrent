@@ -1,3 +1,177 @@
+###  Публикация: 1350150   (1003243) от 06.01.2020
+
+Кай Метов - Для тебя и о тебе (Инструментальный альбом) (2013) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Pop>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тема любви (3:24)
+ 02. Дорога к твоему сердцу (3:49)
+ 03. Сны о тебе (4:53)
+ 04. Женская непредсказуемость (3:36)(   Читать дальше...   )Жанр: Instrumental, Piano, PopПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83DCDFA61E72FD4D39CF78FC0DDAD1D5457A00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350688   (1002942) от 07.01.2020
+
+Modern Spirit - Infinite Wisdom (2019) [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Preparation (04:24)
+02. Epiphany (05:12)
+03. Resurrection (06:37)
+04. Hope (05:38)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7840141A0243FD684BD8D1085E0E9F261E88A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349994   (1002510) от 09.01.2020
+
+Films - A Forbidden Garden (2013) (Ricco) [FLAC|Lossless|tracks] <Instrumental, Experimental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002510.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bubbles 	2:54
+2. Lost Field 	3:36
+3. The Door 	1:20
+4. Golden Wind 	4:22(   Читать дальше...   )Жанр: Instrumental, ExperimentalПродолжительность: 41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321CB13B889FA98FA1FEC909CBAED234311470DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349995   (1002504) от 09.01.2020
+
+Films - Messenger (2010) (Midi Creative) [FLAC|Lossless|tracks + .cue] <Instrumental, Experimental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002504.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Prologue 	1:02
+2. Water Horse 	6:22
+3. Liz & Lilly 	1:43
+4. Little Forest 	5:37(   Читать дальше...   )Жанр: Instrumental, ExperimentalПродолжительность: 34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA9655EE8C36B78C127E198B390D67CEB2B52BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350628   (1002467) от 09.01.2020
+
+Gandiva - Jago jharna (2016) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jago jharna jago (3:34)
+02. Param pitare (5:41)
+03. Aum dhatre namaha (5:11)
+04. Mау i have a god-beauty (4:51)(   Читать дальше...   )Жанр: Mantras, Meditative, EthnicПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437B47AE295C5458CDE8DBB3C19BBFBC3E124682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493343   (1002458) от 09.08.2021
+
+Igor Presnyakov - Acoustic Rock Ballad Covers (2011) [MP3|~190 кб/с (V2)]<istrumental, guitar, acoustic, easy listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002458.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 -	Nothing Else Matters
+  2 -	Brothers In Arms
+  3 -	Californication
+  4 -	Don't Cry(   Читать дальше...   )Жанр: istrumental, guitar, acoustic, easy listeningПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B3F33DF487B80E2765F57DEF2796450C37054C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 716860   (1002343) от 09.01.2020
 
 The Royal Philharmonic Orchestra - 33 альбома (1969-2019) [OGG|320 kbps]<Instrumental, инструментальная музыка в обработке, Pop>
@@ -634,211 +808,6 @@ Wang Wei - 2 albums (2011) [MP3|320 кб/с]<New age, Instrumental, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B7544CBB09609ACCED9E4A42F2BE7B147E84D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601200   (997522) от 13.01.2013
-
-Sacred Spirit Band - Sacred Spirit (2004) [MP3|320 кб/с]<Native American,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ande
-02. Apache
-03. Balla coi lupi
-04. Caracas
-05. Comanchy
-06. Gran Canyon
-07. Navayos
-08. Santiago del Cile
-09. Segnali di fumo
-10. Sioux(   Читать дальше...   )Жанр: Native American,New AgeПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAABE20DED09D30F03578719FFBEFB86F0C31BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602650   (997034) от 15.01.2013
-
-Ethnico - Prophecy for Montezuma (2013) [MP3|320 кб/с]<Ehno-meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997034.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prophecy for Montezuma
-2. Chantico
-3. Sambodhi
-4. EnChanted
-5. Tikal
-6. Fernando Cortes
-7. Tecun Uman
-8. Eye of the world
-9. Message from my heart
-10. XochiquetzalЖанр: MeditativeПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB3C889AA19068FADBA11E2E2411BAB5BCA535B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602419   (996980) от 15.01.2013
-
-Maneesh de Moor - 4 albums (2001-2007) [MP3|320 кб/с]<New age, Meditative, Ambient, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996980.jpg" />
-</div>
-
-
-###  Подробнее
-
-(13:30) 01. Moola Prayer
-(20:08) 02. Moola Meditation
-(03:39) 03. Interlude
-(11:42) 04. Om Bhagavan
-(04:14) 05. TvamevaЖанр: New age, Meditative, Ambient, EthnicПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158D463EC6D38721EFFD8DB64C405288717309CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603667   (996714) от 16.01.2013
-
-Владимир Пресняков ст. - Sax All Times World Hits (2003) [MP3|320 кб/с]<Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996714.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. «Моя красавица» муз. С. Секунда
-2. «Ты скажи...» муз. В. Преснякова (ст.)
-3. «Сан-Луи Блюз» муз. V Хенди
-4. «Целуй меня...» муз. К. Веласкес
-5. из к/ф «Крестный отец» муз. Н. Рота
-6. «Рио-рита-канкан»	муз. Э. Сантегине
-7. из к/ф «Однажды в Америке» муз. Э. Морриконе
-8. «Маленький цветок» муз. С. Беше
-9. «Караван» муз. д. Эллингтон и X. Тизол
-10. «Беса мэ мучо»(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF059382AD7216892D6E08135046450339DB64C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603230   (996708) от 16.01.2013
-
-Yoyo International Orchestra - Abba Instrumentals. Greatest Hits (2007) [MP3|320 кб/с]<Instrumentals>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiquita 4:32
-02. Dancing Queen 3:43
-03. Knowing Me, Knowing You 3:41
-04. Money, Money, Money 3:08
-05. Mama Mia 3:16
-06. Super Trooper 4:02
-07. Take A Chance On Me 3:26
-08. The Name Of The Game 3:44
-09. The Winner Takes It All 4:45
-10. Voulez Vous 3:36(   Читать дальше...   )Жанр: InstrumentalsПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75473548E61D15529D94C82A61D0E2AC18CC5A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602627   (996702) от 16.01.2013
-
-Sam Taylor - Mood Kayou Best (2CD) (2008) [MP3|320 кб/с]<Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 101. Tokyo Love You (2:39)
-02. See You In Yurakucho (2:45)
-03. The Second Night Fog Highway (3:07)
-04. Love You More Than Anyone (2:21)
-05. Una Sera Di Tokyo (2:48)
-06. Veggie - Delight Night Dream (3:03)
-07. Bruce Thought Bridge (2:37)
-08. Ginza Twilight (2:10)
-09. I Know Too Much (3:14)
-10. Atami Night (3:09)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17694028FA98D4514CE883C6C9C066671276544D
 ```
 
 https://mybot314.ru/tekegram_catalog/

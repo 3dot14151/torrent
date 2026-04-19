@@ -1,3 +1,62 @@
+###  Публикация: 1072017   (351721) от 13.11.2016
+
+Gregorian - Live! Masters of Chant: Final Chapter Tour (2016) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gregorian представляет последнюю главу своего прощального тура "Masters Of Chant" в заключительном концерте "Final Chapter".
+То, что началось для продюсера Фрэнка Петерсона и группы в 1999 году, стремительно превратилось в монументальное победное шествие: более 10 миллионов проданных альбомов, а также множество золотых и платиновых наград, делают (   Читать дальше...   )01. Masters of chant
+02. Still haven't found what i'm looking for / only you
+03. Stay
+04. Join me(   Читать дальше...   )Производство: Ear musicЖанр: New Age, Enigmatic, ChoralРежиссер: Мартин МюллерАктеры: GregorianПеревод: ОтсутствуетПродолжительность: 02:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E87DF3E1A9C63E956EE9DBB4AAD184C5C315042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724562   (350234) от 20.11.2013
+
+The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историческое и триумфальное возвращение Ролинг Стоунз в Гайд-Парк вне всяких сомнений было событием лета. Более 100 тысяч исступлённых фанатов всех возрастов набились в парк на два захватывающих концерта под открытым небом, чтобы увидеть то, что Мик Джаггер, Кейт Ричардс, Чарли Уотс и Рони Вуд делают лучше всего. «Камни» представили 5 звёздных концертов, которым (   Читать дальше...   )01. Start Me Up
+02. It s Only Rock n Roll
+03. Street Fighting Man
+04. Ruby Tuesday(   Читать дальше...   )Жанр: Classic RockФормат: DVD videoПродолжительность: 01:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDABAF111149F668AC008460EA89DEF4216F534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580126   (344866) от 24.11.2012
 
 Ария - В желтом круге арены (2012) DVD9
@@ -661,61 +720,6 @@ Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9D8A2C7A5EF785344F8D944276D2D8571900E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184364   (301295) от 17.11.2017
-
-Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз содержит выступления группы на фестивалях Rock Hard 2007, Live Factory 2008 и пару клипов (Thicker Than Blood, Dethroned (uncensored))Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:19:01+01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD1ECC41A3740A3C945E652B451C2B0750B18F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184338   (301180) от 17.11.2017
-
-Dio - Evil Or Divine (Live in New York City) (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы Dio записанный в Roseland Ballroom (New York City) 13 декабря 2002 и выпущенный на DVD в июле 2013. Релиз содержит сам концерт, интервью, фото, закулисные съемки и видеоклип Push1. Killing The Dragon
-2. Egypt/Children of the Sea
-3. Push
-4. Drum Solo(   Читать дальше...   )Производство: Eagle VisionЖанр: Heavy Metal, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BA54F00B3178D99CAD3FB939FBAA77AFA5E4DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

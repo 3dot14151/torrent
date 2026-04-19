@@ -1,3 +1,32 @@
+###  Публикация: 496404   (252993) от 14.05.2012
+
+Сборник - Light and Energy Background Bright Circuit (1080p)
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник - Light and Energy Background Bright Circuit (1080p) 
+Название: [Футаж] Light and Energy Background Bright Circuit (1080p)
+Тип раздаваемого: Футаж
+Разрешение файлов: 1920X1080Расширение (тип) файлов: MOVСкриншоты:Время раздачи: 24/7 по мере возможности...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4123926822DDCAAD9D3A76BB736680551B75D44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495730   (252772) от 13.05.2012
 
 [Футаж] Digital Preserves - A Wedding for All Seasons (2009)
@@ -651,32 +680,6 @@ Animated Elements Shapes 2 содержит более 217 композиций,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0D2986E52574BF5684140BBF03F06AAC2DD4127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784935   (150964) от 22.12.2018
-
-Футажи - Resolume - BlackCube [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шагайте в звездные врата нечеловеческого происхождения. Притягивайте как магнитом вашу аудиторию при помощи привлекательных живых иллюстраций .Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3C55F10E6D08D5EB4A2FB4F33CEEBBECA7780A
 ```
 
 https://mybot314.ru/tekegram_catalog/

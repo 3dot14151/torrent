@@ -1,3 +1,208 @@
+###  Публикация: 1410790   (431825) от 23.09.2020
+
+Mattias Uneback - Voyage Beneath The Sea: The Adventurous Sounds of Mattias Uneback (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие под морем: приключенческие звуки Маттиаса Анебека. Присоединяйтесь к нему в фантастическом экзотическом подводном приключении со звуком! Плывите в открытое море, исследуйте его глубины, восхищайтесь их странными и красочными обитателями. Под волнами и в глубинах ждут забытые миры. Вас ждут биолюминесцентные существа, которые никогда не видели дневного (   Читать дальше...   )01. Triton, God of the Sea (05:32)
+02. Silent World (05:15)
+03. Voyage Beneath the Sea (07:43)
+04. Starfish (02:58)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBC9F5845FEDF466D09978D6A814938E64F9BD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571633   (431765) от 22.08.2022
+
+Watkins Family Hour - Vol. II (2022) [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way I Feel Inside (2:44)
+02. Hypnotized (4:04)
+03. Pitseleh (3:41)
+04. Thanks A Lot (3:03)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF8852BB70719048A3DC427C09053279EF8DE22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410926   (431642) от 23.09.2020
+
+Malando & His Tango Orchestra - Malando Best Selection (2019) [FLAC|Lossless|image + .cue] <Latin, Folk, World & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Danny Malando Orchestra - знаменитый голландский оркестр исполняющий музыку танго. В модернизированном оркестре играют 15 участников, удивительно слаженно исполняющих сколь сложные, столь и прекрасные музыкальные композиции.
+
+Название оркестра, начавшего творческую деятельность летом 1939 года, происходит от имени его основателя Арие Маасланда (Arie Maasland) (26 (   Читать дальше...   )Трeклист:
+01. Blauer Himmel (03:04)
+02. Ich Kusse Ihre Hand Madame (03:12)
+03. Tango Delle Rose (02:29)(   Читать дальше...   )Жанр: Latin, Folk, World & CountryПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72162AE5131325001F1D0960575C829AC3AF2204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945491   (431571) от 11.10.2015
+
+Francisco Canaro & Carlos Roldn - Que me quiten lo bailao (1944) [MP3|320 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destellos | Destellos
+02. Naipe
+03. Esta noche de luna
+04. Por las calles de la vida(   Читать дальше...   )Жанр: TangoПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A1C1C45AA5F9A25043E9AC1016BD9D9F795155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945484   (431570) от 11.10.2015
+
+Francisco Canaro - Charlo - Con Francisco Canaro & Francisco Lomuto (1989) [MP3|160 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiempos viejos
+02. Desconfiale | Desconfiale
+03. Remordimientos
+04. Nelly(   Читать дальше...   )Жанр: TangoПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C32462C524446FE50FA2B458D5C2EDFCB7BD1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945771   (431568) от 11.10.2015
+
+Carly Comando - Dreamlife (2015) [OGG| 400-478 кб/с]<Instrumental, Classical Piano, Minimalism>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greenlawn
+02. Daydream
+03. Dusk
+04. Forever(   Читать дальше...   )Жанр: Instrumental, Classical Piano, MinimalismПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28733B0DB6DE23B743F07E3B204F071F1C56C614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945503   (431562) от 11.10.2015
+
+Francisco Canaro & Roberto Firpo - Las milongas ms milongas (2000) [MP3|192 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La cara de la luna
+02. Corralera
+03. Arrabalera
+04. Se dice de mн(   Читать дальше...   )Жанр: TangoПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586D53DE90D191512E4E942303A495F98CC7C0A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249806   (431049) от 25.09.2018
 
 Sherry Finzer & Mark Holland - Flute Flight (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -548,206 +753,6 @@ Sufjan Stevens - The Ascension (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5499BD0DF2AEC4CB26C7FC0EBB64A3CE08E52C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323509   (427335) от 08.09.2019
-
-VA - Scream Collection 1-4 / Крик 1-4 (1996-2011) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 03:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32617DDEBDCE72C7AFBFD0C7C54C8DFBF35AFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411416   (427295) от 25.09.2020
-
-Armik - Esta Guitarra (2020) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternity
-02. Esta Guitarra
-03. Heaven on Earth
-04. Pure Fuego(   Читать дальше...   )Жанр: Flamenco, GuitarПродолжительность: 00:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14E4B5AC30996B6BC9B5476891FE038D458D2B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250297   (426886) от 27.09.2018
-
-VA - Золотая коллекция - Песни Нашего Кино (1998) 2CD [APE|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Берегись автомобиля' - Вальс (3:41)
-02. 'Карнавальная ночь' - Песенка о хорошем настроении (2:45)
-03. 'Карнавальная ночь' - Песенка про пять минут (3:47)
-04. 'Бриллиантовая рука' - Остров невезения (2:12)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DDA2250D4BD1F9C5D8514D7BFAF3D1AF98B4AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250140   (426764) от 27.09.2018
-
-Tariverdiev (Микаэл Таривердиев) - Film Music (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys and the Sea - part one / Мальчики и море (часть 1) - 01:35
-02. Boys and the Sea - part two / Мальчики и море (часть 2) - 02:03
-03. Dance at the Stadium / Танец на стадионе - 02:59
-04. Waltz (From 'The Long day') / Вальс (из к/ф "Длинный день") - 03:28(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799F2B9DD1D67ABECBF260A1BE9203B4C3590B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064325   (426080) от 20.10.2016
-
-VA - Gears of War (Collection Original Soundtrack) (2007-2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gears of War (04:31)
-02. 14 Years After E-Day (02:55)
-03. Jacinto Prison (02:50)
-04. Attack of the Drones (02:08)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 05:28:09 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B2B883710722466940001F5D6F9A3C0E780C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570286   (425414) от 25.08.2022
-
-Russ Davies - The Watch Soundtrack (2022) [FLAC|Lossless|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodboys Anthem (The Watch Theme Tune)
-02. The Noble Dragon
-03. Zero
-04. Vimes’ Theme(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1393096F40C449152AE6060AE23D2A43FDDE729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946683   (425156) от 14.10.2015
-
-Hans Christian - Nanda Devi (2015) [MP3|320 кб/с]<New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Light
-02. Majestic Mountain
-03. My Inner Ascent
-04. Eternal Spring(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 01:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EC0F410A5E4671E9157F52B419038F967B31DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

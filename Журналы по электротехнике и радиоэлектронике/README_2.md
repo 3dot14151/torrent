@@ -6,7 +6,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_956175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956175.jpg" />
 </div>
 
 

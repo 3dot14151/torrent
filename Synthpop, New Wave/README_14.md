@@ -1,3 +1,38 @@
+###  Публикация: 458625   (79326) от 01.03.2012
+
+Miike Snow - Miike Snow (2009) [MP3|320 кб/с]<Electro-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animal 04:22
+02. Burial 04:20
+03. Silvia 06:25
+04. Song for No One 04:09
+05. Black & Blue 03:39
+06. Sans Soleil 04:25
+07. A Horse is Not A Home 04:11
+08. Cult Logic 03:54
+09. Plastic Jungle 03:52
+10. In Search of 05:14(   Читать дальше...   )2009Жанр: Electro-popПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51C742ABD9BF5DE14B347DEA735FB40ACB98096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771426   (71876) от 06.01.2025
 
 VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [MP3|320 Kbps] <Spacesynth, Synthdance>
@@ -716,35 +751,6 @@ Droid Bishop - Cinema (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDB82A332DC8B39CFB49CB76412BD6FC1E3C30EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768629   (33034) от 25.12.2024
-
-Yuri Sosnin - New Times (2024) [MP3|320 Kbps] <Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Dawn (6:13)
-02. A New Reality (6:08)
-03. New Times (6:20)
-04. Awakening (4:50)(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA9C473D82BF3AB974792BA32ECFE656D5B49E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

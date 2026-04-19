@@ -1,3 +1,255 @@
+###  Публикация: 1321667   (456447) от 25.08.2019
+
+Сборник клипов - Golden Hits 90s Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456447.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые и фишкастые клипы лихих 90х. Ремастеринг видео и звука. Это 1я часть. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Golden Hits 90s - Intro
+01. La Bouche - Be My Lover
+02. Backstreet Boys - Everybody
+03. Haddaway - Who Do You Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC64B7979DA0FC84CB11D2A8BCAD4E57EE403C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694859   (456154) от 27.09.2013
+
+LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маргарэт Лиэнн Раймс (Margaret LeAnn Rimes, род. 28 августа 1982 года) — американская исполнительница в стиле кантри, которая известна тем, что начала серьёзную музыкальную карьеру уже в 11 лет, а в 14 лет выиграла свою первую «Грэмми».
+Трек - (Не Можешь Биться с Лунным светом), саунтрек к фильму «Бар „Гадкий койот“»Жанр: PopПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA435889FAD4151E93E3021B9E4469BAB16A2B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389049   (456112) от 18.09.2011
+
+ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456112.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Could you believe” — отражает нынешнее состояние музыканта, чувства, стиль. Прошлогодняя пластинка была наполнена легкой печалью с грусть, в этом году атмосфера сместилась в сторону летнего хауса, который напоминает большую сладкую вату розового цвета, также свой отпечаток оставляет слащавый голосок. Андре всего умел красиво обработать вокал: агрессивно, эротично, (   Читать дальше...   )Производство: Kontor Records (Германия)Жанр: TranceПродолжительность: 00:03:40 (Official Video HQ) / 00:05:17 (Live @ Club Rain Palms - Las Vegas)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF885A3CD5FB8E4C75993E8697CA519642B67925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550793   (455017) от 23.09.2012
+
+Слэйд / Slade The Complete Video Collection (1971-1982) (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455017.jpg" />
+</div>
+
+
+###  Подробнее
+
+На данной видео коллекции  Slade - редкие видео выступлений группы в телевизионных передачах 70-х годов:
+  - Beat-Club
+  - Musikladen
+  - Disco
+  - Top Of The Pops
+(в хорошем качестве VH1)Slade 71-82
+
+1. Get Down And Get With It (promo) (1971)
+2. Coz I Luv You (Top Of The Pops, 1971)
+3. Hear Me Calling (Beat-Club, 28.11.71)
+4. Look Wot You Dun (promo) (1972)
+5. Mama Weer All Crazee Now (Disco, 09.12.72)
+6. Gudbye T’Jane (TOPPOP, 1972)
+7. Bangin’ Man (Disco, 26.10.74)
+8. Far Far Away (Disco, 01.02.75)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Classic RockПеревод: ОтсутствуетПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B39CC89DA6E7313C75344D858BC74FF972EA27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389409   (453773) от 19.09.2011
+
+Миша Маваши - Среди высоток и аллей (2011) [720p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаРежиссер: Миша МавашиПродолжительность: 00:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B33EAB2A34808E042CD1A6040C428671E1BE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389423   (453750) от 19.09.2011
+
+Миша Маваши - Помнить должен (2011) [720p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаРежиссер: Миша МавашиАктеры: Миша МавашиПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0001AE56E6F55B2FD71870EEA9D2247AB3921D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551393   (453457) от 24.09.2012
+
+Galena ft Costi - Chik Chik (Mnogo mi otivash) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D736EF05D0FA48817BF1443B358D8F602FF5644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551385   (453324) от 24.09.2012
+
+Diplo & Datsik feat. Kay - Pick Your Poison (2011) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DubStepПродолжительность: 00:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB504065C09E284A569DEB9588DC5E1893F3536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551388   (453319) от 24.09.2012
+
+Chelsea Bishop - Bad Things (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9FD177EE015E37D8B471FF1BA7C4CD3C54056F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551375   (453317) от 24.09.2012
 
 Dirty Bad Unit ft. Mangu - Everyday We Lovin (2012) [H.264/720p] WEBRip
@@ -445,253 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29B08664B9F82E322A94ADB29EB1C60D5EF81684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553243   (443354) от 28.09.2012
-
-Uriah Heep - More Of Classic Heep Live (Video Сollection1972-1978) (2012) VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видео группы Uriah Heep01.Жанр: Музыка
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0729DFA1E1C2AC8A94EBD6A6AAC4326ECA335F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943866   (439728) от 07.10.2015
-
-25/17 - Русский подорожник (Сборник видеоклипов) (2014) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники: Андрей Позднухов (Бледный) и Антон Завьялов (Ант).
-Группа 25/17 была создана Андреем Бледным в 2002 году в Москве и до 2009 года была известна как «Иезекииль 25:17» (библейский стих из книги ветхозаветного пророка Иезекииля, цитируемый персонажем Самуэля Л. Джексона в фильме «Криминальное чтиво»). В 2007 году концертным диджеем группы стал DJ Navvy. С (   Читать дальше...   )01. Подорожник п.у. Дмитрий Ревякин
-02. Под цыганским солнцем
-03. Чернотроп
-04. Поезд(   Читать дальше...   )Жанр: Rap, Rap-Rock, Rock, Punk-rockРежиссер: 25/17Актеры: Андрей Позднухов (Бледный), Антон Завьялов (Ант)Перевод: Не требуетсяПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7332920D070855053C6FCC60C35A0F54A2C28285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554000   (438399) от 30.09.2012
-
-Гари Глиттер / Gary Glitter- Video Collections 1972- 86 (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438399.jpg" />
-</div>
-
-
-###  Подробнее
-
-На данном диске собраны 22 уникальных оригинальных видеоЖанр: Музыка,  Glam rockПродолжительность: 00:33:04 + 00:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D40B5C5A58E8EDE13E140379A10B346F7E8EF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554354   (437113) от 01.10.2012
-
-Mr Saik - Lights Out (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C9392E3B7DE548B9BC5E556FCB3522DDD57741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554358   (437096) от 01.10.2012
-
-Cabin Crew - Star To Fall (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F947A493E203FF73ACA901A666D18546DC2519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554353   (436815) от 01.10.2012
-
-Basshunter - Dream on the Dancefloor (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3307DB74A4897F70746932E2498F26FF01C000F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554357   (436672) от 01.10.2012
-
-Ben Gold feat. The Glass Child - Fall With Me (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21EFCA15708E77E023D8AB66CB9019F0D1C2D759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554359   (436437) от 01.10.2012
-
-David Guetta feat. Sia - She Wolf (Falling to Pieces) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance, HouseПродолжительность: 00:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8805E4EA77CB21E4F7A9721FE7EBC5AA1385B219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554261   (435838) от 01.10.2012
-
-Smokie  Greatest Hits 1975-1979 (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие клипы группы01. Living Next Door To Alice
-02. Needlies And Pins
-03. Don't Play Your Rock'n'Roll To Me
-04. If You Think You Know How To Love Me
-05. Do To Me
-06. Mexican Girl
-07. Run To Me
-08. Oh Carol
-09. I'll Meet You at Midnight
-10. Living Next Door to Alice (from "Musikladen")(   Читать дальше...   )Жанр: МузыкаПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E0EF2A2700E3BB7ABC7AACEF992BBFCDDD6209
 ```
 
 https://mybot314.ru/tekegram_catalog/

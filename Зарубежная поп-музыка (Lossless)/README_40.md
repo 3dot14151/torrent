@@ -1,3 +1,87 @@
+###  Публикация: 1292255   (648755) от 28.03.2019
+
+VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malik Djoudi - Epouser la nuit [3:37]
+02. Fontaines D.C. - Roy's tune [3:00]
+03. These new puritans - Into the fire [3:42]
+04. The psychotic monks - Closure [3:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0444D29082C6E72618F887E33E789704ECFF776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292169   (648623) от 28.03.2019
+
+The Palladium Singers - 100 Hits from the Musicals (2007) Box Set, 5CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Cover, Stage & Screen>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Cover, Stage & ScreenПродолжительность: 05:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B5814B873FC469B8181553C458393A2F97C43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141745   (648497) от 11.06.2017
+
+Sezen Aksu - Biraz Pop Biraz Sezen (2017) [FLAC|Lossless|tracks + .cue] <Turkish Pop, Europop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648497.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. İsyancı
+2. Baba Evi
+3. İhanetten Geri Kalan
+4. Hakkımda Konuşmuşsun(   Читать дальше...   )Жанр: Turkish Pop, Europop, Vocal, BalladПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1440B3F461B35529EAB52094E8977AD1D78EC546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541291   (646938) от 02.04.2022
 
 Famous Groupies - Rehearsing The Multiverse (2019) 2020,  ATOZ [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
@@ -655,93 +739,6 @@ Charles Aznavour - Mélodies inoubliables (2018) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB5F16B730FA2C862D873A7CF408072206F31E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541936   (640872) от 05.04.2022
-
-Bananarama - Discomania (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venus
-02. I Heard A Rumour
-03. Love Is The First Degree
-04. I Can't Help It(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D29A9980B7B693111C8ACF831AE3F7D77CBF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907705   (637869) от 12.06.2015
-
-Mika - No Place in Heaven (2015) Deluxe Edition [FLAC|tracks]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk About You (3:22)
-02. All She Wants (3:39)
-03. Last Party (3:39)
-04. Good Guys (3:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E5E568A80C013BC82FE708850975CF511CDC79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907487   (637744) от 12.06.2015
-
-Adam Lambert - The Original High (2015) Deluxe Edition [FLAC|tracks+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Town
-02. The Original High
-03. Another Lonely Night
-04. Underground(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C98141953C809E74F81DC8701684380AFE4909
 ```
 
 https://mybot314.ru/tekegram_catalog/

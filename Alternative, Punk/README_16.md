@@ -56,35 +56,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233191   (593760) от 28.06.2018
-
-Gorillaz - The Now Now (2018) [MP3|320 Kbps] <Alternative Rock, Hip-Hop, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humility (Feat. George Benson)
-02. Tranz
-03. Hollywood (Feat. Snoop Dogg & Jamie Principle)
-04. Kansas(   Читать дальше...   )Жанр: Alternative Rock, Hip-Hop, ElectronicПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A82E9D1ACA9BB078B97C31B821959112182EB25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040119   (593482) от 03.08.2016
 
 Alabama Shakes - Sound And Color (2015) [MP3|320 Kbps] <Alternative Rock>
@@ -736,6 +707,35 @@ Kirastas - Iru Hanum (2015) [MP3|320 кб/с]<Alternative, Art Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4D2A3129818E7C49D24D86066222CB6B083C9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042567   (578384) от 13.08.2016
+
+Sophia (Robin Proper-Sheppard) - As We Make Our Way (Unknown Harbours) (2016) [MP3|320 Kbps] <Alternative Rock, Indie Rock, Slowcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown Harbours
+02. Resisting
+03. The Drifter
+04. Don't Ask(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, SlowcoreПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703AE47EA66195694483E1BB78CAE8ABBB2509C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

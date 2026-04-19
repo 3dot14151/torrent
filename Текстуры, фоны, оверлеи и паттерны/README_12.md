@@ -1,3 +1,29 @@
+###  Публикация: 1222322   (687478) от 28.04.2018
+
+Текстуры - GraphicBurger - 7 Glitter Textures Vol.1 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные блестящие текстуры с официальной документацией.Формат: JPGРазрешение файлов: 4299 x 3565
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCEC6DD98F80E87EB7288DED89318DED1F8A252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221923   (687370) от 28.04.2018
 
 Текстуры - Creativetacos - 16 Free Glitter And Rough Textures [JPG]
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0392C557FDCB4E8C63A56FA856CB60861DA68C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222573   (685155) от 29.04.2018
-
-Текстуры - PSDkeys - 28 Textures Pack. Granite and more - 2271440 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры в виде грантиа, мрамора, камня, штукатуркиФормат: JPGРазрешение файлов: 8000 x 8000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D42239112F68659F6A856F8884A0FC83AC138C
 ```
 
 https://mybot314.ru/tekegram_catalog/

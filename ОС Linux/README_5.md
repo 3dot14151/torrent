@@ -277,7 +277,7 @@ JonDo 0.9.76 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_805323.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ CentOS 8.2 (2004) [amd64] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_782211.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ JonDo 0.9.76.2 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_769957.jpg" />
 </div>
 
 

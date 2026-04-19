@@ -1,3 +1,56 @@
+###  Публикация: 969421   (147350) от 27.12.2015
+
+Проекты - Poster Trip [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF8A3596D451E6B45193022B5A1E31B2B9191C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969402   (146996) от 27.12.2015
+
+Проекты - MotionElements - Person Of Interest [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настраиваемый шаблон для After Effects. Для идентификации. Использование зависит от вашей фантазии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6959F2262E5D4BE84763136A022324612F9C76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087444   (146462) от 27.12.2016
 
 Проекты - Grungy corridor with old looking pictures + text [AEP]
@@ -634,60 +687,6 @@ History Timeline полезно для создания уникального �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D0553FA54761E33162F57C9450D5EF789C45906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695083   (120738) от 27.01.2024
-
-Проекты - Pond5 - Memories Love Slideshow - 262002911 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотоальбом в виде сердца на день Валентина или годовщину романтических моментов. До 36 фотографий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAE145F3B5A9C257BBA196F4D7107713C5127C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822775   (101606) от 08.10.2025
-
-Проекты - VideoHive - Frame Slideshow - Clean and Elegant Gallery - 59681776 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frame Slideshow — это простой и современный шаблон After Effects, разработанный для фото и видео презентаций.
-
-Музыка очищена и предоставлена.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC72F688055422F17D2DB585A1A30CE2E24868A
 ```
 
 https://mybot314.ru/tekegram_catalog/

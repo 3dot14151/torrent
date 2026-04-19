@@ -1,29 +1,3 @@
-###  Публикация: 1843673   (1049511) от 21.12.2025
-
-Vanced Tube v5.5.80.317 Mod by TRUMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 20.12.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:061E4C7BC7D18DB633C409D4F354BD4B590A21ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843454   (1049416) от 20.12.2025
 
 Цифровое ТВ v4.3.7 Mod by vadj [Ru]
@@ -320,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049322.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Universal Copy v7.0.2 Мод by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049153.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ Smart AudioBook Player Pro v11.6.4 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE8BAE7DF7892DB76BE5BE8DFB56C3EC9F0029FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842959   (1049039) от 17.12.2025
+
+PianoMeter – Piano Tuner v4.1.1 Mod by Alex.Strannik [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и удобный инструмент для настройки фортепиано. Оригинальный дизайн. Есть заранее заготовленные параметры по моделям. Полезная вещь... и не только для настройщиков.Тип издания: ProРелиз состоялся: 16.12.2025Разработчик: Willey PianoПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402BA4D7A1A9922F7FC9FF7C84211E1B7D885314
 ```
 
 https://mybot314.ru/tekegram_catalog/

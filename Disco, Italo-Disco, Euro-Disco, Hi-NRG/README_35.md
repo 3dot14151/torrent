@@ -1,3 +1,61 @@
+###  Публикация: 1332184   (316666) от 19.10.2019
+
+Blue Sunbeam - Sweetest Girls (1988) [MP3|320 Kbps] <Electronic, Italo-Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Dreams (4:01)
+02. Sweetest Girl (4:27)
+03. Say It (3:45)
+04. I Just Want To Say (3:55)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Hi NRGПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964E8D8F72B8DCF2D173FF8616AF0280925D6E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076040   (315987) от 24.11.2016
+
+Boris Zhivago - Memories (2016) [MP3|320 Kbps] <Euro Disco, Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories 5:29
+02. Love Is a Memory Away 7:56
+03. Russian Fantasy 5:25
+04. The Girl That Saved My Life 7:02(   Читать дальше...   )Жанр: Euro Disco, Italo DiscoПродолжительность: 01:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A4CDB70E7646ADFFD55CB9F00F51BB295BB47F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 837929   (314635) от 11.11.2017
 
 VA - Sunlover Records Compilation Vol. 1-3 (2014-2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Dreamwave, Synthwave>
@@ -682,64 +740,6 @@ VA - Italian Style Everlasting Italo Dance Compilation Vol.5 (2016) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BEFC0377ECFB9F8BC41045A2D21FA91F05C851F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080014   (292062) от 05.12.2016
-
-Ann Joy - Love Dance (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Your Way Around  (5:29)
-02. Love Dance (It's Gotta Be Magic)  (8:01)
-03. You Make Me Feel Good  (3:01)
-04. Love Now, Hurt Later  (6:23)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D609D887BE8F5BCAC407CC587516A0811098751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079917   (291908) от 05.12.2016
-
-VA - The Original Maxi-Singles Collection: Disco Fox 80 Vol.6 (2016) [MP3|320 Kbps] <Euro-Disco, Synth-pop, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leslie Mandoki - Korea (Special Arirang Version) 7:40
-02. Bad Boys Blue - Lady In Black (Shakespearean Mix) 6:07
-03. The Twins - I Need You (Extended Version) 6:50
-04. Silent Circle - What a Shame (Masterbeat Mix) 6:36(   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, Hi NRGПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28954EB70282C492E43ABC1BF61DF337F9AC7123
 ```
 
 https://mybot314.ru/tekegram_catalog/

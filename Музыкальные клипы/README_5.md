@@ -1,3 +1,191 @@
+###  Публикация: 976607   (968530) от 18.01.2016
+
+Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968530.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Best Of Videos of Depeche Mode 1980-200601. Just Can't Get Enough	3:41
+02. Everything Counts	        3:59
+03. People Are People	        3:40
+04. Master And Servant	        3:50(   Читать дальше...   )Жанр: Synth-popПеревод: ОтсутствуетПродолжительность: 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF4AB89B9327DC65F4F3CBEBDF64F97845AF32DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619446   (967734) от 16.02.2013
+
+Paramore -  Now (2013) [1080p] HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative Rock, Pop PunkПродолжительность: 00:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF4BC64CB693552EEA7868C2301C7BDE897517B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618404   (967688) от 16.02.2013
+
+Сборник видеоклипов / Symphonic, gothic  metal (female voice) HDTV 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных видеоклипов разных исполнителей в отличном качестве.Жанр: Symphonic, gothic  metalПродолжительность: ~02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F715757D101865CB0A7AF25DD7505E15283C042A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618158   (967560) от 16.02.2013
+
+Сборник видеоклипов Metal Rock 2012 / Metal Rock Clips 2012 (female fronted) HDTV 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных видеоклипов разных исполнителей в отличном качестве.Жанр: Metal RockПродолжительность: ~02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76282BF0C803CF0D985B464D3B1994DABB43AF7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618159   (967348) от 16.02.2013
+
+Сборник видеоклипов 2012 года / Music Video (2012) HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов зарубежных исполнителей 2012 года в высоком качестве.Жанр: Музыка, клипы, PopПродолжительность: ~04:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CAA25BF191B56C9CB58BB686762AC0B52E89AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619645   (966183) от 17.02.2013
+
+Dj Vj Magrao - Festa Mix Volume 1 (2013) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rihanna, Chris Brown, Katy Perry, Mariah Carey, Flo Rida, Justin Bieber, Nicki Minaj, The wanted, Pitbull and More...Жанр: PopПродолжительность: 01:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6034C727A27FD352AD21E514A25319D98A5AF782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977534   (965412) от 21.01.2016
+
+VA - Зимний марафон № 220: Зимний Снегопад Хитов (2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (20.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alai Oli ― Тлен (Премьера!) (00:03:36)
+02. Alberto Ciccarini - Clorophilla (Official Video) (00:03:46)
+03. Alexander Project - Весь мир с тобой (Премьера!) (00:04:37)
+04. All Давай - Ай как больно (Премьера!) (00:04:09)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, Шансон, IndieПродолжительность: 01:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1655826636DC41B1D153115735325D22B451B364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359222   (964934) от 11.02.2020
 
 Сборник клипов 01 (02.2020) WEB-DLRip [H.264/720p-LQ]
@@ -530,209 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71AC84BAB4AC4508DF06CDBCCCCC816FAEB063BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622488   (955042) от 26.02.2013
-
-"O2label"/Stive Morgan  (2013) HDTV [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close To Heaven
-02. North Pole
-03. Tango In Night
-04. K141 Kursk (Cry The Sea)(   Читать дальше...   )Жанр: Музыка, New Age, Downtempo, Ambient, Electronic, ChilloutПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F67526D56ABAF4E55939508FA295964B55C7F44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980628   (954431) от 30.01.2016
-
-VA - Зимний марафон № 222: Праздничный Зимний Хит (2015-2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (29.01.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Charli XCX - Boom Clap ( MTV Live) (Official Video) (00:02:55)
-02. Chris Young - Think of You (Duet with Cassadee Pope) (Official Video) (00:03:40)
-03. Di'Ja ft. BabyFresh - Take Kiss (Official Video) (00:04:13)
-04. DJ Sanny J Ft. Dangerous, Mike Kingz - Hot Shot (Official Video) (00:03:27)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, House, TranceПродолжительность: 01:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F2EDB357E283E5BDCF8D1FC9F6DF54FDE50C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 279973   (951601) от 09.01.2011
-
-VH-1 Russia - Сборник Видеоклипов (2007) DVD5 vh1
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951601.jpg" />
-</div>
-
-
-###  Подробнее
-
-VH-1 Russia - российская версия легендарного европейского канала VH-1, несколько лет вещавшая в пакете НТВ+. К сожалению недавно канал прекратил своё существование...
-
-Материал сборника - оригинальный спутниковый поток MPEG-2, не подвергавшийся никаким пережатиям/перекодированиям в процессе монтажа!
-Качество первоисточника (As Is)!(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AF050D9A7D5D906767FA63AB0E68828E4DBF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981479   (951414) от 01.02.2016
-
-Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music Entertainment, DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Program Start
-02. Livin' La Vida Loca
-03. She's All I Ever Had
-04. La Bomba(   Читать дальше...   )Жанр: Latin, PopПеревод: ОтсутствуетПродолжительность: 01:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEB45CAF74A9E181E94E27EB02FE0E3A7457B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981631   (951014) от 01.02.2016
-
-Modern Talking – The Final Album: The Ultimate DVD (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (3:15)
-02. You Can Win If You Want (3:53)
-03. Cheri, Cheri Lady (3:19)
-04. Brother Louie (3:44)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПеревод: ОтсутствуетПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CB566BB26C966B78FF6C4D702F01287BAC6747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981782   (949881) от 02.02.2016
-
-VA – Fetenhits: The Real Classics (2002) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janet Jackson - Rhythm Nation
-02. Cameo - Word Up
-03. Kool & The Gang - Celebration
-04. ABC - The Look Of Love(   Читать дальше...   )Жанр: Hi NRG, Pop Rock, DiscoПеревод: ОтсутствуетПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E6BCF894E8589E430A8D7CB7BA4F4808A35C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624707   (948978) от 02.03.2013
-
-Little Richard - Long Tall Sally (Хищник / Predator) (2013) [H.264/1080p] BDRip
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_948978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собственный клип. Использована музыкальная композиция Little Richard Long Tall Sally
-Подробности не требуются.
-Ваши замечания будут учтены.
-Размещён на 2-х трекерах. Плагиатом раздачи с другого ресурса не является.Жанр: Фантастика, Боевик   Собственный клипРежиссер: Джон МактирнанАктеры: Арнольд Шварценеггер, Карл Уэзерс, Эльпидия Каррилло, Джесси ВентураПеревод: ОтсутствуетПродолжительность: 00:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E50B74098E2EF600B984FDBB1791105E5569D3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

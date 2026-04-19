@@ -1,3 +1,235 @@
+###  Публикация: 1649473   (207761) от 28.07.2023
+
+Theodor Bastard - Oikoumene (2012) 10th Anniversary Edition, 2023, Theodor Bastard [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Trip-Hop, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oikoumene [00:07:40]
+02. Gerda [00:05:55]
+03. Tapachula [00:07:06]
+04. Takaya Mija [00:05:35](   Читать дальше...   )Жанр: Darkwave, Trip-Hop, FolkПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655FB39EB0D3C9D225FD32D81B36237F4892F741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649320   (207740) от 28.07.2023
+
+VA - Folk Country Songs USA (2023) [MP3|320 Kbps] <Country, Folk, Country Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronnie Dunn - Broken Neon Hearts [03:21]
+02. Caitlin Rose - Own Side [03:56]
+03. Hayes Carll - You Get It All [03:08]
+04. Jim Croce - Operator [03:46](   Читать дальше...   )Жанр: Country, Folk, Country RockПродолжительность: 05:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F47624F790AF6DA37C81358CFC7DE2DD49C070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274964   (206918) от 07.08.2023
+
+Дневник полярной экспедиции / Antarctic Journal / Namgeuk-ilgi (Kenji Kawai) (2005) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206918.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Main Theme (02:44)
+2. Eye In The Ice (00:55)
+3. Flag (02:39)
+4. Hole (02:25)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A99FA8A6450E4933C4753BF8CCB0C15A1C6FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613203   (206889) от 20.02.2023
+
+Ennio Morricone - Love Songs and Romantic Scores (2023) [OGG Vorbis|480 Kbps] <Film Soundtracks>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Califfa (Main Theme)
+02. D'amore Si Vive
+03. Love Theme (Version 2)
+04. Prima E Dopo L'amore(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 01:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179D1E4B1A9FB813D5643132279D5C006C7A13D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651905   (206888) от 08.08.2023
+
+Король и Шут - Король и Шут (Официальный саундтрек), Часть 2 (2023) [MP3|320 Kbps] <OST, Punk Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Алексей Горшенёв - Ели мясо мужики [00:02:10]
+02-Алексей Горшенёв - Лесник (Инструментал) [00:04:37]
+03-Горшок - Иван Факов [00:02:11]
+04-Александр Бузин - Девушка на время [00:04:02](   Читать дальше...   )Жанр: OST, Punk RockПродолжительность: 00:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33195B6AF6A47E9585EF5FB2DF1D2876DD06C65E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651911   (206882) от 08.08.2023
+
+Король и Шут - Король и Шут (Официальный саундтрек), Часть 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, Punk Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Алексей Горшенёв - Ели мясо мужики [00:02:10]
+02-Алексей Горшенёв - Лесник (Инструментал) [00:04:37]
+03-Горшок - Иван Факов [00:02:11]
+04-Александр Бузин - Девушка на время [00:04:02](   Читать дальше...   )Жанр: OST, Punk RockПродолжительность: 00:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C86856305A2C55BFEA516815A8F4872C45EF54B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651888   (206744) от 09.08.2023
+
+Chris Spheeris & Paul Voudouris - Enchantment (1991) [FLAC|Lossless|image + .cue] <Instrumental, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enchantment (4:31)
+02. Through the Wall (4:53)
+03. Pura Vida (3:50)
+04. Golden Days (3:44)(   Читать дальше...   )Жанр: Instrumental, New Age, AmbientПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A4C0BFC98481749CFA940C28ECAC21AB7A6C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652199   (206693) от 10.08.2023
+
+Sexy Lovers Music Collection - Barcelona Romantic Cafe: Spanish Guitar Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Guitar, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Coffee
+02. Romantic Weekend
+03. Sexy Summer
+04. Play Your Game(   Читать дальше...   )Жанр: Instrumental, Guitar, Easy ListeningПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80EF1A2A5EEB6DACA553345BB10DC2C2A004DACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652298   (206626) от 10.08.2023
 
 Chris Spheeris & Paul Voudouris - Europa (1995) [FLAC|Lossless|image + .cue] <Instrumental, New Age, Ambient>
@@ -513,238 +745,6 @@ VA - Enigma-Forest-Transit 7 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FB68E96C161301F88F836CE2358C6AEFBB03684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618976   (201355) от 14.03.2023
-
-VA - Enigma-Forest-Transit 11 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Youssou N'Dour & Neneh Cherry - 7 Seconds
-02. Indigo - Tomorrow is Maybe
-03. WES - Alane
-04. Ofra Haza - Im Nin'Alu(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB2BA028EFCBE7A68CDB7BE8EC7D1883BF57DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130500   (200614) от 28.03.2023
-
-Jed Kurzel  - Alien: Covenant  / Чужой: Завет (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incubation
-02. The Covenant
-03. Neutrino Burst
-04. A Cabin On The Lake(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188E57A988EAD438F3F8F37D8EA2050BBC4583DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622930   (200595) от 31.03.2023
-
-Fausto Papetti - Exitos De Fausto Papetti (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amantes (3:21)
-02. Laura (2:06)
-03. La Sombra De Tu Sonrisa (2:28)
-04. Amor Mio (3:45)(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D803627E089CD3DC3290DAFFEDF1822A887EDAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621689   (200470) от 31.03.2023
-
-The Sri Chinmoy Bhajan Singers (Шри Чинмой) - Sing (2008) [FLAC|Lossless|tracks + .cue] <Indian, Bhajan>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maha Kali Maha Kali
-02. Chitta Ranjan Ghose
-03. He Madhyamda
-04. Jharna-kala oishi manjula(   Читать дальше...   )Жанр: Indian, BhajanПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEDF6AF471968CE77AAF4174F3C4FBE723B9EC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624512   (200302) от 06.04.2023
-
-Король и Шут - Король и Шут (Официальный саундтрек), Часть 1 (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200302.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Прыгну со скалы (Из сериала «Король и Шут»)
-2. Лесник (Из сериала «Король и Шут»)
-3. Внезапная голова (Из сериала «Король и Шут»)
-4. Камнем по голове (Из сериала «Король и Шут»)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB372F501036D2054F8615DBF622B2DD3160429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624518   (200287) от 06.04.2023
-
-Король и Шут - Король и Шут (Официальный саундтрек), Часть 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200287.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Прыгну со скалы (Из сериала «Король и Шут»)
-2. Лесник (Из сериала «Король и Шут»)
-3. Внезапная голова (Из сериала «Король и Шут»)
-4. Камнем по голове (Из сериала «Король и Шут»)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B1E3493BFDE0843EAA36BB474D5448DDEC15D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 156512   (199888) от 24.10.2025
-
-Enigma - The Platinum Collection (2009) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_199888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadeness (Part 1) (4:20)
-02. Mea Culpa (Orthodox Version) (4:01)
-03. Priciples Of Lust (3:27)
-04. Rivers Of Belief (4:24)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 03:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B2B2433555787882EF95C3CD2DF6E80CD511F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627165   (199392) от 22.04.2023
-
-Ricardo - Klangschalen-Musik (2009) [FLAC|Lossless|tracks + .cue] <Meditative, Tibetan Bowls>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loslassen vom Alltag
-02. Die Entspannung genieben
-03. Sich rundherum Wohlfuhlen
-04. Die innere Ruhe genieben(   Читать дальше...   )Жанр: Meditative, Tibetan BowlsПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CE5CE60AA9CBF2991DD54FD22C1BE1E0DFA3D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

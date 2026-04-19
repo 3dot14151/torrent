@@ -1,3 +1,90 @@
+###  Публикация: 1623933   (238281) от 03.04.2023
+
+ЧеширSky - Allсезон (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Утопаyou [00:02:59]
+02. Горизонт [00:03:02]
+03. Loveтайм [00:02:54]
+04. Нашроман [00:03:51](   Читать дальше...   )Жанр: New Wave, ElectronicПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B14578CBF4431486812FE1CF4F6E91716C3C718C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639777   (236710) от 15.06.2023
+
+Sorry Girls - Bravo! (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, 80s>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parade [00:03:20]
+02. Breathe [00:03:59]
+03. Prettier Things [00:03:52]
+04. The Exiles [00:03:22](   Читать дальше...   )Жанр: Synth-pop, 80sПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61ED556E18EB4FDF3103BF420B69EFE891AAD517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640459   (236185) от 18.06.2023
+
+The Browning - EoE Remixed (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, DnB, Dubstep, Hardstyle>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of Existence (Cassetter Remix) [00:03:33]
+02. Anticendency (Toronto is Broken Remix) [00:05:34]
+03. Fearless (Jonny McBee Remix) [00:03:10]
+04. Gott ist Tot (Fury Weekend Remix) [00:03:49](   Читать дальше...   )Жанр: Electronic, Synthwave, DnB, Dubstep, HardstyleПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469D21F916A73A86B2CA86D6FEEEE402A02F3E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458288   (235851) от 28.03.2021
 
 Synth Elements - Love and Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64B2181B4B940E9AC705390C583D1BAF337AB8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651657   (221181) от 07.08.2023
-
-Philtron - None (1997) [FLAC|Lossless|image + .cue] <Synth-Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 No One To Blame 4:39
-02 Nowhere Girl
-04:09
-03 Higher 4:17(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB87AE7ACE22A23865667AF8831B956C8DA6B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343268   (220151) от 05.12.2019
-
-Frankmusik - Day Break (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overdrive (3:28)
- 02. Heartbeat (feat. Highway Superstar) (3:37)
- 03. High on You (feat. Lindsay Lowend) (3:36)
- 04. Closer (3:17)(   Читать дальше...   )Жанр: Electronic, Synthwave, ElectropopПродолжительность: 00:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07ED3118A8B266876EA2E296350A325A56C18E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966521   (218530) от 18.12.2015
-
-Fancy - Strip Down (2000) [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gimme a Sign (3:34)
-02. Senorita (3:52)
-03. Strip Down (4:32)
-04. Dreams Come True (3:31)(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E224B5296E58333F530DA982BCBAF7100A135E
 ```
 
 https://mybot314.ru/tekegram_catalog/

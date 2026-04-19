@@ -1,3 +1,55 @@
+###  Публикация: 1092195   (939943) от 11.01.2017
+
+Проекты - Fashion Nebula [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Nebula - элегантный проект для создания модного слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29B97DFAA095F51DF3C5B3E34597149415BF046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092205   (939878) от 11.01.2017
+
+Проекты - VideoHive - The Slideshow - 17944703 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939878.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Slideshow - простой и удивительный, хорошо организованный и полностью управляемый контролируемый проект для создания ваших слайд-шоу. Вы можете использовать видео вместо изображений. Легко изменить все элементы в этом проекте, например: цвета, световые блики, тон изображений и т.д.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E375752B9831DC57E01F2A2C1B1BAFC367B12B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984412   (939805) от 08.02.2016
 
 Проекты - VideoBlocks - Journey Intro [AEP]
@@ -638,60 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B2134EBCAB88457D0A5D6EFC506BC6E4B01923F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984949   (936471) от 10.02.2016
-
-Проекты - VideoHive - 3D Slide Photo - 13359869 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D57CC76945D67E8E613B1A5FC6DD8A6000D7C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985236   (935397) от 11.02.2016
-
-Проекты - VideoBlocks - Triple-Double Photo Presentation [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191AA4F71E6696C5732F55010CA25F18BD93A5D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

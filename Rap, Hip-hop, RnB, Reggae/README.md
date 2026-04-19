@@ -384,7 +384,7 @@ Oxxxymiron - Национальность: нет (2025) [MP3|320 Kbps] <Rap, Hi
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049026.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Oxxxymiron - Национальность: нет (2025) [FLAC 24/48|Lossless|WE
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049025.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048136.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048135.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Noize MC - Алхимия (2025) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047411.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Noize MC - Алхимия (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hi
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047410.jpg" />
 </div>
 
 
@@ -695,6 +695,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601880   (1046316) от 02.01.2023
+
+Вася Васин - Танец с саблями (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Великий Питер
+2. Мания величия
+3. Танец с саблями
+4. Мудрые слова(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FCD57656C77BA8C12D1C41F1DC8B5B86885791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602264   (1046021) от 06.01.2023
 
 SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
@@ -717,35 +746,6 @@ SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F191E7D48B3B0F0B905E901E93367E056BF9CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602256   (1046012) от 06.01.2023
-
-L'One (Леван Горозия) - Концерт с симфоническим оркестром (Live 8_X 2022) (2023) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро (Live 8_X 2022) [00:02:33]
-02 - Ракета, Твой день настал (Live 8_X 2022) [00:02:54]
-03 - Сон (Live 8_X 2022) [00:04:07]
-04 - Дорога (Live 8_X 2022) [00:03:24](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DC7AFE57BAF55F482EA643CD72D92355C320DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

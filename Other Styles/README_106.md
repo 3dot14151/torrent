@@ -1,3 +1,212 @@
+###  Публикация: 545932   (480451) от 12.09.2012
+
+VA - Веселої забави! ч.2 (2011) [MP3|256 кб/с]<Folk-Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480451.jpg" />
+</div>
+
+
+###  Подробнее
+
+001-Марш.
+002-Мар'янко.
+003-Маки червонi.
+004-Мої сни.
+005-На перонi.
+006-Перевал.
+007-Прийдеш не прийдеш.
+008-Задивлюсь.
+009-У лузi.
+010-Зустрiчаймо любов на свiтаннi.(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 07:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2D68A169A64051610A4697AF6B71642132AD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244624   (480034) от 02.09.2018
+
+Fiona Joy Hawkins - Story of Ghosts (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Song for Dunnie
+02 – Story of Angels
+03 – Contemplating (Solo)
+04 – Blue Dream (Solo)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C5D5E13E4CEA973061CA5BB4F341F58266A77F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 317973   (479961) от 30.07.2022
+
+Sucker Punch / Запрещенный прием Soundtrack (2011) [FLAC|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emily Browning - Sweet Dreams (are made of this) (05:19)
+02. Björk feat. Skunk Anansie - Army Of Me (Sucker Punch Remix) (06:51)
+03. Emiliana Torrini - White Rabbit (05:09)
+04. Queen with Armageddon a.k.a Geddy - I Want It All/We Will Rock You (05:09)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD26ACF023B62D94C9336805E7E94A26AF394ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244741   (479924) от 02.09.2018
+
+Helen Jane Long - Perspective (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Modern Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outside
+02. Given
+03. Journey
+04. Perspective(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF6C3EB1FC09F61EFFFEE051FC6CB55CBA45B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244617   (479923) от 02.09.2018
+
+Stephen Rhodes - Pure Angel Healing (2018) [MP3|320 Kbps] <New Agе, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmony in Motion (07:20)
+02. Tearful Moments (08:51)
+03. Stationary Spirits (09:57)
+04. The Pathway of Life (06:39)(   Читать дальше...   )Жанр: New Agе, Relax, MeditativeПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8830FC9B6D55638A1F08FB8FBEF32198F854740F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938760   (479798) от 19.09.2015
+
+Cosmic Baby - Heaven (1998) [FLAC|Lossless]<Ambient, New-age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air 1:47
+02. Der Flug 4:32
+03. Casa Del Mar 6:10
+04. Wurzburg 5:32(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B93B74988840A0AE6455FD25CFEE4F156CA2818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938900   (479559) от 19.09.2015
+
+Jean-Michel Jarre - Essential Recollection (2015) [FLAC|tracks+.cue]<Ambient, New-age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene, Pt. 2
+02. Arpegiateur (Live)
+03. Oxygene, Pt. 4
+04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B52F7430A73ECE9F392BC867AD5C8967B5F327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056446   (479488) от 26.09.2016
 
 Heidi Feek - The Only (2013) [MP3|320 Kbps] <Country, World, Vocal>
@@ -550,209 +759,6 @@ The BBC Concert Orchestra - Cinema Silver Screen Classic (2012) [FLAC|Lossless]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEFDED7411F4489E857DBF32CFEC538AE0346C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160669   (473914) от 25.08.2017
-
-The Romantic Strings Orchestra - The Greatest Love Of All (1998) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always on My Mind (3:51)
-02. The Greatest Love of All (5:00)
-03. Theme From Hill Street Blues (3:25)
-04. All I Ask of You (From Phantom of the Opera) (3:47)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27516B3EB9699352697EAFB43763507F0702E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245261   (473890) от 05.09.2018
-
-VA - Sax Is The Best! Showa Kayo Listening At Sax (2012) 5CD [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental, Sax>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yogiriyo Konya Mo Arigatō - Satoru Oda
-02. Otaru No Hitoyo - Teruo Yoda
-03. Shiankyō Blues - Teruo Yoda
-04. Minatomachi Blues - Teruo Yoda(   Читать дальше...   )Жанр: Easy Listening, Instrumental, SaxПродолжительность: 04:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E09CAAEE9B183F891127868D80A5923EB0FCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939410   (473564) от 22.09.2015
-
-Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes the Heartache (03:27)
-02. I've Been Drinkin' More (03:34)
-03. Hot Mouth Mama (02:32)
-04. Fancy Limousine (03:29)(   Читать дальше...   )Жанр: Texan CountryПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E1CD728A3D576164054C50FF6EBADE04390C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939416   (473558) от 22.09.2015
-
-Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Hat Blues (02:49)
-02. When It Comes To Loving You (02:41)
-03. Darlin Its A Waste Of Time (03:28)
-04. The Chores Song (03:06)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B785EC0BA5D2F1562051DE74912CA3073BB14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797289   (473540) от 05.09.2018
-
-Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (2014) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:43)
-02. The Rains of Castamere* (02:42)
-03. Breaker of Chains (04:05)
-04. Watchers On the Wall (02:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 1:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701841   (472067) от 20.09.2013
-
-IchPak - De mo (2013) Авторская раздача [MP3|320 кб/с]<untitled>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472067.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:53] 01 - SOFA
-[04:15] 02 - Atusubitu
-[03:03] 03 - 12на5
-[01:16] 04 - Bionic Commando Groder's Anthem cover(   Читать дальше...   )Жанр: untitledПродолжительность: 00:26:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFF13FF1958CFB03C008B1F9557F4CE09993D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245470   (472014) от 06.09.2018
-
-Jan Pham Huu Tri & Gabin De L’Auray - Gentle Acoustic Guitar (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumemtal, Guitar, Downtempo>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Togetherness (*) 01:58
-02. Holiday Souvenir (*) 01:49
-03. Lasting Friendship (*) 01:30
-04. Sunshine Hug (*) 01:45(   Читать дальше...   )Жанр: Instrumemtal, Guitar, DowntempoПродолжительность: 00:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48E6900250E0E92BD55B71E24FB3C1AE69A54AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

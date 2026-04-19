@@ -1,3 +1,32 @@
+###  Публикация: 1188704   (273605) от 03.12.2017
+
+Big Papa and the TCB - Let Your Hair Down (2017) [MP3|320 Kbps] <Blues, Swing>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Yo Self Together (03:11)
+02. California Summer Blues (03:35)
+03. It's Up To You (03:14)
+04. A Day Late And A Dollar Short (03:36)(   Читать дальше...   )Жанр: Blues, SwingПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50396E7C738BD9268729F4108732E984E5A88BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265690   (273018) от 29.11.2018
 
 VA - Winter Soul (2018) [MP3|320 Kbps] <R&B, Soul, Jazz>
@@ -716,35 +745,6 @@ VA - Christmas Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5CF1793083326BAC333A63336C67FEA1DA3017B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426450   (215027) от 24.11.2020
-
-Muddy Manninen - River Flows (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Believe (4:09)
-02. Hey You (3:49)
-03. Daytona Beach (5:49)
-04. (Don´t Let Them Put the) Hoochie on You (4:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B833D89E493476E77A0FD157C778B550847341D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

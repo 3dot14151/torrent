@@ -1,3 +1,32 @@
+###  Публикация: 1016015   (772552) от 12.05.2016
+
+Hang Massive - Beats For Your Feet (2012) [FLAC|Lossless|tracks] < Folk, World, New Age>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Again (live)     06:04
+02. Skanegatan (live)    04:05
+03. Increasing Obviousness (live)    04:36
+04. Omat Odat (live)    06:14(   Читать дальше...   )Жанр: Folk, World, New Age,Продолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6425163A5582C8A217C49E3CB34629259719FB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125272   (768808) от 14.04.2017
 
 Caroline Reese and the Drifting Fifth - Tenderfoot (2017) [FLAC|Lossless|tracks] <Country,Folk>
@@ -716,35 +745,6 @@ Danheim - Munarvagr (2017) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62E35A0A3BE856A95EA7689A391C46B19AD6E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219324   (715500) от 13.04.2018
-
-Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fridr 4:24
-02. Ginnung 4:55
-03. Fegurð 4:45
-04. Yggdrasil 4:32(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F682CB24D57E632E687F6FE75AC4C42B8E4C87
 ```
 
 https://mybot314.ru/tekegram_catalog/

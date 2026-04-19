@@ -1,3 +1,31 @@
+###  Публикация: 757631   (915590) от 17.02.2014
+
+Edubuntu 12.04.4 LTS (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Edubuntu — дистрибутив операционной системы Linux, основанный на дистрибутиве Ubuntu. Ориентирован на использование в образовательных учреждениях. В Edubuntu включён Linux Terminal Server Project и большое количество программ образовательного направления, таких как GCompris; KDE Education Project; SchoolTool Calendar (en — school management information system) и ряд других.
+
+Установив Edubuntu Вы получите все возможности текущей версии Ubuntu 12.04.4 LTS плюс некоторый набор образовательных программ. Поскольку Edubuntu работает с теми же репозиториями, что и Ubuntu, в последней все эти программы также будут доступны, однако придется их устанавливать самостоятельно, на что уйдет дополнительное время.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFEABC5FB529015DC1DF18D471E13BD83475B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989739   (914721) от 23.02.2016
 
 Linux UsefulPack 16.02 (L) [Русский] (2016) [x86 + amd64]
@@ -495,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 Ubuntu 20.04.3 Focal Fossa LTS [amd64] 2xDVD
 
 >>Linux, Unix и другие ОС
->>
+>>нет
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888717.jpg" />
@@ -673,34 +701,6 @@ KaOS Linux 2016.03 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B90EF938421CA92606E43DAF41B672AC79E33D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643144   (872755) от 14.04.2013
-
-PCLinuxOS 2013.04 KDE FullMonty [i586] (1xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь представлен релиз PCLinuxOS 2013.04 KDE FullMonty. Основанный 24 октября 2003 года на Mandrake 9.2, PCLinuxOS придерживается собственного пути развития.  Редакция 'KDE Full Monty', где помимо обычной KDE-инсталляции содержится специальная структура рабочего стола, а также многие дополнительные приложения и предустановленные драйверы. В FullMonty разработчиками применена новая концепция: activity-focused формат виртуального рабочего стола, разработанный для обращения к типовым задачам и потребностям пользователя. KDE FullMonty распространяется в виде 32-битного DVD-образа, который может быть установлен на компьютерах с 64-битной архитектурой.
-
-В релизе PCLinuxOS 2013.04:  KDE 4.10.1;   ядро 3.2.18-pclos2.bfs; комплект свежих версий проприетарных графических драйверов NVidia; тема PCLOS410;  уведомляющая о возможности обновления установленных приложений утилита QT-update-notifier.
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

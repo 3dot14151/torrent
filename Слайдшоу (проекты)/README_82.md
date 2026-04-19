@@ -1,3 +1,56 @@
+###  Публикация: 953446   (348551) от 04.11.2015
+
+Проекты - VideoHive - Clouds [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект, который отлично подойдет для крещения, венчания и пр.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3029414CA62EB131E1A59BFBA91BFA2404EB47CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179268   (348496) от 31.10.2017
+
+Проекты - VideoHive - Clean Slideshow - 20729487 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clean Slideshow - шаблон для After Effects, который поможет создать слайдшоу с мягкими, плавными переходами к различным событиям или демонстрации красивых пейзажей.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BF9553DF4BEB34467834880AB845E885235816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329930   (347427) от 07.10.2019
 
 VideoHive - Lovely Moments - 13536406 / Pond5 - Lovely Moments - 56638101 [AEP]
@@ -631,58 +684,6 @@ VideoHive - Photo Gallery Smile To Life - 5864231 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F420011FBC5A936CF2E438F1E3448E465225B6AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257966   (340393) от 28.10.2018
-
-Проекты - Motion Array - Memory Slideshow - 36251 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memory Slideshow - романтичный шаблон на различную тематику и может использоваться для ваших дней рождения, романтических моментов, юбилеев, особых случаев, каникул, праздников и свадеб. Ваши фотографии или видео дополнит эффект параллакса с текстовыми анимациями и мягкими переходами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C022E1D4DFA594B75F5A81ECE9477F8D6AF2982F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954727   (339363) от 08.11.2015
-
-Проекты - Проект ProShow Producer - The Door to four Seasons [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторский проект отФормат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DFC6A0C3144DE74FE669A77C06D5748E80A8EE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

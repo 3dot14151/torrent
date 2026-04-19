@@ -535,6 +535,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682023   (633703) от 21.07.2013
+
+The Doors - Infinite (2013) 6 CD Box Set [DSD 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_633703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Changeling (4:21)
+02. Love Her Madly (3:21)
+03. Been Down So Long (4:41)
+04. Cars Hiss by My Window (4:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD789288C0E8DA5294FA1D2C6BA5D71172668B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039395   (587126) от 04.08.2016
 
 Queen - A Night At The Opera (1975) [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Rock>
@@ -735,41 +764,6 @@ The Jimi Hendrix Experience - Are You Experienced (1967) 2020 [DSD64 2.0|1bit/28
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B1C6A8F35D48D38D4979DA34A98D46591BCED85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 397652   (404404) от 08.10.2011
-
-Fourplay - Energy (2008) [DSD 2.0/5.1 1bit/2822,4kHz |SACD-R]<Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fortune Teller
-02 - The Whistler
-03 - Ultralight
-04 - Cape Town
-05 - The Yes Club
-06 - Prelude For Lovers
-07 - Look Both Ways
-08 - Argentina
-09 - Comfort Zone
-10 - Sebastian(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6DD7A7523C12D3DD88EEAD2D70549F0143649AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

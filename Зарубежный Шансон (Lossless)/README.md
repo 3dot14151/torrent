@@ -466,6 +466,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339390   (667250) от 20.05.2011
+
+Charles Aznavour - Duos [2CD] (2008) [FLAC|Lossless]<French Shanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charles Aznavour & Elton John - Yesterday When I Was Young [03:28]
+02. Charles Aznavour & Liza Minnelli - Quiet Love [05:27]
+03. Charles Aznavour & Sting - Love Is New Everyday [04:09]
+04. Charles Aznavour & Frank Sinatra - Young At Heart [02:55]
+05. Charles Aznavour & Nana Mouskouri - To Die Of Love [04:03]
+06. Charles Aznavour & Bryan Ferry - She [02:29]
+07. Charles Aznavour & Paul Anka - I Didn't See The Time Go By [03:53]
+08. Charles Aznavour & Celine Dion - You And Me [03:37]
+09. Charles Aznavour & Josh Groban - La Boheme (English version) [03:30]
+10. Charles Aznavour & Placido Domingo - El Barco Ya Se Fue [02:28](   Читать дальше...)Жанр: French ShansonПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 798817   (651672) от 23.06.2014
 
 Joe Dassin - Integrale Albums (2000) 15CD Box Set, Limited Edition [FLAC (image+.cue)|Lossless]<French Chanson, Ballad, Disco>
@@ -738,41 +773,6 @@ Lio - Je Suis Comme Ca (2000) [FLAC|Lossless|image + .cue] <French, Pop, Chanson
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FB01588CD7C07C342D14E4844725D5088528F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552900   (445523) от 27.09.2012
-
-Patricia Kaas - 6 Студийных альбомов (1988 - 2002) /Japan/ [FLAC|Lossless]<Shanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Man (Mon Homme)
-02. If You Go Away (Ne Me Quitte Pas)
-03. What Now My Love (Et Maintenant)
-04. Un Homme Et Une Femme
-05. The Summer Knows (Un Ete 42)
-06. I Wish You Love (Que Reste-t-il De Nos Amours)
-07. Yesterday When I Was Young (Hier Encore)
-08. Les Moulins De Mon Coeur (The Windmills Of Your Mind)
-09. Autumn Leaves (Les Feuilles Mortes)
-10. Where Do I Begin (Love Story)(   Читать дальше...   )Жанр: Shanson, PopПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

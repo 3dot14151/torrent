@@ -1,3 +1,29 @@
+###  Публикация: 1341130   (262874) от 26.11.2019
+
+Календарь 2020 от РОЗА123 №14 [PNG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь на 2020 год.Формат: PNGРазрешение файлов: 1920x1086
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238B87B758CDE5AC4FDF6FE0288B51641093187D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193631   (261895) от 22.12.2017
 
 Картинки - TeNeBrA Wallpapers October 08.2017 Pack.Nr.14 [JPG, PNG]
@@ -679,32 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F31441FC7A5E5A44997C71EEE9CA764473801AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497933   (253740) от 17.05.2012
-
-[Графика] Томаш Марек Жедрушек (Tomasz Marek Jedruszek) - фэнтези художник-иллюстратор (2012)
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томаш Марек Ендрушек (Tomasz Marek Jedruszek) - фэнтези художник-иллюстратор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2313DAD259DE762A1116FE8A420351BAD8D66D12
 ```
 
 https://mybot314.ru/tekegram_catalog/

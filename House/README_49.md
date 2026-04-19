@@ -1,3 +1,195 @@
+###  Публикация: 548464   (463331) от 20.09.2012
+
+VA - DJ Antoine - Live In Bangkok (2008) [MP3|~190 кб/с (V2)]<Electro House / House / Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Antoine - Back From The Tour 2:25
+02. DJ Antoine - December (Original mix) 3:05
+03. DJ Antoine - Bangkok Street Party (Every Sensation) (Original mix) 3:08
+04. DJ Antoine - On My Way (Original mix) 3:42
+05. Remady "P&R" - I"m Not A Superstar (Mr.Pink remix) 2:50
+06. DJ Antoine - One Night In Bangkok (Original mix) 3:12
+07. DJ Antoine - Figaro (Original mix) 2:59
+08. Remady "P&R" - What Ever (Gated Vocal edit) 2:38
+09. DJ Antoine - Don"t You Hide (Original mix) 3:25
+10. DJ Antoine vs Mad Mark - Be Yourself (Original mix) 5:05(   Читать дальше...   )Жанр: Electro House / House / Progressive HouseПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879645B879D43D5DFC777C5E8C3E8D3AE09D6A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388171   (463248) от 15.09.2011
+
+DJ Грув - Я верю (2011) [MP3|320 kbps]<Progressive House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поздно (feat. Александр Маршал)
+ 02. Я верю (feat. Иракли & Гарик DMC B)
+ 03. Неминуема (feat. Loc Dog & Phil Shabin)
+ 04. Все вместе (feat. Корни)
+ 05. Так и знай! (feat. Audio Girls)
+ 06. I Can' Take
+ 07. Мир без любви 2010 (feat. DJ Sandra)
+ 08. My love (feat. Audio Girls)
+ 09. Rain
+ 10. Sasha WTF?(   Читать дальше...   )2011Жанр: Progressive House, Electro HouseПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB32FEE49481390CC12CED9A290512E575938180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549170   (463190) от 20.09.2012
+
+VA - DJ Antoine - Stop (2008) [MP3|~190 кб/с (V2)]<Electro House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Antoine - Stop! (Swiss Radio Mix)
+ 02. DJ Antoine - Hello Again (Original Mix)
+ 03. DJ Disciple feat. Dawn Tallman - Work It Out (Klaas Mix)
+ 04. DJ Antoine - Apologize (Original Mix)
+ 05. DJ Antoine vs Mad Mark feat. Jay Underground - These Games (Original Mix)
+ 06. Alex Romano - Save A Prayer (DJ Antoine vs Yoko English Remix)
+ 07. DJ Antoine vs Mad Mark - Set Me Free (Original Mix)
+ 08. DJ Antoine - Funky Kitchen Club (I'll Remain) (Extended Mix)
+ 09. Unconditional - Sole (Nari & Milani Mix)
+ 10. DJ Antoine - Stop! (DJ Antoine vs Yoko English Big Room Remix)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE35F1F095F73CC9A8484F1488AE93445E9FA2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059303   (462276) от 04.10.2016
+
+VA - Electro Housearrest Of ADE (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Meyers - Play House (Vocal Edit) (5:41)
+02. Brothers - My Battle (Trvpers Mix) (feat. Ranieri) (4:44)
+03. G-Pol, Saint Valentine & Strell - Klondike (4:40)
+04. Nathalie Vanessa - If You Really Want Me (Jay Outback Instrumental Mix) (5:46)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5461C6B9CEDCF1CCC465A5850BD88C9EC1BC270B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161479   (461498) от 31.08.2017
+
+VA - Big In Ibiza (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Lord - Caliente (Original Mix) 06:10
+02. Joe Piccino - Drumming Culture (Dub Mix) 06:46
+03. Do Santos & Simone Vitullo - My Bassline Friend (Original Mix) 06:52
+04. Chico Secci & Simone Vitullo - Dancing FoolsIn LaLa Land (feat Bonnie - Simone Vitullo remix) 07:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F74A9B01572F2FD75684524E19E5C9ECB55EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059475   (461256) от 04.10.2016
+
+VA - Hot Electro House Tunes (2016) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.K. Project – Dont You Want Me (Jason Parker) 05:15
+02. Makszim Bros – Dope (K Beatz Remix) 05:12
+03. Bifath – Slim 07:50
+04. DJ Jay-T and Jon Thomas – Turn It Up (Radio Mix) 03:36(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA778D3264F6462FB968F9A1AB01DF6C8666089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059319   (459701) от 05.10.2016
 
 VA - Dance with This! Vol.1 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
@@ -589,180 +781,6 @@ Armada Deep - Ibiza Closing Party (2018) [MP3|320 Kbps] <Minimal,Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17A4701124F6890D53DB314F03E76F3141E72DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322469   (448379) от 29.08.2019
-
-VA - House Classic Hits Summer Playlist (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bacci Bros. - Joy And Pain (Original Mix) 6:55
-02. The Miami Collective feat. Angie Brown - Never Gonna Give Up (Dub Mix) 6:45
-03. Barbara Tucker - Spread Love (Ferrari Mix) 7:39
-04. Carlos Rubio - The Feeling (Jack Da House Mix) 7:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F8E8363ACD5998DE06E3D666EF3CCDB06C9255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163291   (448272) от 06.09.2017
-
-Axwell & Ingrosso - More than You Know (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  More Than You Know  3:23
-02.  How Do You Feel Right Now  2:59
-03.  This Time  3:37
-04.  Something New  4:07(   Читать дальше...   )Жанр: HouseПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB486B1ABAE26FAFA7C6687C63F69DFD11E8112E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409216   (447363) от 16.09.2020
-
-VA - Cartoon People-Future Club House Vol.1 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backstreet Boys - Larger Than Life (Arefiev & Olmega remix)
-02. Basic Element - I'll Never Let You Know (Struzhkin & Vitto remix)
-03. Basic Element - To You (DJ Cheeful remix)
-04. Basic Element - Touch You Right Now (Olmega remix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B637A45738C42F4A9EB1AC1D76590AE290AE7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943516   (447331) от 04.10.2015
-
-Steve Aoki - Neon Future Odyssey (2015) 2CD [MP3|320 кб/с]<Electronic, Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transcendence (Intro)
-02. Neon Future
-03. Back To Earth
-04. Born To Get Wild(   Читать дальше...   )Жанр: Electronic, Progressive House, Electro HouseПродолжительность: 01:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA56A9D9437FCA5E17E19632E2FB561867584A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942757   (446911) от 04.10.2015
-
-Avicii - Stories (2015) Japanese Edition [MP3|320 кб/с]<Electronic, House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting For Love
- 02. Talk To Myself
- 03. Touch Me
- 04. Ten More Days(   Читать дальше...   )Жанр: Electronic, House, DanceПродолжительность: 01:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A05D4FD490460BFC29169D8D920B9113A07AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062054   (444772) от 12.10.2016
-
-VA - Stay a While and Dance (2016) [MP3|320 Kbps] <Funky, Progressive, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simon Sims And Tymers - I Feel You (Extended Mix) (Feat. Luny) 04:38
-02. Ibiza Bitches - Be Happy (Radio Version) 03:22
-03. Claudio Mordax - U Can I Know 06:28
-04. Danny Sinatra - Glimpse Of Light (Single Version) 04:08(   Читать дальше...   )Жанр: Funky, Progressive, HouseПродолжительность: 03:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4B4D782E8A9C7F8546AF47C1D085D37EF8B16D
 ```
 
 https://mybot314.ru/tekegram_catalog/

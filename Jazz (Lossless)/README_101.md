@@ -1,3 +1,32 @@
+###  Публикация: 1286434   (713204) от 02.03.2019
+
+Jan Johansson - Live In Tallinn (1966) 1995, Heptagon Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Rumba [8:12]
+02. Visa fran Utanmyra/Ganglek fran Alvdalen [8:31]
+03. Blues for Lange [5:38]
+04. Sommar adjo [2:57](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28C15B61743BC92A91C5EDB3107C41038DD7B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286226   (713197) от 02.03.2019
 
 Carmen Bradford - Home With You (2004) Azica Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Dinah Washington - Queen Of The Juke Box ''Live'' 1949-1955 (2000) Baldwin Stree
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E433BAF946E41EE0CB337DEB4162452BEDB5486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131154   (709007) от 05.05.2017
-
-Ben Webster - Ballads (1954, 1955) 2011, Phoenix Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelsea Bridge [03:58]
-02. Love Is Here To Stay  [03:25]
-03. It Happens To Be Me [03:23]
-04. All Too Soon [04:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB2FE176679BB0AE2E840BD920354474142B9F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

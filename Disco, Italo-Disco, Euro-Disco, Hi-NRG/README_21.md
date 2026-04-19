@@ -1,3 +1,61 @@
+###  Публикация: 1550917   (591207) от 13.05.2022
+
+Milk And Coffee - 2 Albums (1982, 1986) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Milk And Coffee (или Milk & Coffee) - итальянская группа, основанная в 1979 году.01. L' Amore Viene E Va (3:47)
+02. Ci Sei Tu (3:28)
+03. Marina (2:53)
+04. Fever (3:37)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A619CA91CBEA27DC271F56B5BBF1ECD2456C626A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551376   (590200) от 15.05.2022
+
+Didier Marouani - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дидье Маруани - французский музыкант, композитор и клавишник, лидер группы Space. Один из пионеров электронной музыки. В раздаче представлены мало пропиаренные альбомы.01. Crazy Machines (5:09)
+02. Lover's Song (Part One) (4:28)
+03. Anywhere (5:29)
+04. Three Years Ago (4:18)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C12D50263D04AE0A117663C0AC59868B96F4DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552212   (588529) от 19.05.2022
 
 Elen Cora - House of Cards (2012) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
@@ -729,76 +787,6 @@ VA - Italo Maxi Hits (2010) 2CD [MP3|320 кб/с]<Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CCB8B2CD67EC1067A543209E97C0D15C17D3688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811228   (580572) от 08.08.2014
-
-Latin Lover - Casanova Action (2007) [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casanova Action (Long & Hot-Version) 6:24
-02. Laser Light (Original Version) 5:25
-03. Dr.Love (Passion Mix) 5:53
-04. Laser Dance 5:46
-05. Laser Light (Remix '87) 6:40
-06. Casanova Action (87' Re-Edit) 6:17
-07. Dr.Love (Dub Mix) 5:43
-08. Casanova's Dance (Insrtrumental) 6:23
-09. Megamix 6:11
-10. Laser Light (Chernobyl Mix) 6:35(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8456999CDC4B9679CD2BA9E921B5467B059BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811579   (579518) от 09.08.2014
-
-King Kong & D'Jungle Girls - King Kong Greatest Hits (2000) [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boom Boom Dollar (Red Monster Mix) 5:54
-02. Walkie Talkie 3:59
-03. Love & American Dollars 5:27
-04. Lies 4:15
-05. Bingo 6:34
-06. Love Of The Angel 5:41
-07. Gimme Gimme Gimme 6:04
-08. Panic In New York 6:29
-09. It's So Funny 2:53
-10. Don't Let Me Be Misunderstood 3:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293DF28A83DBC842085D8D54D92567C5A4B3BBCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

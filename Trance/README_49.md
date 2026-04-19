@@ -1,3 +1,90 @@
+###  Публикация: 1655699   (203522) от 29.08.2023
+
+VA - Nothing But...Ibiza Closing Party 2023 Trance (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr House - Ibiza Dreams (Original Mix) [5:51]
+02. Andy Jornee & Trance Girl - The World Is Your Home (V2Edit) [8:00]
+03. Claus Backslash - Spiritual Elements (Original Mix) [3:21]
+04. Diego Morrill - Rhenium (Original Mix) [3:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D20B1DD7200A41CFE66768C17BD175CE116132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656633   (203026) от 31.08.2023
+
+VA - Nothing But... Trancetopia, Vol. 07 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boski - I Know You (Original Mix) [7:36]
+02. Victor Special - Just Want To Go Back (Radio Edit) [4:56]
+03. Johan Vilborg feat. Meggie York - Saved (Original Mix) [3:48]
+04. DT8 Project - Surrender (Original Mix) [3:08](   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CB16E930AC7784C6FFB61117B20E6C9FB91EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828818   (200000) от 24.10.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 10 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_200000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Empire Of Hearts (Extended Mix) [6:09]
+02. Mauro Picotto - Lizard (V2) (Extended Mix) [5:07]
+03. Armin van Buuren - Imagine (Extended Mix) [9:44]
+04. Signum - Beyond This Earth (Extended Mix) [7:56](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F471DB62556CE00F5638D605C81984885F4D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1828018   (193695) от 23.10.2025
 
 VA - Trance Fusion, Vol. 14 (2025) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Nothing But... Trancetopia, Vol. 08 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C38A1438CC93EE4AE84753BF5560DE28B4F750C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663873   (186417) от 23.09.2023
-
-VA - A State Of Trance Radio Top 50 - 2023, Vol. 2 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren, Ferry Corsten, Rank 1 & Ruben De Ronde - Destination (A State Of Trance 2024 Anthem) (Extended Mix) [6:16]
-02. Aly & Fila x Alex M.O.R.P.H. feat. Cheryl Barnes - Eye Of The Storm (Extended Mix) [7:55]
-03. Markus Schulz & Diandra Faye - Eternally (Extended Mix) [8:00]
-04. Paul van Dyk & Ciaran McAuley - Someone Like You (Extended) (   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 05:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B715BFA2A5B5BC39E7A46513158D06E0B9789DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663890   (186244) от 24.09.2023
-
-VA - Uplifting Only Top 15: September 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iberian - Preludio (George Crossfield Intro Remix) [6:52]
-02. Andrew Riqueza & Diana Dyatkinskaya - Hope To Wonder (Deme3us Extended Mix) [6:45]
-03. Paul Cry & 3xodus - We Still Hope (Extended Mix) [7:36]
-04. HALIENE & Maratone - Make It To Tomorrow (Extended Mix) [5:11](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3892800944DF67E760FB4C7833B5CF69DAC4C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664673   (184680) от 27.09.2023
-
-VA - Trance 2023 Vol. 8 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaimo K & Hanna Finsen - My Silver Lining (Original Mix) [3:51]
-02. Allen Watts - Spectral (Original Mix) [2:57]
-03. Ana Criado & Raz Nitzan - Meet Again (Ferry Tayle Remix) [3:43]
-04. Alex M.O.R.P.H. & A.R.D.I. - Guadalupe (Original Mix) [2:57](   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979319CEC3059FBEEF948D36A4D90CB845D9CC72
 ```
 
 https://mybot314.ru/tekegram_catalog/

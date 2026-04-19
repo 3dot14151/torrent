@@ -1,3 +1,32 @@
+###  Публикация: 1462801   (1020831) от 16.04.2021
+
+RAM - TRAUMATIX 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Возьмем [03:10]
+02. Men in Black [02:41]
+03. Hesoyam (feat. LeanJe) [03:22]
+04. Как S1mple [02:06](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729E68132D1D2F1815C5D0DAD1FD2C738AC37447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463838   (1020144) от 20.04.2021
 
 Leanje - Мертвая петля (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -715,35 +744,6 @@ XIII - Город 13 (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23B000B7E1FD4C82AB3BD1C14B869A3251F20724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367266   (917312) от 15.03.2020
-
-GSPD - Музло (2019) [MP3|320 Kbps] <Rave, Dance, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. СЕКТА [03:07]
-02. Интердевочка [03:27]
-03. Кислотный дождь [03:25]
-04. Заряженный [03:54](   Читать дальше...   )Жанр: Rave, Dance, PopПродолжительность: 00:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D1D4425ACD411F882EBC38258C047E602762BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

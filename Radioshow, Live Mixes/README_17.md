@@ -1,3 +1,235 @@
+###  Публикация: 1836997   (255877) от 14.11.2025
+
+VA - Armin van Buuren - A State Of Trance 1251 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTY – Brave
+02. Eximinds & Alexander Komarov – Far Away
+03. ATB – 9PM (Till I Come) (James Hype Edit)
+04. Cosmic Gate & RYVM & Marlene – Heaven Knows (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:0:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6894B837E09E7B043A07CAD44586135F3180B5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836113   (252490) от 09.11.2025
+
+Markus Schulz - Global DJ Broadcast Afterdark (2025) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kennedy One - The Things That Will Never Be
+02. Markus Schulz - Enter the Portal
+03. Morees - Depths of Your Mind
+04. HI-LO & Tai Woffinden - The Orange Theme(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 04:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E945E29237B2F13F2FE26474755C8CC24E10A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835730   (251898) от 07.11.2025
+
+MEDUZA - Live @ Meduza³ (Futur Stage, Kappa FuturFestival) Turin, Italy (2025-07-05) [MP3|320 Kbps] <Tech House, Melodic House/Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GENESI & MEDUZA ft. Aya Anne - Freak (Piano Intro Edit) w/MEDUZA ft. Hozier - Tell It To My Heart (Acappella)
+02. Equinøx - ID w/MEDUZA ft. Dermot Kennedy - Paradise (Acappella)
+03. MEDUZA & GOODBOYS - Self Control w/Darude - Sandstorm (Vintage Culture & Zerky VIP)
+04. Calvin Harris - I'm Not Alone (CamelPhat Remix) w/MEDUZA - Friends (Meduza (   Читать дальше...   )Жанр: Tech House, Melodic House/TechnoПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D64B614595A49AB6D695A8EC6EB5406482BEF402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835709   (251670) от 07.11.2025
+
+VA - Live @ Amsterdam Music Festival, Johan Cruijff ArenA, ADE, Netherlands (2025-10-25) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Alle Farben ft. Ava Silver - Lost In Time (Intro Edit)
+02. Armin van Buuren & JOA - Heavy (DJ KUBA & NEITAN Remix)
+03. ID - Amsterdam ID
+04. Armin van Buuren & Adam Beyer vs. D-Shake - Techno Trance(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FE5B03451CDE68BA8FB31138E119388A607FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835662   (251665) от 07.11.2025
+
+VA - Ori Uplift - Uplifting Only Episode 665 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandro Mireno & Alaera – Awakening (Piano Intro Mix)
+02. Mhammed El Alami & NELLY TGM – We Are One
+03. BiXX – Appreciation
+04. DreamLife & Aleksey Gunichev – Good Night My Dream(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7685A29BFDA1EE0DB83C98049824EA93EBD24F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835656   (251662) от 07.11.2025
+
+VA - Armin van Buuren - A State Of Trance 1250 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yuri Kane ft. Kate Walsh – Right Back
+02. Gareth Emery ft. Christina Novelli – Concrete Angel
+03. Gareth Emery & STANDERWICK ft. HALIENE – Saving Light
+04. Above & Beyond ft. Zoë Johnston – No One On Earth (Gabriel & Dresden Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC36ECB5EFDA2ACDD19EE8274DD78CE6A0CBE7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832946   (246103) от 31.10.2025
+
+VA - Armin van Buuren - A State Of Trance 1249 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Skytech & Amber Revival - End Of Time
+02.	Joris Voorn x Goodboys - Utopia (Korolova Remix)
+03.	Above & Beyond - Sun In Your Eyes (Marsh Remix)
+04.	Krevix - Afterlight(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754BF488E3E0B66DDA2A315D1914DC543517794B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832961   (246082) от 31.10.2025
+
+VA - Ori Uplift - Uplifting Only Episode 664 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. REX.W - Viva La Amistad (Intro Mix)
+02. Roman Messer & Cari - Serenity (Alex M.O.R.P.H. Remix)
+03. Witness45 & Poonyk - Indiana (New World Remix)
+04. PRE-RELEASE PICK: Southdreamer - Miracle of Life (WORLD PREMIERE)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E9BA2BEC22CDE9FF353A338DA2DBC2EDE27119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449392   (245321) от 21.02.2021
 
 Tiesto - Tomorrowland Friendship Mix (2021-02-18) [MP3|320 Kbps] <House, Future House, Bass House>
@@ -511,238 +743,6 @@ VA - Armin van Buuren - A State Of Trance 1123 (2023) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36E9A0F2B7CF05F8D9E9F4D641EE02604D7D1276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445723   (238213) от 06.02.2021
-
-VA - Markus Schulz & Dan Thompson - Global DJ Broadcast (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyau & Albert – Runaway Girl
-02. Zack Evans – Skyborne
-03. DIM3NSION – I Fake A Smile
-04. F4T4L3RR0R – NovaЖанр: Trance, Progressive TranceПродолжительность: 02:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759D698D61C24166552F5FDE024D12CEA349C643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640124   (237633) от 16.06.2023
-
-VA - Armin van Buuren - A State Of Trance 1125 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Andrew Bayer ft. OLAN - Under Pressure (Andrew Bayer & Farius Remix) (ANJUNABEATS)
-02.	Above & Beyond - VLEKNO (ANJUNABEATS)
-03.	UUFO - Energize ARMIND (ARMADA)
-04.	MRPHLNDR - Medusas Mayhem ASOT (ARMADA)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1320699BAA4F7477AC7C5222529A0D6BDA93A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631326   (236373) от 06.05.2023
-
-VA - Armin van Buuren - A State Of Trance 1119 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Williams – The Imperial March (Darth Vader’s Theme / Alex M.O.R.P.H. Intro Edit) (RSO)
-02. Luke Bond X M6 – Nexus (Original Mix) (Armada)
-03. D72 – Our Darkness (Original Mix) (Armada Captivating)
-04. Armin Van Buuren feat. Stuart Crichton – Dayglow (Bryan Kearney Remix)Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459B8F81783DEC875252D4AB6D8FEE28E277F66B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536604   (235122) от 12.03.2022
-
-Nicky Romero & Tim van Werd & Timmo Hendriks - Protocol Radio 500 (2022-03-10) [MP3|320 Kbps] <Progressive House, House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicky Romero & Almero - So Much Love
-02. Nicky Romero & Low Blow - Higher
-03. Tommy Trash & Wax Motif - HEX
-04. ID - ID w/Whitney Houston - It's Not Right But It's Okay (Acappella)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F984734EAF19BD414570F1FA2BFBF471879B6CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632841   (234573) от 14.05.2023
-
-VA - Armin van Buuren - A State Of Trance 1120 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane feat. The Mannequin – Summer In E Major (Original Mix) (Modena)
-02. Tune Of The Week: Armin Van Buuren & HRRTZ feat. Julia Church – Fire With Fire (Original Mix) (Armind)
-03. Progressive Pick: BetweenUs – Escape (Original Mix) (Armind)
-04. The Blizzard – Kalopsia (Matt Fax Remix)Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36772CC3C62836E89A96ABC7C53AE3AE60360F95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644905   (232998) от 08.07.2023
-
-VA - Armin van Buuren - A State Of Trance 1128 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Motive (Club Mix) (Future Favorite)
-02. Tyler Jack - We Feel
-03. Dekkai - Firmament
-04. Protoculture - Infinity(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32B9D81B7BE0803EE9B64CAF04FAFF5992F0B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641649   (232796) от 01.07.2023
-
-VA - Armin van Buuren - A State Of Trance 1126 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren – Motive (Armin Van Buuren Club Mix) (Armind)
-02. Armin Van Buuren feat. Sharon Den Adel – In And Out Of Love (Innellea Remix) (Armada)
-03. Armin Van Buuren & The Stickmen Project – No Fun (Öwnboss Remix) (Armada)
-04. Shouse & David Guetta – Live Without Love (Armin Van Buuren Remix) (Hell Beach)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CFC10D0BD741127F7FF83402FE59C0E1C3E51D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646368   (231886) от 16.07.2023
-
-VA - Armin van Buuren - A State Of Trance 1129 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	TUNE OF THE WEEK: Armin van Buuren feat. Sharon Den Adel – In And Out Of Love (Innellea Remix)
-02.	Armin van Buuren – Motive (7 Skies Remix)
-03.	PROGRESSIVE PICK: BetweenUs – Escape
-04.	Alex Sonata & TheRio – Mantra(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98118319C1105CDEE829986393F331A739E30BA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1615946   (1036991) от 28.02.2023
+
+Freddie Hubbard - The Artist Selects (1960 - 1966) 2005, EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Core [9:26]
+02. Crisis [8:31]
+03. Up Jumped Spring [9:41]
+04. Prophet Jennings [5:30](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA14BF51B084EFBD1925D93B55F3A240404472C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615944   (1036986) от 28.02.2023
 
 Joe Zawinul Trio - To You With Love (1959) 2005, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
@@ -713,35 +742,6 @@ Dinah Washington - After Hours With Miss "D" (1953, 1954) 2004, Verve Records [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:900D9D59BCA8FE1518184C5D1A7D3073568D66FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617059   (1035621) от 05.03.2023
-
-Dinah Shore - Fascination: The Encore Collection (1950-e) 1997, BMG Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fascination [2:59]
-02. I Could Have Danced All Night [2:29]
-03. Deep Purple [2:51]
-04. I'll Walk Alone [2:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F6CF7ECB9731EA51A8BC2C4112DE724FCBCC6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

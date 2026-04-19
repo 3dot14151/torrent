@@ -1,3 +1,32 @@
+###  Публикация: 1328776   (356410) от 03.10.2019
+
+The Heavy Horses - Murder Ballads & Other Love Songs (2012) [MP3|320 Kbps] <Country, Folk, Acoustic>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:22
+02. Anyone Can Tell 05:16
+03. Copper & Gold 03:13
+04. Into The Earth 03:34(   Читать дальше...   )Жанр: Country, Folk, AcousticПродолжительность: 00:41:25 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8179856F11F09565BB3F6C0E775A04B9F7004B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952421   (355860) от 01.11.2015
 
 VA - In the Name of the Blues (2015) [MP3|320 кб/с]<Blues, Blues Rock>
@@ -713,35 +742,6 @@ VA - Blues for Christmas (2020) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C09F236E1D4E8F25082BBE6B873E28D58864533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183105   (311908) от 12.11.2017
-
-VA - Blues Collection 13 (The End) (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Lonely Boys - Orale  (03:46) 
-02. The Harpoonist & The Axe Murderer - Father's Son  (03:19) 
-03. Gonzales Tino & Los Reyes - Cloak Of Misery  (06:46) 
-04. Jon Amor - In The Devil's Back Yard  (04:15) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03617B8C9E4526DC3659456EFF979CED5839B51
 ```
 
 https://mybot314.ru/tekegram_catalog/

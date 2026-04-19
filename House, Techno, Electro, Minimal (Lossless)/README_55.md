@@ -1,3 +1,203 @@
+###  Публикация: 1370278   (238747) от 28.06.2021
+
+Biodub - Discography 21 Releases (2008-2021) Ki Records, Tiefenrausch [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unterfluss (08:07)Тип издания: CD, WebЖанр: Dub Techno, Dub, Ambient •Продолжительность: 07:39:47 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1864BFF353EBDD8F0CEF1FD65B580D42B5CAE577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549132   (237338) от 05.05.2022
+
+Виктор Цой - Ремиксы (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Печаль (Dj Hitretz Remix) (6:34)
+ 02. Звезда по имени Солнце (DJ Vini Remix) (5:51)
+ 03. Спокойная ночь (DJ Karas & DJ Mar Dee Remix) (5:52)
+ 04. Печаль (DJ Shevtcov & DJ Gallin Remix) (3:42)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73DD5CE2FB85E06E2DEBAF7A14FFAC0D8D6F438D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640815   (237031) от 19.06.2023
+
+TWO LANES - Duality (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lo-Fi, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Realization (2:28)
+ 02. Belong (5:10)
+ 03. Elements (6:15)
+ 04. Healing (4:12)(   Читать дальше...   )Жанр: Chill House, Lo-Fi, Deep HouseПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AB0B84E5135B108DB51A558B56CA4DCFA09212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632932   (234657) от 13.05.2023
+
+Bob Moses - The Silence in Between (Remixed) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Deep House, Hardcore House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanging On (CRi Remix) (5:26)
+ 02. Love Brand New (Eagles & Butterflies Remix) (4:41)
+ 03. Love Brand New (Vintage Culture Remix) (3:52)
+ 04. Afterglow (Kasablanca VIP Remix) (4:58)(   Читать дальше...   )Жанр: Electro House, Deep House, Hardcore HouseПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24E3CCBCF631A767C7EAF8029AE9E0FD9995735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634267   (233613) от 19.05.2023
+
+Daft Punk - Random Access Memories (2013) 2CD, 2023 - 10th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive pop, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233613.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Give Life Back to Music
+02. The Game of Love
+03. Giorgio by Moroder(   Читать дальше...   )Жанр: Electronic, Progressive pop, Disco |Продолжительность: 01:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043AD0A940522F842140B1D01366EDF688461D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634800   (233034) от 22.05.2023
+
+VA - Workout Hits 2023. 40 Essential Hits For The Practice Of Your Favorite Sport [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teknova - Weekend 2K23 (2:15)
+02. Stephan F - The Real One (3:09)
+03. MaxRiven - Back To The 2000s (2:27)
+04. Turbotronic - Do The Dance (2:41)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A4D0E2F0E0E53BD64F98F45A486073A4FAA9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634896   (233013) от 23.05.2023
+
+The Timewriter - Dear Human Being (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only Way (2:23)
+ 02. Clean My Heart (5:06)
+ 03. One Blood (3:41)
+ 04. The Mechanics of Oppression (4:23)(   Читать дальше...   )Жанр: EDM, Deep House, Tech HouseПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C1552A724D84D96A1379324DF5F83AFD2C5250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483545   (232954) от 26.05.2022
 
 Chab - Dub, Edits & Whisky-Coke (2005) [FLAC|Lossless]<House>
@@ -542,209 +742,6 @@ VA - Utopia (2017) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C042F38E4F41580106730E17EF6F04A5309FC751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513816   (221318) от 01.12.2021
-
-VA - Vocal House Essentials (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lopi Native - Let Me Love You (Indy Lopez Remix) (06:41)
-02. KaiMack - Magic (06:02)
-03. Claire Wakeman - Addicted To You (Indy Lopez Remix) (05:29)
-04. Naked Flame - Follow You (Vocal Mix) (04:07)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B33870327DA3B6642723766F622331F1B2B0CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425688   (220589) от 21.11.2020
-
-Marsh - Lailonie (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Dancefloor>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florence (5:06)
- 02. Lailonie (3:46)
- 03. Amor (by Marsh & Wassu) (4:22)
- 04. My Stripes (Ft. Leo Wood) (4:27)(   Читать дальше...   )Жанр: Melodic House & Techno, DancefloorПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFEDCA89310814F6D29AC42D3BFC9A77C80168E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585496   (220524) от 23.10.2022
-
-VA - ADE Inspirations (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gux Jimenez -  Scuti  (8:27)
-02.  Bootes Gray -  La Esencia  (4:56)
-03.  Teiao -  Beginning (Fat&Gordo Remix)  (7:45)
-04.  Soulmade (AR) -  Robot Device  (7:31)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934A59473C9B65B5974FFA61E69B4CED574EAD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585519   (220452) от 23.10.2022
-
-Fejka - Hiraeth (2022) LP [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Deep House, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Glitters (6:27)
- 02. Hiraeth (feat. Kim Van Loo) (5:00)
- 03. Pulsing (4:01)
- 04. Shades of You (4:42)(   Читать дальше...   )Жанр: Melodic House & Techno, Deep House, Ambient, LPПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D68B5E2750CD4E78EFA26DDC59549EFF4AA51B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084689   (218219) от 19.12.2016
-
-Mylene Farmer - Remixes (2004) [FLAC|Lossless|tracks + .cue] <Progressive House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sans Contrefaçon (J.C.A. remix) (5:57)
- 02. L'Instant X (The X Key mix by One-T) (3:44)
- 03. L'Âme-Stram-Gram (Full Intention Sultra mix) (8:01)
- 04. C'est une belle journée (Devil Head remix) (5:15)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BE7E734F0383C8AF6D5F788C62788CE584FCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586386   (216972) от 26.10.2022
-
-Fejka - Reunion (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Deep House, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn (1:27)
- 02. Reunion (feat. Marie Angerer) (4:56)
- 03. Youth (3:53)
- 04. Svanur (feat. Rökkurró) (4:57)(   Читать дальше...   )Жанр: Melodic House & Techno, Deep House, AmbientПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E428EEFF33E1E17FF047C86FFCBBD2AE0545BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852438   (215999) от 25.12.2014
-
-ONUKA - Look EP (2014) [FLAC|Lossless]<Electronic, Downtempo, Electropop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Met You
-02. Look
-03. Misto
-04. Time(   Читать дальше...   )Жанр: Electronic, Ethno, Downtempo, ElectropopПродолжительность: 00:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1D851E258E8ED243B1C8CF19A7E3400BAD2181
 ```
 
 https://mybot314.ru/tekegram_catalog/

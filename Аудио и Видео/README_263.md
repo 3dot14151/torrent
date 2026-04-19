@@ -1,3 +1,198 @@
+###  Публикация: 1517126   (163606) от 14.12.2021
+
+VA - Electro Swing Party by Bart&Baker, Vol. 4: The Cover Session (2021) [AAC|~322 Kbps] <Broken Beat, Nu Jazz, Electro Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bart&Baker, Minnie Valentine - Last Night a DJ Saved My Life (3:54)
+02. Swingrowers - Pump up the Jam (3:48)
+03. Pisk - Horny (Electro Swing Version) (3:29)
+04. Betty Booom, Slim Khezri, The Hebbe Sisters - Billie Jean (Electro Swing Mix) (3:07)(   Читать дальше...   )Жанр: Broken Beat, Nu Jazz, Electro SwingПродолжительность: 01:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3AD42EE66A0A3D510BF266D3E9672070806FECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517122   (163564) от 14.12.2021
+
+VA - Electro Swing Party by Bart&Baker, Vol. 1 (2018) [AAC|~327 Kbps] <Broken Beat, Nu Jazz, Electro Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papa Django - Back&Beat (3:07)
+02. Varrick Frost - Sweet Dreams (4:24)
+03. Klischee - Mais non (1920 Version) (3:12)
+04. Bart&Baker, The Rasputin Orchestra - Shéhérazade (5:15)(   Читать дальше...   )Жанр: Broken Beat, Nu Jazz, Electro SwingПродолжительность: 01:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5942BE366DE506520249BDE43D638C5C2916FD8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517191   (163555) от 14.12.2021
+
+Владимир Асмолов - Трилогия (2013) [AAC|~322 Kbps] <Chanson>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163555.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Интро (0:31)
+1.02. В кинозале темном (3:12)
+1.03. Рэкетмены (4:17)
+1.04. Призрак капитализма (3:02)(   Читать дальше...   )Жанр: ChansonПродолжительность: 03:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:605BEC8810532793E417172D494FAE0E99DE1CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432480   (163531) от 17.12.2020
+
+Довод / Tenet (2020) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163531.jpg" />
+</div>
+
+
+###  Подробнее
+
+После теракта в киевском оперном театре агент ЦРУ объединяется с британской разведкой, чтобы противостоять русскому олигарху, который сколотил состояние на торговле оружием. Для этого агенты используют инверсию времени - технологию будущего, позволяющую времени идти вспять.Производство: Великобритания, США, Syncopy, Warner Bros.Жанр: Фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Юрий Колокольников, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: 02:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72096042D93E1AA9473DF717D549175A8A1AD3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517198   (163521) от 14.12.2021
+
+Владимир Асмолов - Мы пришли из снегопада (2021) [AAC|~320 Kbps] <Chanson>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы пришли из снегопада (3:21)
+02. Времени река (3:00)
+03. Случайный роман (3:45)
+04. Мы стали бывшими (3:48)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F29841CDED5ECDE74F6A3FFDDA90E7EF47D7C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346541   (163483) от 19.12.2019
+
+Апокалипсис сегодня / Apocalypse Now (1979/2001) BDRip [1080p] ATV [Redux version]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время войны во Вьетнаме спецагент отправляется вверх по реке в Камбоджу с приказом найти и убить полусумасшедшего полковника, создавшего в отдаленном районе нечто вроде собственного королевства насилия. По пути он становится свидетелем мира ужасов войны.Производство: США / Zoetrope StudiosЖанр: Драма, ВоенныйРежиссер: Фрэнсис Форд КопполаАктеры: Марлон Брандо, Мартин Шин, Роберт Дювалл, Фредерик Форрест, Сэм Боттомс, Лоренс Фишбёрн, Альберт Холл, Харрисон Форд, Деннис Хоппер, Г.Д. СпрэдлинПеревод: Профессиональный многоголосый, авторский одноголосый
+присутствует ненормативная лексикаСубтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 03:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D0417CA1319C0B9BE18A4429C8B552B05C2F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517125   (163361) от 14.12.2021
+
+Агент 117: Миссия в Рио / OSS 117: Rio ne repond plus (2009) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163361.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе 1967 год. Десять лет спустя от своего первого приключения в Каире, шпион Юбер Бониссер де ля Бат, или же просто Агент 117, послан начальством в Рио-де-Жанейро, чтобы найти микрофильм, хранившийся ранее у одного нацистского высокопоставленного лица. Но наш агент совершенно случайно привлекает внимание агентов Моссада, израильской разведывательной службы...Производство: Франция / Canal+Жанр: боевик, комедия, криминал, приключенияРежиссер: Мишель ХазанавичусАктеры: Жан Дюжарден, Луиз Моно, Рюдигер Фоглер, Алекс Лутц, Рем Кериси, Пьер Бельмар, Кен Сэмюэлс, Серж Хазанавичус, Лорен Капеллуто, Чирилло ЛунаПеревод: ДублированныйСубтитры: русскиеПродолжительность: 01:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F74363A6A2379565EA42F3FE59D5AC253CF20C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517121   (163338) от 14.12.2021
 
 Агент 117: Вооружён и очень гламурен (Каир, шпионское гнездо) / OSS 117: Le Caire nid d'espions (2006) BDRip [1080p] ATV
@@ -534,209 +729,6 @@ VA - Sophisticated Jazzy Lounge, Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Chill Ou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CF7CA924C30A2A9F04B0B925F92D332FF381153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517810   (161729) от 17.12.2021
-
-VA - Sophisticated Jazzy Lounge, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Moonchild (Instrumental Mix) (4:24)
-02. FlyHigh - Happy Ness (Original Mix) (6:22)
-03. Lounge Groove Avenue - Smoking Jazz (Original Mix) (2:29)
-04. Kamill Le Jarvin - New Day (Original Mix) (3:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56F02742039E8E57F79211DCFF25AAAAB06FD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517809   (161728) от 17.12.2021
-
-VA - Sophisticated Jazzy Lounge, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Nuii (Original Mix) (3:50)
-02. Planet Sun - Track It (Lovin' Jazz Mix) (3:45)
-03. Mikis Theodorakis, Francesco Diaz - Lakis on the Beach (The Acid Jazz Tribute) (Original Mix) (5:57)
-04. Paolo Gonzalez - Music in the Air (Original Mix) (11:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70297D045F269837605065F2C87B6F6ACD6828E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517813   (161723) от 17.12.2021
-
-VA - Lakeside Chill Sounds - Autumn (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andre Wildenhues - Silent Beach (Original Mix) (4:35)
-02. Twentyeight - Stars (Bodean's Sunset Ashram Version) (5:32)
-03. Lemongrass - Cafe De Paris (Original Mix) (4:48)
-04. Twentyeight - The Journey (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A67ADADD30F482DF0B42459E8A326A2329F0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517815   (161720) от 17.12.2021
-
-VA - Anjunadeep The Remixes 2021 (2021) [AAC|~327 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161720.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Lakou Mizik, Joseph Ray - Sanba Yo Pran Pale (DJ Koze Remix) (10:48)
-1.02. Alan Fitzpatrick, Lawrence Hart - Warning Signs (CamelPhat Remix) (3:14)
-1.03. Eli & Fur - Come Back Around (Maya Jane Coles Remix) (3:42)
-1.04. CRi - Stranger (DJ BORING Remix) (4:35)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E046FDE439872B741A53C8272985976978069A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517850   (161717) от 17.12.2021
-
-VA - The Yearbook 2021 (2021) [AAC|~337 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Spirit, Spieltape, Oliver Schories - To The Sea (Oliver Schories Remix) (7:19)
-02. Ralf Urland - Activity (Dave Pad Remix) (7:21)
-03. Dj Skif - Unique (6:33)
-04. Anturage, S.Samo - Evolving Flow (6:29)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610194CCF5BAD3C09F15068C3C555FCD7622D6B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517847   (161706) от 17.12.2021
-
-VA - Hoom Side of the Moon, Vol. 02 (2021) [AAC|~334 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyler Mesa - Saharan Dawn (6:00)
-02. Emegepe - Tulum (8:40)
-03. Juan Deminicis - Ivan the Bigger (6:56)
-04. Balad - Still (7:12)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A01ABCA79372DEBCFB3D160B47598B22EB0600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517845   (161704) от 17.12.2021
-
-VA - Hoom Side of the Moon, Vol. 01 (2021) [AAC|~335 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Onetreeevn - Leaving the City (7:15)
-02. Different Ray - Inner Child (6:40)
-03. Beije - Tabernas (7:20)
-04. Armen Miran, Felix Raphael - Ghost (7:57)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275010A2A863F31B3A6EBF26FF49E1A76017B90D
 ```
 
 https://mybot314.ru/tekegram_catalog/

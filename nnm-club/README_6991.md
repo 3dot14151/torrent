@@ -1,18 +1,212 @@
-###  Публикация: 1214487   (781338) от 19.06.2020
+###  Публикация: 1389949   (783672) от 13.06.2020
 
-Tom Clancy's Rainbow Six: Siege (2015) [Ru/Multi] (14457777/dlc) UplayRip =nemos= [Ultimate Edition + HD Texture Pack]
+VA - Goa, Vol.72 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 
->>
->>
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tom Clancy's Rainbow Six: Siege - разрабатываемый шутер от первого лица. Игра фокусируется на командную игру и реализм. Тем не менее, существуют значительные различия со старыми версиями игры. Шутер фокусируется на многопользовательской игре и отличается разрушаемым окружением. Tom Clancy’s Rainbow Six® Осада – новая часть всемирно известной серии шутеров от первого (   Читать дальше...   )Тип издания: UplayRipРазработчик: Ubisoft MontralЖанр: Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+1. Morrisound - Sound of Peace (6:21)
+2. Flowjob - Beatpolar (7:32)
+3. Microlin - What I Really Need (8:29)
+4. Inner State - Zero Point (Trycerapt Remix) (7:44)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D57F844D2E44C24A3DADC1C420044D263540056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390043   (783671) от 13.06.2020
+
+VA - Music for You vol.5 (2020) [MP3|320 Kbps] <Rock, Metal, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Joseph - I Just Wish (05:59)
+ 02. Andy Timmons - The Prayer(The Answer) (04:53)
+ 03. Arkentype - Drawning (05:29)
+ 04. Dream Theater - Act Of Faythe (05:01)(   Читать дальше...   )Жанр: Rock, Metal, Progressive MetalПродолжительность: 02:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33602D70DC9BAEEC4C851D12E13BD5C71BA72677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390076   (783670) от 13.06.2020
+
+Суад Мехеннет | Мне сказали прийти одной (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783670.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении всей своей жизни Суад Мехеннет, репортер The Washington Post, родившаяся и получившая образование в Германии, должна была балансировать между двумя сторонами ее жизни: мусульманским воспитанием и европейской жизнью. Она всегда пыталась выстроить мост между мусульманской и европейской культурой, пытаясь примирить тех, кто никак не может услышать и понять (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаПеревод: Виктория КраснянскаяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CEADE8CAE1417C6D8454DFA4818867DB2436C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389943   (783669) от 13.06.2020
+
+VA - Mat Zo Presents: 20 Years Of Anjunabeats (2020) 3CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783669.jpg" />
+</div>
+
+
+###  Подробнее
+
+25. Michael Cassette – Zeppelin (extended mix) (08:37)
+26. Signalrunners – Meet Me In Montauk (extended mix) (09:20)
+27. Myon & Shane 54 – Not A Lot Left (extended mix) (08:19)
+28. Andy Moor – Fake Awake (Ecomix remix) (08:40)(   Читать дальше...   )Жанр: Electronic, Progressive House, Trance |Продолжительность: 01:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33D4CD76BBD4A6B714C948D5739B4E1E1B0AF75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389913   (783668) от 13.06.2020
+
+SQWOZ BAB - BODY LANGUAGE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. КУСЬ [02:19]
+02. НЕ БАБУШКА [03:03]
+03. ОЙ [02:37]
+04. THAI TRAP [02:33](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B9C915BE24B6410A2D5FE96F40674CB8F4862E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389988   (783667) от 13.06.2020
+
+Главная дорога (13.06.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смертельная авария Михаила Ефремова заставила всех яростно спорить — будет ли актер показательно наказан или его громкое дело «замнут»? Кто из звезд шоу-бизнеса не понес заслуженное наказание за управление автомобилем в нетрезвом состоянии? Не стать соучастником преступления: что делать, если увидели пьяного за рулем? Почему в Госдуме снова предлагают изымать у водителей (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E24916AAB5DF17A07279B1BEA6B289C034E216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390071   (783666) от 13.06.2020
+
+Лулу Тейлор | Снежная роза (2019) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт начала жизнь с чистого листа: изменила внешность, сбежав от семьи и друзей, переехала с дочерью в другой город. В старом особняке никто не знает, кто они и откуда. Мечта сбылась. Но любопытные соседки-старушки начинают интересоваться жизнью новоприбывших. Много лет назад в пустых комнатах и темных коридорах особняка произошли странные события, и пожилые дамы (   Читать дальше...   )Жанр: Современные детективы, ТриллерыПеревод: Владимир СкоробогатовФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968E3ED9A0F0E9D8CF577C8404475D9AFC0FCEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389969   (783665) от 13.06.2020
+
+Андрей Добров | Резня на Сухаревском рынке (2020) [MP3, Андрей Леонов]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие романа «Резня на Сухаревском рынке» разворачивается в Москве, в 1879 году. В доме коллекционера М.Ф. Трегубова происходит ограбление. Один из бандитов насилует племянницу Михайлы Фомича и ради развлечения забирает со стола девушки маленькую дешевую шкатулку. Казалось бы, вещица ничего собой не представляет, однако за ней начинается настоящая охота… Расследовать (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 09:30:32
 
 ## Скачать торент
 ```bash
@@ -24,86 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206892   (781337) от 16.02.2018
+###  Публикация: 1390045   (783664) от 13.06.2020
 
-VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugarboys - Nah Nah Nah (Original Mix)
-02. Adam Walker - Pump It (Original Mix)
-03. Nicole Palmer - Little Divine (Original Mix)
-04. Recovery Mafia - Make Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8095DFD9CC7FFAABBFBBC3437147689CCD7CAD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206956   (781336) от 16.02.2018
-
-Abney Park (Эбни Парк) - Taxidermy (2005) Not On Label [MP3|320 Kbps] <Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The Wake (2005 Mix) 5:33
-02. New Black Day 4:50
-03. The Change Cage (2005 Mix) 4:00
-04. White Wedding 3:48(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEE1CEC50A241061B1054BA81871971E78A0D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206915   (781335) от 16.02.2018
-
-Jakob Lindhagen - Paces (2017) Feeder [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient>
+Registry Life 5.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kenopsia (04:20)
-02. Shelter (05:09)
-03. The Tipping Point (04:41)
-04. Forgotten (02:51)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:43:50
+Registry Life - программа от разработчика Reg Organizer, служит для обслуживания реестра для повышения быстродействия и надёжности работы в среде Microsoft Windows. Производит анализ целевой системы на выявление с дальнейшим исправлением ошибок в системном реестре.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D410D764C9CD43A2C9F27A52571C91229B183B42
+magnet:?xt=urn:btih:56B173F345823C586ED47F3A0F135C0A100B7531
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,575 +244,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206562   (781334) от 16.02.2018
+###  Публикация: 1389872   (783663) от 13.06.2020
 
-VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Deep House, Hip-House, Garage House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Nightwriters - Let The Music (Use You) (Original Mix) (8:11)
-02.Sterling Void & Paris Brightledge - It's Alright (Original 12'House Mix) (6:51)
-03.Adeva - Respect (Extended Mix) (7:32)
-04.Chanelle - One Man (One Mix) (7:45)(   Читать дальше...   )Жанр: Acid House, House, Disco, Deep House, Hip-House, Garage HouseПродолжительность: 02:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206920   (781333) от 16.02.2018
-
-LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change (05:57)
-02. Tape Loops (05:28)
-03. Enchantment (03:25)
-04. Rise (06:31)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081F191F448A713A007D5AC224AFA2231C5BB4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206955   (781332) от 16.02.2018
-
-KCNcrew Pack 15.02.2018 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781332.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и регулярно обновляется!
-
-База серийных номеров проекта KCNcrew по состоянию на середину февраля 2018 года.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2018Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5CAA4AA02417419869A077072D6DA810F4B94C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206972   (781331) от 16.02.2018
-
-Abney Park (Эбни Парк) - Ancient World (2012) Not On Label [MP3|320 Kbps] <Rock, Folk, World&Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Steampunk Revolution 3:17
-02. Scupper Shanty 2:56
-03. The Story That Never Starts 4:08
-04. Ancient World 4:30(   Читать дальше...   )Жанр: Rock, Folk, World&CountryПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74835CCF40CD43160FC2E80918F448E2F954BA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206889   (781330) от 16.02.2018
-
-VA - Music For Everyone - Trance Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cyre & DJ T.H. - Salida Del Sol (Original Mix)
-2. Kajis feat. Ylona - Way Back Home (Taival Remix)
-3. RAMiNiO - Confession (Extended Mix)
-4. Sunlight Project - Desert Flower (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57604BC1B24CDFF6EE6A2C6E029998E1AD765595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206964   (781329) от 16.02.2018
-
-Abney Park (Эбни Парк) - The End Of Days (2010) Not On Label [MP3|320 Kbps] <Industrial, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The End Of Days 3:25
-02. Neobedouin 3:41
-03. The Wrath Of Fate 3:05
-04. I've Been Wrong Before 2:55(   Читать дальше...   )Жанр: Industrial, FolkПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA4A30173E46C8E780A7C340E64D1C290F8350F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206910   (781328) от 16.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Мужчины. Могул. 2-я Квалификация (12.02.2018) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781328.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 февраля 2018 года, понедельник. 13:30 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Фристайл. Мужчины.
-Могул. 2-я Квалификация(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00FA7C4B18679E631466DE6C11779291EEECBBD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207062   (781327) от 16.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Женщины. Трамплин HS-109. Финал (12.02.2018) IPTV [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781327.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 февраля 2018 года, понедельник. 15:50 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Прыжки с трамплина. Женщины.
-Трамплин HS-109. Финал(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7623F68B95A20F9D476C01502ECC056914065F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206936   (781326) от 16.02.2018
-
-VA - 120 DJ Neoprint: Trance Project (2018) [MP3|320 Kbps] <Progressive, Vocal, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781326.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Estiva & Justin Oh - Reach For The Sky
-002. Marc Van Gale - Mumbai Taxi (Original Mix)
-003. Emanuele Braveri - Destination Summer (Original Mix)
-004. Activeblaze - Last Day(   Читать дальше...   )Жанр: Progressive, Vocal, Uplifting TranceПродолжительность: 13:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3809C1907A7350628E0286B1BDE20992884361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207028   (781325) от 16.02.2018
-
-White Wing - White Wing (1976) Remastered, 2017, PROGAOR [MP3|320 Kbps] <Prog Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781325.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hansa (Cygnus)
-2. Patent Leather
-3. Slave
-4. Wait Till Tomorrow(   Читать дальше...   )Жанр: Prog Rock, Hard RockПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02BA2DF4413EE368BAF98DCA87E29438584A638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206766   (781324) от 16.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Биатлон. Женщины. Гонка преследования (12.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781324.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 февраля 2018 года, понедельник. 13:10 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Биатлон.
-Женщины. Гонка преследования 10 км(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CC357A906516F356CA759294364CEFBCC4A1D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206961   (781323) от 16.02.2018
-
-VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Metamorph  -  Wash Your Pain Away (feat. Shelley Sheree) (Original Mix)  7:05
-02.  Leonety  -  Le Lis Blanc (Original Mix)  7:06
-03.  Luvmac  -  Daybreak (Original Mix)  6:26
-04.  Niklas Grosswald  -  Daybreak (Nuestro Remix)  6:21(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 02:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49F6B1B3D0DA41A444FAB5802F7E3FABA714575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207047   (781322) от 16.02.2018
-
-Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781322.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 L'amas d'chair
-2 Aie
-3 Soirees parisiennes
-4 Toi qui m'ecoutes(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206921   (781321) от 16.02.2018
-
-VA - Erased Tapes Collection VIII (2017) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Contemporary, Avantgarde, IDM, Modern Classical, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allred & Broderick - The Ways (03:08)
-02. Penguin Cafe - Cantorum (07:22)
-03. Daniel Brandt - Kale Me (06:30)
-04. Rival Consoles - Slow Song (03:52)(   Читать дальше...   )Жанр: Contemporary, Avantgarde, IDM, Modern Classical, AmbientПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4139825AD30EBE02B9D443C3838DE8DA3D180178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206893   (781320) от 16.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. 1/2 финала. Россия (ОАР) — Швейцария (12.02.2018) IPTV [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781320.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 февраля 2018 года, понедельник. 14:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. 1/2 финала.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B9A1DE3E603C067247F322714FE4A07003F51B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206944   (781319) от 16.02.2018
-
-VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dave202  -  Open Up Your Heart (Original Club Mix)  4:26
-02.  Dave202 & Gino G  -  Along With You (Extended Mix)  4:33
-03.  Dave202 & Gino G  -  Like An Animal (Club Mix)  4:15
-04.  Dave202  -  Kimura (Original Club Mix)  4:44(   Читать дальше...   )Жанр: House, Future House, Big Room, Electro HouseПродолжительность: 02:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655303D3294844E7536DF1F99C4118757935B34A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206959   (781318) от 16.02.2018
-
-Abney Park (Эбни Парк) - The Death Of Tragedy (2005) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Stigmata Martyr 5:05
-02. The Wrong Side 3:31
-03. Dear Ophelia 4:51
-04. Witch Cult 0:25(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA49C1DD22F6AFC12A5F72E77C50306F05E9550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206914   (781317) от 16.02.2018
-
-VA - Deep Progressive House Set | Mixed by Johnny M (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny M - Deep Progressive House Set (Dj Continuous Mix) (2:01:36)
-02. Nahuel Carrizo - Blind in the Mist (Original Mix) (8:44)
-03. Robert R. Hardy - Sensus (GMJ Rmx) (9:14)
-04. Robert R. Hardy - Chasing Pleasure (Silinder Rmx) (9:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98CA3BA4109400723AEED5866D75D37527ECCA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206663   (781316) от 16.02.2018
-
-Anderva - Boarding Pass Festival DJ Contest (2018) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anderva Intro Edit w/ Galantis - Runaway (Acapella)
-02. Nicky Romero & Teamworx vs. Linkin Park - Champion Sound vs. In the End (Steady Mashup)
-03. Jose De Mara & Crusy Ft. Chipper - Believe (Original Mix)
-04. Florian Picasso & Tom Tyger - Mamo (Original Mix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F088DC9889877D3EA2FCF312C63AD840CFB42EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206902   (781315) от 16.02.2018
-
-Виктор Лихачев | Единственный крест (2018) [MP3]
+Мишель Бюсси | Следы на песке (2020) [MP3, Кирилл Радциг]
 
 >>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что чувствует человек, потерявший память? Герой новой книги Виктора Лихачева попадает в автокатастрофу. В попытках вспомнить себя и свою прошлую жизнь, он побывает во многих уголках России, встретит свою любовь, станет участником удивительной и даже опасной истории. Но самое главное - он поймет, что каждый человек несет свой крест, без которого невозможна дорога (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:28:22
+Мишель Бюсси «Следы на песке» – остросюжетный психологический роман от мэтра современного детектива. Июнь 1944-го. Рядовой Лаки гибнет во время Высадки на нормандском пляже. Двадцать лет спустя его невеста Алиса, продолжающая хранить верность погибшему возлюбленному, узнает о безумном договоре, заключенном за несколько часов до кровавой бойни. И в жизни ее появляется (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:16:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAF3EFE695193A7C8FB6AFC8D1E2B944C7F5D133
+magnet:?xt=urn:btih:D22A184DCF374CB8C35C2BB935A7B283194649D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,28 +270,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207034   (781314) от 16.02.2018
+###  Публикация: 1390067   (783662) от 13.06.2020
 
-Abney Park (Эбни Парк) - The Circus At The End Of The World (2013) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
+Matisyahu - Great Artists of My Heart Vol. 06 (2020) [MP3|320 кб/с]<Reggae>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The Circus At The End Of The World 3:44
-02. Blowing Off Steam 3:53
-03. The Anthropophagists' Club 3:38
-04. Follow Me If You Want To Live 3:23(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:47:05
+|03:46| 01. Matisyahu - Chop 'Em Down
+|03:59| 02. Matisyahu - Fire Of Heaven / Altar Of Earth
+|04:19| 03. Matisyahu - Youth
+|03:25| 04. Matisyahu - Smash Lies(   Читать дальше...   )Жанр: ReggaeПродолжительность: 03:14:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A723EB1EC417FF7705462E629AE7ADEB0FE54454
+magnet:?xt=urn:btih:EE75F0DCAD62A495677509E27A8CC0F7E80B7BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -716,28 +299,404 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206792   (781313) от 16.02.2018
+###  Публикация: 1390034   (783661) от 13.06.2020
 
-Nina Zilli - Modern Art (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+М. Елифёрова | #панталоныфракжилет: Что такое языковые заимствования и как они работают (2020) [PDF, EPUB]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Senza Appartenere
-02. Domani Arrivera (Modern Art)
-03. Ti Amo Mi Uccidi
-04. 1xUnAttimo(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:17
+Что такое языковые заимствования? Эта тема, несомненно, волнует каждого из нас. Ее обсуждают в школе, в учебниках, в научной литературе и на интернет-форумах. Вместе с тем популярные экскурсы в область заимствований, выходящие в России, сводятся по большей части к теме иностранных слов в русском языке. А вот что такое заимствование вообще, по каким признакам мы его (   Читать дальше...   )Жанр: Филология, История, КультураФормат: PDF, EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDC0270397B50592FFFE42D57B2826FFEE08D7E1
+magnet:?xt=urn:btih:18E6B15271BEB9A95465D0ECB1FED621AB2D1BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389985   (783660) от 13.06.2020
+
+Язык нации (Язык нашей страны) / Naratmalssami / The King's Letters (2019) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чосон, 1442 год. Король Седжон уже по горло сыт засильем иероглифов и даже молитвы Богам дождя велит читать на корейском. Изучив бесполезные китайские труды о фонетике, монарх приходит к выводу, что спасение стоит искать в фонетических буквенных алфавитах, поэтому просит помощи у буддистских монахов, которые знают санскрит. Поскольку Чосон официально считается конфуцианской (   Читать дальше...   )Производство: Южная Корея / Doodong Pictures, Megabox Plus MЖанр: Биография, история, драмаРежиссер: Чо Чхоль-хёнАктеры: Сон Кан-хо, Пак Хэ-иль, Чон Ми-сон, Ким Джун-хан, Чха Рэ-хён, Юн Джон-иль, Тхан Джун-сан, Кым Сэ-рок, Лим Сон-джэ, Чхве Дон-мунПеревод: ФСГ ZipperСубтитры: Английские, польскиеПродолжительность: 01:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01889FA70C48665932739F95B71DF179B2D3C402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389931   (783659) от 13.06.2020
+
+Протоиерей Андрей Ткачев | Живое слово. Библия про наши радости и беды (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня Библию открывают как terra incognita – как неизвестный материк. Читая ее, можно прийти в настоящий восторг от ощущения счастья, что есть такая книга, и разговаривать о ней с людьми. По дороге на работу думать о прочитанном, прислонившись головой к оконному стеклу в трамвае или троллейбусе. Cмотреть вокруг, пока идешь пешком, прислушаться к тому, что говорят. (   Читать дальше...   )Жанр: Духовная литература, ХристианствоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB56F756EF6C08A8271B7717A4588F9E79BF371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390023   (783658) от 13.06.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 12.06.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead 2:32
+02. NRD1 - All Good Things (Come To An End) 3:27
+03. Tiesto & Jonas Blue feat. Rita Ora - Ritual 3:19
+04. Cream Soda & ХЛЕБ - Плачу на техно 2:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258421C335BED0EFC1FA9344C8C3511E0CBAE75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390028   (783657) от 13.06.2020
+
+Athentech Perfectly Clear WorkBench 3.10.0.1797 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C708926C0DF17C7A01A9C07A7168F109061DC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390003   (783656) от 13.06.2020
+
+Язык нации (Язык нашей страны) / Naratmalssami / The King's Letters (2019) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чосон, 1442 год. Король Седжон уже по горло сыт засильем иероглифов и даже молитвы Богам дождя велит читать на корейском. Изучив бесполезные китайские труды о фонетике, монарх приходит к выводу, что спасение стоит искать в фонетических буквенных алфавитах, поэтому просит помощи у буддистских монахов, которые знают санскрит. Поскольку Чосон официально считается конфуцианской (   Читать дальше...   )Производство: Южная Корея / Doodong Pictures, Megabox Plus MЖанр: Биография, история, драмаРежиссер: Чо Чхоль-хёнАктеры: Сон Кан-хо, Пак Хэ-иль, Чон Ми-сон, Ким Джун-хан, Чха Рэ-хён, Юн Джон-иль, Тхан Джун-сан, Кым Сэ-рок, Лим Сон-джэ, Чхве Дон-мунПеревод: ФСГ ZipperСубтитры: Английские - отдельным файломПродолжительность: 01:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8CCB7D28ED642B0DF85AFF89C66407CB3B8798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390054   (783655) от 13.06.2020
+
+Анатолий Терещенко | Щит и меч «майора Зорича» (2017) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783655.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Александра Белова (Йоганна Вайса) — главного героя фильма «Щит и меч» и одноименного роман был прототип — легендарный советский разведчик полковник Александр Святогоров, он же «майор Зорич». Вот только совершенные Йоганном Вайсом подвиги были вымышленными. Т. к. подробности проведенных «майором Зоричем» операций в то время все еще оставались секретными.
+В 1941 (   Читать дальше...   )Жанр: Биографии и мемуары, Военное дело, СпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF4D57664247D238DFAF1632115BB1E180C228A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390096   (783654) от 13.06.2020
+
+Михаил Иванов | Консультирование первых лиц компаний. Клиентцентрированный подход (2017) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783654.jpg" />
+</div>
+
+
+###  Подробнее
+
+М.А. Иванов – профессиональный консультант по управлению, прошедший вместе с российским бизнесом практически всю его бурную историю. Он убежден: внешняя профессиональная оценка организации, обратная связь полезны и необходимы любому руководителю.
+В книге рассмотрены все основные этапы консультирования: от маркетинга, заключения первого контракта, диагностики организации (   Читать дальше...   )Жанр: Менеджмент, Управление бизнесомФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED9268FAB697C0376F1CA2AEC4C89A6B78FDD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390078   (783653) от 13.06.2020
+
+Гарланд Новак | Генные манипуляции: теория заговора (2017) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие никогда не слышали о традиционных формах скрещивания и даже не подозревают о том, что каждый день едят фрукты и овощи, полученные путём гибридизации. Реальность нашей современной продовольственной системы такова, что довольно сложно определить, где заканчивается природа и начинается наука.
+Эта книга – повествование о спорах, мифах и правде вокруг трансгенных (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Алена ВиролайненФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A2BAD07C9A856844FD78CB8361715B307384B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390097   (783652) от 13.06.2020
+
+Роджер Мартин, Салли Осберг | Выходя за рамки лучшего. Как работает социальное предпринимательство (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783652.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге гуру стратегии Роджер Мартин и президент Фонда Scoll Салли Осберг описывают, как работает социальное предпринимательство и как такие проекты меняют жизни людей по всему миру.
+Агенты изменений – социальные инноваторы – разрушают привычный уклад несправедливости и выстраивают совершенно новый, масштабируя свои идеи. Эта книга полна историй о том, как даже (   Читать дальше...   )Жанр: Стартапы и создание бизнеса, Истории успехаПеревод: Н. ИнглишФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:026ECE183C832C4C14A9A0738144207728647D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390024   (783651) от 13.06.2020
+
+Игра цвета слоновой кости / The Ivory Game (2016) WEBRip [H.264/720p]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательный австрийский документальный фильм поднимает невероятно важную для современного мира проблему. В наше время вымирание видов различных животных, к сожалению, стало чудовищной нормой ужасающей реальности. Огромное количество удивительных живых существ погибают ежедневно на нашей планете, и конца этому просто не видать. Сокращение популяций диких зверей (   Читать дальше...   )Телекомпания: Австрия | Appian Way, Malaika Pictures, Vulcan ProductionsЖанр: ДокументальныйРежиссер: Киеф Давидсон, Richard LadkaniПеревод: Многоголосый профессиональный (HDRezka)Субтитры: Русские (hardsub) на надписиПродолжительность: 01:52:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389911   (783650) от 13.06.2020
+
+Scarlxrd - FANTASY VXID; SUMMER. (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WELCXME TX THE GULAG. [01:58]
+02. FXRCES. [03:39]
+03. HXPE FXREVER. [03:32]
+04. I LXST THE WILL TX WIN. [04:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CC187E771224B4DDB10F22F0C7882B580E9C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390012   (783649) от 13.06.2020
+
+Boris Brejcha - Chameleon (Live Stream Part 1) (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783649.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chameleon (7:50)
+2. Face Slap (8:58)
+3. Panic Room (7:43)
+4. The Final (6:49)Жанр: Tech House, MinimalПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90645F64B5E5A434F60B4619D265430B7DA009E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389999   (783648) от 13.06.2020
+
+Дженнифер Корнблит | Просто о сыром. Простые и изысканные рецепты сыроедной кухни для 1–2 человек (2018) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783648.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны рецепты вкусных и простых сыроедных блюд из доступных ингредиентов. Все блюда готовятся быстро и не требуют сложного оборудования. Из них можно составить полноценное меню на весь день, включая завтрак, обед, ужин и перекусы. Все рецепты снабжены таблицами пищевой ценности. Кроме того, в книге приводятся рекомендации по техникам обработки и хранению (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390098   (783647) от 13.06.2020
+
+И.И. Ульянова | Низкокалорийные блюда (2012) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Организм современного человека нуждается в продуктах с пониженным содержанием калорий. Такое питание укрепляет здоровье, помогает избежать болезней, замедляет старение. Низкокалорийный рацион является полноценным и сбалансированным, а блюда отличаются ярким, притягательным вкусом.
+В данную книгу вошло 28 иллюстрированных, снабженных подробным описанием рецептов – (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

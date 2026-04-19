@@ -1,164 +1,24 @@
-###  Публикация: 570056   (391270) от 04.11.2012
+###  Публикация: 1171440   (396475) от 04.10.2017
 
-[Wallpapers] Girls Desktop Wallpapers Pack 12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19955D30B131EDFBC6FCEF9A1C43CED8AFE61C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570047   (391268) от 04.11.2012
-
-[Wallpapers] Avto Desktop Wallpapers Pack 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391268.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Desktop Wallpapers Pack 3
-Название: Avto Desktop Wallpapers Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575AAD973785D151137F5E9456C6D144769177D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570044   (391267) от 04.11.2012
-
-[Wallpapers] Desktop Wallpapers Pack 17
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391267.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 17
-Название: Desktop Wallpapers Pack 17
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F1F63BB83FD428601CB1A678663CAC614A9691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570249   (391266) от 04.11.2012
-
-[Wallpapers] Avto Desktop Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391266.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Desktop Wallpapers Pack 4
-Название: Avto Desktop Wallpapers Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB0D3BBABEC420EA53727B2F8EE9E8A83B38FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570063   (391262) от 04.11.2012
-
-Журнал | Самая. Спецвыпуск №6 Звёздная любовь (ноябрь 2012) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спецвыпуск посвящен знаменитым людям и рассказывает о том, как складывались их семейные отношения.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC93D02897ED1779631A1F4C540717B0AE55404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173120   (391238) от 10.10.2017
-
-Comodo Dragon 58.0.3029.115 + Portable [Multi/Ru]
+Adobe Bridge CC 2017 (v7.0) x86-x64 Multilingual Update 1
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Быстрый браузер на базе технологии Chromium с дополнительными функциями, повышающими безопасность. Обеспечивает повышенную конфиденциальность, имеет технологию проверки доменов, которая идентифицирует и выделяет превосходящие сертификаты SSL из низших, останавливает куки и другие веб-шпионы, а также предотвращает все прослеживания загрузки браузера.Язык интерфейса: Русский, Английский, др.
+Adobe Bridge CC 2017 - организационная программа, предназначение которой связать части Creative Cloud вместе, используя интерфейс, похожий на файловый менеджер, который был в ранних версиях Adobe Photoshop. Он доступен практически из всех прочих приложений Creative Cloud. Adobe Bridge CC 2017 упростит вашу работу и поможет поддерживать порядок.
+
+Adobe Bridge CC 2017 (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EACEA34533389DD766DC4E8C5F1A74A226CBCE4B
+magnet:?xt=urn:btih:45E5C6A209619B1D4F971FC025932650A777EAA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172769   (391237) от 10.10.2017
+###  Публикация: 715644   (396454) от 26.10.2013
 
-Спортивная гимнастика. Чемпионат Мира 2017. Монреаль (Канада). Женщины. Личное многоборье. Финал (06.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Турбо / Turbo (2013) HDRip [H.264]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-07 октября 2017 года, суббота. 02:00 МСК
-Чемпионат Мира по спортивной гимнастике 2017. Монреаль (Канада)
-Женщины. Личное многоборье. Финал
-Стадион: 	Олимпийский (Монреаль, Канада)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:59:33
+Ничто так не раздражает темпераментную, мечтающую о скорости улитку с говорящим именем Турбо, как неспешная жизнь, медленные разговоры, заторможенные соседи. Пусть наш герой выглядит большим чудаком в этом вялом, неторопливом мире, пусть он идёт вопреки закону природы о «рождённом ползать», но если в сердце горит «пламенный мотор», а душа верит в чудо, оно просто не имеет право не произойти!Жанр: Мультфильм, СемейныйРежиссер: Дэвид Сорен ППерсонажи: Райан Рейнольдс, Пол Джаматти, Майкл Пенья, Луис Гузман, Билл Хейдер, Ричард Дженкинс, Кен Жонг, Мишель Родригес, Майя Рудольф, Мишель Родригес, Сэмюэл Л. Джексон ...Перевод: Дублированный (Лицензия)Язык субтитров: Русский, Украинский (sub), Английский (Full, SDH, SDH-Colored)Продолжительность: 01:36:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B7930B78C7854E2CEFC048936106B307C7CC7BE
+magnet:?xt=urn:btih:EC11EF9CD04E82A9B5C1B515D0B4C0E647947287
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,54 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173080   (391235) от 10.10.2017
+###  Публикация: 401146   (396371) от 17.10.2011
 
-GoodSync Enterprise 10.6.2.4 RePack (& Portable) by elchupacabra  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391235.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoodSync - программа из серии высоконадежного, удобного и простого в использовании программного обеспечения от компании Siber Systems - разработчика RoboForm. Программа автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно (   Читать дальше...   )Язык интерфейса: Русский, английский, украинский, белорусский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7CD513937E2A71C8EC1EB482103BD5AB81084D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172387   (391234) от 10.10.2017
-
-VA - Just Dance, The Dance (2017) [MP3|320 Kbps] <Trance>
+Yaroslav Kulikov - Once In A Dream (2011) [MP3|320 kbps]<Uplifting Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Veselin Tasev - Blue Sky (Extended Club Mix)  6:03
-02.  ToneArt - Star Chime (Original Mix)  7:11
-03.  Van der Karsten - Take Me Home (Single Edit)  3:41
-04.  Cryostasis - Never Ever (Enhanced Radio Edit)  3:04(   Читать дальше...   )Жанр: TranceПродолжительность: 06:06:31
+Жанр: Uplifting TranceПродолжительность: 01:26:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:190B2A05986DAD9BEC63F0C9FDAF3AABC90AD5CD
+magnet:?xt=urn:btih:10AFCB78BC83D68055729410DDD8BD88797C388F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,26 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173064   (391231) от 10.10.2017
+###  Публикация: 1026724   (396349) от 04.10.2017
 
-Hands Off! 3.2.4 [En]
+Landlord 2.0 [Ru/Multi]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hands Off! - контроль доступа в Интернет
-Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2017Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9.5 +Язык интерфейса: Английский
+Landlord (Помещик) - это как настольная игра Монополия, но в реальном мире. Это игра по торговле недвижимостью, которая позволяет покупать места на выбор из 50 млн. объектов по всему миру. Landlord превращает весь мир в доску для монополии и позволяет вам приобретать места, которые вы посещаете, а затем зарабатывать, сдавая их в аренду, когда люди посещают их в режиме (   Читать дальше...   )Тип издания: ЛицензияРелиз состоялся: 8 августа  2017 г.Разработчик: Reality Games LTDПоддерживаемая ОС: Android 4.0.3 и вышеЖанр: Simulation (Симулятор), Board game (Настольная игра)Язык интерфейса: Русский, английский, немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A16362F2633C557E6E46D0D0B053DAE8B1F9F1E6
+magnet:?xt=urn:btih:5652ABD2FF9ED5FF5E4F02213DF4B9B0419188A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,25 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 717249   (391207) от 01.11.2013
+###  Публикация: 1171084   (396343) от 04.10.2017
 
-Журнал | Тайны ХХ века [Украина] №42 (октябрь 2013) [PDF]
+My Little Pony в кино / My Little Pony: The Movie (2017) WEB-DL [H.265/1080p-LQ] [EN]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
+Король Шторм хочет лишить пони магии и захватывает Кантерлот. Под угрозой будущее всей Эквестрии! Чтобы остановить злодея, пони покидают родные края и отправляются в путешествие, полное чудес и опасностей. Им предстоит покорить волшебные горы, погрузиться в подводные миры и даже оказаться на летучем пиратском корабле!Производство: Канада, США, Lionsgate, Allspark Pictures, DHX MediaЖанр: Компьютерная анимация, Приключения, Музыкальный, ФентезиРежиссер: Джейсон ТиссенПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:39:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9F33665F2AF1B9C6CD19DF382CF610930F006F8
+magnet:?xt=urn:btih:FC66F8AF3A9D1BB19D2CA4738B348AD04733B764
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,30 +130,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570059   (391201) от 04.11.2012
+###  Публикация: 1171243   (396332) от 04.10.2017
 
-[Wallpapers] Desktop Wallpapers Pack 19
+Человек-паук: Возвращение домой / Spider-Man: Homecoming (2017) BDRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396332.jpg" />
+</div>
+
+
+###  Подробнее
+
+После исторической встречи с командой Мстителей Питер Паркер возвращается домой, стараясь зажить обычной жизнью под опекой своей тёти Мэй. Но теперь за Питером приглядывает ещё кое-что… Тони Старк видел Человека-Паука в деле и должен стать его наставником. Когда новый злодей Стервятник угрожает уничтожить всё, что дорого Питеру, приходит время доказать всем, что (   Читать дальше...   )Производство: США, Columbia Pictures, Marvel Studios Inc., Pascal PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джон УоттсАктеры: Том Холланд (II), Роберт Дауни мл., Майкл Китон, Мариса Томей, Джон Фавро, Джейкоб Баталон, Зендея, Лора Хэрриер, Тони Револори, Дональд ГловерПеревод: ДублированныйСубтитры: Русские (forced, full), английскиеПродолжительность: 02:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEEE21A4CB54663B4BA678C64FA39AB7BDDC072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 715616   (396316) от 26.10.2013
+
+Мерзлая земля / The Frozen Ground (2013) Blu-Ray [1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все были уверены, что Роберт Хансен — приличный семьянин, владелец пекарни и славный охотник. Никто не подозревал, что на самом деле он — безжалостный маньяк, который похитил и убил более двадцати женщин. И только 17-летней Синди Полсон удалось сбежать от убийцы. Она наводит на след маньяка полицейского, который начинает опасное расследование. Ему никто не верит: (   Читать дальше...   )Производство: США / Cheetah Vision, Valentina FilmsЖанр: Триллер, Криминал, Биография, ИсторияРежиссер: Скотт Уокер / Scott WalkerАктеры: Николас Кейдж, Джон Кьюсак, Ванесса Энн Хадженс, Дин Норрис, Джина Мантенья, Роберт Форджит, Брэд Хенке, Майкл МакГрэйди, Кэтрин ЛаНаса, Райан О’НанПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4ABDA2B67D384D802DE768D00FAD295467FD598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567541   (396264) от 30.10.2012
+
+Wallpapers Sexy Girls Pack (28.10.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 19
-Название: Desktop Wallpapers Pack 19
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Количество:
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3500x2329
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CACF5DF5571735E590909767B42C93A7D05BA96E
+magnet:?xt=urn:btih:037429BB1BB0FC757C90A2A0ACEEB11B118E0229
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,25 +208,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570029   (391200) от 04.11.2012
+###  Публикация: 566565   (396263) от 30.10.2012
 
-HQ Wallpapers Perfect Women (03.11.12) [Wallpapers 16+]
+Sexy Girls Pack Wallpapers (26.10.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3000x1930
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85EE8B38DDF50580423DE7A483931AAAD77822B4
+magnet:?xt=urn:btih:EF737852FAA0E8AFDB429917C7A2860CA04E66A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,30 +234,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570154   (391198) от 04.11.2012
+###  Публикация: 567614   (396262) от 30.10.2012
 
-Fullforce - Next Level (2012) [FLAC|Lossless]<Power/Heavy Metal>
+Hatecraft - Lost Consolation (2005) [WavPack|Lossless]<Melodic Death Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_391198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Broken Dreams (2:47)
-02. Break It, Crack It, Destroy It (3:45)
-03. Back To Life (3:08)
-04. A Night To Remember (3:38)
-05. Karma (4:43)
-06. Whispers (3:14)
-07. Smile At The World (3:44)
-08. Hate...Love...Drop It! (4:37)
-09. Visions (5:09)
-10. Course Of Life (3:41)(   Читать дальше...   )Жанр: Power/Heavy MetalПродолжительность: 00:51:04
+01. Lose your mind (3:39)
+02. The punisher (5:47)
+03. Demon of mine (5:02)
+04. Generation of obscenities (4:50)
+05. Fear of life & terror of death (4:42)
+06. Sad short story (1:23)
+07. Don't leave me apart (4:10)
+08. Lost consolation (4:10)
+09. Nothing (3:01)
+10. New day (7:15)Жанр: Melodic Death MetalПродолжительность: 00:43:58
 
 ## Скачать торент
 ```bash
@@ -395,34 +269,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569898   (391197) от 04.11.2012
+###  Публикация: 567563   (396260) от 30.10.2012
 
-'77 - 21st Century Rock (2009) [MP3|320 кб/с]<Hard Rock>
+Sexy Girls Pack Wallpapers (29.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FDB8B561F401F360509124C3519B7051E251C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567544   (396259) от 30.10.2012
+
+Плачидо Риззотто / Placido Rizzotto (2000) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плачидо Ризотто, который еще в детстве насмотрелся, как бесчинствуют нацисты в Сицилии, становится одним из борцов с мафией. В то послевоенное время на Сицилии все было в руках криминальных группировок.  Плачидо становится Робин Гудом Сицилии, чтобы противостоять тирании и беззаконию. Однако, все меняется с появлением в жизни Плачидо девушки по имени Лиа. Ее семья — те, против кого герой фильма ведет борьбу…Жанр: Драма, криминал, биографияВ ролях: Марчелло Маццарелла, Винченцо Альбанезе, Кармелло Ди Маццарелли, Джоя Спациани, Артуро Тодаро, Бьяджо Бароне, Франко Каталано, Giuseppe GennusaПеревод: Профессиональный (многоголосый)Формат: AVIПродолжительность: 01:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAD022AC0E49A5CE583977CD6DA0E6ABEEA6362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567539   (396258) от 30.10.2012
+
+Nature Wallpapers (28.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1076D20CB0E813E8EA294C6D75077893727D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567646   (396257) от 30.10.2012
+
+VA - Осенняя Vip-Тусовка (2012) [MP3|256 кб/с]<pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gimme Rock n' Roll
-02. Hardworking Liar
-03. Big Smoker Pig
-04. Shak It Up
-05. Wicked Girl
-06. Your Game's Over
-07. Less Talk (Let's Rock)
-08. Let the Children Hear Rock n' Roll
-09. Double Tongue Woman
-10. 21st Century RockЖанр: Hard RockПродолжительность: 00:45:16
+01. Зара - Ради Тебя
+02. Никита - Танец в Темноте (Andrey Keyton Official Remix) (Radio Edit)
+03. Danceboy Vs. Cary August - Drive By (Tale. Dutch Edit)
+04. Ирина Дубцова Feat. Dj Slider - Ешь, Молись, Люби (Dance Edit Radio Mix)
+05. DJ Night Rush feat. Biffguyz - Бум Бум Бум
+06. Mmdance - Без Одежды
+07. Sensato - La Banana
+08. PSY - Gangnam Style
+09. Inna feat. PlayWin - INNdiA
+10. Дилайс - Нежно-Нежно(   Читать дальше...   )Жанр: popПродолжительность: 05:58:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D9B2AE516234280CD32ADFF3C33C62037C55728
+magnet:?xt=urn:btih:338FD29132D2C079E88B27FF17BE3AFC3414E996
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,25 +382,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570060   (391196) от 04.11.2012
+###  Публикация: 567591   (396256) от 30.10.2012
 
-[Wallpapers] Girls Desktop Wallpapers Pack 13
+VA - Anjunabeats Vocal Trance 05 (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1680х1050 - 2560х1600
+VA - Anjunabeats Vocal Trance 05 (2012)
+Год: 2012
+Жанр: Trance
+Продолжительность: 01:35:11Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Above & Beyond Featuring Richard Bedford - On My Way To Heaven (Above & Beyond Club Mix)
+ 02. Mat Zo Feat. Linnea Schossow - The Sky (Extended Mix)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED303A64ADEF16875CE8BB05133D789429071322
+magnet:?xt=urn:btih:8E02BD722F3316FD033DBF960BA79E9E72E3BF2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,85 +415,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570026   (391194) от 04.11.2012
+###  Публикация: 567841   (396254) от 30.10.2012
 
-[Wallpapers] Desktop Wallpapers Pack 14
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391194.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 14
-Название: Desktop Wallpapers Pack 14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A36BE24577C4DD63A468B9884E7641498DB91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570234   (391189) от 04.11.2012
-
-[Wallpapers] Films Desktop Wallpapers Pack 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391189.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Films Desktop Wallpapers Pack 1
-Название: Films Desktop Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8559EDF3E90ECE1A1810A8973DDDC204F8A8C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570074   (391186) от 04.11.2012
-
-Журнал | Секреты кухни №10 (62) [октябрь 2012] [PDF]
+Журнал | Помощник садовода №20 [октябрь 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Любимый герой «СК» - Михалыч – поделится своим кулинарным опытом, расскажет о том, что происходит в мире кулинарии и, конечно же, даст дельные советы и рецепты.Формат: PDF
+Очень интересное массовое издание для садоводов, огородников и любителей цветов. Наряду с рекомендациями учёных и специалистов широко представлен опыт самых известных садоводов-опытников. Много полезных советов, консультаций и ответов на вопросы читателей по всем направлениям ведения приусадебного хозяйства. Оперативно освещаются все необходимые работы в саду и на огороде. Большой раздел посвящён цветоводству и ландшафтному дизайну.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00008DBF7078E4D1B6A36012F6BC3DD77CF47B86
+magnet:?xt=urn:btih:35347C0624330F61CCCFDE8CC05CA4FC08DDB35F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,29 +441,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570251   (391185) от 04.11.2012
+###  Публикация: 567564   (396253) от 30.10.2012
 
-[Wallpapers] Abstract Desktop Wallpapers Pack 1
+Wallpapers Sexy Girls Pack (29.10.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Abstract Desktop Wallpapers Pack 1
-Название: Abstract Desktop Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1440х900 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5000x3330
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C9A47B9908A1FCAA441B67862A557E135F33BAD
+magnet:?xt=urn:btih:FFE987CAC35F23F79EB0409F5B5D476DA476B91E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,15 +467,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570030   (391183) от 04.11.2012
+###  Публикация: 566569   (396252) от 30.10.2012
 
-HQ Wallpapers for a desktop (03.11.12) [Wallpapers]
+Sexy Girls Pack Wallpapers (27.10.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228993617D3501AB65836669D8F86ACE5DCD6F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567562   (396250) от 30.10.2012
+
+Nature Wallpapers (29.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396250.jpg" />
 </div>
 
 
@@ -590,7 +511,7 @@ HQ Wallpapers for a desktop (03.11.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:790099E71F3B30137B63DA0D70561D9278A75A5C
+magnet:?xt=urn:btih:27618D5A11F479632EEE447E78E0D5A3E4739689
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,42 +519,67 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173145   (391146) от 10.10.2017
+###  Публикация: 566570   (396249) от 30.10.2012
 
-BetterSnapTool 1.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391146.jpg" />
-</div>
-
-
-###  Подробнее
-
-BetterSnapTool: новые возможности для окон OS X
-Утилиты для управления окнами рабочего стола могут сослужить хорошую службу владельцам Mac'ов c небольшой диагональю экрана. Они позволяют быстро разместить приложения таким образом, чтобы последние не мешали друг другу и использовали максимально возможное пространство. Утилита сочетает в себе все функции SizeUp! и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 октября 2017Разработчик: Andreas HegenbergПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A1BBB8BEB4073687A7592B6B1C25DC7EA5E363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570220   (391116) от 04.11.2012
-
-Computer Desktop Wallpapers Collection (04.11.12) [Wallpapers]
+Wallpapers Sexy Girls Pack (27.10.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3000x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617DDA55BE2FD06EB74B3037327F1A5BB33036A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567570   (396247) от 30.10.2012
+
+HQ Wallpapers Perfect Women (29.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886291B15034EE4488464557669CD802681DEF3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567538   (396246) от 30.10.2012
+
+Best HD Wallpapers Pack (28.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396246.jpg" />
 </div>
 
 
@@ -643,7 +589,7 @@ Computer Desktop Wallpapers Collection (04.11.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9D549A3AB95544C6A098EADB5E460E5A9B5BAF3
+magnet:?xt=urn:btih:9BC458AAFE3E82023A271B4B356D6AFD875B9F92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,34 +597,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569341   (391115) от 04.11.2012
+###  Публикация: 399684   (396240) от 17.10.2011
 
-VA-Night Dance (2012) [MP3|320 кб/с]<Dance>
+Ушедшее время / Awaydays (2009) [720p] HDTVRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДрамаРежиссер: Пэт ХолденАктеры: Стивен Грэхэм, Никки Белл, Лайам Бойл, Оливер Ли, Ли Бэттл, Шон Уорд, Майкл Райан, Йэн Полстон-Дэвис, Холли Грэйнджер, Саша ПаркинсонПеревод: Одноголосый закадровый -Язык субтитров: Русские (2 варианта), АнглийскиеПродолжительность: 01:45:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567643   (396216) от 30.10.2012
+
+VA - MAXI. Попсовый Best Зарубежный (2012) [MP3|320 кб/с]<pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Armin Van Buuren feat. Ana Criado - I'll Listen (Super8 & Tab Remix)
-02. DJ Eako, Jason Chance feat. Soraya Vivian - Deep Inside My Soul (Club Mix)
-03. Avicii feat. Andreas Moe - Last Dance (Vocal Club Mix)
-04. Eric Prydz - Every Day (Original Mix)
-05. Rihanna - Diamonds (Bimbo Jones Club Mix)
-06. Pink Is Punk & Benny Benassi - Perfect Storm (Original Mix)
-07. Tiesto & Allure - Pair Of Dice (Original Mix)
-08. DJ Rebel & Robert Abigail feat. M.O. - Culo! (Extended Mix)
-09. DJ Assad feat. Mohombi, Craig David & Greg Parys - Addicted (Extended Mix)
-10. Estela Martin feat. Young James - Love Me Tonight (Extended Mix)Жанр: DanceПродолжительность: 03:41:43
+01. Loreen - Sidewalk
+02. Dj Lucian - I Send You An Angel
+03. Y-Titty - Der Letzte Sommer
+04. Michael Mind Project feat. Dante Thomas - Feeling So Blue (Radio Edit)
+05. Oceana - Endless Summer
+06. Medina - Forever
+07. Loreen - Crying Out Your Name
+08. Liviu Hodor feat. Mona - Je Taime (French Version)
+09. Dj Assad feat. Mohombi, Craig David & Greg Parys - Addicted (Extended Mix)
+10. Arash feat. Sean Paul - She Makes Me Go(   Читать дальше...   )Жанр: popПродолжительность: 04:49:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6016C04406104EF13685C707D41F3299197072A7
+magnet:?xt=urn:btih:1079D2AE5ACC1F244EE946C49C017AD1B4FCC11B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,15 +658,50 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569321   (391114) от 04.11.2012
+###  Публикация: 567625   (396215) от 30.10.2012
 
-Computer Desktop Wallpapers Collection (02.11.12) [Wallpapers]
+VA - Новый Хит Экспресс. Зарубежный (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lady GaGa - Glitter & Grease
+002. Itaka - La danza de ibiza (Radio mix)
+003. Nicola Fasano, Tommy Vee, Steve Forest & Luca Guerrieri feat. Mat Twice - Tell me waf
+004. Spencer and Hill feat. Nadia Ali - Believe It (Dance Radio Edit)
+005. Rihanna feat. Flo Rida - Where Have You Been (Remix)
+006. Meiko - Leave The Lights On
+007. Morandi - Serenada
+008. T-Moor Rodriguez - Welcome to the night
+009. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia
+010. Jennifer Lopez feat. Pitbull - Dance Again(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 06:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11B22EE0CF3795513006AF083B525E79A8DE816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567560   (396212) от 30.10.2012
+
+Computer Desktop Wallpapers Collection (29.10.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396212.jpg" />
 </div>
 
 
@@ -704,37 +711,7 @@ Computer Desktop Wallpapers Collection (02.11.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B360FF7F915B526470A2D50CA8510D4D65EA9128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570254   (391103) от 04.11.2012
-
-[Wallpapers] Desktop Wallpapers Pack 22
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391103.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 22
-Название: Desktop Wallpapers Pack 22
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D630FF55048AF2104B1994F002D232492AB401E
+magnet:?xt=urn:btih:E66164F5036102DA34F3887868F714CDEEC27DAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1318594   (492294) от 07.08.2019
+
+Обои - Desktop Wallpapers Full HD. Part (491) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5F1AEDB997ADBB9A40AF53CBA88ADE09F7F376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936814   (492267) от 13.09.2015
 
 Обои - Дороги 3 [JPG]
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9556DA2F1A88FDD6E28FF2D162108F7C6DDE3230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544956   (486886) от 09.09.2012
-
-[Рисованая графика]Artworks by Michael Oswaldе
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора  Michael Oswaldе .
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF277E93689F8E5289F7A6044193848C38F33EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,5 +1,89 @@
 https://t.me/izofen
-###  Публикация: 1863095   (1063672) от 
+###  Публикация: 1865575   (1065608) от 16.04.2026
+
+Windows 11 25H2 x64 by OneSmiLe [26200.8246] [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_11_business_editions_version_25h2_updated_march_2026_x64_dvd_ab86531d
+Установлены обновления по 16.04.2026
+Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07BD229FFA6C11626D23AB98A89B99448435FD56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865839   (1065477) от 17.04.2026
+
+Windows 11 3in1 25Н2 (build 26200.8246) by ivandubskoj 17.04.2026 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка Windows 11, с отключенной телеметрией, службами, без METR0-приложений и с актуальными обновлениями на момент создания релиза.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA439CAD6E706EAAF1F178E8A8E54209181C5A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865440   (1065183) от 15.04.2026
+
+Windows 11 26H1 x64 by OneSmiLe [28000.1836] [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_11_business_editions_version_26h1_updated_march_2026_x64_dvd_f163b1c8
+Установлены обновления по 15.04.2026
+Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A9CDB45BFD2E5373AC4F7DB89B620DED654F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863095   (1063716) от 02.04.2026
 
 Windows 11 24H2 x64 by OneSmiLe [26100.8117][Ru]
 
@@ -7,7 +91,7 @@ Windows 11 24H2 x64 by OneSmiLe [26100.8117][Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063716.jpg" />
 </div>
 
 
@@ -28,15 +112,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863030   (1063651) от 
+###  Публикация: 1863030   (1063691) от 03.04.2026
 
 Windows 11 25H2 x64 by OneSmiLe [26200.8117]                 [Ru]
 
->>ОС Windows
+>>След.
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063691.jpg" />
 </div>
 
 
@@ -57,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861376   (1062479) от 
+###  Публикация: 1861376   (1062479) от 25.03.2026
 
 Windows 11 Pro х64 Version 25H2 Build 26200.8039 by Igors_VL [RU]
 
@@ -83,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860863   (1062349) от 
+###  Публикация: 1860863   (1062349) от 22.03.2026
 
 Windows 11 Pro х64 Version 26H1 Build 28000.1719 by Igors_VL [RU]
 
@@ -109,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860031   (1061552) от 
+###  Публикация: 1860031   (1061552) от 19.03.2026
 
 Windows 11 3in1 26Н1 (build 28000.1719) by ivandubskoj 19.03.2026 [Ru]
 
@@ -135,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859485   (1061149) от 
+###  Публикация: 1859485   (1061149) от 16.03.2026
 
 Windows 11 PRO 25H2 26200.8037 Update 5 by Ghost Spectre [En]
 
@@ -164,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859367   (1061048) от 
+###  Публикация: 1859367   (1061048) от 16.03.2026
 
 Windows 11 3in1 25Н2 (build 26200.8037) by ivandubskoj 15.03.2026 [Ru]
 
@@ -627,87 +711,6 @@ Windows 11 PRO 25H2 26200.7623 Update 3 by Ghost Spectre [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:779407D8490E3DC874D62919548CEF787343134E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849250   (1053416) от 22.01.2026
-
-Windows 11 Pro х64 Version 25H2 Build 26200.7627 by Igors_VL [RU]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настроенная авторская сборка Windows 11 Pro с автоматизированной установкой, запускаемой из BIOS (При загрузке с установочного носителя через BIOS/UEFI) и интегрированным обновлением KB5077744.Разработчик: MicrosoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5209D6694679E9FCB6554578D18DC78F10C59998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847839   (1052492) от 17.01.2026
-
-Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7623 [Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-Используется лаунчер от ФБ
-ru-ru_windows_11_business_editions_version_25h2_updated_dec_2025_x64_dvd_a8801117
-Установлены обновления по 14.01.2026(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E7556BC11CA314717BC0E02887CAF1BD55A8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845491   (1050628) от 01.01.2026
-
-Windows 11 25H2 + LTSC (x64) 28in1 +/- Office 2024 by Eagle123 (12.2025) [Ru/En]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 v25H2 26200.7462, включающая в себя 5 редакций x64 с русским и английским интерфейсом и 2 облегченные x64 Lite-редакции, с обновлениями по 12.2025, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D49AEE13E67FFF56E4BB4D5B4667339759DD58
 ```
 
 https://mybot314.ru/tekegram_catalog/

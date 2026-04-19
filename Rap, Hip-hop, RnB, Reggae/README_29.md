@@ -1,3 +1,90 @@
+###  Публикация: 1646603   (208829) от 15.07.2023
+
+Coolio - Gangsta's Paradise (1995) 2020, 25th Anniversary, Remastered [FLAC|24/96-192|tracks|WEB-DL] <Hip Hop, Gangsta, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's How It Is (Skit) (1:01)
+02. Geto Highlites (5:01)
+03. Gangsta's Paradise (4:01)
+04. Too Hot (3:40)(   Читать дальше...   )Жанр: Hip Hop, Gangsta, RapПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15789D7BD0A1E0FE0A8FA760E8821A3089586627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646264   (208680) от 17.07.2023
+
+Восточный округ - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:02:47]
+02. Гориллы на битах [00:03:43]
+03. Репрезенто [00:02:54]
+04. Когда мне лень [00:03:47](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8432DDF32226D2382C08CCC1859F7052C5125A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651377   (206987) от 06.08.2023
+
+Skindred - Smile (2023) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Religion
+02. GIMME THAT BOOM
+03. Set Fazers
+04. Life That's Free(   Читать дальше...   )Жанр: Hip Hop, Rock, ReggaeПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DA187EEC24CD1567BBF742F9F4135D7FAA1B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582522   (206311) от 09.10.2022
 
 VA - Chillhop Essentials Fall (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
@@ -655,93 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:086388D1B814C5CDE86B83EAFFD01BD298A90BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594221   (178734) от 30.11.2022
-
-Ram & Kommo - Delirium (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Alternative Metal>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silverhand [00:02:05]
-02. Инферно [00:03:51]
-03. Training day [00:03:05]
-04. Bullshit [00:02:30](   Читать дальше...   )Жанр: Rapcore, Alternative MetalПродолжительность: 00:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE16279ACD8A8CCFB5C1C4C7DACE512F4F00D1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595026   (176727) от 03.12.2022
-
-VA - FIRMAA (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Cave - БЛАГОДАРНОСТЬ [00:00:31]
-02. Murovei - ЯРОСТЬ [00:01:55]
-03. Гуф - МИМО ОБЛАВ [00:02:48]
-04. Смоки Мо, Murovei, Гуф, Ноггано - OZZY [00:05:18](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A51DBAD784A4A5EDDC5A36BA931104DA683B022F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595022   (176610) от 03.12.2022
-
-Ноггано - Палец на отсечение (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Утюжок [00:04:46]
-02. Санта Муэрте [00:04:32]
-03. Путаны [00:04:14]
-04. Де ты чё ты [00:03:59](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649650271C74FAEC2D06D68E2936EEB7E64F2384
 ```
 
 https://mybot314.ru/tekegram_catalog/

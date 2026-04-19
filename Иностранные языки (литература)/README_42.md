@@ -1,3 +1,29 @@
+###  Публикация: 1728127   (54173) от 06.06.2024
+
+Angeles Gavira, Christine Stroyan, Angela Wilkes (еditors) | Spanish English Bilingual Visual Dictionary (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54173.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Spanish English Bilingual Visual Dictionary by Dorling Kindersley is vocabulary guide to the world around you. With over 10,000 fully illustrated terms arranged by theme, language learning has never been easier. For tourist and business travellers alike, DK's Bilingual Visual Dictionary series is by your side when buying food, talking about work, discussing health, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BA39DDAA5B38B6B83DAC3AB8DD9203F3D39DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728531   (54086) от 07.06.2024
 
 Julie Lachance | Basic English. Second edition (2015) [PDF] [EN]
@@ -669,34 +695,6 @@ Routledge Introductions to Applied Linguistics is a series of introductory level
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D675F018449AB15F3393460208713F89F87A093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730959   (52875) от 18.06.2024
-
-Lingo Mastery | Spanish Short Stories for Beginners (2018) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52875.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this book we have compiled 20 easy-to-read, compelling and fun stories that will allow you to expand your vocabulary and give you the tools to improve your grasp of the wonderful Spanish tongue.
-How Spanish Short Stories for Beginners works:
-Each story will involve an important lesson of the tools in the Spanish language (Verbs, Adjectives, Past Tense, Giving (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Lingo MasteryФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6252F69363A7C7CCAA75A583AFA0961FA77FEDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

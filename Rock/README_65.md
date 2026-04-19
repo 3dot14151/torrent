@@ -1,3 +1,32 @@
+###  Публикация: 1578201   (348160) от 22.09.2022
+
+Distant Mantra - Solitude Republic (2022) [MP3|320 Kbps] <Rock, Prog-Related>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Maniac (05:51)
+2. A Girl (04:41)
+3. So Jealous (05:16)
+4. Emptiness (05:09)(   Читать дальше...   )Жанр: Rock, Prog-RelatedПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83252CC79D9ADEC71DCFF6DB72BADC1551DB207B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073224   (347662) от 15.11.2016
 
 Freedom to Glide - 3 альбома (2012-2016) [MP3|320 Kbps] <Progressive rock>
@@ -713,35 +742,6 @@ Def Leppard - On Through The Night (1980) [OGG Vorbis|484 Kbps] <Rock, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB74A4FA49D5C59C0117032FB423549D7E6916C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579309   (338995) от 26.09.2022
-
-Def Leppard - Pyromania (1983) Reissue, Remastered, 1989, Mobile Fidelity Sound Lab [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Rock (Till You Drop)	3:58
-02. Photograph	4:09
-03. Stagefright	3:45
-04. Too Late For Love	4:27(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACF7C5EBF9D586C955240CDF13A0AFDEB81A21A
 ```
 
 https://mybot314.ru/tekegram_catalog/

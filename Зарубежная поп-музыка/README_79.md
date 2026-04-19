@@ -1,3 +1,61 @@
+###  Публикация: 1194412   (155593) от 25.12.2017
+
+Елена Войнаровская (Flёur) - Ночь тиха (2017) EP [MP3|320 Kbps] <Pop, Indie, Cardiowave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155593.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Песня о снеге, спящем медведе и несмышленом щенке
+2. Щедрик
+3. На Вифлеемских холмах
+4. Silent NightЖанр: Pop, Indie, CardiowaveПродолжительность: 00:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBCFFA49AE2AD2E797CAA2D9CFD0633CF7AC99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194277   (155575) от 25.12.2017
+
+VA - 50 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 BMYE - Pourquoi cherie (feat. Naza, Keblack, Youssoupha, Hiro, Jaymax & Dj Myst)
+02 Jessy Matador - Mi Amore
+03 Vitaa - Comme dab
+04 Ridsa - Leila(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5F0274DFE2A177D9198CC5190B5D9160883D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270647   (155476) от 20.12.2018
 
 The Dooleys - 9 Albums (1976-1983) [MP3|320 Kbps] <Electronic, Pop, Disco>
@@ -687,64 +745,6 @@ Jessie J - This Christmas Day (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6273FEC8D63DB1F9D5723E91AA104324D0B37DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271298   (149989) от 23.12.2018
-
-VA - Christmas - The Ultimate Collection (2018) [MP3|320 Kbps] <Ballad, Country, Smooth Jazz>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149989.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Shakin' Stevens - Merry Christmas Everyone - 00:03:40
-02.Jona Lewie - Stop The Cavalry - 00:02:55
-03.Chris De Burgh - A Spaceman Came Travelling - 00:04:03(   Читать дальше...   )Жанр: Ballad, Country, Smooth JazzПродолжительность: 05:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E8927AE4141E3D132373A39440C17F3850C17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677969   (149402) от 19.11.2023
-
-VA - Hit News Vol. 10 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scatgirl - I'm A Scatgirl
-02.  Obsession - Only Wanna Be With You
-03.  Michael J.Gibbs - Save My Soul
-04.  Waldo - Forever(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1E2307261FE56DB0F3BC20655D17FBB08F113E
 ```
 
 https://mybot314.ru/tekegram_catalog/

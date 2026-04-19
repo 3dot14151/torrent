@@ -1,3 +1,32 @@
+###  Публикация: 1378719   (842801) от 27.04.2020
+
+VA - NOW Reggae Classics (2020) [MP3|320 Kbps] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842801.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bob Marley & The Wailers - One Love / People Get Ready (Medley) 02:53
+2. Steel Pulse - Reggae Fever 03:26
+3. Toots & The Maytals - Reggae Got Soul 03:09
+4. Jimmy Cliff - You Can Get It If You Really Want 02:41(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C35FDA9DFF7F432C6C8C7B3DA45303C7D8BCC9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379232   (840841) от 28.04.2020
 
 2Pac - The Best Of 2Pac. Part 2: Life (2007) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Gangsta Rap, Thug Rap>
@@ -716,35 +745,6 @@ Tanir & Tyomcha - До мурашек (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6610B2403266435C2A9EECDF0E43BBC34D13042F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383719   (809962) от 16.05.2020
-
-eto - The Beauty of It (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beauty of It [01:19]
-02. No (feat. Flee Lord & Grafh) [03:33]
-03. Nothin' Like You (feat. Nyticka Hemingway) [03:07]
-04. The Pot [02:21](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1499B8EA012628E9171A2FB888B261603C0831AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

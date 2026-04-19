@@ -1,3 +1,32 @@
+###  Публикация: 1641397   (210540) от 25.06.2023
+
+VA - Blues On My Soul (2023) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210540.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jimmy Thackery - Run Like The Wind [06:31]
+002. Micke Bjorklof - Girl Of My Favourite Song [03:04]
+003. The Groundhogs - Music Is The Food Of Thought [04:35]
+004. Van Morrison - Nervous Breakdown [05:09](   Читать дальше...   )Жанр: BluesПродолжительность: 08:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6002C9BE00D8FDE42C6F39C126827BB32B8F72C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643752   (209888) от 03.07.2023
 
 VA - Blues For Your Evening (2023) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ VA - Blues Sweet Sadness (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D7D0BD7710221B1159E8A29161079ABFE6E69C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671279   (171386) от 24.10.2023
-
-VA - Harmonic Electro Jazz (2023) [MP3|320 Kbps] <Electro Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dolphin Hyperspace - Rodeo Rider [02:59]
-02. Jasper Hoiby - Vision Of Outrage [04:57]
-03. Kinkajous - Convolution [04:42]
-04. Krewcial - Owo [06:17](   Читать дальше...   )Жанр: Electro JazzПродолжительность: 07:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E719BC5E6D043085E134BFE28F6E9AFB651BCD34
 ```
 
 https://mybot314.ru/tekegram_catalog/

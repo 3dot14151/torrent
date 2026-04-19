@@ -1,3 +1,186 @@
+###  Публикация: 637061   (902628) от 30.03.2013
+
+Nells - Watch My Body (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7968391E531A8755854F874B5726FB5833F819C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636965   (902620) от 30.03.2013
+
+Cascada - Glorious (2013) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F59C28CC238965E9EAD722F1434BDB593DF078E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637064   (902610) от 30.03.2013
+
+Innocence feat. Brian Cross - Houdini Girl (Brian Cross Remix 2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6E703BF9EBB3ACD03A04D92F2B8EF8C263FD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637069   (902580) от 30.03.2013
+
+Afrojack ft. Chris Brown - As Your Friend (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72904DB520908B650E85B75ECC1CC00106CC5EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637066   (902446) от 30.03.2013
+
+Marquess & Jessica D feat. Jimmy Dub - Beso (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635BDEDC504D00A4F4CBAE974AC9F19FAEA2E6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637079   (902258) от 30.03.2013
+
+INS - Loveheadshot (Uncensored) (2013) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R&BПродолжительность: 00:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FB6737F00B6B1FBFEB26DB67CF64FBDDB284EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369408   (901996) от 24.03.2020
+
+Tatarka - 7 Music Videos (2016-2019) WEBRip [H.264/1080p/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901996.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 (2016) Tatarka - Altyn (LB Family) [1080p] (PCM)
+002 (2016) Tatarka - Altyn (LB Family)Производство: LB FamilyЖанр: Dance Pop, Rap, Hip-HopПродолжительность: 00:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F8FA8DCE405E786D32C53C6FAE97CCF59C723C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369653   (901990) от 24.03.2020
 
 Paradise Lost - Fall from Grace (2020) WEBRip [H.264/1080p-LQ]
@@ -506,206 +689,6 @@ VA - Весенний марафон № 226: Хиты до Утра (2016) WEBR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51C1CB2952041FC9EF3E0E4237C3D1843D363E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638908   (892066) от 04.04.2013
-
-Lana Del Rey - The Video Collection 2011-2012 [1080] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Born To Die (2011), 00:04:46
-2. Video Games (2011), 00:04:45
-3. Blue Jeans (2012), 00:04:20
-4. Ride (2012), 00:10:08
-5. National Anthem (2012), 00:07:48
-6. Summertime Sadness (2012), 00:04:39
-7. Blue Velvet (2012), 00:02:13Жанр: Indie Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8BDF7D4636A6E25A90617CA45E0402F4BAD9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371307   (891528) от 30.03.2020
-
-Сборник клипов - Music 80s от ALEXnROCK часть 2 (2020) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891528.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Music 80s 2 — Intro
-01. Tina Turner — Simply The Best
-02. Sandra — Maria Magdalena
-03. Ray Parker JNR — Ghostbusters(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D8B79DC1A88EA8F8F4F43A7FC76A3005556907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371285   (890090) от 31.03.2020
-
-Vermicide Violence - Coronaviscerated (feat. Jared Dines) COVID-19 (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vermicide Violence - Coronaviscerated (feat. Jared Dines) (Chodezilla Records) COVID-19 2020
-CDA Vermicide Violence - The Praxis of ProphylaxisПроизводство: Chodezilla RecordsЖанр: Death CoreПродолжительность: 00:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A71A28FAE2320E8A8251047F4126F2F5AF317D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371231   (889948) от 31.03.2020
-
-Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) (2020) WEBRip [H.264/2160p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889948.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) [2160p]Жанр: Альтернативный РокПродолжительность: 00:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786DBAB82AE68873EDA60CF87772AF2BC50C5A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370708   (889900) от 31.03.2020
-
-Пневмослон - Катастрофический пипец (COVID-19) (2020) WEBRip [H.264/1080p-LQ] <Post-Punk>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоклип Пневмослон - Катастрофический пипец (COVID-19)
-CDA Пневмослон (2019) КонтрэволюцияЖанр: Post-PunkПродолжительность: 00:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125DD1A42F5CEA1B78DC4A4F872E9AEDA3658A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639491   (889506) от 06.04.2013
-
-Timeflies - I Choose U (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7D089ADF1BD2AF339EF2F22184F6E835CB6A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638365   (889092) от 06.04.2013
-
-Сборник видеоклипов / Rap Legends (Hits 1990-1994) DVDRip [EN]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов в стиле РЭП в хорошем качестве.1990_3rd_Bass_-_Brooklyn_Queens
-1990_Dr. Alban - No Coke
-1990_Ice_Mc_-_Scream
-1990_MC Hammer - You Can`t Touch This
-1990_Snap - The Power
-1990_Technotronic_-_This_Beat_Is_Technotronic
-1990_Vanilla Ice - Ice Ice Baby
-1991_DNA_Feat._Suzanne_Vega_-_Tom_s_DinerЖанр: Rap, Hip-HopПеревод: ОтсутствуетПродолжительность: ~02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1EF0FE079D4AC81F182757D53E14D4DF585EC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

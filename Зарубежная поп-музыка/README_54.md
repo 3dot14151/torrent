@@ -1,3 +1,67 @@
+###  Публикация: 566597   (397854) от 28.10.2012
+
+Blue System - The History Of (2009) [MP3|320 кб/с]<Euro Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sorry Little Sarah (7'' Version)
+02. Big Boys Don't Cry (Long Version)
+03. Love Me More
+04. G.T.O.
+05. My Bed Is Too Big (7'' Version)
+06. Under My Skin
+07. Silent Water
+08. Love Suite (7'' Remix)
+09. Magic Symphony
+10. Love Me On The Rocks(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FBAB97F55FA62CDD379923FBAFAABCF2FBF2F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171755   (395759) от 05.10.2017
+
+Hans Edler - Dirty Sally (1975) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mus Expo (4:05)
+02. Every Night And Day (2:58)
+03. My Baby's Walking Around (2:34)
+04. Honeymoon (3:08)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B6317823FB34E84C3767F50A1BD99D0FA6E365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171849   (394090) от 07.10.2017
 
 VA - Reload The Summer Vol.4 (The Compilation) (2017) [MP3|320 Kbps] <Pop, Dance>
@@ -711,64 +775,6 @@ Carla Bruni - French Touch (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E6AA9A6D311A40CB3EB7C3389D5FAF6FCB1686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068062   (382478) от 31.10.2016
-
-VA - NRJ 300% Hits 2016 (2016) 3CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382478.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Coldplay - Adventure of a Lifetime
-02. Feder feat. Emmi - Blind
-03. Kendji Girac - Les yeux de la mama(   Читать дальше...   )Жанр: PopПродолжительность: 03:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F031ECA7DA5FE5E84CD3AE9C73812871EE709FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253373   (381698) от 10.10.2018
-
-Chi-Chi Favelas And The Black And White Band - Rock Solid (1978) LP [MP3|320 Kbps] <Electronic, Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Solid (10:14)
-02. Cocaine Part One, Discocaine, Cocaine Part Two (7:48)
-03. Give It To Me (7:21)
-04. Voodoo Lady (7:48)Жанр: Electronic, Rock, DiscoПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54409FD4328F2FE2B6EE8F4A385B63C73950416
 ```
 
 https://mybot314.ru/tekegram_catalog/

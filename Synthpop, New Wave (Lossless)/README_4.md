@@ -1,3 +1,90 @@
+###  Публикация: 979737   (953020) от 31.01.2016
+
+Northern Lite - Letters & Signs (Part Two) (2010) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Japan [6:00]
+ 02. Wicked Mess [4:36]
+ 03. Run (feat. Chapeau Claque) [3:15]
+ 04. Home [4:06](   Читать дальше...   )Жанр: Synthpop, Rock, ElectronicПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C58A1804E760CC2094E7B69CC824594F5A2542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361784   (951994) от 21.02.2020
+
+Depeche Mode - Mode (2020) 18 СD, Box Set, Compilation, Limited Edition, Numbered [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Life (03:46)
+02. I Sometimes Wish I Was Dead (02:18)
+03. Puppets (03:57)
+04. Boys Say Go! (03:08)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 15:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50758C4FFA5A104A75812028B3969F1033222F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090493   (947468) от 06.01.2017
+
+Krisma - Cathode Mamma (Remastered) (1980) 2007, Polydor [FLAC|Lossless|tracks + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947468.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cathode Mamma (Neue Version)
+2. Many Kisses
+3. Peggy Guggenheim
+4. Rrock(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66A63D43595CB1198378A2B398259C95FD3CC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090173   (947076) от 06.01.2017
 
 Tove Lo - Lady Wood (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop>
@@ -664,93 +751,6 @@ Animotion - Obsession - The Best Of Animotion (1996) Compilation [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E273AC7B3CA1233048A79ED55BC3E38A77BAECFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100038   (900965) от 03.02.2017
-
-Dance With The Dead - B-Sides: Volume 1 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Out (2:36)
- 02. Banshee (5:25)
- 03. That House (4:46)
- 04. Stoic (3:40)(   Читать дальше...   )Жанр: Synthwave, RockПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E9964E0FF00A9C85F7AF4973E5C6E63F9CC186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991391   (900611) от 02.03.2016
-
-Depeche Mode - Some Great Reward (1984) remastered 2006, collectors edition, CD+DVD [FLAC|Lossless|image + .cue] <New Vawe,  Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something to Do (3:48)
-02. Lie to Me (5:04)
-03. People Are People (3:52)
-04. It Doesn't Matter (4:45)(   Читать дальше...   )Жанр: New Vawe,  Synth-popПродолжительность: 00:29:21(фильм) 00:40:33(альбом)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258F5FD05186F68E71C1858B97B82FCFE1E56E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992900   (898968) от 03.03.2016
-
-Londonbeat - Best! The Singles (1995) [FLAC|Lossless|tracks + .cue] <Soul, Vocal, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Been Thinking About You (3:51)
-02. You Bring on the Sun (3:37)
-03. A Better Love (4:00)
-04. Come Back (3:55)(   Читать дальше...   )Жанр: Soul, Vocal, Synth-popПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F175C20EF71395238ADCEC266E98DEE2624F219E
 ```
 
 https://mybot314.ru/tekegram_catalog/

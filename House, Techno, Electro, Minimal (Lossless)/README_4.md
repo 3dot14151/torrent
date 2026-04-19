@@ -1,3 +1,177 @@
+###  Публикация: 1453199   (1027247) от 09.03.2021
+
+VA - Oslated 5th Anniversary Compilation (2021) Oslated [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adhémar - Deep Blue Morning (07:07)
+ 02. Javier Marimon & Oslon - T'alch'um 탈춤 (06:30)
+ 03. Elle - Where Is Elle (06:25)
+ 04. Bumho - Gong (05:59)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4C57829AA5D01B142C82E77083DB1751202BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232828   (1027018) от 10.03.2021
+
+Nathan Fake - Discography 29 Releases (2003-2021) Border Community, Ninja Tune [FLAC|Lossless|tracks+.cue, tracks] <Techno, Leftfield, IDM, Ambient, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanxenxo (07:26)
+ 02. Kanyon (09:15)
+ 03. Vanavond (09:15)
+ 04. Memory Hole (02:03)(   Читать дальше...   )Тип издания: CD, WebЖанр: Leftfield/HouseПродолжительность: 12:12:25 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B95DBC0368ECCEB5398573820DB8A46BB4139CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454101   (1026435) от 14.03.2021
+
+VA - Techno Zone Vol. 4 (2000) [FLAC|Lossless|tracks + .cue] <Techno, Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Anastasia - Join Me (Vectrex Remix) [06:28]
+02 - Westbam feat. TL Pipmps - Do The Rambo [06:59]
+03 - Lexy & K-Paul - The Greatest DJ (Extended Mix) [05:43]
+04 - Paffendorf - Where Are You ? (Radio Edit) [03:28](   Читать дальше...   )Жанр: Techno, Euro HouseПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D97766DE76ACFEBFE026FEA8BD18A99343F3DAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454646   (1026265) от 15.03.2021
+
+VA - Klubb House 2006. Tribal House 2 (2006) [FLAC|Lossless|image + .cue] <Tribal House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pole Pole - Black House [5:02]
+02. Ottomix Feat. Mc Dilly - Raccasex (Dub Mix) [3:25]
+03. Togo - Chlorophyl (Original) [4:30]
+04. Etna - Paradise Tonc (Paradise Mix) [5:54](   Читать дальше...   )Жанр: Tribal HouseПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12C7166591DB03D369F919E7052B05FDE725565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454875   (1025995) от 17.03.2021
+
+Mono Peninsula - Archangelsk (2021) ROHS! Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Dub>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archangelsk (12:36)
+ 02. Longyearbyen (06:07)
+ 03. Malyje (04:18)
+ 04. Eisbrecher (09:00)(   Читать дальше...   )Жанр: Dub Techno, Ambient, DubПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C8BF8884E379C86D37FFB14BF4001AB10849CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455108   (1025992) от 17.03.2021
+
+VA - Dub Techno (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Tech House, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavenchord - The Future (06:48)
+ 02. Mielafon - Truba (08:21)
+ 03. Malkov & Kaygo Soul - Raw Rolling (Dub Mix) (07:06)
+ 04. Andrey P. - Forest dances (07:15)(   Читать дальше...   )Жанр: Dub Techno, Techno, Tech House, AmbientПродолжительность: 02:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FA709FFCF358B89626AE378D0E40239D8C91F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118236   (1025865) от 17.03.2021
 
 Grad_U (Re_Grad) - Discography 32 Releases (2010-2021) Redscale, Greyscale [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
@@ -566,180 +740,6 @@ VA - Monstercat Instinct Vol. 7 (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9C9AA524027F772FA639BF01BB08A55E656101F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462883   (1020783) от 16.04.2021
-
-Scooter - God Save The Rave (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hardstyle, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Futurum Est Nostrum
-02. God Save the Rave (feat. Harris & Ford)
-03. Never Stop The Show
-04. We Love Hardcore (feat. Dimitri Vegas & Like Mike)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781870D524965C8F90CC7587E3BB1B5FBB28CE83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463699   (1020326) от 19.04.2021
-
-Kymelle - Show  That Body Baby (1996) Maxi-Single [FLAC|Lossless|image + .cue] <Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show That Body Baby (Ultimate Single Mix) 3:48
-02. Show That Body Baby (Ultimate Mix) 5:40
-03. Show That Body Baby (Mix Version) 5:19
-04. Show That Body Baby (The T. Mix) 4:25Жанр: Euro HouseПродолжительность: 00:19:23.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C518AB0D100DE1527982EF0FDC33EF92DA87A226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176824   (1019279) от 25.04.2021
-
-Zzzzra - Сollection 23 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pneuma (Reprise) (07:11)
- 02. Dans La Lune (06:37)
- 03. Douce Mollesse (06:23)
- 04. Aurore Pneumatique (08:29)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Dub Techno, Ambient, Minimal, Techno •Продолжительность: 14:24:30 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E85AD8A7C685A08FF7FDC48783734BA02F2BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465401   (1019101) от 26.04.2021
-
-Scooter - God Save The Rave (2021) [FLAC|Lossless|tracks + .cue] <Techno, Hardstyle>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:01:24)
-02. One (Always Hardcore) (00:04:15)
-03. The Logical Song (00:04:49)
-04. Bora Bora Bora (00:03:50)(   Читать дальше...   )Жанр: Techno, HardstyleПродолжительность: 01:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3EA6F02ADE4E4B05CE4D29906CA557D61D3FE96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466720   (1018292) от 01.05.2021
-
-Greg Nairo - Alma (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greg Nairo - Georges
-02. Greg Nairo - Kameo
-03. Greg Nairo - Vertigo
-04. Greg Nairo - Time Machine(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC28385EFF35969FA742086B562FA4B7CD4C78F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876148   (1015585) от 17.05.2021
-
-Disclosure - Settle (Special Edition) (2014) [FLAC|Lossless|WEB-DL]<House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:00)
-02. When A Fire Starts To Burn (4:43)
-03. Latch (feat Sam Smith) (4:15)
-04. F For You (4:28)(   Читать дальше...   )Жанр: UK Garage, HouseПродолжительность: 03:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84A0C9DC23769AB05814E6853CE8392C9C0D24C
 ```
 
 https://mybot314.ru/tekegram_catalog/

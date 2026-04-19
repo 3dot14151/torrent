@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1862500   (1063418) от 
+###  Публикация: 1862500   (1064116) от 30.03.2026
 
 Победители конкурса New Creator Awards 2026 от AnimeJapan [2026, Special, 7 эп.] WebRip 1080p raw
 
@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064116.jpg" />
 </div>
 
 

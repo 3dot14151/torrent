@@ -1,139 +1,31 @@
-###  Публикация: 599435   (999438) от 06.01.2013
+###  Публикация: 597768   (1000264) от 03.01.2013
 
-Фотография - Фотограф Zuna Potočná
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Zuna PotočnáРазрешение файлов: ~  500x750 ~ 800x800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54717D6A97BAC9B9865CBDD2D6AB53FAB189A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599671   (999435) от 06.01.2013
-
-[Wallpapers] A selection of beautiful girls Pack 17
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470C7EEC4492FF76F64627DFAFF18649FA0347BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599386   (999432) от 06.01.2013
-
-[Wallpapers] Compilation of anime Pack 6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999432.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Compilation of anime Pack 6
-Название: Compilation of anime Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707989E3C14D64CFD51743484D3FA589045A52CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599428   (999431) от 06.01.2013
-
-Фотография - Фотограф Anna Bodnar
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Anna BodnarРазрешение файлов: ~ 800x800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D74910BDFB314D0396031F0F1EBAFC15AD8ADE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598136   (999429) от 06.01.2013
-
-Kaizen - Любим делать красиво (2011) [MP3|320 кб/с]<Alternative>
+VA - Dubai Beach Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Любим делать красиво (4:27)
-02. Поколение Пох*й (3:36)
-03. Саломея (3:15)
-04. Я люблю с тобой молчать (3:35)
-05. Все Мы Гоним (3:07)
-06. По слогам (3:35)
-07. Web-Dr'Ocher (3:39)
-08. Шаг За Край (3:45)
-09. Шум inc (2:29)
-10. Dolphin (5:14)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:34
+01. Sir Joe - Battersea
+02. Juicy Lotta - Close Your Eyes
+03. Took - Cloudy Sky
+04. Peter Flower - Cocktail Fusion (Original)
+05. Pleasure Lounge - Dreamworks
+06. Dr. Drummer - Galactica Soul
+07. Juicy Lotta - Gonna Make You Dance (Original)
+08. Armando Gomez - Hatton Cross
+09. Barfuesser - Je Suis Desolee
+10. Peter Flower - Latin Beach (Original)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:58:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68541AB594C2588717CC0E6141DEB5937D01B958
+magnet:?xt=urn:btih:C2CB1FAA17C4513C599329C472D2CBC5509CADBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,30 +33,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599161   (999424) от 06.01.2013
+###  Публикация: 598054   (1000263) от 03.01.2013
 
-Aeternitas - Requiem (2000) [WavPack|Lossless]<Gothic Metal>
+The Air I Breathe - Great Faith In Fools (2011) [FLAC|Lossless]<Metalcore>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Introitus [03:29]
-02. Kyrie [01:53]
-03. Graduale [04:12]
-04. Tractus [03:13]
-05. Sequenz - Dies Irae [04:38]
-06. Sequenz - Mors Stupedit [05:54]
-07. Sequenz - Rex Tremendae [02:59]
-08. Sequenz - Confutatis [04:45]
-09. Sequenz - Lacrymosa [03:24]
-10. Offertorium [04:29](   Читать дальше...   )Жанр: Sympho Gothic MetalПродолжительность: 00:48:08
+01 - The Inevitable
+02 - Take This To Heart
+03 - Deliverance
+04 - Desolate And Disowned
+05 - For What It’s Worth
+06 - Vultures
+07 - The Life They Promised
+08 - Here’s To Letting Go
+09 - XIII
+10 - The AwakeningЖанр: MetalcoreПродолжительность: 00:32:13
 
 ## Скачать торент
 ```bash
@@ -176,29 +68,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599670   (999416) от 06.01.2013
+###  Публикация: 597830   (1000262) от 03.01.2013
 
-[Wallpapers] Car wallpapers (06.01.13)
+[Wallpapers] Compilation of anime Pack 4
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Car wallpapers (06.01.13)
-Название: Car wallpapers (06.01.13)
+[Wallpapers] Compilation of anime Pack 4
+Название: Compilation of anime Pack 4
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Разрешение файлов: 1024х768 - 5000х3000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00 до 5-ти сидов
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8557FCCAD1B0EE814702E4DA48AAD21A459ED4A8
+magnet:?xt=urn:btih:03DA137B928642C2A28A597AFCEA7B62B9B5A796
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,249 +98,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599388   (999415) от 06.01.2013
+###  Публикация: 597775   (1000260) от 03.01.2013
 
-[Wallpapers] A selection of beautiful girls Pack 16
+Nature Wallpapers (02.01.13) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F561B7002D26EE37C2277B8D549FD52B99DF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599165   (999413) от 06.01.2013
-
-Robert Monroe - Tales Of Power (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypnosis
-02. Sonora Trip
-03. Magic World
-04. Night Walking
-05. The Power of Silence
-06. Mescalito
-07. Welcome To Astral World
-08. Unreal
-09. Salvia Dream
-10. Tales of Power(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C3D161E7E0EA5EE6F55DC2F661E02C0747CE41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599442   (999411) от 06.01.2013
-
-VA - Paradise Islands (Mykonos Beach - Chillhouse Lounge Edition) (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monodeluxe - Look At Me Again
-02. H&H Soulsurvivors - Brazil
-03. Larse - Close Eyed Dancer
-04. Alex Douche - Stories (feat. Martin Landa)
-05. Deejay Lesa - Waves
-06. Neo Mind - Your Eyes (Original Mix)
-07. Sharon Phillips - Touch Me (Kenny Blake's Uplifting Remix)
-08. Paolo Madzone Zampetti - A2s
-09. Fast Vision Soul - Babatunde
-10. Demie - Alone in the Sunset(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B6A0C3DFC6F85BC2BFEC64F2D0DCFB85B9BA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599410   (999410) от 06.01.2013
-
-Фотография - Фотограф Daria Endresen
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Daria Endresen
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CE11FA1A28BAAD6AC021C9EC981E2AB44CDB34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599664   (999408) от 06.01.2013
-
-[Wallpapers] World of Animals (06.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999408.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] World of Animals (06.01.13)
-Название: World of Animals (06.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 4200х2800
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB32A28C65C02DFDA71AA1898CD784EA7FF4E624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599382   (999405) от 06.01.2013
-
-[Wallpapers] Art collection (06.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999405.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Art collection (06.01.13)
-Название: Art collection (06.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C282D38980A37BAAB71B899518087C27DF9DFCAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599438   (999402) от 06.01.2013
-
-Фотография - Фотограф Michael G. Magin
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Michael G. Magin
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BB094D67A0A9CA4A491CAC37AD0E44F95E1A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599415   (999401) от 06.01.2013
-
-Фотография - Фотограф Norbert Bares
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Norbert Bares
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31D9420C6A4891C2898AA5706679124B851F35B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599417   (999399) от 06.01.2013
-
-Wide Wallpapers - cities - Paris (06.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000260.jpg" />
 </div>
 
 
@@ -458,7 +116,7 @@ Wide Wallpapers - cities - Paris (06.01.13) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F8C46E704CEDB959B9E92AAA80880D405E945FB
+magnet:?xt=urn:btih:137D602DED56843FE2EACC4F3407BC58A8B8DE9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,25 +124,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599411   (999397) от 06.01.2013
+###  Публикация: 597829   (1000257) от 03.01.2013
 
-Фотография - Фотограф Andreas Kock
+[Wallpapers] Compilation of anime Pack 3
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Andreas Kock
+[Wallpapers] Compilation of anime Pack 3
+Название: Compilation of anime Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 5000х3000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00 до 5-ти сидов
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD92E1DF4735B9C991EFD1424E4B30EFF7CFE155
+magnet:?xt=urn:btih:81CBB185D9B2867CCCB8DE7BBC26CE206F7F267F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,25 +154,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599436   (999394) от 06.01.2013
+###  Публикация: 597831   (1000254) от 03.01.2013
 
-Фотография - Фотограф Christian Kettiger
+[Wallpapers] Compilation of anime Pack 5
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Christian Kettiger
+[Wallpapers] Compilation of anime Pack 5
+Название: Compilation of anime Pack 5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 5000х3000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00 до 5-ти сидов
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09AED8D1A744C7BAAB4E7BD2C71C2E59A09EFC5A
+magnet:?xt=urn:btih:050ED385E5851C9BBC12FCFFC582A37C6F186766
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,15 +184,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599418   (999392) от 06.01.2013
+###  Публикация: 597789   (1000250) от 03.01.2013
 
-Wide Wallpapers - waterfalls (06.01.13) [Wallpapers]
+Incredible Mixed Wallpapers (02.01.13) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000250.jpg" />
 </div>
 
 
@@ -536,7 +202,7 @@ Wide Wallpapers - waterfalls (06.01.13) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93837390EB06CD24529D45C2A054A3C5855D8631
+magnet:?xt=urn:btih:CDF588DF2783E616776887B367B844DE85304858
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,34 +210,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598780   (999391) от 06.01.2013
+###  Публикация: 597333   (1000244) от 03.01.2013
 
-VA - Pure Trance Bliss (2013) [MP3|320 кб/с]<Uplifting Trance>
+Andy Rock - Into The Night (2012) [MP3|320 кб/с]<Melodic Hard Rock/AOR>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Juventa - 405 (Original Mix)
-02. Jaco - Malaysia (Original Mix)
-03. Temple One - Aquamarine (Original Mix)
-04. LTN - Never Let Me Go (Anhken Sunset Remix)
-05. Jan Martin - Exemption (The Madison Remix)
-06. Jjoo - One Night In Seoul (Original Mix)
-07. Juventa & Answer42 - Like These Eyes (Answer42 Remix)
-08. Audien - Keep This Memory (Johan Malmgren Remix)
-09. Estiva & Tania Zygar - Death Of Me (Original Mix)
-10. Juventa - Roadtest (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:25:36
+01. Love Is Not A Game
+02. It’s Not Over
+03. U Belong To Me
+04. Lonely Heart
+05. Cryin’ Every Night (In The Rain)
+06. I Wanna Be With You
+07. Waiting For Your Love
+08. Without You
+09. Emotions (Instrumental)
+10. Out On The Streets(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 00:41:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F56C526884BC8E642D04C3AEB39444750E50B1C
+magnet:?xt=urn:btih:6F2688EA9C7B86A06D7F4732D1F4F6EC2984AD61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,29 +245,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599385   (999390) от 06.01.2013
+###  Публикация: 597796   (1000239) от 03.01.2013
 
-[Wallpapers] Abstract Wallpapers (06.01.13)
+Kenny Rogers - Faith (2012) [FLAC|Lossless]<Country, Folk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will the Circle Be Unbroken [04:41]
+02. Peace [03:34]
+03. I'll Fly Away (feat. The Whites) [03:17]
+04. The Rock of Your Love [03:53]
+05. In the Sweet By and By (feat. Winfield's Locket) [03:53]
+06. He Showed Me Love [03:04]
+07. Grace [04:21]
+08. What a Friend We Have in Jesus [03:01]
+09. Circle of Friends (feat. Point of Grace) [03:48]
+10. For the Love of God [03:57](   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597790   (1000237) от 03.01.2013
+
+Excelent Landscapes HD Wallpapers (02.01.13) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Abstract Wallpapers (06.01.13)
-Название: Abstract Wallpapers (06.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B5BD0B05920B929B6ECF48E6F358B931E29420A
+magnet:?xt=urn:btih:365B5A2C0FAC1BDBF852A46B430389437BE26F59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,27 +306,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599520   (999384) от 06.01.2013
+###  Публикация: 596725   (1000234) от 03.01.2013
 
-Dismantled - Whole Wide World (EP)(2012) [MP3|320 kbps] <EBM , Industrial>
+Извлечение / Extracted (2012) BDRip (1080p)
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000234.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Whole Wide World (05:03)
-02. Whole Wide World (Instrumental) (05:22)
-03. DiseaseЖанр: EBM , IndustrialПродолжительность: 00:46:07
+Главный герой Томас Джейкобс изобретает способ проникать в память людей и просматривать их воспоминания «своими глазами». Так он может возвращаться в собственные воспоминания и снова переживать счастливые моменты своей жизни. Но однажды Том вынужден действовать в разрез своим моральным принципам и использовать своё изобретение, чтобы войти в воспоминания одного наркомана и в буквальном смысле слова увидеть, совершал ли он преступление, в котором его обвиняют. Однако по причине повреждённости сознания преступника наркотиками, Том оказывается пойман в ловушке внутри его головы. Теперь ему предстоит прожить в памяти наркомана почти четыре года, до тех пор, пока он не обнаружит долгожданную возможность побега.Жанр: Фантастика, ДрамаРежиссер: Нир ПанириАктеры: Саша Ройз, Дженни Моллен, Доминик Богарт, Ричард Риле, Ник Джеймисон, Родни Истман, Фрэнк Эшмор, Брэд Калвер, Тай Симпкинс, Сара Томко, Оджи Дьюк, Джен Дэвис, Бернхард Форхер, Роберт Льюис Стефенсон, Джей Бингхэм, Д.Т. Карни, Чак Кобб, Мэтт Фоулер, Каиви Лайман, Чарльз Милано, Эрик Дарнелл Реддинг, Дэвид Салливан, Скотт ВоссПеревод: Многоголосый закадровый (BаibaKo)Продолжительность: 01:28:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAC2C90EA5D7C6ED00C04B4D39F36C33B04EDEC3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,23 +332,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599261   (999383) от 06.01.2013
+###  Публикация: 597545   (1000227) от 03.01.2013
 
-SUMo 3.4.17.192 [Multi/Rus]
+Виталий Сертаков | По следам большой смерти [2005] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина 22 века от Рождества Христова. Президент новой России Артур Коваль узнает, что возрожденный турецкий халифат готовится напасть на Россию. Спасти его страну может только встречный удар, но надежды на победу все равно нет, потому что враг намного сильнее. И тогда Артур Коваль, Проснувшийся Демон, отправляется в загадочный китайский храм, укрытый в лабиринтах подземного ракетного комплекса.
+
+Здесь, в царстве мутантов и убийственных миражей, Apтyp должен добыть оружие, которое принесет ему победу.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DE9C5F92EAB8923FB80686294EE5F2D5F0FC88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597733   (1000206) от 03.01.2013
+
+[Ico] Blue Black Ico by Verrone
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иконки для оформления ПК в черно-синих тонах.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F35DD9A7CBE603C2A4D9757129FBE23C181F0A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598069   (1000204) от 03.01.2013
+
+The Loc Chat 2.0 [Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SUMo - программа, позволяющая отслеживать появление обновлений для различных установленных на компьютере программных продуктов. В случае, если после проверки находятся более новые версии ПО, выводится соответствующее сообщение и выдается ссылка на закачку новой версии. Есть конечно и большое количество альтернатив этой разработке, есть вроде даже в Windows встроенная система поиска, но по словам авторов она мало эффективна, так как допустим разработчик обновил версию своего ПО, но на сайте пока нет официальной информации, вы об этом не узнаете через стандартную утилиту, а SUMo выдаст вам новую версию моментально.
+The Loc Chat это чат. И не просто чат, а чат только для локальных/домашних сетей! Многие работают за компьютерами в офисах, в университетах/институтах/колледжах и, как правило, все эти компьютеры объеденены в Локальную сеть, т.е. все компьютеры выходят в интернет (если таковой имеется) через один роутер или прочее оборудование, которое объединяет все эти компьютеры. А на этих роутерах устанавливают прокси, которые блокируют
+работу этих чатов. И что делать? Решение есть это "The Loc Chat".
 
-Как только вы первый раз запустите программу, она предложит вам провести сканирование компьютера, соглашайтесь, после вам выдадут список программ, собственно на скриншоте это видно. Чтобы добавить свои программы в список, нужно просто нажать "Сканировать" или перетащить ярлык или сам исполняемый файл в окно SUMo. Тогда жмем обновить и программа ищет обновления. Все просто.Название программы: SUMoЯзык интерфейса: Multi/Rus
+(   Читать дальше...   )Название программы: The Loc ChatЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -665,34 +415,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598158   (999382) от 06.01.2013
+###  Публикация: 597934   (1000190) от 03.01.2013
 
-Яйца Фаберже - Ямайские волки (2004) [MP3|320 кб/с]<Ska-Punk>
+TapinRadio 1.58.1 PRO [Мульти/Русский]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Ямайские волки (4:07)
-02 - Ситуации (2:27)
-03 - Свобода (4:29)
-04 - Черному мальчику хочется мака (2:06)
-05 - Солнце (2:49)
-06 - Флаера и баксы (3:45)
-07 - Не голубой (3:50)
-08 - Hools (3:57)
-09 - Слон (2:46)
-10 - Буратино (2:32)(   Читать дальше...   )Жанр: Ska-PunkПродолжительность: 00:42:53
+TapinRadio - это простой и достаточно надежный радиоплеер, главной особенностью которого является огромнейшая база данных радиостанций со всего мира. TapinRadio насчитывает около 15000 радиостанций, причем все они отсортированы по стране нахождения и стилю. TapinRadio умеет записывать музыку в mp3-файлы. При желании пользователя и поддержке радиостанции эфир можно разделять на отдельные композиции. Программа имеет простой интерфейс, вам не придется возиться с настройками потоков аудио и записи.Название программы: TapinRadio ProЯзык интерфейса: Мульти/Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2663DCE133948E1EFCA9BEAC70BA1C7DCD243877
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,25 +441,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599412   (999379) от 06.01.2013
+###  Публикация: 598208   (1000174) от 03.01.2013
 
-Фотография - Фотограф Anatoly Beloshchin
+WinUtilities Pro 10.55 [MULTi / Русский]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Anatoly Beloshchin
+WinUtilities - системный набор для настройки вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные инструменты, включая Чистильщик Мусорных файлов, Чистильщик реестра, Оптимизатор памяти, Системный информатор, Инструмент для резервирования реестра, Шифровальщик файлов, Деинсталлятор, Инструмент для поиска дубликатов файлов, Уничтожитель файлов и многие другие. Программа также включает в себя инструмент для удаления следов интернет серфинга. В целом, программа предлагает широкий спектр инструментов для обслуживания вашей системы, которые не так-то легко найти в одном наборе.Название программы: WinUtilities ProЯзык интерфейса: MULTi / Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45BE160C43B648A9B04514E9D916A56EE7C1C3B9
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -726,34 +467,267 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599093   (999377) от 06.01.2013
+###  Публикация: 597748   (1000170) от 03.01.2013
 
-Adeonesis - The Rite Of Our Cross (2012) [MP3|320 kbps] <EBM , Dark Electro>
+По ту сторону кровати / De l'autre cote du lit (2008) BDRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000170.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Entrance (03:53)
-02. Christ Filled With  Falsehoods (04:44)
-03. Lost Illusions (05:01)
-04. Your Mercy False (04:42)
-05. Mi Final (04:25)
-06. Sin Heart Breaking (04:27)
-07. Hell Without You (05:29)
-08. I Want To Die (04:20)
-09. My Wounds Bled (04:50)
-10. Evil (02:40)(   Читать дальше...   )Жанр: EBM , Dark ElectroПродолжительность: 01:12:47
+«Это невозможно, что ты делаешь целыми днями?! Я не могу все делать за тебя!» — примерно так ругаются некоторые супруги, после нескольких лет прожитых вместе. Ариадна и Хьюго вместе уже 10 лет и их семейная жизнь давно превратилась в рутину и взаимные упреки, но однажды их терпению приходит конец. Они решают поменяться местами.
+Теперь муж будет вести все домашнее (   Читать дальше...   )Жанр: КомедияРежиссер: Паскал Пузаду / Pascale PouzadouxАктеры: Софи Марсо / Sophie Marceau, Дэни Бун / Dany Boon, Антуан Дюлери / Antoine Duléry, Ролан Жиро / Roland Giraud, Анни Дюпре / Anny Duperey, Жюльет Арно / Juliette Arnaud, Клемо Кутюр / Clémot Couture, Франсуа Винчентелли / François Vincentelli, Дэльфин Ривьер / Delphine Rivière, Арсен Моска / Arsène MoscaПеревод: Авторский (одноголосый, закадровый)Субтитры: отсутствуютПродолжительность: 01:33:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:672B6E3BAEFB8FB44B18CAA7FA21949B65CA4BA3
+magnet:?xt=urn:btih:112AF70675BFD129CC789E25ABBD4F1282D80995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597925   (1000168) от 03.01.2013
+
+Tails (Incognito) 0.16-rc1 [Анонимный доступ в сети] [i386] (1xDVD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tails Live DVD - известная ранее также как "Incognito", основана на стабильной ветке Debian Live DVD / USB 6.0.6 и предназначена для обеспечения полной анонимности работы в сети.
+
+Основные обновления отражены на втором скриншоте, а также могут быть найдены на сайте проекта.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597877   (1000163) от 03.01.2013
+
+Eiga K-On! / K-ON! Movie / Кэйон! (фильм) [2011, MV] BDrip 720p rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпускной приближается к Юи, Рицу, Мио и Цумуги - участниц клуба легкой музыки. Они, вместе с Азусой, решили устроить себе выпускную поездку. А поехали они в Лондон!
+Что из этого получилось, смотрите в новом творении Kyoto Animation и режиссёра Ямады Наоко!Жанр: КомедияРежиссер: Ямада НаокоПродолжительность: 1:49:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598039   (1000162) от 03.01.2013
+
+Meridian 3.0.368.0 [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Meridian - музыкальный плеер в стиле Metro со множеством функций для социальной сети ВКонтакте. Интересно, что слушают друзья? Вы можете слушать аудиозаписи любого вашего друга. А если вам понравилась какая-то песня у друга, вы можете тут же добавить ее в свои аудиозаписи. Слушайте любимые треки, добавив их в плей-лист моей музыки. Слушайте избранные треки на всех ваших компьютерах, а в будущем и на мобильных устройствах. Слушайте музыку не отдельными треками, а целыми альбомами! Просто укажите название альбома и Meridian загрузит только песни указанного альбома. Да, это все плеер Meridian.Название программы: MeridianЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598236   (1000160) от 03.01.2013
+
+Непобедимый (1983) [H.264] DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Хромов, одержимый идеей создать новый вид борьбы - "самооборону без оружия", едет в Среднюю Азию, где знакомится с народной борьбой кураш. За время пребывания герой не раз попадает в трудные ситуации, из которых выйдет с честью. Действие фильма, посвящённого памяти Анатолия Аркадьевича Харлампиева, основоположника борьбы самбо, происходит в Советской России в 20-х годах прошлого столетия.Жанр: Приключения, БоевикРежиссер: Юрий БорецкийАктеры: Андрей Ростоцкий, Хамза Умаров, Нурмухан Жантурин, Едгар Сагдиев, Гульнара Дусматова, Биродар Атабаев, Дильшот Исмаилов, Николай КарповПродолжительность: 01:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE5B0A0B286D6216F4B19CA99BAAE1824B621A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598212   (1000144) от 03.01.2013
+
+Trillian Pro 5.3.Build 11 Beta [Мульти\Рус.]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trillian Pro - универсальный клиент для передачи сообщений через серверы ICQ, AIM, IRC, Yahoo и MSN Messenger. После его установки можно будет обмениваться сообщениями сразу во всех перечисленных сетях без установки самих программ ICQ, AIM и т.д. Доступны такие возможности, как зашифрованный чат (как двухсторонний, так и в режиме конференции), поддержка множественных ICQ/AIM одновременных сессий, мультисерверные соединения, звуковые эффекты, поддержка скинов (через XLM) c возможностью подстройки (вроде прозрачного фона).
+Новый замечательный дизайн и функции сделают ваше общение с друзьями событием! В новой версии поддерживаются все новые возможности Windows 7. Улучшена поддержка twitter. Программа имеет свой собственный протокол, с помощью которого вы можете просто переписываться или общаться в видеоаудио чате.
+Для владельцев планшетов или просто любителей рисовать мышкой доступен режим рисование, где вы в поле набора текста можете нарисовать или написать всё что угодно. Протокол программы поддерживает мгновенные (   Читать дальше...   )Название программы: Trillian ProЯзык интерфейса: Мульти\Рус.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598256   (1000141) от 03.01.2013
+
+Actual Multiple Monitors 5.0.2 [Мульти\Рус.]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Actual Multiple Monitors - полнофункциональное решение для повышения удобства работы с Windows в многомониторном режиме: Панель задач с кнопкой «Пуск» и Переключатель задач на дополнительных мониторах, функция быстрого перемещения окон между мониторами, расширенные настройки фоновой картинки и экранной заставки, поддержка профилей Рабочего стола, эмуляция режима Windows 7 Aero Snap, миниатюры предпросмотра и многое другое.
+Даже современные версии Windows, такие как Vista/7, обеспечивают лишь самый базовый функционал для работы с несколькими мониторами, снижая общую эффективность использования увеличившегося экранного пространства.
+Actual Multiple Monitors восполняет пробелы в интерфейсе Windows и значительно повышает эффективность и удобство использования нескольких мониторов.Название программы: Actual Multiple MonitorsЯзык интерфейса: Мульти\Рус.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598203   (1000137) от 03.01.2013
+
+DU Meter 6.05 Build 3768 [Eng/Rus] RePack by D!akov
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000137.jpg" />
+</div>
+
+
+###  Подробнее
+
+DU Meter - программа для подсчета реального входящего и исходящего сетевого трафика. Возможности: полностью настраиваемые объем трафика и предупреждения о времени модемного соединения; настраиваемая ежедневная, еженедельная и ежемесячная статистика (как по трафику, так и по времени соединения) с возможностью экспортировать данные в форматы Excel, Word, HTML, Text и др.; выключение компьютера при понижении трафика ниже заданного минимума. Одна из особенностей - показ прогнозируемого трафика на следующие неделю или месяц на основе имеющихся данных.Название программы: DU MeterЯзык интерфейса: Eng/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597953   (1000122) от 03.01.2013
+
+Светлана Ермакова, Леонид Жаров | Я просто Ванька [2006] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если хотите узнать детскую душу - Вам сюда, в эту книгу. Книга для душевного чтения и разговора с родителями. Авторы писали ее вместе с сыном Ваней, он просто диктовал многие главы - в каждой строчке непридуманное детство. Это повод к длинному, умному разговору.Жанр: публицистика, ликбез
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FAEF60FA5E7FBE07EA2AA207B32D081A0477F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597881   (1000118) от 03.01.2013
+
+Новый Ералаш (2013.01.02) SATRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский юмористический киножурнал об историях, которые случаются с ребятами в школе и дома,во дворах и на улице. Поучительные кинозарисовки прививают молодому поколению любовь и уважение к сверстникам и окружающим.Жанр: ЮморПродолжительность: ~ 00:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9485719AF0687E2E58D6BC8AE87DB47DB86EBF9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

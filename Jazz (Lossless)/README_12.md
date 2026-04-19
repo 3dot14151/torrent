@@ -1,3 +1,32 @@
+###  Публикация: 1454675   (1026136) от 16.03.2021
+
+Bob Baldwin - Newurbanjazz 3 - an Urbansmooth Suite (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Urban Smoothsmith
+02. Funk in De Pocket
+03. Friday Night
+04. Dance 3000(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3BE26338F2E4C615FA67E540328C458D9C951F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454892   (1026009) от 17.03.2021
 
 Steve Davis Quartet with Larry Willis - Alone Together (2007) Mapleshade Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -716,35 +745,6 @@ Jonny King - In From The Cold (1994) Criss Cross [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D46B09713769337A1601E25A7D03B0750B529A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461081   (1022093) от 08.04.2021
-
-VA - Best Of Green Hill Music: The Jazz Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beegie Adair - The Way You Look Tonight (3:17)
-02. Stephen Kummer - Let's Fall In Love (3:46)
-03. Jack Jezzro - Night And Day (3:34)
-04. Pat Coil - Softly As In A Morning Sunrise (3:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E3FAA364C0A4CA494C106ADF17EAB3EA7373D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

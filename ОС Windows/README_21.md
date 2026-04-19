@@ -1,3 +1,107 @@
+###  Публикация: 1180429   (339284) от 04.11.2017
+
+Раздел восстановления (RECOVERY) ноутбука Lenovo B560 W7HB x16-96092 (x64) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Копия скрытого раздела восстановления (RECOVERY), созданная в программе Acronis True Image 2010 в посекторном режиме копирования, с помощью которого можно восстановить систему в заводском состоянииЯзык интерфейса: русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287E7CE882F3A6C1671618E931B2B3ABFFE8CDF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180808   (336879) от 05.11.2017
+
+Recovery DVD for Lenovo IdeaPad S10-3S / Windows 7 Starter (х32) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ загрузочного DVD диска Windows 7 Starter, продававшегося с нетбуком Lenovo S10-3SЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB69397F8AFEF36B4BD06309EC1C24CCEE674B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579879   (332753) от 29.09.2022
+
+Microsoft Windows 11 [10.0.22621.525], Version 22H2 (Updated September 2022)  - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A154655425DB006EFF8E1CBC97DF8B1988FE352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956034   (330752) от 13.11.2015
+
+Microsoft Windows 10 Enterprise 10.0.10586 Version 1511 - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB68B191B9DCB6B32EFD9C8290593779F850D9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955978   (330748) от 13.11.2015
 
 Microsoft Windows 10 Pro-Home | Single Language 10.0.10586 Version 1511 - Оригинальные образы [Ru]
@@ -577,116 +681,6 @@ Microsoft Windows 10.0.17763.107 Version 1809 (October 2018 Updated) - Ориг�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25E4A1323B0230A27D090202D254907753B297DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187980   (275379) от 01.12.2017
-
-Microsoft Windows 10 10.0.16299.64 Version 1709 (Updated Nov. 2017) - Оригинальные образы от Microsoft [VLSC/MSDN] [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 Fall Creators Update (версия 1709 16299.64) VLSC/MSDN.
-Осеннее обновление Windows 10 Fall Creators Update (Redstone 3) от 28 ноября 2017 года.
-С обновлением Windows 10 Fall Creators Update (версия 1709) должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2719F110CB0C9AC3DAE17DB1D82A5BB02232FC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187956   (275365) от 01.12.2017
-
-Microsoft Windows 10 10.0.16299.64 Version 1709 (Updated Nov. 2017) - Оригинальные образы от Microsoft [VLSC/MSDN] [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 Fall Creators Update (версия 1709 16299.64) VLSC/MSDN.
-Осеннее обновление Windows 10 Fall Creators Update (Redstone 3) от 28 ноября 2017 года.
-С обновлением Windows 10 Fall Creators Update (версия 1709) должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540C017D5F74C638B1CAAF4EF13039B5002F297A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188281   (274100) от 02.12.2017
-
-Microsoft Windows 10 10.0.16299.64 Version 1709 (Updated Nov. 2017) - Оригинальные образы от Microsoft [VLSC/MSDN] [Ukr]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 Fall Creators Update (версия 1709 16299.64) VLSC/MSDN.
-Осеннее обновление Windows 10 Fall Creators Update (Redstone 3) от 28 ноября 2017 года.
-С обновлением Windows 10 Fall Creators Update (версия 1709) должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA53E7BDF16F2A1564E64915C9B7D609B46D8F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338565   (269315) от 15.11.2019
-
-Набор обновлений UpdatePack-XPSP3-Rus Live 19.11.15 [Ru]
-
->>ОС Windows
->>Разное (RC, Beta и Service Packs)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ключевой особенностью набора является наличие тех же обновлений, какие содержит UpdatePack-XPSP3-Rus. Дополнительно включены обновления тех продуктов, которые являются частью операционной системы: Windows Media Player 9-11 и Internet Explorer 6-8, а также исправления ошибок локализации. Возможна установка полных версий IE8 и WMP11, дополнительных программ и обновлений.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A192746401F709A644FBABFE3675F91DB8556E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

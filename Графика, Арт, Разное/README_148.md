@@ -1,3 +1,32 @@
+###  Публикация: 491097   (130228) от 02.05.2012
+
+[Wallpapers] Minimalism Desktop Wallpapers Pack 2
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130228.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Minimalism Desktop Wallpapers Pack 2Название: Minimalism Desktop Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1366х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82AF63E16956C84F015621F8AB48C76D17F945E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491069   (130098) от 02.05.2012
 
 Иконки - Recycle Bin Icons – эксклюзивная коллекция иконок корзины
@@ -482,32 +511,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8473D573A89B1F85309A0D1602D28965CC316374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490531   (102482) от 01.05.2012
-
-Silver&Gold icon pack 2012 [Eng]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые иконки для рабочего стола а так же для их применения по желанию пользователяНазвание программы: Silver&Gold icon packЯзык интерфейса: EngФормат: ico/png
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

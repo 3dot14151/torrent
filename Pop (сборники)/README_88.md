@@ -1,31 +1,25 @@
-###  Публикация: 563021   (404877) от 21.10.2012
+###  Публикация: 1066647   (411674) от 26.10.2016
 
-VA - СуперДискотЭка 90-х Часть 2 (2012) [MP3|128 кб/с]<Pop, Dance>
+VA - Любимая Музыка Для Твоей Тачки Зарубежный (2016) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Руки Вверх - Ну где же вы девчонки
-002. Bellini - Samba De Janeiro
-003. Отпетые Мошенники - Хали-гали
-004. Samira - I Was Him
-005. Профессор Лебединский - Бэса ме мучо
-006. Scooter - I Was Made For Lovin’ You
-007. Комиссар - Наше время пришло
-008. E-Type - Hero I Go Again
-009. Валерий Меладзе - Лимбо
-010. Sash! - Adelante(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:40:46
+01. Astronomyy - The Secret
+02. Gestort Aber Geil - Demons
+03. Steven Tyler - I Make My Own Sunshine
+04. Pitbull - Never Let You Go(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47F36CC3600227A6982225D15286B9B4D7F43158
+magnet:?xt=urn:btih:30E03BD4EC93F328AEC2308EE158C4128EA20644
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,34 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563648   (404432) от 21.10.2012
+###  Публикация: 1413112   (411330) от 02.10.2020
 
-VA - Супер дискотека 90-х. Зарубежная версия (2012) [MP3|256 кб/с]<pop, dance, disco>
+VA - 100 Greatest 90s Pop Classics (2020) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Culture Beat - Got To Get It
-002. Scooter - Back In The U K
-003. Dr. Alban - It's My Life
-004. Army Of Lovers - Israelism
-005. Digital Emotion - Dance To The Music
-006. Sash! Feat.Rodriguez - Ecuador
-007. Amadin - Alrabaiye
-008. Cb Milton - A Real Love
-009. Double Vision - All Right
-010. Bananarama - Every Shade Of Blue(   Читать дальше...   )Жанр: pop, dance, discoПродолжительность: 06:16:39
+001. Britney Spears - ...Baby One More Time (3:31)
+002. Take That - Back for Good (Radio Mix) (4:01)
+003. Madonna - Vogue (5:16)
+004. Michael Jackson - Black or White (Single Version) (3:18)(   Читать дальше...   )Жанр: PopПродолжительность: 06:59:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E392806EAED377A4FC45D97C3C7FEF3D6E570E7
+magnet:?xt=urn:btih:32E4A4C1195FA17A53DFE4B8A6AFEFEA4C4DC383
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -68,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 711806   (404188) от 18.10.2013
+###  Публикация: 948521   (411255) от 20.10.2015
 
-Silent Circle - 25 Best Songs (2012) [MP3|238-278 кб/с]<Disco>
+Arabesque - Super Hits Collection (2015) [MP3|320 кб/с]<Pop, Disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Touch In The Night 1986
-02. Egyptian Eyes 1994
-03. Love Can Last A Lifetime 1998
-04. Moonlight Affair 1986(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:45:06
+01. In The Heat Of A Disco Night
+ 02. Friday Night
+ 03. Midnight Dancer
+ 04. Marigot Bay(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:12:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E02A41E2CCE8DB951FC5897C93C09F95C378D7EB
+magnet:?xt=urn:btih:11FE568E165C98243C269E9D53712BB75622CF79
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -97,34 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563933   (404017) от 22.10.2012
+###  Публикация: 948260   (410924) от 20.10.2015
 
-VA - Супер новая двухсотка хитов 50/50 (2012) [MP3|128 кб/с]<Pop>
+Roxette - Good Songs (2015) [MP3|320 кб/с]<Pop-Rock>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Полина Гагарина - Нет
-002. Akon - America's Most Wanted
-003. Anton Liss feat. Вика Маскова - Прощай (Radio Edit)
-004. Justin Bieber feat. Nicki Minaj - Beauty And A Beat
-005. Жанна Фриске - Навсегда (ChinKong Production Mix)
-006. Pitbull - Sube Las Manos Pa Arriba
-007. J.S.T. - Электронный Вальс (Radio Mix 2012)
-008. R.I.O. feat. Nicco - Party Shaker (Video Edit)
-009. Archi-M и Андрей Леницкий - Клавиши Души
-010. Usher - I.F.U(   Читать дальше...   )Жанр: PopПродолжительность: 12:17:54
+01. I Don't Want To Get Hurt
+02. She Doesn't Live Here Anymore
+03. Vulnerable
+04. Queen Of Rain(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 05:40:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A431BFA8E00A3B75F299447A6D493B78BAE527FC
+magnet:?xt=urn:btih:A4A2F7DDF535BF422EE75CE750CA44295E4016F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,34 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563944   (404010) от 22.10.2012
+###  Публикация: 948652   (410704) от 20.10.2015
 
-VA - Хит Сезона Love Radio Русский (2012) [MP3|256 кб/с]<Pop>
+Queen - 25 Best Songs (2015) [MP3|~245 кб/с (V0)]<Pop-Rock>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Samo'L - Двигаем Телами
-002. Потап и Настя - Улелето
-003. Виктория Дайнеко - Дыши
-004. VITA - Вставай!
-005. Саундмания - До встречи в скайпе
-006. Roma Kenga - Наш Бой Окончен
-007. Девушки Эйнштейна - Шуга
-008. El Ray & Марина Алиева - Вселенная Любви
-009. Milena & Murzin Denis - В эту ночь
-010. Оксана Ковалевская - А Девочке Хочется(   Читать дальше...   )Жанр: PopПродолжительность: 5:54:56
+01. The Show Must Go On 1991 (04:24)
+02. I Want To Break Free 1984 (04:19)
+03. Under Pressure 1982 (03:57)
+04. I'm Going Slightly Mad 1991 (04:09)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:47:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D75E28B40E9FA1635C1654D5F751D58A9FAB6818
+magnet:?xt=urn:btih:84EAB9B3B2057107244070D34263182926950A55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,34 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563663   (403843) от 22.10.2012
+###  Публикация: 1066693   (410190) от 27.10.2016
 
-VA - Фейерверк хитовых новинок Europa Plus (2012) [MP3|256 кб/с]<Pop, Dance>
+VA - Заключительная осенняя дискотека. Часть 4 (2016) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1
-001. Michel Telo - Bara Bara Bere Bere
-002. Justin Bieber feat. Nicki Minaj - Beauty And A Beat
-003. USB & Сергей Жуков - Скажи зачем
-004. Inna - Tu Si Eu
-005. Flo Rida - Hey Jasmin
-006. Глюкоза и Макс Барских - Адреналин
-007. Айшат Айсаева - Оп-Оп-Оп (DJ Nariman Mix)
-008. Fly Project - Back In My Life
-009. Akon - America's Most Wanted(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:12:34
+001. N.A.O.M.I. - Ты Скажи
+002. Kylie Minogue - White December
+003. Юлия Адамчук - Хочу Огня
+004. Елена Есенина - Cup Your Hands(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BC92972314E1F2EE74B0D0473E149E93B3BDE17
+magnet:?xt=urn:btih:1089B3B7B53F1CBC62E39A41837D23487B282338
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -202,34 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563924   (403777) от 22.10.2012
+###  Публикация: 1066884   (410078) от 27.10.2016
 
-VA - Осенняя дискотека от Европа Плюс. Зарубежный выпуск (2012) [MP3|256 кб/с]<Pop>
+VA - Мега хитовая Осень 6 (2016) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Tommy Vee & Nicola Fasano - Tell Me Waf
-002. House Generation - Macarena 2012 (Alejandro Montero Electro Vocal Mix)
-003. Bobina Feat. Erin Marsz - Let You In
-004. John B - Robot Lover
-005. Daley Padley, Prok & Fitch - The New Wave (Marco Lys Vs. Prok & Fitch 2012 Re-Rub)
-006. Brainstorm - Below The Line
-007. Digital Mass - Love Martini Ice (Original Mix)
-008. Gaia - Status Excessu D
-009. Nuera - The Lost Island
-010. Anton Neumark, Johnny Beast - We Rock The Party (Original Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:52
+001. Денис Клявер & Анна Семенович - Привычка
+002. Nero - Circles
+003. Oleynik - Прости
+004. Quintino - Scorpion(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16165FB5F178978C6A2388AB75360239255486B1
+magnet:?xt=urn:btih:878C91606EC916E01C618E8528EA3FBCB44FB2D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 712613   (403230) от 19.10.2013
+###  Публикация: 1066732   (410068) от 27.10.2016
 
-C.C. Catch - 25 Best Songs (2012) [MP3|256 кб/с]<Eurodisco>
+VA - Попсовая соточка Хит fm. Версия 2 (2016) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cause You Are Young 1986
-02. Heartbreak Hotel 1986-2
-03. Goog Guys Only Win In Movies 1987
-04. Backseat Of Your Cadillac 1988(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:44:38
+001.5sta Family - Так Бывает 3:55
+002.30.02 - Ты Самая Лучшая 3:02
+003.Alex Kafer - Все Для Тебя 3:32
+004.Alex Mica - Afrodita 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6B405B225CD3DAB4204CD9CC638F845ECBF508A
+magnet:?xt=urn:btih:B39AB65D0DC083768177B3299ADD4BCC5C1A8BBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -266,28 +230,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 712606   (403223) от 19.10.2013
+###  Публикация: 559616   (410018) от 12.10.2012
 
-Modern Talking - 25 Best Songs (2012) [MP3|228 - 267 кб/с]<Eurodisco>
+VA - Русский Размер (2012) [MP3|256 кб/с]<Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You're My Heart, You're My Soul 1985-1
-02. Cheri Cheri Lady 1985-2
-03. Lady Lai 1986-1
-04. China In Her Eyes 2000(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:36:43
+01. Мохито и Александра Стрельцова - Разбежаться
+ 02. Тимур Родригез - Я Верю В Твою Любовь
+ 03. Бьянка - Рага
+ 04. Elvira T - Одержима (Version 2012)
+ 05. Влад Дарвин - Сохраню Любовь
+ 06. Светлана Светикова - Ночь
+ 07. Tori Joy - Сумасшедшая Любовь
+ 08. Иракли - Осень (Remix)
+ 09. Монако - 13 Роз
+ 10. Влад Соколовский и Паулина Анис - ГонкиЖанр: PopПродолжительность: 06:13:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14F20322017E2F19599C41F9ACB1B215701289F7
+magnet:?xt=urn:btih:8D271C420EECFA6B2F9E539DDD19A3559DE46E99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,28 +265,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 712580   (403166) от 19.10.2013
+###  Публикация: 1413400   (409846) от 03.10.2020
 
-Michael Jackson - 25 Best Songs (2012) [MP3|235 - 272 кб/с]<Pop>
+VA - Hottest Autumn Hits (2020) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Billie Jean 1982
-02. Beat It 1982
-03. Wanna Be Startin' Somethin' 1982
-04. Human Nature 1982(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:00
+001. Hoxygen - Rejoice
+002. DJ Combo - Beautiful Day
+003. Alper Karacan - Deep King
+004. Javi Cerezo - A Tu Lado(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:37:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E54FC3C64C056711886B83104617C8B30639B95F
+magnet:?xt=urn:btih:500D8CC6D03C3B93A7FFB3E6A0C038331C15B98A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,28 +294,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169293   (403097) от 27.09.2017
+###  Публикация: 1067000   (409758) от 27.10.2016
 
-VA - Musical Dreams: Popular Session Of September (2017) [MP3|320 Kbps] <Pop>
+VA - Попсовый мегахит от Русского радио (2016) [MP3|256~320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Rick Astley - Keep Singing
-002. Axwell Λ Ingrosso - More Than You Know
-003. Ed Sheeran - Galway Girl
-004. LP - Lost on You (Addal Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 07:32:59
+001. Michelle Andrade feat. Mozgi - Amor  3:45
+002. Stereo Isterika - Малая  3:33
+003. Mseven - Танцуй В Темноте  3:36
+004. Максим - Хорошо  3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE45FEBF02E092CA257A4C65E1FDF14B38A90CB3
+magnet:?xt=urn:btih:404CEC59E4A5FB57A59F37B80B8252B9C081E364
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -353,34 +323,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564409   (403070) от 23.10.2012
+###  Публикация: 1413409   (409662) от 03.10.2020
 
-VA - Музыкальные Новости Русский (2012) [MP3|256 кб/с]<Pop>
+VA - German Top 100 Single Charts 02.10.2020 [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vlad Bostan - Любовь Не По Сценарию
-02. Tisha - Любовь
-03. Mainstream One - Моя Мечта
-04. Горячий Шоколад - Ты Обними
-05. Борис Моисеев И Pastor Bob - Один Раз
-06. Dj Sandro Escobar - Давай, До Свидания!
-07. A'studio - Просто Прощай
-08. Julia Lasker - Хочу
-09. Дилайс - Нежно-Нежно
-10. Алина Артц - Со Мной По-Другому Нельзя(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:52
+01. 24kgoldn - Mood (feat. Iann Dior)
+02. Loredana & DeLara - Checka
+03. Internet money, Gunna & Don Toliver - Lemonade (feat. NAV)
+04. Bonez MC - NIEMALS UNTER 1000 (feat. Lx)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B136CE84EA659340755A21B14D359166E5CDE5F7
+magnet:?xt=urn:btih:05EFBC528CE69FCBA3D4E70FBBE39D2EDF34216B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,34 +352,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563995   (403036) от 23.10.2012
+###  Публикация: 1252558   (409082) от 05.10.2018
 
-VA - Взрывная волна Русского Радио (2012) [MP3|256 кб/с]<Pop, Dance>
+Eros Ramazzotti - Next Steps (2018) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dari-M - Ты Будешь Мой
-002. Isamin - О Тебе
-003. Vetra-N - Не Хочу
-004. Ассорти - Неземное Притяжение
-005. Святослав Бах - Девочка-Кокеточка
-006. Тимати - Давай, До Свидания!
-007. A-Dessa - Fire
-008. Dicaprio - Моё Сердце
-009. Алекс Малиновский & Сергей Рига - Белые Ночи
-010. Инфинити - Ты Мой Герой(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:23
+01. Canzone Per Lei (3:40)
+02. Ci Parliamo Da Grandi (4:34)
+03. Controvento (3:46)
+04. Cose Che Ho Visto (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A366A237464BED0ED366782C1D9737A90CEACDC
+magnet:?xt=urn:btih:4A7B7F7FD831D1FEBCC04655C1E7918E10ABEC47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,34 +381,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563925   (403035) от 23.10.2012
+###  Публикация: 1252390   (408989) от 05.10.2018
 
-VA - Зажигаем все вместе (2012) [MP3|256 кб/с]<Pop>
+VA - 200 Hits Of The Pops (2018) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reflex - Я Буду Небом Твоим (Extasy Project Remix)
-02. Loboda - Облака (DJ Ozeroff & DJ Sky feat. Lebedev remix)
-03. MaXimA - Так тихо (Fidel Wicked radio edit)
-04. Rocco and Bass - T vs. REDTZER - Holy Grouns
-05. Ольга Литвиненко - Листья
-06. 3D-Mix - Я Улетаю (Remix)
-07. ViRUS! - Р- Rapture (Avicii New Generation Radio Edit)
-08. Will.I.Am feat. Jennifer Lopez - T.h.e. (DJ Rich-Art & DJ Kirillich remix)
-09. Александр Лир - Сделай Это Быстро
-10. Ассорти - Ангелы(   Читать дальше...   )Жанр: PopПродолжительность: 06:49:33
+001. Ini Kamoze - Here Comes The Hotstepper
+002. Vozquez Sounds - Eco
+003. Samantha Jade - Never Can Say Goodbye
+004. Chris De Burgh - The Lady In Red(   Читать дальше...   )Жанр: PopПродолжительность: 12:04:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CB606FECCACE98498B0230E64F411CD5387F3D1
+magnet:?xt=urn:btih:F6AB8272696B2F170B01190262AB43E092EB2803
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,34 +410,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564404   (403007) от 23.10.2012
+###  Публикация: 559505   (408491) от 13.10.2012
 
-VA - Дискотека Non-Stop 7 от Русского радио (2012) [MP3|256 кб/с]<Pop>
+VA - Радио Шторм - Русский Шторм - 73 (2012) [MP3|320 кб/с]<Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Горячий Шоколад - За Тобой
-02. In & Out - Без Неё
-03. David - Надо Ли Нам
-04. Технология - Сестра
-05. Artik pres. Asti - Сладкий Сон
-06. А.Р.М.И.Я - Клянусь
-07. Audio Girls feat. Батишта - Игра
-08. DJ Сателлит & Marlena vs. Narcotic Thrust - Я Люблю (Tonada Radio Mix)
-09. Никита - Найди меня
-10. Наталья Подольская Интуиция(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:25
+1. Alyosha (Алеша) - Точка На Карте
+2. Andy Groove Ft. Danila Rastv & Женя Юдина - Для Нас (Ivan Art Remix)
+3. Belka - Прости
+4. David - Я Люблю Тебя За Это
+5. Dfm Radio - A-Dessa-Fire ( Dfm Mix)
+6. Eldor Q feat. Martinez Live Sax - Планета Любви (Dj Sam Radeo And Greenleto Radio Mix)
+7. Elvira T - Одержима (Version 2012)
+8. In Da Team - Оглянись
+9. Julia Lasker - Хочу
+10. Liliya - Птицами (Version 2012)Жанр: Pop, DanceПродолжительность: 02:43:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D4F89EA2E12B444F84164939C5A3CFC95D3FF18
+magnet:?xt=urn:btih:9841F7CD86729F5760EC7C033E4C529DDEF05AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,34 +445,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564097   (403005) от 23.10.2012
+###  Публикация: 1067247   (408474) от 28.10.2016
 
-VA - Need for speed Drayvovy mix (2012) [MP3|256 кб/с]<Pop>
+VA - Осенняя клубничка №10 (2016) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Virone - Расстояние (Dj Glazunov remix)
-02. Вика Гранд - Я не боюсь (Emotive Tunes original mix)
-03. Корнелия Манго - Запретная Любовь
-04. T - killah feat. Лена Катина (ex. t.A.T.u) - Shot
-05. Мари Краймбрери - Смогу ли я без тебя
-06. АнгелиЯ - Душа Устала
-07. Movetown feat. Nana - Lonely (Empyre One Remix)
-08. Fly Project - Musica (Radio Edit)
-09. Switch Fusion - Anchor (original mix)
-10. Keane - Sovereign Light Cafe(   Читать дальше...   )Жанр: PopПродолжительность: 07:24:31
+001. Giorgio Moroder - Deja Vu
+002. Cade - Care
+003. Сандра Круглова - Мгновение
+004. Ariana Grande - Moonlight(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F84BC1B1CF369FBDD171B8A915F0D8E05BE83CA6
+magnet:?xt=urn:btih:0B4412D4A7588C45B49646A65B9C9FA82935FE44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,34 +474,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564093   (403003) от 23.10.2012
+###  Публикация: 1067079   (408397) от 28.10.2016
 
-VA - Вкусные хиты на Love Radio (2012) [MP3|256 кб/с]<Pop, Dance>
+VA - Осенняя позитивная 100-ка. Сборник 6 (2016) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Inna feat. Play & Win - Inndia (Radio Edit)
-002. Nicole Scherzinger - Wet
-003. Диверсанты - Мама Люба Дала Бы
-004. AD Mens - Это Лето
-005. Mr. Jamming - I Found The Love
-006. Evanescence - What You Want
-007. Зара - Ради Тебя
-008. Ирина Аллегрова - Ты не такой, как
-009. Relanium Vs. Danny S - Intoxicated (Extended Mix)
-010. Иракли - Я тебя люблю(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:12:34
+001. Yana Beliz - Влюблена
+002. Geo Da Silva - I Love U Baby
+003. Слава - 2 Л 2 Ю
+004. Chris Brown - Little More(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:670B205C7DA25B9CAFABD8BAD8FCCE770B8B5B6B
+magnet:?xt=urn:btih:7F78FEACD03DD0095D5697D1FC2D9368CB56899F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,34 +503,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564007   (403000) от 23.10.2012
+###  Публикация: 1067275   (408393) от 28.10.2016
 
-VA - Сливки Русского радио: Лучшие песни 9 (2012) [MP3|256 кб/с]<Pop>
+VA - Популярный драйвовый хитовичок. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Чи-Ли - Океан
-002. Karina - Единственный (Pop-Mix)
-003. Оксана Почепа - По подоконнику дождь
-004. MatreShka Girls - Love Show
-005. Lilu - Пара-паранойя (DJ Jedy Radio Remix 2012)
-006. Stereoplen - Не без боя
-007. DJ Magnit & DJ Kefir & T9 & Tina Smith - Пусть все будет так, как ты захочешь
-008. Дмитрий Каминский - Давай со мной
-009. Рома Желудь - Я не игрушка для тебя
-010. Ажур - Не надо искать(   Читать дальше...   )Жанр: PopПродолжительность: 12:26:11
+001.Alex Mica - Afrodita 3:39
+002.Andre Tay - Детство 4:05
+003.Arti - Параллели 3:39
+004.Auryn Feat. Anastacia - Wh's Loving You 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:650C9BEEE7C8F53848915584E58161866257FA45
+magnet:?xt=urn:btih:37090EBF160D1174C2D8DB3ABB4386288F0970A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,34 +532,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564013   (402999) от 23.10.2012
+###  Публикация: 559574   (408370) от 13.10.2012
 
-VA - На Радиоволнах Хит FM (2012) [MP3|128 кб/с]<Pop>
+VA - Осенний Плей-Лист 50/50 (2012) [MP3|256 кб/с]<Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Анна Семенович - Любовь Под Облаками
-002. Will.I.Am feat. Nicole Scherzinger - Hoola Hoop
-003. Вера Брежнева и DJ Smash - Любовь На Расстоянии
-004. Alexandra Shine - Play That Game
-005. Дима Билан и Ева - Малыш
-006. Enrique Iglesias feat. Sammy Adams - Finally Found You (Vice Radio Edit)
-007. Митя Фомин - Наглый Ангел
-008. Khaled feat. Pitbull - Hiya Hiya
-009. Ёлка - Хочу
-010. Rico Bernasconi feat. Oraine & Ski - Undercover Lover (Radio Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 11:48:07
+01. Денис Клявер - Твои Руки
+02. Ysa Ferrer - Por Que Te Vas
+03. Нюша (Nyusha) - Воспоминание (Extra Edit)
+04. Akon Feat. Busta Rhymes - Call Da Police
+05. Макс Лоренс - Всё Что Мне Надо (Summer Mix 2012)
+06. Alexandra Stan Feat. Carlprit - 1.000.000 (Rico Bernasconi Remix Edit)
+07. Shami & Mx - Мы Небо-Земля
+08. Andreea Banica - Could U (Radio Edit)
+09. Вера Брежнева - Бессонница
+10. Abel The Kid & Julio Iglesias Jr. Feat. Snoop Dogg - A Piece Of My Love(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:440F70FE19DC37F01B71FB7FDA174980065E9E4E
+magnet:?xt=urn:btih:3502F2C19C27EF6EB7DA8532DA6BCB923925BFAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,34 +567,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564400   (402991) от 23.10.2012
+###  Публикация: 949171   (408257) от 22.10.2015
 
-VA - Осенний Top MTV (2012) [MP3|256 кб/с]<Pop, Dance>
+VA - Фея Дождя. Песни на стихи Франчески Тотти (2015) [MP3|320 кб/с]<Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Kerli - The Lucky Ones
-002. Girls Aloud - Something New
-003. Leona Lewis - Glassheart
-004. Pitbull - I'm Off That
-005. Kesha - Die Young
-006. Christina Aguilera - Your Body
-007. Alexis - Good Bye My Love (Radio Edit)
-008. Ashley Walters feat. Alesha Dixon - Your Love
-009. Magic Deejays - Close To Me (Radio Edit)
-010. Allexinno feat. Starchild - Joanna (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:03:09
+01. MILEN - Фея дождя (02:37)
+02. Сергей Ищенко - Дождь сентября (04:03)
+03. Андрей Бирюков - В городе дождь (03:55)
+04. Arkadias feat Francheska Totti - Дышать (03:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:22:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96DB88140CC2075A0603E4DF675044D49168D688
+magnet:?xt=urn:btih:BA6D69BC77F76C083B15C2738347237305BAE8CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,34 +596,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564427   (402990) от 23.10.2012
+###  Публикация: 559498   (407395) от 14.10.2012
 
-VA - Мобильная 200-ка Интернета (2012) [MP3|128 кб/с]<Pop>
+VA - Радио Шторм - NeРусский Шторм - 74 (2012) [MP3|320 кб/с]<Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Руки Вверх! - Я тебя люблю
-002. DJ Smash feat. Вера Брежнева - Любовь на расстоянии
-003. Samo'L - Двигаем Телами
-004. Тимур Родригез - Я верю в твою любовь
-005. Глюкоза - Возьми меня за руку
-006. Даша Суворова - На лондонских стеклах
-007. Марсель - Настроение осень
-008. El Ray & Марина Алиева - Вселенная Любви
-009. Дима Билан - Все ускорилось
-010. Елка - Хочу(   Читать дальше...   )Жанр: PopПродолжительность: 12:06:34
+1. Adrian Sina - Hypnotised (Radio Edit)
+2. Agnes - All I Want Is You
+3. Agnes - Walk Out Of Here
+4. Alex Mica & Starchild - Bailamos (Angel Stylo Remix)
+5. Alexandra Shine - Play That Game
+6. Alexis - Good Bye My Love (Radio Edit)
+7. Amna - Tell Me Why (H.X.D. Remix)
+8. Arwen - Love Me (Radio Edit)
+9. Balkan Girls - Love Me On Repeat
+10. Bogdan feat. Dr. Slim - Time To MoveЖанр: Pop, DanceПродолжительность: 03:48:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A47D7FC491128A9B569C7E1583D4648FB96E226
+magnet:?xt=urn:btih:4B571A746264B41731D8C53B7E6F8A173F9FD34E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,34 +631,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564829   (402433) от 24.10.2012
+###  Публикация: 560046   (407306) от 14.10.2012
 
-VA - Осенний Муз-Paradise (2012) [MP3|256 кб/с]<Pop>
+VA - German TOP100 Single Charts (13.10.2012) [MP3|192-320 кб/с]<Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Светлана Лобода - 40 Градусов
-02. Маша Вебер - Все для тебя
-03. Светлана Разина и Наталья Гулькина - Женщине верить нельзя!
-04. Полина Гагарина - Спектакль окончен
-05. Горячий Шоколад - За Тобой
-06. MMDance feat. Dj Smash - Суббота
-07. Дарья Ярцева - Дай Мне
-08. Artik & Asti - Облака (DFM mix)
-09. Денис Клявер - Твои руки
-10. B.K. - Просто Забудь(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:05
+01. Psy - Gangnam Style
+02. Asaf Avidan & The Mojos - One Day-Reckoning Song
+03. Marteria, Yasha & Miss Platnum - Lila Wolken
+04. Rihanna - Diamonds
+05. Xavas - Schau Nicht Mehr Zuruck
+06. Lena - Stardust
+07. Lykke Li - I Follow Rivers
+08. Klangkarussell - Sonnentanz
+09. Onerepublic - Feel Again
+10. David Guetta Feat. Sia - She Wolf (Falling To Pieces)(   Читать дальше...   )Жанр: PopПродолжительность: 06:20:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8445486D257E34338C901EEA39C9A432197BDC3E
+magnet:?xt=urn:btih:C0F0CE1A78D795FE9238ECB6FCA9D4CA974B0E14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -738,34 +666,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564836   (402420) от 24.10.2012
+###  Публикация: 559834   (406847) от 14.10.2012
 
-VA - Русский муз-хит (2012) [MP3|256 кб/с]<Pop>
+VA - D-скач 90-х Russian Dance Mix (2012) [MP3|256 кб/с]<Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406847.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. NikitA - Давай, Стреляй!
-02. Соня Кей - Сумасшедшая Любовь
-03. Ани Лорак - Зажигай сердце
-04. Алексей Кабанов feat. Max Hohlunov & DJ HaLF - Я Думаю О Том
-05. O`Hara feat. DJ Kirill Clash - До Рассвета
-06. Lalo Project feat. Wegmix - Живу тобой
-07. Anton Pavlovsky feat. Anisa - Без Тебя
-08. RAЯ - Всё Не Просто
-09. Reflex - Потому Что Не Было Тебя 2012
-10. Потап и Настя - Улелето(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:28
+001. MC Zali - Кайф (DFM Version)
+ 002. Иванушки International - Тополиный пух (Андрей Харченко Remix)
+ 003. Юра Шатунов - Розовый вечер (URAL DJS Dance Mix)
+ 004. Саша Зверева (ex. Demo) - Солнышко (Free Djs Rework)
+ 005. Дискотека Авария & Жанна Фриске - Малинки
+ 006. Анжелика Варум - Зимняя вишня (URAL DJS Ritm Vers)
+ 007. Руки Вверх - Студент (Free Dj's Rework)
+ 008. Чай Вдвоем - А ты все ждешь
+ 009. Shura - Don-don-don (DJ Fisun Remix)
+ 010. Вирус - Счастье (Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:43:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5E8AEE8375042D4F941DC540336BB5784096C85
+magnet:?xt=urn:btih:3DFFCB696CD2E5D29768C433DDFA397F82F8F71F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -773,28 +701,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 712800   (402313) от 20.10.2013
+###  Публикация: 1413984   (406685) от 06.10.2020
 
-Blue System - 25 Best Songs (2012) [MP3]320 кб/с]<Eurodisco>
+VA - Лучшие новинки сезона Vol.4 (осень 2020) (2020) [MP3|320 Kbps] <Club, Dance, Synth Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gangster Love 1987
-02. Sorry Little Sarah 1987
-03. Big Boys Don't Cry 1987
-04. Under My Skin 1988(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:31:20
+001. Мишель - Соль (Original Radio Edit) (03:16)
+002. Артем Качер & Ирина Дубцова - Под Дождем (Dj Prezzplay) (04:03)
+003. Nataliya - Бармен, Налей (Original) (02:38)
+004. Саша Wave & Илага - Мой Сон (D-wave Remix) (03:53)(   Читать дальше...   )Жанр: Club, Dance, Synth PopПродолжительность: 05:46:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A74B8824754C142327C2B64E55E80BC4186CC12
+magnet:?xt=urn:btih:554B797CEFF4EAB7ACFE867C33A3C27C94195E6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -802,28 +730,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 713482   (401659) от 21.10.2013
+###  Публикация: 561025   (406396) от 16.10.2012
 
-Alexander Bard's projects - 25 Best Songs (2012) [MP3|234 - 279 кб/с]<Eurodance>
+VA - The Official UK Top 40 Singles Chart (14-10-2012) [MP3|320 кб/с]<Pop, Rok, R&B>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Army of Lovers - Lit De Parade 1994
-02. Army of Lovers - Obsession 1991
-03. Army of Lovers - Crucified 1991
-04. Army of Lovers - Ride The Bullet [1991 Remix] 1990(   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:32:00
+Продолжаю традицию регулярной публикации UK Singles Chart — официального хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Составляется с 1952 года как аналог американского Billboard Hot 100.
+Существует и «братский» хит-парад альбомов — UK Albums Chart.
+Во все треки вшиты обложки альбомов.Жанр: Pop, Rok, R&BПродолжительность: 02:36:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2122F1D99CA8F0D1EE64A7936D58B86657B2979F
+magnet:?xt=urn:btih:69B1749BE1E1884CADE0B3078F6E118618D9C3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -831,28 +759,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170021   (401321) от 29.09.2017
+###  Публикация: 563581   (405075) от 21.10.2012
 
-VA - Back In Disco (2017) vol.3 [MP3|320 Kbps] <Electronic, Disco, Poprock>
+VA - Позитивная музыкальная энергия (2012) [MP3|256 кб/с]<Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chilly - We Are The Popkings (4:05)
-02. A Taste Of Honey - Boogie Oogie Oogie (4:05)
-03. A' La Carte - Heatr Full Of Soul (3:38)
-04. Alides Hidding - Hollywood Seven (4:29)(   Читать дальше...   )Жанр: Electronic, Disco, PoprockПродолжительность: 05:05:48
+01. Вера Брежнева и DJ Smash - Любовь На Расстоянии
+02. Юлия Беретта - Такси
+03. Orbital - Where Is It Going (Live Style Mix)
+04. Иракли - Осень
+05. DJ HaLF & Женя Юдина - Два Сердца (Extended Mix)
+06. Cranksters - My First Love (Radio Edit)
+07. Arash feat. Sean Paul - She Makes Me Go
+08. Mariya (Мария) - Ты Тот (Kapler Remix)
+09. DJ Niki feat. SODA - Я это ты (cover radio remix)
+10. Leven Mervox - Waiting The Past (Running Man Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 08:12:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E25160F66E9B6493988F18F731201B0485E6C6A
+magnet:?xt=urn:btih:EF9C1AED135BE60CC72A695819F990580AD21694
 ```
 
 https://mybot314.ru/tekegram_catalog/

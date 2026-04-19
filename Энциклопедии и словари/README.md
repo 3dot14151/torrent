@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1861053   (1062180) от 
+###  Публикация: 1861053   (1062180) от 24.03.2026
 
 Валентин Цветков | Космос. Полная энциклопедия (2024) [PDF]
 
@@ -25,7 +25,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859715   (1061487) от 
+###  Публикация: 1859715   (1061487) от 17.03.2026
 
 Е.Н. Антонова (сост.) | Русско-цыганский словарь (2025) [PDF, FB2, RTF, TXT, EPUB, MOBI] [RU, RM]
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061487.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1060739.jpg" />
 </div>
 
 
@@ -70,6 +70,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69CEAC4E7581B0D9BFD7F31D8CC5BCB32BB702B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858262   (1060320) от 10.03.2026
+
+О.В. Михайлова (ред.) | Словарь синонимов русского языка. Словарь антонимов русского языка (2016) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1060320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словарь (издание 3-е) состоит из двух частей. Первая часть посвящена синонимам и содержит около 8000 статей, вторая – антонимам и содержит около 8000 пар антонимов.
+Основные характеристики словаря
+- Содержание: Объединяет словарь синонимов и словарь антонимов в одной книге.
+- Объем: Включает наиболее употребительне слова, живую разговорную речь, общеупотребительные (   Читать дальше...   )Жанр: лингвистическая, справочная литератураИздательство: Виктория плюсФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6727DDEC67F96C545520DC87ED9E2661F521C3F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,35 +685,6 @@ Full of facts, statistics, and historical information, the Capcom 30th Anniversa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:502DC2AA051A9D903844AD98AF6B051B9E2A7DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849364   (1053791) от 23.01.2026
-
-Jay H. Lehr, Jack Keeley | Alternative Energy and Shale Gas Encyclopedia (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053791.jpg" />
-</div>
-
-
-###  Подробнее
-
-A comprehensive depository of all information relating to the scientific and technological aspects of Shale Gas and Alternative Energy.
-Conveniently arranged by energy type including Shale Gas, Wind, Geothermal, Solar, and Hydropower.
-Perfect first-stop reference for any scientist, engineer, or student looking for practical and applied energy information.
-Emphasizes (   Читать дальше...   )Жанр: Энциклопедии, ГидроэнергетикаЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812B47F2A176FB4CE2298F46FF19DD3211F9655F
 ```
 
 https://mybot314.ru/tekegram_catalog/

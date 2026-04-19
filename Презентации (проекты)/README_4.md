@@ -1,3 +1,113 @@
+###  Публикация: 977694   (965485) от 21.01.2016
+
+Проекты - BlueFX - Android Catalog [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD85A421A01F2CBB9721689FAB9509450C565B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746476   (964632) от 17.01.2014
+
+VideoHive - Event Promotion - 2450049 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для рекламы или оповещении о каком-либо событии. Можно использовать как интро для заставки программы и т.д.
+
+-After Effects CS3 и выше.
+-Плагины не требуются.(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6AA26F44C02DFF1CC38AEC3B67ACC9552FDABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978154   (964459) от 22.01.2016
+
+Проекты - BlueFX - MyPad Catalog [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото-видео слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B01EBE63A6204741D211BCA17A9337913E86AA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978168   (964423) от 22.01.2016
+
+Проекты - BlueFX - My iPhone Catalog [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото-видео слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F93B01DFF1C4993C478048419C36B98090ADE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978265   (963180) от 23.01.2016
 
 Проекты - BlueFX - Virtual Studio TV Set [AEP]
@@ -588,116 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9DED6814059DB2C56FA1CD157110ADEA2579B87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981678   (951237) от 01.02.2016
-
-Проекты - Pond5 - Promotional Corporate Project - 48707421 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания корпоративной презентации.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6F22474F8CFC17014C0D8076C7C49B7A0DB7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981930   (949485) от 02.02.2016
-
-Проекты - VideoHive - Epic Opener - 14542876 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания трейлера к Вашему фильму.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E36E0D134F00B1402E235875EC9856A06F31A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362862   (946423) от 25.02.2020
-
-Проекты - MotionElements - Music Visualizer - 13641770 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946423.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Music Visualizer» - стильный элегантный проект для создания музыкальных подкастов.
-Это проект After Effects в первую очередь предназначен для музыкантов, которые хотят продвигать музыку в YouTube, Facebook, Instagram и других социальных сетях.
-Используя этот шаблон, вы можете визуализировать свой музыкальный трек и сделать его более интересным.
-Многие оценят по (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C815F04FD474E8324F2E45B0D14A6914B473BB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982998   (945267) от 05.02.2016
-
-Проекты - Pond5 - News_Pond5 - 59149677 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект - виртуальная новостная ТВ студия.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280D626276AC5F9DA675D51753C17B4DFE08D576
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,171 @@
+###  Публикация: 1332340   (306755) от 23.10.2019
+
+Одесса (2019) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одесса, август 1970 года. Самая жара. Город забит курортниками. В гости к тестю с тёщей, Григорию Иосифовичу и Раисе Ировне Давыдовым, прилетают из Москвы их зять Борис, журналист-международник, и его восьмилетний сын Валерик. Но именно в день их прилета в Одессе объявляют холерный карантин, город закрывают. Так приехавший на пару дней московский зять погружается (   Читать дальше...   )Производство: Россия / Мармот-фильм, МосфильмЖанр: ДрамаРежиссер: Валерий ТодоровскийАктеры: Ирина Розанова, Евгений Цыганов, Леонид Ярмольник, Ксения Раппопорт, Евгения Брик, Степан Середа, Станислав Эвентов, Вероника Устимова, Сергей Сосновский, Сергей МуравьёвПеревод: Не требуется (русский) (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD41EE6E899EBB6C46B57B8843E7F4AD30C6C9EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332325   (306552) от 23.10.2019
+
+Трое из ада / Three from Hell (2019) BDRip [1080p] ATV (DVO)
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три знаменитых маньяка чудом выжили в зверской перестрелке с полицейскими, и после этого каждый отправился отбывать срок. Капитана Сполдинга казнили, а Отис при помощи родного брата умудрился сбежать и теперь любой ценой постарается вытащить отмороженную сестрицу Бэйби из-за решётки.Производство: США / Capital Arts Entertainment, Spookshow InternationalЖанр: Криминал, ТриллерРежиссер: Роб ЗомбиАктеры: Шери Мун Зомби, Билл Моусли, Ричард Брэйк, Сид Хэйг, Эмилио Ривера, Дэнни Трехо, Клинт Ховард, Дэниэл Робак, Джеффри Дэниэл Филлипс, Дэвид УриПеревод: Любительский двухголосый (LakeFilms)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8463F695BD78C43A7310F72C91C80614B5FA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422796   (306415) от 10.11.2020
+
+VA - The New Spirits Of Jazz (2000) [AAC|~308 Kbps] <Downtempo, Future Jazz, Trip Hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Newman - Dead Already (3:18)
+02. Kinobe - Slip Into Something More Comfortable (4:54)
+03. Ollano - Latitudes (Original Mix) (3:34)
+04. S-Tone Inc. - Colazone Da Tiffany (4:18)(   Читать дальше...   )Жанр: Downtempo, Future Jazz, Trip HopПродолжительность: 01:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4ECE9F3E7F6753BA8112460405FA597527EFE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422788   (306414) от 10.11.2020
+
+VA - Electronic Species (1996) [AAC|~311 Kbps] <Dub, Downtempo, Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alec Empire & Ian Pooley - Pulse Code 3 (10:02)
+02. Move D - Nimm 2 (7:45)
+03. PWOG - True (4:46)
+04. Isk - + Tzaziki (7:02)(   Читать дальше...   )Жанр: Dub, Downtempo, AmbientПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B97D2839A2552257B71E344216DCCA22AA902B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422802   (306413) от 10.11.2020
+
+VA - Summer Memories Lounge: Chillout Your Mind (2020) [AAC|~315 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Sol, Nera - Sensuality (Ballad Mix) (4:02)
+02. Triangle Sun - Tonight (Original Mix) (4:24)
+03. Marga Sol - Soulheaven (Original Mix) (5:50)
+04. Gary B - Without You (Original Mix) (4:11)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1866AC4083F463D0E8899F50C288E4BBE5B604E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422798   (306410) от 10.11.2020
+
+VA - By the Lake Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ T.H., Robin Vane - Be My Hero (Gambrita Instrumental Remix) (3:41)
+02. Project Blue Sun - Be with Me (Original Mix) (6:08)
+03. Patiotic - Hold Me (Original Mix) (4:32)
+04. Nacho Sotomayor - Wonderful (Marga Sol Chill Rmx) (6:52)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8546F7B8D92FC735B06C8F3C64ADF8357D857FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422810   (306409) от 10.11.2020
 
 VA - Breathe & Relax Lounge: Chillout Your Mind (2020) [AAC|~322 Kbps] <Downtempo, Lounge, Chillout>
@@ -542,178 +710,6 @@ VA - Sunset Surfing Lounge: Chillout Your Mind (2020) [AAC|~315 Kbps] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4D4BD57AC674E6B8FE0C06F02A7139205D8F031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423063   (304405) от 11.11.2020
-
-VA - Sea Cruising Lounge: Chillout Your Mind (2020) [AAC|~332 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - It Feels Like Summer (3:54)
-02. Eivissarts - Stoned Love (Original Mix) (5:29)
-03. Clelia Felix - Under the Moonlight (4:36)
-04. Deeparture - Dambes (Original MIx) (5:26)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D997A9CA07F697F67C4B7A47734282F60AD2BE97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423055   (304404) от 11.11.2020
-
-VA - Sunny Day Lounge: Chillout Your Mind (2020) [AAC|~314 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Bossalova (Original Mix) (4:29)
-02. Schwarz & Funk - Fallen (Bossa Mix) (6:03)
-03. Chillson, Marc Hartman - On This Day (5:51)
-04. St Project - Bossaporita (5:33)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3198B3A92A4B8B2CDA7B508716B171638AED67EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423056   (304403) от 11.11.2020
-
-VA - Sea & Sand Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo de la Rosa, Maneela - Sugar in Your Kiss (5:12)
-02. Chris le Blanc, Miss Luna - Debussy En Es Vedra (Salinas Mix) (4:23)
-03. Gary B - All I Long For (Original Mix) (4:00)
-04. Dellasollounge - And Shine (Original Mix) (5:31)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D353170709044EA9EF383D0A8C9BE4C5DDC902C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423122   (304287) от 11.11.2020
-
-VA - Greatest Hits Instrumental (2020) [AAC|~357 Kbps] <Instrumental, Soundtracks>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlite Orchestra - American Pie (4:26)
-02. Starlite Singers - Big Spender (2:47)
-03. Chateau Pop - O l'amour (3:03)
-04. The New Merseysiders - Ob-La-Di, Ob-La-Da (2:03)(   Читать дальше...   )Жанр: Instrumental, SoundtracksПродолжительность: 02:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85BA57DAF9FA836FC2251524AF1022EFD6FFCCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422984   (304162) от 11.11.2020
-
-Silent Circle - Lost In Space (2020) [AAC|~357 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost In Space (3:30)
-02. How Could It Be Right (3:34)
-03. Kaido (3:24)
-04. Who Took My Girl (3:22)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8481F01C09B7DE53420F5052308747CCC68C51D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846211   (303988) от 01.12.2014
-
-Пряности и страсти / The Hundred-Foot Journey (2014) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья индийских эмигрантов, которых судьба забросила в маленький городок в Провансе, решает открыть кафе с восточной кухней… прямо напротив знаменитого на всю округу ресторана «Плакучая ива», бастиона французских кулинарных традиций, хозяйка которого, Мадам Малори, больше всего на свете гордится тем, что её заведение удостоено звезды в каталоге «Мишлен».
-Поначалу Мадам Малори не скрывает своей брезгливости шумными соседями и их экзотическими привычками, но постепенно война за клиентов между двумя ресторанами (   Читать дальше...   )Жанр: Драма, комедияРежиссер: Лассе ХалльстрёмПродюсер: Джульетт Блейк, Стивен Спилберг, Опра УинфриАктеры: Хелен Миррен, Ом Пури, Маниш Дайал, Шарлотта Ле Бон, Амит Шах, Фарзана Дуа Элахе, Диллон Митра, Ариа Пандья, Мишель Блан, Клеман СибониПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 02:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567A6ECF9BF6C6C28BDE4142AE34975844BB2B1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

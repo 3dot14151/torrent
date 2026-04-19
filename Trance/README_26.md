@@ -1,3 +1,90 @@
+###  Публикация: 1242481   (515120) от 22.08.2018
+
+VA - Nothing But... Ibiza Summer 2018 Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Di Stefano - Never Back Down (Cold Blue Remix)
+02. Steve Allen - #TranceFamilia (Estigma Remix)
+03. WeareD - Coliseum (Extended Mix)
+04. Precious Affliction - Together (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512611417A79BDB2C84E87EBA7BE428D341BB265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242834   (513166) от 24.08.2018
+
+VA - Alter Ego Records - En Espana (Mixed By Duncan Newell & Luigi Palagano) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miikka Leinonen & Kim Kiona - Breath Of The Wild (Original Mix)
+02. Kayan Code - Furion (Original Mix)
+03. Ahmet Atasever & Monty Wells - Trading Halos (Sunset Remix)
+04. NavidN2M - Be Yourself (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC52A1E74DE80DAF8A7A75B43582EF520FA8F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242856   (513163) от 24.08.2018
+
+VA - Underground Trance Essentials Vol. 03 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholas Antony - Jadran Pearl (Original Mix)
+02. Emanuele Congeddu - Achelois (Extended Mix)
+03. 4Joann - My Mind In Denial (Original Mix)
+04. Aimoon - Less Than Three (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927F761524D71D31E168F74453901AC3AE531D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242882   (513159) от 24.08.2018
 
 VA - Costa Pantazis pres. Venetica - Always Coming Home (Extended Edition) (2018) [MP3|320 Kbps] <Trance>
@@ -656,93 +743,6 @@ Sergei Vasilenko - Melodoc Trance Collection Vol. 44 (2018) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D564DF2572FC6B362AB866A59611AA95027D86C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159063   (483810) от 20.08.2017
-
-VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sultan & Shepard - Bloom (Intro Mix)  4:05
-02.  K-System - Manana  3:31
-03.  Andy Moor - FaceOff  2:54
-04.  Rodrigo Deem - Tearsdrop  3:28(   Читать дальше...   )Жанр: TranceПродолжительность: 04:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65141CB72C9375E5CB31640686C6593A167C5B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159706   (482206) от 21.08.2017
-
-VA - Love Hits Vol.2 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ruslan Radriges present Mantra & Lucid Blue - Take Me Higher (Original Mix)  3:33
-02.  Roman Messer - For You (feat. Clare Stagg) (Original Mix)  4:30
-03.  Attila Syah & Cari - Dark Side Of The Moon (Radio Edit)  4:00
-04.  Moonlight Tunes - As Long As You With Me (Radio Edit)  3:11(   Читать дальше...   )Жанр: TranceПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A94205253FA0EAFBB378E15CEF19637A88C4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159682   (481945) от 21.08.2017
-
-Innersync - Fairies from the Magic Forest (2017) EP [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fairies from the Magic Forest (Original Mix) 09.40
-02. Finally There (Original Mix) 07.52
-03. Beach Breeze (Original Mix) 05.37
-04. Blue Reef (Original Mix) 07.47Жанр: Trance,Uplifting TranceПродолжительность: 00:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E170BE331520C3C91532BE622F666959467B15
 ```
 
 https://mybot314.ru/tekegram_catalog/

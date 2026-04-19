@@ -1,3 +1,90 @@
+###  Публикация: 958145   (324916) от 20.11.2015
+
+VA - In Search Of Sunrise 13.5 - Amsterdam (Mixed by Richard Durand with BT) (2015) [MP3|320 кб/с]<Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vidda Deborras - Tower Of Tears (Intro) (3:04)
+02. Michael Badal with Sue McLaren - Recapture (5:58)
+03. Alex O'Rion - Electrifying Love (7:09)
+04. Moonbeam feat. Sopheary - Heaven (4:42)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 05:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A554095D5BAE042213FEF0041662805CAA5ADA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958490   (324031) от 21.11.2015
+
+VA - Uplifting Trance Essentials Vol. 6 (2015) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonsouls - Sparkles (Cold Rush Remix) (06:29)
+02. Airborne Angel - Perfect State (Original Mix) (08:53)
+03. Raminio - Spacestate (UDM Remix) (07:48)
+04. CJ SN - Together We Are (Lusvin Alexander Remix) (08:12)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E5C17E2C7985B559FCFFA725566AAF588E549C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181511   (323836) от 07.11.2017
+
+VA - Recoverworld Radio 015 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Physical Phase - Magma (Original Mix)
+02 Mike Spinner - Momentum (Original Mix)
+03 Casey Rasch - Through London (Original Mix)
+04 Manuel Le Saux & Astuni - Team Deathmatch (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7D90BF44D732E10F2D722149ABD1F24ECF9B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259098   (323409) от 02.11.2018
 
 VA - Ronski Speed - Evolve (2018) [MP3|320 Kbps] <Trance>
@@ -657,93 +744,6 @@ VA - Trance Hits Top 20 2016-11 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2874EFA4B3898C46D924702AC697542B8D31B692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076682   (309072) от 27.11.2016
-
-VA - Amsterdam Trance Sessions Vol.7 (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Pearce - The Trip (Original Mix) 5:48
-02. Sean Tyas - Relentless (Radio Edit) 3:40
-03. Lange - Hacktivist (Radio Edit) 3:17
-04. UDM - Ignite (F.G. Noise Remix) 6:45(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6900406F406B11CEC6CF4ECCAEEDAC9BFA9E7943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422939   (306156) от 10.11.2020
-
-Shakti - Psychedelic Experience (2016) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brightlight - What Are You Looking For (8:15)
-02. Dr Hoffman - My Problem Child (6:01)
-03. Ganesha - Waiting For The Sun (6:20)
-04. Ganesha - Space love (5:22)(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18104D4889F6AC938112BF6449BD57BD8FCCBD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261236   (305570) от 10.11.2018
-
-VA - A State Of Trance Classics Vol.13 (The Full Unmixed Versions)(2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Cathy Burton – Rain (Extended Mix)
-02. Gareth Emery & Ashley -  Mansion (Original Mix)
-03. Anjunabeats – Volume One (Above & Beyond Remix)
-04. Markus Schulz – The New World (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07A332962AE568261ED4B6C74F464734F320692
 ```
 
 https://mybot314.ru/tekegram_catalog/

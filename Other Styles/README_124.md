@@ -1,3 +1,208 @@
+###  Публикация: 1329030   (356422) от 03.10.2019
+
+DJ Taz Rashid - A Story of Satori (2015) [MP3|320 Kbps] <New age, World music, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etholodge (04:08)
+02. Prajna (03:25)
+03. Initiation (04:58)
+04. Atlan Winds (05:54)(   Читать дальше...   )Жанр: New age, World music, AmbientПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B1FE2E9973BB8BCD5F9DD8475B52AB3723CFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329024   (356404) от 03.10.2019
+
+Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356404.jpg" />
+</div>
+
+
+###  Подробнее
+
+По поводу саунда Джокера - то отличная работа. А в фильме (не видел), наверно, вообще роскошно это будет.
+И эта работа уже получила награду "Премия Soundtrack Stars" на Венецианском кинофестивале.
+В общем новый сильный игрок появился на рынке композиторов. Молодец Hildur.01. Hoyt's Office (01:25)
+02. Defeated Clown (02:39)
+03. Following Sophie (01:33)
+04. Penny in the Hospital (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8333EBF66518C51E60F091D73F376C489EDEDB5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329023   (356306) от 03.10.2019
+
+Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoyt's Office (01:25)
+02. Defeated Clown (02:39)
+03. Following Sophie (01:33)
+04. Penny in the Hospital (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C64A48B5AF3B33E5D40C8881EA3D90F1E07DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178514   (356119) от 28.10.2017
+
+Davide Brullo - Life (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clary (3:43)
+ 02. Fallen Leaves (3:30)
+ 03. Sound of the Soul (3:34)
+ 04. The Four of Us (3:31)(   Читать дальше...   )Жанр: New Age, Piano Solo, Modern ClassicalПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEA5F61B7C90D11A26D107BBC2DCEBE28CEE5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329025   (355959) от 03.10.2019
+
+Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoyt's Office (01:25)
+02. Defeated Clown (02:39)
+03. Following Sophie (01:33)
+04. Penny in the Hospital (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95ECDD5FC991EAA221A7ADCB422D02943B7054B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177825   (355940) от 28.10.2017
+
+Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Warning (03:13)
+02. President Meeting (03:49)
+03. What About Us (02:08)
+04. Hong Kong Falling (03:50)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038057D11C7E8A224350DB90584889FC65B0E696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951832   (355875) от 01.11.2015
+
+Fridrik Karlsson - Chillout Heaven (2006) [APE|tracks+.cue]<New Age, Chillout, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillout Heaven [9:45]
+ 02. Rest your Mind [8:37]
+ 03. Chillout Zone [10:36]
+ 04. In the Moment [10:26](   Читать дальше...   )Жанр: New Age, Chillout, RelaxationПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04C46ECCB286D9C56229842250545559C77B1AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177829   (355783) от 28.10.2017
 
 Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -552,215 +757,6 @@ Music Factory - Romantic Saxophone (2014) [MP3|256 кб/с]<Saxophone, Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59C19E22B9A4F712580E6F3926C2DB96A0B1F162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723645   (352939) от 19.11.2013
-
-Back to Earth - Secret Spaces (1998) [FLAC|Lossless|tracks + .cue] <New age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elysium (5:31)
-02. In The Garden Of Morpheus (4:07)
-03. Vision Of Change (4:46)
-04. Jakaranda (4:42)(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9492507C08708B539160B578F70BE700ED86355D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722786   (352786) от 19.11.2013
-
-Mehdi - Christmas Treasures (2001) [FLAC|Lossless|tracks + .cue] <New age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy To The World (3:31)
-02. Angels We Have Heard On High (3:00)
-03. God Rest Ye Merry Gentleman (2:58)
-04. The First Noel (2:35)(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECD8987D4D4C8B34BA0310D539E7E0CE74DD5BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952194   (352767) от 02.11.2015
-
-Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [FLAC|tracks+.cue]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Muertos Vivos Estan - featuring Tambuco Percussion Ensemble [02:48]
-02. Vauxhall Bridge [02:19]
-03. The Eternal City [04:34]
-04. Donna Lucia [02:02](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961526667E66C90180AAA44D7DEA4BB225EF70B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072134   (352482) от 13.11.2016
-
-Curtis Macdonald - Breeze (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expedition [00:04:12]
-02. Breeze [00:04:09]
-03. The Sun and Your Smile [00:04:02]
-04. Shadows on the Shore [00:05:30](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFFC65AA537B7E83B1472D5C8D04AAB166DFF8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329604   (352374) от 05.10.2019
-
-Thomas Barquee - The Sound of Om (2003) [FLAC|Lossless|tracks + .cue] <Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Maha Devaya Namaha (10:30)
-02. Om Namo Bhagavate Vasudevaya (8:47)
-03. Om Namah Shivaya (10:33)
-04. Hare Krishna Hare Rama (7:43)(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31F3B8A2857CECC52BA5F28299EA781285EDCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578731   (352360) от 21.11.2012
-
-В. Рейтхофер - Кама-Сутра. Эзотерическая Музыка (2001) [MP3|320 кб/с]<Meditative, Relax, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прикосновения и поцелуи
-02. Сражение языками и укусы
-03. Возрастание влечения и объятия
-04. Ласка и игра рук
-05. Любовный массаж
-06. Открытие пути и сближение
-07. Способы наслаждений
-08. Страстное соединение
-09. Ласки руками
-10. Подражание мужчине (сверху)(   Читать дальше...   )Жанр: Meditative, Relax, New AgeПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E62A6E259F15E71A64C8DFF7792C8AE3688B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072472   (352177) от 13.11.2016
-
-Michel Pepe - La purete de l'Esprit (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'eveil 5:33
- 02. Omnipresence 5:27
- 03. Le lac de la felicite 6:08
- 04. Le silence de l'esprit 5:41(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F7B1CCA67764D1D4F39221CFF7198E18E38C39
 ```
 
 https://mybot314.ru/tekegram_catalog/

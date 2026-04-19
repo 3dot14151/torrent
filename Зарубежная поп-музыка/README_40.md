@@ -1,3 +1,61 @@
+###  Публикация: 1551780   (588915) от 18.05.2022
+
+VA - DMC Dancing Divas (Classic Mixes) (Volume 1) (2015) [MP3|320 Kbps] <Electro House, Soul, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spice Girls - Dmc Spice Girls Megamix
+02. Diana Ross - Diana Ross Mixdown
+03. Cilla Black - Cilla Black Minidance Mix “The Segue of Surprise”
+04. Whitney Houston - Whitney Houston Mega-Remix(   Читать дальше...   )Жанр: Electro House, Soul, Dance-popПродолжительность: 01:20:01 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4029076EBABF723F10BC9710BF339CFBA92B050C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551773   (588909) от 18.05.2022
+
+VA - DMC Back To The 80s (Classic Mixes) (Volume 1) (2021) [MP3|320 Kbps] <Electro, Funk, Dance-pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Culture Club - Ultimate Culture Club Megamix (Part 1 & 2) (Mixed By Kevin Sweeney)
+02. ABC - The ABC Mix (Mixed By Marco Oude Wolbers)
+03. Art Of Noise - Art Of Noise Mix (Mixed By Marco Oude Wolbers)
+04. VA - Trapped In The 80s (Mixed By Jimmy 'Slimjay' Langtoft)(   Читать дальше...   )Жанр: Electro, Funk, Dance-pop, HouseПродолжительность: 01:18:09 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F15FF61CF507D628D495BCAE050B76B83A183A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917897   (588672) от 13.07.2015
 
 R5 - Sometime Last Night (2015) [MP3|320 кб/с]<Pop Rock>
@@ -697,70 +755,6 @@ Teach In - The Best of the Best (2012) [MP3|320 кб/с]<Disco, Pop, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B9944DCE74F50CAFD069B543626B4667F13FCDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151098   (574341) от 18.07.2017
-
-John Paul Young - Greatest Hits (1997) CD [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is In The Air - 1978 (3:28)
-02. Lost In Your Love - 1978 (3:11)
-03. Here We Go - 1978 (3:40)
-04. Hot For Your Baby - 1980 (4:09)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42AB2422674AE927B8467E6A5BBA246347F07398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527499   (574306) от 27.07.2012
-
-Adriano Celentano - The Best (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574306.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Soli (3:59)
- 2. Pay, Pay, Pay (4:14)
- 3. Amore No (5:08)
- 4. Qua La Mano (3:59)
- 5. Stivali E Colbacco (4:12)
- 6. Un Poґ Artista Un Poґno (4:56)
- 7. L'orologio (4:42)
- 8. Il Tempo Se Ne Va (3:46)
- 9. Una Parola Non Ci Scappa Mai (4:17)
- 10. Conto Su Di Te (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EB501ACF8C191EF767D1817ED3E45B9692ADFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,481 @@
+###  Публикация: 1033737   (635934) от 12.07.2016
+
+Motorhead - Clean Your Clock (Live in Munich 2015) (2016) BDRemux [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарные Motörhead 27 мая выпустили концертный альбом «Clean Your Clock», который был записан во время концертов 20-21 ноября 2015 года в Мюнхене. Шоу проходили в рамках мирового гастрольного тура в поддержку двадцать второго студийного альбома «Bad Magic», презентованного в конце августа прошлого года. Профессионально снятый и записанный «Clean Your Clock» (   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalРежиссер: Herwig Von Mayszner, Sven OffenПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD097B802A67A06765DBE7B96A4190444093276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 681244   (635912) от 20.07.2013
+
+Whitesnake - Made In Japan (2011/2013) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_635912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Британской рок группы Whitesnake был записан 15 октября 2011 года во время Японского Loud Park Фестиваля на Saitama Super Arena в Saitama City. Этот концерт группы Кавердейла прошёл в рамках их "Forevermore World Tour". Первоначально представление было записано для Японского телевидения и последующей рекламной компании Loud Park, однако после трансляции (   Читать дальше...   )Жанр: Hard rock, blues rock, heavy metal, glam metalПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908001   (635726) от 13.06.2015
+
+От Руси до России - Праздничный концерт (12.06.2015) HDTV  [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635726.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 июня вся страна празднует День России – праздник, являющийся символом национального единения. В этом году концерт на главной площади столицы станет незабываемым событием. Зрителей ждет грандиозное зрелище: перед их глазами пройдет вся история России в современном визуальном воплощении.
+
+Исторические события будут представлены через образы тех, кто прославил нашу (   Читать дальше...   )Жанр: КонцертПродолжительность: 01:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0EEF3B56CE5695CD59EF8E6D1F4E65A318A6BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908184   (635284) от 13.06.2015
+
+Комбат Любэ. Концерт к юбилею Игоря Матвиенко (13.06.2015) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет концертную программу «Комбат» группы «Любэ» к юбилею Игоря Матвиенко.01. Станция "Таганская
+02. Комбат
+03. Атас
+04. Комбат(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0582B741CE6BDCB84E13468FFEEC866C5A5E4E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034242   (634136) от 13.07.2016
+
+Motorhead - Clean Your Clock (2016) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарные Motörhead 27 мая выпустили концертный альбом «Clean Your Clock», который был записан во время концертов 20-21 ноября 2015 года в Мюнхене. Шоу проходили в рамках мирового гастрольного тура в поддержку двадцать второго студийного альбома «Bad Magic», презентованного в конце августа прошлого года. Профессионально снятый и записанный «Clean Your Clock» (   Читать дальше...   )Производство: США / UDR, Motörhead MusicЖанр: Концерт, Рок, Хард Рок, Панк Рок, Хеви МеталлРежиссер: Хервиг Фон Мэйснер, Cвен ОуффенПродолжительность: 01:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E710DEBB9E7620FD6C7900C40960C1FAEAE3038F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907977   (633202) от 14.06.2015
+
+Битлз - Первый визит в США / The Beatles - The first US visit (1990) DVDRip [H.264] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный фильм, мечта битломанов. Это уникальный, подробнейший из существующих аудиовизуальный репортаж о первых гаслролях знаменитой ливерпульскй четверки по США в 1964 году. Некоторые кадры показаны широкой публике впервые.
+
+Кадры фильма раскрашены методом цветного компьютерного тонирования. Хотите увидеть старый фильм свежим взглядом? Тогда эта версия для (   Читать дальше...   )Жанр: Концерт, документальныйПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6789D7EFEAF6E17034FC5F56DBC4197A77E1E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682118   (632610) от 22.07.2013
+
+Ocean Drive feat. Aylar - Some People (2010) [720p]HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ocean Drive feat. Aylar - Some People (Official Video)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAFC35D0EC3AF11301D3565D12A316F78C84681A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349658   (631623) от 12.06.2011
+
+Вера Брежнева - Реальная жизнь (2011) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F600608930F8E4DFBC5FBAE0FA695E2D596062E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543227   (631535) от 10.04.2022
+
+Квартирник у Маргулиса. Заточка (09.04.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ироничный дуэт из Москвы «Заточка» — пожалуй, единственный в стране кантри-рэп дуэт. Он был образован в 2018 — именно в мае того года они выпустили свой дебютный альбом «Грязное Дельце». С тех пор прошло всего ничего, а в копилке двух талантливых артистов Ильи Погребняка, гитариста и участника Anacondaz, который использует в музыке группы и гитару, и банджо, и Юрия (   Читать дальше...   )00:00:06 Петь блюз
+00:05:20 Я люблю кантри
+00:13:48 Этажи
+00:19:32 Шапочка из фольги(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3E6F413045C1324F2A83D3D1FC28207233B048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682064   (631038) от 23.07.2013
+
+Ferry Corsten - Radio Crash (2008) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ferry Corsten 'Radio Crash' [405 Recordings]Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64A42731DA03EA53FFBED1ED6E1A6FE0A80E1AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682085   (630903) от 23.07.2013
+
+Mr Sam & Andy Duguid vs. Pat Benatar - Invincible (2010) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mr Sam & Andy Duguid vs. Pat Benatar - InvincibleЖанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA9C91C8FDBFEF12A5AA69725F95D21AAAB3CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682043   (630894) от 23.07.2013
+
+Chicane vs Natasha Bedingfield - Bruised Water (2009) [720p]HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chicane vs Natasha Bedingfield - Bruised Water (Original)Жанр: TranceПеревод: ОтсутствуетПродолжительность: 00:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C036C36759B58E61ADF0D11AA0AABAA879315C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682028   (630891) от 23.07.2013
+
+ATB - Humanity (Airplay Mix) (2005)   [H.264]HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630891.jpg" />
+</div>
+
+
+###  Подробнее
+
+ATB - Humanity (Airplay Mix)(Official Video HD)Жанр: TranceПеревод: ОтсутствуетПродолжительность: 00:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD6DA933AC0B026FE5437E5A77473C2C0E31408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682030   (630780) от 23.07.2013
+
+ATB - Let You Go (Reworked) (2005) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630780.jpg" />
+</div>
+
+
+###  Подробнее
+
+ATB - Let You Go (Reworked)(Official Video HD)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0DFF54644FF9AF2A2457E21C857EE08DA3EB5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682048   (630642) от 23.07.2013
+
+Dannii Minogue - Who Do You Love Now (feat Riva) (2001) [720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630642.jpg" />
+</div>
+
+
+###  Подробнее
+
+DANNII MINOGUE 'Who Do You Love Now' (with Riva) 2001 HDЖанр: DanceПродолжительность: 00:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5008690D9EB784477DCF629C5908C7847BC7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682077   (630634) от 23.07.2013
+
+Kylie Minogue - The One (2008) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kylie Minogue - The One (HD)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C701CF79839C9BD429C7C9EFB0DEAABB136812CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682073   (630447) от 23.07.2013
+
+Kylie Minogue - In My Arms (2008) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kylie Minogue - In My ArmsЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2C56C8ACEC0E21D826F8DAF3F71A8F801A1C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682069   (630429) от 23.07.2013
+
+Kylie Minogue - Can't Get You Out Of My Head (2001) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kylie Minogue - Can't Get You Out Of My Head HDЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6408D8744EF07EFB9626948C7CD835AA09D30B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682289   (630135) от 23.07.2013
 
 Europa Plus Live - Европа плюс (2013) DVBRip
@@ -215,483 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C19B93426D7ADDD3A6D824DFBF5DBE6454BCC554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682031   (628610) от 24.07.2013
-
-Chicane - Saltwater (2000) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chicane - SaltwaterЖанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCD4C47E2475809C9E90D0CB180B68A16CA2684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682059   (628542) от 24.07.2013
-
-David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628542.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Vendetta Vs Keith Thomspon - Break 4 Love (Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540E96509B2F2D119C002E2EDD1E2E54A9902447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682051   (628538) от 24.07.2013
-
-David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628538.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Vendetta - Love To Love You Baby (Official Clip)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21EF568739269F4CD7EADF2F80FD93F7CBE38785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035229   (628512) от 16.07.2016
-
-Shakespear's Sister - Best Of (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628512.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Break My Heart (You Really)
-2	Heroine
-3	Run Silent Run Deep
-4	You're History(   Читать дальше...   )Жанр: Europop, Pop RockПеревод: ОтсутствуетПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8CFF634322382FABF2F3C2AC637E78A528382F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034983   (628296) от 16.07.2016
-
-Сборник - Bollywood Summermix (2016) BDRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летний сборник клипов из индийских фильмов01. Bajirao Mastani (Priyanka Chopra)
-02. Bahubali (Tamanna Bhatia)
-03. Krishnam Vande Jagadgurum
-04. Arinthum Ariyamalum (Sameksha)(   Читать дальше...   )Жанр: Pop, Dance, Video-MegamixАктеры: Аамир Кхан, Каджол, Варун Дхаван, Крити Санон и др.Перевод: ОтсутствуетПродолжительность: 00:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D91D6C26AC779C7E69FE52A5D62A9D9B3EE37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228916   (627956) от 05.06.2018
-
-Квартирник на НТВ у Маргулиса. Моя Мишель (06.02.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627956.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Моя Мишель» — российская музыкальная группа из Благовещенска, основанная в 2009 году. В творчестве коллектива сочетаются стили рок-музыки и синти-поп. Вокалисткой и автором песен является Татьяна Ткачук.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01566BC76EE6852D1FBA67BF49DFFC4D29D501C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682205   (626553) от 25.07.2013
-
-TV Rock ft Rudy - 'In The Air' (Axwell Remix) (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626553.jpg" />
-</div>
-
-
-###  Подробнее
-
-TV Rock ft Rudy - 'In The Air' (Axwell Remix Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAD421C610E6F4DD6353911FCB38464DBA4E377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682204   (626153) от 25.07.2013
-
-Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (HD)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AAFAF352FB7AC80F5C204F0BD52AAE305377F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682206   (626007) от 25.07.2013
-
-William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (2000) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626007.jpg" />
-</div>
-
-
-###  Подробнее
-
-William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (HD)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B198AF6FBEBE876527FFD9E4A2F3BCE48E29E324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909820   (625682) от 18.06.2015
-
-Slash Featuring Myles Kennedy and The Conspirators - Live At The Roxy  (2014) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625682.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 сентября 2014 года, вскоре после выхода альбома «World On Fire», Slash Featuring Myles Kennedy & The Conspirators сыграли концерт в легендарном Roxy Theatre, Сансет-Стрип, Голливуд.01. Ghost
-02. Nightrain
-03. Back From Cali
-04. You Could Be Mine(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C683C7312642C2EBF46437D9558ED2780EF3775F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907494   (625426) от 18.06.2015
-
-Slipknot - Rock am Ring (2015) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rock am Ring — один из крупнейших рок-фестивалей, ежегодно проходящий в Германии в первый выходной июня.Жанр: Nu MetalПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5306BF2FA24D0F976530B67CF5F15CCB32D0C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 218691   (624971) от 18.07.2010
-
-Агата Кристи - Эпилог (2010) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Документальный, МузыкаПеревод: ОригинальныйПродолжительность: 02:09:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521994   (624673) от 12.07.2012
-
-Сборник Советской Эстрады №3 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE4C67E60310F3F38423B7E80ABC788D0DE5CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682098   (624633) от 26.07.2013
-
-Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steve Angello & Laidback Luke Ft Robin S - Show me LoveЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C656AB3549EAA1867C46FF0D2772F176F9684F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035302   (624491) от 18.07.2016
-
-Волшебная флейта. (Моцарт) / Mozart - Die Zauberflote (1992) DVD9
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебная флейта (нем. Die Zauberflöte) (K.620) — опера-зингшпиль Моцарта в двух действиях; либретто Э. Шиканедера....далее -Жанр: OperaПеревод: ОтсутствуетЯзык субтитров: English, Francais, EspanolПродолжительность: 02:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B35613D98D7F4779F1AB8D8B99553FFBC5127C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521923   (624409) от 12.07.2012
-
-Сборник Советской Эстрады №2 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 02:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1967EA70ED57E64F5E711E26ECD96708E2DED495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521918   (624405) от 12.07.2012
-
-Сборник Советской Эстрады №1 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПродолжительность: 02:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8796FB1C3C372D6F6C5ACB566BD106877B3B36F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682105   (624359) от 26.07.2013
-
-Swedish House Mafia - Miami 2 Ibiza ft. Tinie Tempah (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swedish House Mafia - Miami 2 Ibiza ft. Tinie TempahЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E3F729D37ED0005C33A5BD00D5C0CDF7879D60
 ```
 
 https://mybot314.ru/tekegram_catalog/

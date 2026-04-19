@@ -1,3 +1,61 @@
+###  Публикация: 1093537   (933890) от 15.01.2017
+
+VA - Renegade Singles Reviews (Trance Pack 10-01) (2017) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Allen & Envy Ft. Victoriya - Dont Say (Extended Mix)  6:39
+02.  Elite Electronic - The Other Side (Ikerya Project Remix)  7:22
+03.  Chris Schweizer & Heatbeat - Samurai (Extended Mix)  5:10
+04.  David Gravell - The Road (Extended Mix)  4:49(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 09:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E808D67B016BC329467513256832143E83C2AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364886   (933804) от 05.03.2020
+
+VA - Beatport Drum And Bass: Electro Sound Pack #27 (2020) [MP3|320 Kbps] <Drum And Bass, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Phace & Misanthrop - Super Low
+002. Emperor - Calypso
+003. Low_Radar101 - End Full (Original Mix)
+004. No Concept - Electrify (Kerizma Mc Remix)(   Читать дальше...   )Жанр: Drum And Bass, Bassline, DubstepПродолжительность: 08:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38340B16BD62F3E03A33F07663576ECAF3CAE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364924   (933803) от 05.03.2020
 
 VA - Beatport Electro House: Pack #19 (2020) [MP3|320 Kbps] <Electro House, Club, Dance>
@@ -685,64 +743,6 @@ VA - 100% Bigroom Vol. 1 (2016) [MP3|320 кб/с] <Progressive House, House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50B15E9084F6535F05259D715028EA0C24F8840A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987548   (926242) от 17.02.2016
-
-VA - EDM Deejay Compilation 2016 (2016) [MP3|320 кб/с] <Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - To The Party (Extended Mix) 04:46
-02. Flip Capella - Lose Myself (At Tomorrowland) (Original Mix) 03:24
-03. Turbotronic - Doomchit Doomchit (Original Mix) 03:55
-04. Teknova - The Riddle 2K16 (Original Mix) 04:01(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 02:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98ED401EF89E0B8967CC37711C9923EDAFDF32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987312   (926062) от 17.02.2016
-
-VA - House Nation Volume 2 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djuro - 3,2,1 (05:19)
-02. Will Sparks feat. Wiley & Elen Levon - Ah Yeah So What (03:23)
-03. COMBO! - Bill Durry (04:04)
-04. Will Sparks - Catch (Radio Edit) (02:57)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B631097C776AF391B7765487CB943BEF9C63D29
 ```
 
 https://mybot314.ru/tekegram_catalog/

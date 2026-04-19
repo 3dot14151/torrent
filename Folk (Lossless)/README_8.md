@@ -1,3 +1,32 @@
+###  Публикация: 1404955   (487020) от 28.08.2020
+
+Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole New Mess (03:42)
+02. Too Easy (Bigger Than Us) (02:32)
+03. (New Love) Cassette (02:50)
+04. (We Are All Mirrors) (02:36)(   Читать дальше...   )Жанр: Indie Folk, Dark FolkПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A95A9BA77FD2752CA18B15FAE2508AC81FF257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244291   (484104) от 31.08.2018
 
 Kevin Crawford - Carrying the Tune (2012) [FLAC|Lossless|tracks + .cue] <Traditional Folk, Irish Traditional>
@@ -741,35 +770,6 @@ Stephanie Quayle - Love The Way You See Me (2017) [FLAC|Lossless|tracks] <Countr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF94E6C0A558AAF9D0521FDDDAC31FDBA9B9AE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171133   (397607) от 03.10.2017
-
-Fleur (Flёur) - Волшебство (2003) [FLAC|Lossless|tracks] <Folk, Cardiowave>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро 0:49
-02. Пустота 3:54
-03. Почти реально 5:11
-04. Формалин 4:05(   Читать дальше...   )Жанр: Folk, CardiowaveПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDBB0688D44067D7C0A02DDE83868501120548A
 ```
 
 https://mybot314.ru/tekegram_catalog/

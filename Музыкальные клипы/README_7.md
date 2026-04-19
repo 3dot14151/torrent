@@ -1,3 +1,194 @@
+###  Публикация: 986418   (930596) от 14.02.2016
+
+Гимн НОВОРОССИИ. el pueblo unido jamás será vencido (2016) WEB-DLRip [720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гимн НОВОРОССИИ (el pueblo unido jamás será vencido)Жанр: КлипПродолжительность: 00:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E3C5707C18FAF7C13CD1916C5F3EBC6AB40A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365464   (930557) от 07.03.2020
+
+Burning Witches - Six Feet Underground (2020) WEB-DLRip [Н.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burning Witches - Six Feet Underground (2020)Производство: SwitzerlandЖанр: Power MetalПродолжительность: 00:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF6BC76AF3DD5E9186D300F585C4050A08E8F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628960   (930513) от 14.03.2013
+
+Incubus - Концертный тур Honda Civic Tour (2012) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный тур "Honda Civic Tour" по Северной Америке — концерт в "Home Depot Center" в г. Карсон (округ Лос-Анджелес, штат Калифорния) 8 сентября 2012 г. Полностью транслировался по американскому телеканалу AXS TV.Жанр: Alternative RockФормат: MKVПродолжительность: ~01:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BC2B7274C1026534BD896B244CE9BADDB92F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 630203   (928018) от 15.03.2013
+
+Enigma - 4 клипа (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень красивых 4 клипа от Энигма.01. MMX Social Song (First version)
+02. Page of Cups
+03. Gravity of Love (Selina)
+04. Sitting On The MoonЖанр: Музыка, New Age, Electronic, EnigmaticПродолжительность: 00:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F2C747D1A5A16DF2E71DDF78A3A6463A5E1722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986955   (927318) от 16.02.2016
+
+VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция клипов в авто.Часть 2.0001_2 Brothers On The 4Th Floor - Heaven Is Here.avi
+0002_2 Brothers On The 4Th Floor - Making Of The Sun.avi
+0003_2 Brothers On The 4Th Floor - Never Alone.avi
+0004_2 Brothers On The 4th Floor - The Sun Will Be Shining.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 60:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78BC5B4D91FE1C8CFB5C28654ED39D39C5B52834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987652   (925751) от 17.02.2016
+
+VA - Зимний марафон № 224: Зимняя Волна Новинок (2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (17.02.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Aurora - Conqueror (Official Video) (00:03:32)
+02. Claudia Pavel ft. Dante Thomas - A Guy Like You (Official Video) (00:03:23)
+03. Dvj Bazuka - U (Episode 377) (00:02:05)
+04. EDX ft. Mingue - Missing (Official Video) (00:03:18)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Techno, Relax, Chill OutПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42CCE6D037682F687EE6838CB31F791E219433D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631329   (924873) от 17.03.2013
+
+Pitbull ft. Christina Aguilera - Feel This Moment (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3EA53975A29F4B70C39D11CEE3CF55F1D986EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 631332   (924846) от 17.03.2013
 
 Stevie B feat. Pitbull - Spring Love (2013) [H.264/1080p] WEBRip
@@ -511,188 +702,6 @@ Katalina Rusu - My Name Is Love (2013) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D762673395D3CD0F98AD67CC87D842B9977C8F3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633919   (912782) от 24.03.2013
-
-Alex Clare - Too Close (2nd Version) (2012) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dubstep, SoulПродолжительность: 00:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC7A926F092DECF6E09E9817127136D78834CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634137   (912642) от 24.03.2013
-
-Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF50E9C7ED836031A446EE2229C27388CE3DBB85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634981   (910682) от 25.03.2013
-
-Роман Полонский / Годится! Ягодица! (Uncensored) (2013) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клип Романа Полонского - Годится! Ягодица! (+18)Жанр: Музыка, PopПродолжительность: 00:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E78EDD360F17F70D4ADDEAE08F7D25534A7F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635445   (909706) от 26.03.2013
-
-Stooshe - Slip (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0125B6AA5DFF73D4F1521E1D1DB5BF3EC1AB6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635447   (909525) от 26.03.2013
-
-Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F695E2FF9794065A303A1321FBD8579DC1C98A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635452   (909505) от 26.03.2013
-
-Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF8A52CE9EA3AF9C2A97D06878BEED5E029C763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864509   (909481) от 04.02.2015
-
-Демонстрационный DVD-Video диск #3. Dolby Digital 5.1, DTS Multichannel Sound 5.1 [DVD5]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Демонстрационные музыкальные клипы и фрагменты кинофильмовПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E789C5268FB2B3D80C5930DA0F6E901C334E4CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

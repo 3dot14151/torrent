@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1861875   (1062783) от 
+###  Публикация: 1861875   (1062783) от 27.03.2026
 
 ESET Endpoint Antivirus / ESET Endpoint Security 12.1.2076.1 RePack by KpoJIuK [Multi/Ru]
 

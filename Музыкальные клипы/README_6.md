@@ -1,3 +1,206 @@
+###  Публикация: 622488   (955042) от 26.02.2013
+
+"O2label"/Stive Morgan  (2013) HDTV [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close To Heaven
+02. North Pole
+03. Tango In Night
+04. K141 Kursk (Cry The Sea)(   Читать дальше...   )Жанр: Музыка, New Age, Downtempo, Ambient, Electronic, ChilloutПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F67526D56ABAF4E55939508FA295964B55C7F44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980628   (954431) от 30.01.2016
+
+VA - Зимний марафон № 222: Праздничный Зимний Хит (2015-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (29.01.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Charli XCX - Boom Clap ( MTV Live) (Official Video) (00:02:55)
+02. Chris Young - Think of You (Duet with Cassadee Pope) (Official Video) (00:03:40)
+03. Di'Ja ft. BabyFresh - Take Kiss (Official Video) (00:04:13)
+04. DJ Sanny J Ft. Dangerous, Mike Kingz - Hot Shot (Official Video) (00:03:27)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, House, TranceПродолжительность: 01:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F2EDB357E283E5BDCF8D1FC9F6DF54FDE50C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 279973   (951601) от 09.01.2011
+
+VH-1 Russia - Сборник Видеоклипов (2007) DVD5 vh1
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951601.jpg" />
+</div>
+
+
+###  Подробнее
+
+VH-1 Russia - российская версия легендарного европейского канала VH-1, несколько лет вещавшая в пакете НТВ+. К сожалению недавно канал прекратил своё существование...
+
+Материал сборника - оригинальный спутниковый поток MPEG-2, не подвергавшийся никаким пережатиям/перекодированиям в процессе монтажа!
+Качество первоисточника (As Is)!(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73AF050D9A7D5D906767FA63AB0E68828E4DBF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981479   (951414) от 01.02.2016
+
+Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music Entertainment, DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Program Start
+02. Livin' La Vida Loca
+03. She's All I Ever Had
+04. La Bomba(   Читать дальше...   )Жанр: Latin, PopПеревод: ОтсутствуетПродолжительность: 01:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEB45CAF74A9E181E94E27EB02FE0E3A7457B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981631   (951014) от 01.02.2016
+
+Modern Talking – The Final Album: The Ultimate DVD (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (3:15)
+02. You Can Win If You Want (3:53)
+03. Cheri, Cheri Lady (3:19)
+04. Brother Louie (3:44)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПеревод: ОтсутствуетПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CB566BB26C966B78FF6C4D702F01287BAC6747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981782   (949881) от 02.02.2016
+
+VA – Fetenhits: The Real Classics (2002) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Janet Jackson - Rhythm Nation
+02. Cameo - Word Up
+03. Kool & The Gang - Celebration
+04. ABC - The Look Of Love(   Читать дальше...   )Жанр: Hi NRG, Pop Rock, DiscoПеревод: ОтсутствуетПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E6BCF894E8589E430A8D7CB7BA4F4808A35C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624707   (948978) от 02.03.2013
+
+Little Richard - Long Tall Sally (Хищник / Predator) (2013) [H.264/1080p] BDRip
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собственный клип. Использована музыкальная композиция Little Richard Long Tall Sally
+Подробности не требуются.
+Ваши замечания будут учтены.
+Размещён на 2-х трекерах. Плагиатом раздачи с другого ресурса не является.Жанр: Фантастика, Боевик   Собственный клипРежиссер: Джон МактирнанАктеры: Арнольд Шварценеггер, Карл Уэзерс, Эльпидия Каррилло, Джесси ВентураПеревод: ОтсутствуетПродолжительность: 00:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E50B74098E2EF600B984FDBB1791105E5569D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 857896   (948355) от 11.01.2015
 
 Инфинити - Крылья (2014) [1080p] [hand made 60fps]
@@ -529,197 +732,6 @@ Danielle - Pat It Up (2013) [H.264/720p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35A9094AC13BF9A5BDF5232E3BBC2972AE93E09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986418   (930596) от 14.02.2016
-
-Гимн НОВОРОССИИ. el pueblo unido jamás será vencido (2016) WEB-DLRip [720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гимн НОВОРОССИИ (el pueblo unido jamás será vencido)Жанр: КлипПродолжительность: 00:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E3C5707C18FAF7C13CD1916C5F3EBC6AB40A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365464   (930557) от 07.03.2020
-
-Burning Witches - Six Feet Underground (2020) WEB-DLRip [Н.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burning Witches - Six Feet Underground (2020)Производство: SwitzerlandЖанр: Power MetalПродолжительность: 00:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF6BC76AF3DD5E9186D300F585C4050A08E8F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628960   (930513) от 14.03.2013
-
-Incubus - Концертный тур Honda Civic Tour (2012) [1080i] HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный тур "Honda Civic Tour" по Северной Америке — концерт в "Home Depot Center" в г. Карсон (округ Лос-Анджелес, штат Калифорния) 8 сентября 2012 г. Полностью транслировался по американскому телеканалу AXS TV.Жанр: Alternative RockФормат: MKVПродолжительность: ~01:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BC2B7274C1026534BD896B244CE9BADDB92F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 630203   (928018) от 15.03.2013
-
-Enigma - 4 клипа (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень красивых 4 клипа от Энигма.01. MMX Social Song (First version)
-02. Page of Cups
-03. Gravity of Love (Selina)
-04. Sitting On The MoonЖанр: Музыка, New Age, Electronic, EnigmaticПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F2C747D1A5A16DF2E71DDF78A3A6463A5E1722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986955   (927318) от 16.02.2016
-
-VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция клипов в авто.Часть 2.0001_2 Brothers On The 4Th Floor - Heaven Is Here.avi
-0002_2 Brothers On The 4Th Floor - Making Of The Sun.avi
-0003_2 Brothers On The 4Th Floor - Never Alone.avi
-0004_2 Brothers On The 4th Floor - The Sun Will Be Shining.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 60:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78BC5B4D91FE1C8CFB5C28654ED39D39C5B52834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987652   (925751) от 17.02.2016
-
-VA - Зимний марафон № 224: Зимняя Волна Новинок (2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (17.02.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Aurora - Conqueror (Official Video) (00:03:32)
-02. Claudia Pavel ft. Dante Thomas - A Guy Like You (Official Video) (00:03:23)
-03. Dvj Bazuka - U (Episode 377) (00:02:05)
-04. EDX ft. Mingue - Missing (Official Video) (00:03:18)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Techno, Relax, Chill OutПродолжительность: 01:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42CCE6D037682F687EE6838CB31F791E219433D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631329   (924873) от 17.03.2013
-
-Pitbull ft. Christina Aguilera - Feel This Moment (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3EA53975A29F4B70C39D11CEE3CF55F1D986EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

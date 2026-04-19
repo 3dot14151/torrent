@@ -1,25 +1,22 @@
-###  Публикация: 1457976   (1024254) от 27.03.2021
+###  Публикация: 1454305   (1026162) от 15.03.2021
 
-David Guetta - Tomorrowland Friendship Mix (2021-03-25) [MP3|320 Kbps] <Electro House, Progressive House, Big Room>
+Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy 03.2021 2DVD
 
->>Electronic
->>Radioshow, Live Mixes
+>>След.
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cardi B ft. Megan Thee Stallion - WAP (David Guetta Bootleg)
-02. Cloverdale - Open Up
-03. David Guetta & MORTEN - Kill Me Slow
-04. Danny Avila ft. Ruby Prophet & PollyAnna - My Blood(   Читать дальше...   )Жанр: Electro House, Progressive House, Big RoomПродолжительность: 01:01:25
+сборки на основе оригинальных русских образов операционной системы Windows 8.1 (Pro VL) (x86-x64) - (Russian) Final (MSDN) от Microsoft с дополнительным материалом разных разрядностей в 2-х разных установочных образах (x86 и x64) со встроенным пакетом обновления Update 3. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: (   Читать дальше...   )Язык интерфейса: Русский.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2E494584251F792C1455EDBED5FDE0C21DA3974
+magnet:?xt=urn:btih:035C7E80657444F50FFBE3B72D5B88733DBF7D33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457865   (1024253) от 27.03.2021
+###  Публикация: 1454595   (1026161) от 15.03.2021
 
-Журнал | Elle [France] №3921 (февраль 2021) [PDF][Fr]
+Serhii Zashkaruk | Видеомонтаж в Adobe Premiere Pro - с нуля до результата (2021) PCRec
 
->>Журналы
->>Женские журналы
+>>След.
+>>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Elle — французский еженедельный женский журнал о моде, красоте, досуге и здоровье, издающийся с 1945 года. В середине 1980-х годах, при выходе на международный рынок, стал выпускаться ежемесячно, сохранив еженедельный формат для Франции.Жанр: Женский журналФормат: PDF
+Чему вы научитесь
+Практические домашние задания / Полноценное портфолио
+Работа с эффектом CROP / Движение и масштабирование
+От монтажа простых видео до сложных проектов(   Читать дальше...   )Производство: UdemyЖанр: видеоПродолжительность: 03.00.00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49FCEA485376CBE1600DF7CC211B826C2D349295
+magnet:?xt=urn:btih:A059A570584F38000EF57707A6E05F3994797CAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457753   (1024252) от 27.03.2021
+###  Публикация: 1279601   (1026160) от 15.03.2021
 
-Журнал | Harper’s Bazaar [USA] №3 (март 2021) [PDF] [En]
+VA - Русская Дискотека 70 - 80 - 90 г.  [MP3|256 - 320 Kbps] <Disco, POP, Rock>
 
->>Журналы
->>Женские журналы
+>>След.
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Харперс базар» — женский журнал о моде, стиле и обществе, вышедший в свет в США в 1867 году, издавался еженедельно компанией «Harper and Brothers». С 1901 года «Harper’s Bazaar» в формате альбома стал выходить ежемесячно.Жанр: Женский журналФормат: PDF
+Жанр: Disco, POP, RockПродолжительность: 47.08.38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAB588DBD245E302B0E96C5B1D52F155829259FD
+magnet:?xt=urn:btih:C0AB9B204C1ED6D27337A1FA153A563BF1A5A2B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457966   (1024251) от 27.03.2021
+###  Публикация: 1278657   (1026159) от 15.03.2021
 
-Гарольд Ллойд. Их общественный всплеск / Their Social Splash (1915) WEBRip
+Variours Artist - Дискотека 70-80-90-2000 [MP3|224-320 Kbps] <Disco, POP, Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Один из первых фильмов Гарольда Ллойда. Совсем в маленькой эпизодической роли. Еще без своих легендарных очков. Но фильм и сам по себе забавен, очень живой.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Арвид Э. Джиллстром, Ф. Ричард ДжонсАктеры: Слим Саммервилл, Дикси Чен, Чарльз Мюррэй, Полли Моран, Фрэнк Хэйес, Гарольд Ллойд, Билли Беннетт, Олли Карлайл, Билли УолшПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:11:06
+Жанр: Disco, POP, RockПродолжительность: 209.08.32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:640D80236082E2400DAD29CA7B5D3E2D3A701CD7
+magnet:?xt=urn:btih:FB783ACBDBD054E907C4ED28B90C96AEFC54C526
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457851   (1024250) от 27.03.2021
+###  Публикация: 1065053   (1026158) от 15.03.2021
 
-Елена Минкина-Тайчер | Время обнимать (2021) [EPUB]
+Sid Meier's Civilization VI (2016) [Ru/Multi] (1.0.10.15/dlc) Repack Other s [Digital Deluxe]
 
->>Художественная литература
->>Современная поэзия и проза
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роман «Время обнимать» – увлекательная семейная сага, в которой есть все, что так нравится читателю: сложные судьбы, страсти, разлуки, измены, трагическая слепота родных людей и их внезапные прозрения… Но не только! Это еще и философская драма о том, какова цена жизни и смерти, как настигает и убивает прошлое, недаром в названии – слова из Книги Екклесиаста. Это (   Читать дальше...   )Жанр: Современная русская литератураФормат: EPUB
+Созданная легендарным дизайнером Сидом Мейером серия Civilization представляет собой увлекательную пошаговую стратегию, в которой игроку предлагается создать империю, способную выдержать испытание временем. Станьте одним из сильных мира сего, основав собственную цивилизацию, и возглавляйте ее в течение многих эпох. Объявляйте войны, ведите дипломатические переговоры, (   Читать дальше...   )Тип издания: RepackРазработчик: Firaxis GamesЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий  и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79FB64E6EE0274767AE44C67247B12F3C752D218
+magnet:?xt=urn:btih:EEEB15F45779D8041B451528DE6CE7C42CBA10D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,28 +131,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457644   (1024249) от 27.03.2021
+###  Публикация: 1454707   (1026157) от 16.03.2021
 
-Lamb of God - Lamb of God (2021) 2 CD, Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
+Daemonlord - Hellfire Centuries (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Memento Mori (Live) [00:05:51]
-02. Checkmate (Live) [00:04:39]
-03. Gears (Live) [00:03:57]
-04. Reality Bath (Live) [00:04:48](   Читать дальше...   )Жанр: Groove MetalПродолжительность: 01:56:21 (2 CD)
+01. Rifles And Hammers (4:33)
+02. Riding The Mushhushu (4:58)
+03. Monuments of Bereavement (3:39)
+04. The Shattering (1:26)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23CC3E9F96C529E0D69F7F715D5B29B2A72983C2
+magnet:?xt=urn:btih:700722FFB623F3160E4246025F7D7B08B1AB5A71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,28 +160,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457830   (1024248) от 27.03.2021
+###  Публикация: 1454709   (1026156) от 16.03.2021
 
-Evilizers - Solar Quake (2021) [MP3|320 Kbps] <Heavy Metal>
+Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Solar Quake (03:53)
- 02. U.T.B (03:22)
- 03. Intro (01:51)
- 04. Chaos Control (05:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:05
+01. Ride The Rainbow
+02. The Fire Of Hades
+03. The Devil Inside
+04. Waves Of War(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD91CD93CF9D8F88A8C94734730AB0FB1DA934A5
+magnet:?xt=urn:btih:99FF79B1B44B8D6408F285A38C926B27067E114A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,25 +189,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457744   (1024247) от 27.03.2021
+###  Публикация: 1454735   (1026155) от 16.03.2021
 
-Журнал | Automovil España №3 (март 2021) [PDF] [Es]
+Crystal Eyes - Confessions Of The Maker (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Автомобили
->>Автомобильные журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Automobile - ежемесячный журнал автомобильной прессы в Испании. Ежемесячно с Automobile проходят встречи с самыми восторженными читателями, любителями автоспорта и самых увлекательных автомобилей на мировой арене, высококлассных, спортивных и с лучшими на рынке характеристиками.Жанр: Автомобильный журналФормат: PDF
+01. The Charioteer
+02. Confessions Of The Maker
+03. Northern Rage
+04. The Fools' Ballet(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB40D0DAFDF1BDF7EB79DDCBB18E01F7CB434F8F
+magnet:?xt=urn:btih:CDAE3ABEE6D5F31F2DC0822B9DB451577FAA9877
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,25 +218,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457872   (1024246) от 27.03.2021
+###  Публикация: 1454738   (1026154) от 16.03.2021
 
-Журнал | Elle [France] №3925 (март 2021) [PDF][Fr]
+Crystal Eyes - Vengeance Descending (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Журналы
->>Женские журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Elle — французский еженедельный женский журнал о моде, красоте, досуге и здоровье, издающийся с 1945 года. В середине 1980-х годах, при выходе на международный рынок, стал выпускаться ежемесячно, сохранив еженедельный формат для Франции.Жанр: Женский журналФормат: PDF
+01. Vengeance Descending
+02. Highland Revenge
+03. Child Of Rock
+04. Mr. Failure(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:912A2CB619F9A1F7644553EAEB072FC6A05B5716
+magnet:?xt=urn:btih:F5A350C185121EEFF88FC8841B236F9BD08FF44D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,25 +247,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458017   (1024245) от 27.03.2021
+###  Публикация: 1454741   (1026153) от 16.03.2021
 
-В погоне за голубым бриллиантом / A la poursuite du diamant bleu (2010) HDTV [H.264/1080i]
+Crystal Eyes - World Of Black And Silver (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Документалистика и Телепередачи
->>История
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История знает два голубых бриллианта, которые известны так же, как и окутаны тайной. Один был приобретен королем-солнцем Людовиком XIV и исчез во время Французской революции. Другой, названный «Алмазом надежды», является экспонатом Музея естественной истории в Вашингтоне....Производство: Франция, ARTE, Gedeon ProgrammesЖанр: Документальный, биография, историяРежиссер: Стефан Бегуан, Тьерри ПьянтанидаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:53:16
+01. Interstellar War
+02. Gods Of Ohe World
+03. Winds Of The Free
+04. The Power Behind The Throne(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7CF011347EE19C17E5E13E2A20B300C07AE6759
+magnet:?xt=urn:btih:F76419B5B7BA02B7C8B1820B5AA7D0FF8F1D601F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,26 +276,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457761   (1024244) от 27.03.2021
+###  Публикация: 1454714   (1026152) от 16.03.2021
 
-Костяные войны / La Ruee vers l'os (2012) DVB [FR / RU Sub]
+Crystal Eyes - Dead City Dreaming (2006) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Документалистика и Телепередачи
->>История
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Динозавры вымерли 65 млн. лет назад. Но ими до сих пор интересуются и дети, и взрослые. На аукционы приезжают коллекционеры со всего мира. Больше всего ценятся останки, найденные на западе США. Там издавна ведутся археологические раскопки.
-В середине XIX века группа палеонтологов сделала первую удивительную находку. Это была эпоха Золотой лихорадки. Люди отправлялись (   Читать дальше...   )Производство: Франция, ARTE France, TV5MONDE Europe HDЖанр: Документальный, научно-популярный, вестерн, палеонтология, историяРежиссер: Жак МитшПеревод: ОтсутствуетСубтитры: Русские (неотключаемые)Продолжительность: 00:51:32
+01. Dead City Dreaming
+02. Into The Light
+03. The Narrow Mind
+04. Wall Of Stars(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACD71776C04325089884118AA30B6BE564F6A781
+magnet:?xt=urn:btih:EB1330F768CA5A46B1E403836A59F69108C35BF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,25 +305,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458008   (1024243) от 27.03.2021
+###  Публикация: 1454849   (1026151) от 16.03.2021
 
-Следствие вели... (27.03.2021) WEBRip [H.264/1080p-LQ]
+Multiplex - Discography 10 Releases (1997-2006) Toytronic, U-Cover [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Leftfield, Abstract, Ambient>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1984 г., Саратовская область. Город Балашов потрясло жестокое убийство пенсионерки. Подозрение падает на местного врача, и тот дает признательные показания, не выдержав пыток в следственном изоляторе. Тем временем нападения на пожилых людей продолжаются. Где искать кровавого невидимку? И сколько еще стариков умрет страшной смертью, прежде чем сыщики выйдут на след (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: ОтсутствуютПродолжительность: 00:44:06
+01. Macao (05:00)
+ 02. My Synthesiser (04:50)
+ 03. Lito : A (04:17)
+ 04. Momensch (06:29)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Electro, Leftfield, Abstract, Ambient •Продолжительность: 07:39:34 •
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:761BACB1F09C5D219612AF8700F067EA06D66D63
+magnet:?xt=urn:btih:DF5E26D5937A3990C07DA4D4903A8393EBC9B1AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,26 +334,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457732   (1024242) от 27.03.2021
+###  Публикация: 1454666   (1026150) от 16.03.2021
 
-Opera 75.0.3969.93 Portable by JolyAnderson [Multi/Ru] (авторская раздача)
+Michael Romeo - The Dark Chapter (1998) [APE|Lossless|image + .cue] <Progressive Neoclassical Metal, Shred>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Opera – веб-браузер, разрабатываемый компанией Opera Software, особенностью которого является поддержка встроенного VPN-клиента, блокировщика рекламы, возможность менять внешний вид, кастомизировать вкладку быстрого доступа и многое другое.
-Вашему вниманию предоставляется Portable версия Opera.Язык интерфейса: Русский, Английский и другие
+01. Carpathia
+02. Cask of Amontillado
+03. Psychotic Episode
+04. Masque of the Red Death(   Читать дальше...   )Жанр: Progressive Neoclassical Metal, ShredПродолжительность: 00:42:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8B0367C6010D724B6326C93F58A063006BBFDEF
+magnet:?xt=urn:btih:A90086F65B9E53E77ED6B35406118B4B4699AD34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,25 +363,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457968   (1024241) от 27.03.2021
+###  Публикация: 1454774   (1026149) от 16.03.2021
 
-Владимир Чивилихин | Память (2009) [MP3]
+Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Баффало Сэйбрз (15.03.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
 
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В своем произведении В. Чивилихин (1928-1984) размышляет об отношении современников к историческому наследию, о проблемах изучения истории, художественно реконструирует некоторые из важнейших ее эпизодов. Декабристы, ученые, воины, поэты, летописные герои-патриоты, подвижники всех сфер жизни оживают на страницах романа, пронизанного жизнеутверждающим мироощущением. (   Читать дальше...   )Жанр: Историческая проза, РоманПродолжительность: 67:11:49
+16 марта 2021, вторник. 02:00 МСК
+Стадион: Кибэнк-центр (Баффало, США). Матч прошёл без зрителей
+Главный судья: Брайан Почмара (Детройт, США); Главный судья: Митч Даннинг (Текумсе, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96F5B3284B019B87D55C1D0A332626ABFB775A3D
+magnet:?xt=urn:btih:E780CE5074140C158CCE1A549E08EBC76E7FB62A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +391,195 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457782   (1024240) от 27.03.2021
+###  Публикация: 1454770   (1026148) от 16.03.2021
 
-Pet Shop Boys - Behaviour (1990) [FLAC|Lossless|tracks + .cue] <Synthpop>
+Хоккей. НХЛ 2020-2021. Бостон Брюинз - Питтсбург Пингвинз (15.03.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026148.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 марта 2021, вторник. 02:00 МСК
+Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 2 800 зрителей (15 % при вместимости 18 673)
+Главный судья: Фурман Саут (Сьюикли, США); Главный судья: Тревор Хансон (Ричмонд, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F023DBB3DB90B40E1CA97DCA54ED9FEFA28DDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454697   (1026147) от 16.03.2021
+
+Black Diamonds - Once Upon A Time (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tales Untold
+02. The Ghost And The Shadow
+03. Love Stick Love
+04. Romeo & Juliet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE20AC24BB889539B31DA513B552D57A4F82CEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454712   (1026146) от 16.03.2021
+
+Crystal Eyes - Starbourne Traveler (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gods Of Disorder
+02. Side By Side
+03. Extreme Paranoia
+04. Starbourne Traveler(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC2607AB50E9BF66F17B3169812205F30879768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454847   (1026145) от 16.03.2021
+
+Схиигумен Иоанн (Алексеев) | Письма Валаамского старца, схиигумена Иоанна (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026145.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге представлено собрание писем известного валаамского подвижника, старца Иоанна (Алексеева) (1873–1958), которые он адресовал своим многочисленным духовным чадам и в которых указывается, как правильно проходить путь спасения во Христе. Душеназидательные письма схиигумена Иоанна принесут пользу всем православным христианам.Жанр: ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D89CE5A612CE10EBA09482E2342C2FDE26C88EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454690   (1026144) от 16.03.2021
+
+Редьярд Киплинг | 40 норд-50 вест (1931) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для детей младшего и среднего школьного возраста.
+Редкая книга. Первое издание в библиотеке.Жанр: Детская проза, СтихиПеревод: С. МаршакФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F06110AAAE035EB2589FACC0E73A9461231765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454840   (1026143) от 16.03.2021
+
+Леонид Гальперштейн | Моя первая книга о технике (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга-путеводитель по лабиринтам сложных технических изобретений и терминов. Она знакомит маленьких читателей и их родителей с таинственным миром техники. Прекрасные иллюстрации - незаменимый гид в этой увлекательной экскурсии по стране знаний.
+
+Для младшего школьного возраста.Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9E6EE69AC52F10AB2FD5DEB74D62CEBAC9AA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454660   (1026142) от 16.03.2021
+
+Synth Elements - View from Outer Galaxy (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
 
 >>Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Being Boring
-02. This Must Be The Place I Waited Years To Leave
-03. To Face The Truth
-04. How Can You Expect To Be Taken Seriously ?(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:49:03
+01. Space Games (6:52)
+02. Giant Robots (7:21)
+03. Man Machine (5:50)
+04. We Are Generation of Space (5:55)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:17:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C377F7874A62F1BC3F476A4952D7DEA82BED44C6
+magnet:?xt=urn:btih:C266677AF3FA28B74C39A8C8A3E6A7DB8E697C54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +587,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457707   (1024239) от 27.03.2021
+###  Публикация: 1454658   (1026141) от 16.03.2021
 
-VA - Music News vol.85 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+Synth Elements - The Illusion of Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Imany - Wonderful Life (Stream Jockey Rework) (04:15)
- 02. 24kGoldn - Don't Sleep (03:27)
- 03. 24kgoldn - Yellow Lights (02:27)
- 04. 24kgoldn feat. Future - Company (03:33)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:04:32
+01. Gravity Zero (6:44)
+02. Journey Between the Stars (6:26)
+03. X Force (6:39)
+04. Summer Holiday (6:31)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:19:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7DD8E6BE0FD43AE4508FD16F9AAE9A95552AACC
+magnet:?xt=urn:btih:41E4B1A950760860862154AABDBFFDC20A6A08A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,26 +616,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457665   (1024238) от 27.03.2021
+###  Публикация: 1454858   (1026140) от 16.03.2021
 
-Индийский ноктюрн / Nocturne indien (1989) DVDRip [AVO]
+VA - Table Of Elements Volume 5​.​0 (2021) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Ambient>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молодой человек прилетает в Бомбей, чтобы найти своего исчезнувшего в Индии друга. Поиски приведут его в сомнительную гостиницу и больничную палату, в португальский монастырь и теософическое общество, он побывает в Мадрасе и на береге Гоа.
-Экранизация по произведению Антонио Табукки.Производство: Франция / AFC, Centre National de la Cinematographie (CNC), Christian Bourgois ProductionsЖанр: ДрамаРежиссер: Ален КорноАктеры: Жан-Юг Англад, Клементин Селарье, Отто Таузиг, Т.П Джайн, Ифтекхар, Тинку Парма, Виджай Кашьяп, Джаспал СандхуПеревод: Авторский (Роман Янкелевич)Субтитры: ОтсутствуютПродолжительность: 01:45:07
+01. Nearfield - Beauty Of The Sea World (06:01)
+02. DEF - Astiiroid (05:40)
+03. Lith - Kaazar (04:28)
+04. C.H. District - Modular Live From Studio (Excerpt) (14:15)(   Читать дальше...   )Жанр: IDM, Industrial, AmbientПродолжительность: 02:29:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:123B7409D920C219F929ADDA4C0DC2945B76EB79
+magnet:?xt=urn:btih:FDBC490F084B835526EEB2D83C3B3B3335A05B30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,212 +645,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457783   (1024237) от 27.03.2021
+###  Публикация: 1454761   (1026139) от 16.03.2021
 
-Главная дорога (27.03.2021) SATRip
+Bram Stoker & Pete Ballam - 5 albums, 6 CD (1972-2019) [FLAC|Lossless|image + .cue | tracks + .cue] <Progressive Rock>
 
->>Документалистика и Телепередачи
->>За рулем
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Крепкий алкоголь, но немного, или легкий, но в неограниченном количестве? Что выбрать на праздничном банкете и можно ли на следующий день после торжества садиться за руль? Андрей Федорцов и Денис Юченков пригласили зрителей программы разного возраста, чтобы выпить, закусить и с помощью алкотестера проверить, какой алкоголь опаснее — пиво, портвейн или водка, и, конечно, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C226D9B4D02FEBA01908A97EC62D36323BE9F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457853   (1024236) от 27.03.2021
-
-Джон Бирд | Сэр Бэзил. Задача – умереть (2021) [EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой и несколько его компаньонов, обитающие в студенческом общежитии, неожиданно оказываются в виртуальной игре, из которой не могут выйти. Единственный способ покинуть игру – умереть в ней. Но именно это в конечном счёте оказывается не такой простой задачей.Жанр: Боевое фэнтези, Попаданцы, LitRPGФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04DFF2524D5C23D08DC94E75CF46590AB5BA42B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457779   (1024235) от 27.03.2021
-
-MediaInfo 21.03 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024235.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaInfo — программа для получения подробной технической информации об аудио и видео файлах. Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.Тип издания: macOS SoftwareРелиз состоялся: 26.03.2021Разработчик: MediaAreaПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8CB48BAFCA8366D3BBFE5F0A381DD2A9000BA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458042   (1024234) от 27.03.2021
-
-Медвежий остров / Bjornoya (2014) BDRemux [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческий документальный фильм об экспедиции трех норвежских экстремалов на остров Медвежий архипелага Шпицберген.Производство: Норвегия, Turbin FilmЖанр: Документальный, приколючения, серфингРежиссер: Инге ВеггеПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 01:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A1E8006A0BEDA6B6E469D857138739D839AC50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457740   (1024233) от 27.03.2021
-
-VA - Music News vol.86 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inna - Flashbacks (DJ Tuncay Albayrak Remix) (02:47)
- 02. Airixis - Legion (02:39)
- 03. Beachbag feat. Sary - Asteroids (02:59)
- 04. Demi Lovato - Dancing With The Devil (04:04)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861D97760923AC9A63BE6E507A76D306DA29CE05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457733   (1024232) от 27.03.2021
-
-Журнал | The English Garden 2021 [UK] (лето 2021) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024232.jpg" />
-</div>
-
-
-###  Подробнее
-
-The English Garden - журнал для всех, кто любит красивые сады. Каждый выпуск оживляет лучшие сады Великобритании благодаря великолепным фотографиям и увлекательным историям, поддерживаемым опытными советами по посадке растений и вдохновляющими дизайнерскими идеями опытных садоводов.Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B0B0FA4271911C2109EF86D751CFA0905BBBBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457843   (1024231) от 27.03.2021
-
-Microsoft Visual Studio 2019 Professional 16.9.2 (Offline Cache, Unofficial) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio 2019 - полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269A7DD1C401405EA677DD20DFA544D8409A585C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457925   (1024230) от 27.03.2021
-
-Ольга Токарчук | Веди свой плуг по костям мертвецов (2020) [EPUB]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами одно из самых известных произведений современной польской писательницы, общественного деятеля и лауреата Нобелевской премии по литературе Ольги Токарчук.
+Соответствуя своему готическому имиджу, обусловленному именем "Bram Stoker" (Брэм Стокер – автор романа "Дракула"), эта группа после трехлетнего существования таинственно исчезла с музыкального горизонта, чтобы по прошествии множества лет мистическим образом возродиться. Команда была создана летом 1969 года владельцем "Хаммонда" органистом (   Читать дальше...   )--------------------------
 
-Действие романа «Веди свой плуг по костям мертвецов» происходит в небольшой польской деревушке, расположенной на границе с Чехией. Здесь живет главная героиня – пожилая преподавательница английского (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Ирина АдельгеймФормат: EPUB
+01. Losers Hotel (3:25)
+02. Jump The Gun (3:36)(   Читать дальше...   )Жанр: Heavy Progressive Rock |Продолжительность: 04:12:30 |
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAE11A4B70C7759CB4BEF9668AC3F672AA2D9A80
+magnet:?xt=urn:btih:4890610A27A8FE78991D05C9160CD8992A873D02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,28 +674,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457969   (1024229) от 27.03.2021
+###  Публикация: 1454839   (1026138) от 16.03.2021
 
-Jaroslav Jakubovic - Intimate Sax (1999) [MP3|320 Kbps] <Jazz>
+Шпильки - The Best & New. Альбом третий (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 
->>Jazz, Blues, Soul
->>Jazz
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Circle Of Life (4:48)
-02. My Heart Will Go On (4:36)
-03. Unbreak My Heart (4:27)
-04. Caruso (4:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:11
+01. Сам ты Наташа (3:42)
+02. Маленькая штучка (3:31)
+03. Больше гламура (3:38)
+04. Папуасы (3:33)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1573EDEA16C29856DE0941D5B08F52029FED142F
+magnet:?xt=urn:btih:3F4B2DCE9EF1075D32DB14157E91DA966358F5C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454659   (1026137) от 16.03.2021
+
+Synth Elements - The Illusion of Time (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity Zero (Extended Mix) (7:16)
+02. New Travel (Bonus Remix) (5:56)
+03. Love Bigger Than Space (Extended Mix) (7:18)
+04. Cosmological (Remix) (6:47)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3ED5093820F270376CC6F6A3E0A349A22F7B876
 ```
 
 https://mybot314.ru/tekegram_catalog/

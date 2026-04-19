@@ -1,188 +1,115 @@
-###  Публикация: 1846746   (1051647) от 09.01.2026
+###  Публикация: 1819585   (1138) от 24.09.2025
 
-VA - Лучшие песни Love Radio за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
+Otros Aires - Premium Playlist (2005-2017) [MP3|320 Kbps] <Electronic Tango, Tango Nuevo>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Сергей Лазарев - Тут или Там (3:24)
-002. Marshall Jefferson feat. Maesic & Salome Das - Life Is Simple (Move Your Body) (2:52)
-003. KATSEYE - Gabriela (3:17)
-004. Coldplay feat. Little Simz & Burna Boy & Elyanna & Martina Stoessel - We Pray (Tini Version) (3:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:08:24
+01. Allerdings Otros Aires {Dos (L), 2007}.mp3
+02. Amor O Nada {Perfect Tango (L), 2016}.mp3
+03. Amor que se Baila {Otros Aires (L), 2005}.mp3
+04. Amor Que se Baila {Vivo en Otros Aires (L), 2008}.mp3(   Читать дальше...   )Жанр: Electronic Tango, Tango NuevoПродолжительность: 02:49:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23A9E932DDA13AE6D03882002BF0DE01585F36C5
+magnet:?xt=urn:btih:6F149724F863C368D618CAFF96059DB44418088A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848228   (1052784) от 16.01.2026
+###  Публикация: 1819941   (989) от 25.09.2025
 
-VA - Euro Hits 2025 (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
+Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[3:05] . 001-Hazyhero - Dance,Drown,Drink
-[2:32] . 002-Armin Van Buuren & Alok & Norma - Euphoria
-[4:34] . 003-Constantin & Shaggy & Lavbbe - High
-[4:14] . 004-Ahmet Kilic - No Communication (Cover Bingo Boys)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 08:59:50
+01 - Amore Vero
+ 02 - Cerco Ancora Quella Voce
+ 03 - Che Figata!
+ 04 - Tra Le Mani(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:09:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84E467C8677A08CF0C923F9FA626C551EC6715BD
+magnet:?xt=urn:btih:5E4B3C1C56D97777A1A33EC24997888C616B0668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848279   (1052795) от 16.01.2026
+###  Публикация: 1597856   (906) от 26.09.2025
 
-AI.KA Digital Singer - Collection (2025) [MP3|320 Kbps] <Pop, AI Music>
+VA - Свежий Русский Хит от ALEXnROCK часть 12 (2022) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Goodbye! (3:37)
-02. Love Is Gone (4:36)
-03. Moonlit Dance (4:10)
-04. Symphony Of Dreams (4:40)(   Читать дальше...   )Жанр: Pop, AI MusicПродолжительность: 02:15:14
+В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2022 год. Это 12я часть. Приятного прослушивания.  Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Ислам Итляшев - Ресторан
+02. Jony - Давай На Ты (Nervouss Remix Radio Edit)
+03. Subbota - Бом Бом Бом
+04. Satiba - Новый Год в Стиле Диско(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F4A3463DCBFB4CF906D40C243676D1F64DD4D11
+magnet:?xt=urn:btih:0E9B1AF12067EA68B9F3F239279750E35966E473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848907   (1053322) от 20.01.2026
+###  Публикация: 1820195   (802) от 26.09.2025
 
-VA - Euro Hits 2024 (2024) [MP3|320 Kbps] <pop,dance,electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053322.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:06]. 001-Purple Disco Machine & Yung Bae & Tobi - Contact
-[3:32]. 002-Orville Peck & Kylie Minoque & Diplo - Midnight Ride
-[2:51]. 003-Jessie Murph - Cold
-[3:30]. 004-Dua Lipa - Training Season(   Читать дальше...   )Жанр: pop,dance,electronicПродолжительность: 6:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD2287D7E749E4EFCED316F38A393A101E01E7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848282   (1053479) от 23.01.2026
-
-RetroVinyl80 - Collection (2026) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
+Reyvi - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Christmas In Your Heart (feat. Nyox) (3:34)
-02. Winter Wonderland (feat. New Sisters) (3:58)
-03. Christmas Dance (feat. Sterio Dancers) (3:18)
-04. I’m Coming Home For Christmas (feat. Robert Rubin) (4:20)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 03:35:21
+01 - Stay With Me
+ 02 - My Woman
+ 03 - Love is a Memory
+ 04 - Crying in the Dark(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:38:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28635743BFC73D7B9F7BAC520811FB255346D1D4
+magnet:?xt=urn:btih:8C7CA8E0D2F6F5C482D4379D4B14BD31612B568A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849639   (1053623) от 24.01.2026
-
-VA - Summer Dance Explosion (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053623.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Iyaz - Replay (00:03:02)
-002. Laura - Immer Wieder (00:04:07)
-003. Riopy & Tune Your Mind - Breathe (00:02:26)
-004. Sean Paul Feat. Dua Lipa - No Lie (00:03:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC4E50467A98D4D18B76F2064880432D8AF62A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849558   (1053751) от 23.01.2026
-
-VA - The Best Of Italo-Disco 2025 (2026) [MP3|320 Kbps] <Italo-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bellatrix - Nebulae And Shadows (5:11)
-02. Cyberman - Happy Disco Song (4:14)
-03. David Dima - Time Machine (I Venti Remix) (7:05)
-04. Mirko Hirsch - The Crimson Bride (6:21)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C576008FAC30ED5801A7938C727F76C81BF8B12B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

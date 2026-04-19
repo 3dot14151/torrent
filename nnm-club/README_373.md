@@ -1,22 +1,23 @@
-###  Публикация: 1850060   (1054011) от 08.02.2026
+###  Публикация: 1852124   (1055658) от 06.02.2026
 
-Medalist (2026) | Медалистка ТВ-2 [2026, TV, 1 из 9] WEB-DL 1080p raw
+AMS Ландшафтный Дизайн 3D 12.0 [Ru]
 
->>Аниме с субтитрами
->>Онгоинги
+>>Мультимедиа и Графика
+>>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цукаса Акэурадзи мечтал бороться за медали в фигурном катании, но профессиональный спорт не терпит тех, кто приходит к таким мечтам слишком поздно. Будущие чемпионы Японии встают на лёд уже в пять лет, поэтому Цукасе, который только в средней школе осознал своё желание, была дорога лишь в танцы на льду, которые и рядом не стояли с его мечтаниями о сольном катании. (   Читать дальше...   )Производство: ENGIЖанр: спортРежиссер: Ямамото ЯсутакаПеревод: Архив Субтитров (Donate)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (9 эп.), 25 мин.
+Ландшафтный Дизайн 3D - простая программа для планирования приусадебных и дачных участков. С ее помощью можно нарисовать территорию любой формы и размера, разместить строения, растения и мебель, а затем просмотреть готовый проект в 3D.
+Программа легко управляется и не требует от пользователя специальных навыков. Проектирование здесь больше похоже на игру, чем на (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93D63E8FFC87A858430293235B49E5A18B0B4F2F
+magnet:?xt=urn:btih:95BC1068E5878991EBFE65E444B11BE52F9F956D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848324   (1054010) от 26.01.2026
+###  Публикация: 1852166   (1055657) от 06.02.2026
 
-Vayper - Песни на стихи Некрасова Н.А. (2026) [MP3|~190 Kbps (V2)] <Shanson, Powerful, Synthwave, Nu-metal, Theatrical rock>
+Сен-Пьер / Saint-Pierre (2026) WEB-DL [H.264/1080p] (сезон 2, серии 1-5 из 12) Ultradox (обновляемая)
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Зарубежные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-01 - Вино (Некрасов Н.А.
-02 - Внимая ужасам войны… (Некрасов Н.А.)
-03 - Генерал Топтыгин (Некрасов Н.А.)(   Читать дальше...   )Жанр: powerful, synthwave with nu-metal, Theatrical rock, Русский шансонПродолжительность: 9 CD, 01:43:31
+Полицейский детектив Донни Фицпатрик оказывается сослан в Сен-Пьер — маленький уголок, затерянный в Атлантике. Причиной ссылки становится его излишняя настойчивость в расследовании против влиятельного политического деятеля. Там он сталкивается с Женевьев Аршамбо, местной сотрудницей полиции и бывшей жительницей Парижа, которая скрывает свои мотивы пребывания на островах. (   Читать дальше...   )Производство: Канада / Hawco ProductionsЖанр: криминалРежиссер: Джон Ватчер, Винифред Джонг, Т.Дж. СкоттАктеры: Аллан Хоуко, Жозефин Жобер, Бенц Антуан, Эрика Прево, Жан-Мишель Легаль, Аеша Мансур, Джеймс Пьюрфой, Луиз Питре, Ким НельсонПеревод: Многоголосый любительский (Ultradox)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C0A6A7BD1A299F7F0A20C92C731E544FD21475C
+magnet:?xt=urn:btih:58BB7BA9014BE50E352A39B8DFB4E3258B9C3BA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +51,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847558   (1054009) от 26.01.2026
+###  Публикация: 1852173   (1055656) от 06.02.2026
 
-Vayper - Матерные частушки (Алексей Иванов) (2026) [MP3|~190 Kbps (V2)] <Russian Folk Pop>
+ADB AppControl 1.8.6 Extended + portable by GPFault [Multi/Ru]
 
->>Other Styles
->>Folk
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Матерные частушки 01 (Алексей Иванов) MIX[00:02:47]
-02. Матерные частушки 02 (Алексей Иванов) MIX[00:02:41]
-03. Матерные частушки 03 (Алексей Иванов) MIX[00:03:25]
-04. Матерные частушки 04 (Алексей Иванов) MIX[00:04:22]Жанр: Russian Folk PopПродолжительность: 2 CD, 00:24:52
+ADB AppControl - это новая и удобная программа для ПК, которая позволит вам легко управлять приложениями на Android устройстве при помощи adb. Требуется ли вам отключить предустановленные приложения, или установить свои – она с легкостью справится с этой задачей, а в интуитивно понятном интерфейсе программы без проблем разберется каждый.
+Не требует root. Работает (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64CFB9D31FDEC22FD9BE35B4C69183026A63BC8C
+magnet:?xt=urn:btih:5E3A877ABBEDE68D7582D51A0775F043A0D6B3F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,464 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846965   (1054008) от 26.01.2026
+###  Публикация: 1852174   (1055655) от 06.02.2026
 
-Vayper - Dancing Music fo NY 2026 at Vayper@SWH (2025) [MP3|~190 Kbps (V2)] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 12 месяцев (SWH, Disco) [00:06:04]
-02. 12 месяцев (SWH, Folk Rock) [00:05:15]
-03. Анчар (А.C. Пушкин, Synth Rock) [00:04:48]
-04. Иди на свет (SWH, Synth Rock) [00:03:58](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F93F4FBD3E9D465EA704174B0A24092835B9127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849589   (1054007) от 26.01.2026
-
-VA - Sounds of the 70s (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. December, 1963 (Oh What a Night!) - Frankie Valli & The Four Seasons  - (03:20)
- 02. Feel like Makin’ Love (2015 Remaster) - Bad Company  - (05:15)
- 03. Right down the Line - Gerry Rafferty  - (04:28)
- 04. Right Back Where We Started From - Maxine Nightingale  - (03:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D53F162B83AE056F00B1EF291D9CE8EEC380EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850084   (1054006) от 26.01.2026
-
-Chris Dent | Mastering PowerShell Scripting. Automate repetitive tasks and simplify complex administrative tasks using PowerShell. 5th Edition (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master PowerShell to automate real-world administrative tasks, streamline workflows, and enhance security across Windows environments
-Book Description
-Mastering PowerShell Scripting, Fifth Edition, is your comprehensive guide to harnessing PowerShell’s full potential. This edition introduces new chapters on debugging, troubleshooting, and creating GUIs while covering (   Читать дальше...   )Жанр: Windows Server Guides, Windows Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CE36992E4CC39F52E6A6C36099FEC7F636F92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850082   (1054005) от 26.01.2026
-
-Dan Gookin | Microsoft 365 Word For Dummies. 2nd Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Word, Microsoft's powerful and popular word processor, is capable of extraordinary things. From template building to fancy formatting and even AI-powered editing and proofing, your copy of Word stands ready to help you supercharge your productivity and save you time and energy. You just need to learn how it's done. And, thanks to this easy-to-understand book, learning (   Читать дальше...   )Жанр: Word Processing Books, Microsoft Word Guides, Software Suite BooksЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB04A9B20D1F65B2A2FFD461BC3DD81E7A71ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850081   (1054004) от 26.01.2026
-
-George Mount | Modern Data Analytics in Excel. Using Power Query, Power Pivot, and More for Enhanced Data Analytics (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054004.jpg" />
-</div>
-
-
-###  Подробнее
-
-If you haven't modernized your data cleaning and reporting processes in Microsoft Excel, you're missing out on big productivity gains. And if you're looking to conduct rigorous data analysis, more can be done in Excel than you think. This practical book serves as an introduction to the modern Excel suite of features along with other powerful tools for analytics. (   Читать дальше...   )Жанр: Business Intelligence Tools, Data Mining, Spreadsheet BooksЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007DC5BD07B780EF5E52BEE3E00237FA27C042FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850080   (1054003) от 26.01.2026
-
-Dick Kusleika | Microsoft 365 Excel VBA Programming For Dummies. 7th Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Your step-by-step guide to doing more with Microsoft Excel
-
-Fully updated for the latest version of Office 365, Excel VBA Programming For Dummies will take your Excel knowledge to the next level. With a little background in Visual Basic for Applications (VBA) programming, you can go well beyond basic spreadsheets and functions. Learn the coding basics and syntax (   Читать дальше...   )Жанр: Microsoft VBA, Microsoft Excel Guides, Spreadsheet BooksЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A51AD5B2DAF550C7A976E8B8D2E5B255C598C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850076   (1054002) от 26.01.2026
-
-Хун Чжоу | Машинное обучение сквозь призму Excel. Примеры и упражнения (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучение датамайнинга на примерах и упражнениях в этой книге позволит вам заглянуть за кулисы сложных методов и научиться эффективно работать с данными. По мнению автора, постигать датамайнинг и модели анализа данных лучше всего на практике, выполняя действия одно за другим. В отличие от большинства специализированных инструментов, которые работают по принципу «черного (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BEF6E4441DB26AFC94ED5BD6FD4FC6D379F79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850075   (1054001) от 26.01.2026
-
-А. Колоколов, М. Зеленский, К. Королева и др. | Азбука визуализации Power BI (2024) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга будет полезна и тем, кто уже работает с Power BI, а также для всех, кто хочет
-повысить свою визуальную грамотность. Power BI остается самым легким в освоении и
-бесплатным BI-инструментом, и продолжает работать на территории РФ. А если хотите
-еще глубже освоить дизайн дашбордов, их интерактивные сценарии и(   Читать дальше...   )Жанр: Компьютерная литература, Бизнес-аналитикаИздательство: Институт Бизнес-АналитикиФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7073129E39D444E3EAEEAFCAD7AA5191FC5756CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850074   (1054000) от 26.01.2026
-
-Chris Minnick | Microsoft Copilot For Dummies (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Straightforward guidance on the AI tool that's built into Windows, Microsoft 365, and more
-
-Microsoft is enhancing all its most widely used productivity software―including Windows and apps like Word and Excel―with the power of AI. And now you can learn to make the most of this revolutionary new tool with Microsoft Copilot For Dummies!
-(   Читать дальше...   )Жанр: Microsoft Office Guides, Software Suite Books, Natural Language ProcessingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9453630C4CFA3744036AC64A60DE3E4D0E3C36FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850073   (1053999) от 26.01.2026
-
-А.В. Погорелов | Аналитическая геометрия (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический учебник по аналитической геометрии выдающегося ученого-математика с мировым именем А.В. Погорелова выдержал уже много изданий. За прошедший период книга совсем не устарела и остается лучшим и основным учебником. В предлагаемом курсе лекций излагаются основы метода аналитической геометрии в применении к простейшим геометрическим объектам. Учебник отличается (   Читать дальше...   )Жанр: МатематикаИздательство: Регулярная и хаотическая динамикаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42CABC9CD9942C9E488BF4D789424CFE66A70A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850072   (1053998) от 26.01.2026
-
-И. Спира | Microsoft Excel и Word 2013. Учиться никогда не поздно (2014) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена новым версиям Microsoft Word и Excel 2013. Она предназначена для тех, кто хочет научиться работать в этих популярных многофункциональных программах. В ней нет сложных определений и заумных терминов. Большое количество иллюстраций делает процесс обучения максимально наглядным, а практические примеры значительно ускоряют освоение материала. Прочитав (   Читать дальше...   )Жанр: Компьютерная литература, Excel, WordИздательство: ПитерФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBB3CFD9A4F230DD56EFBD4FC39F86154C7E85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850071   (1053997) от 26.01.2026
-
-В.Д. Кильдишов | MS Excel и VBA для моделирования различных задач. Практическое руководство (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является практическим руководством по моделированию задач с использованием приложения MS Excel и VBA.
-Пособие предназначено для школьников, студентов и преподавателей, которые хотят быть знакомы с MS Excel и VBA «на Вы» и научиться моделированию, разработке моделей, алгоритмов и программ, а также приложений с формами.
-Прочитав эту книгу, Вы научитесь использовать (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: СОЛОН-ПрессФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74CCFF62227E1A2370645EA04AA32DCF405F634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850070   (1053996) от 26.01.2026
-
-Jack McLarney | The Book of Batch Scripting. From Fundamentals to Advanced Automation (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053996.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this era of advanced programming languages, the simplicity, universality, and efficiency of Batch scripting holds undeniable value.
-
-Whether you’re maintaining legacy systems or seeking to understand the foundations of command line automation, The Book of Batch Scripting shows you how to become proficient with this tool included in every version of Windows.
-(   Читать дальше...   )Жанр: Computer Network Administration, Microsoft Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: No Starch PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD51282399CFEF77457E97EA2316E57CA9110F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850067   (1053995) от 26.01.2026
-
-Jen Stirrup, Thomas J. Weinandy | Artificial Intelligence with Microsoft Power BI. Simpler AI for the Enterprise (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advance your Power BI skills by adding AI to your repertoire at a practice level. With this practical book, business-oriented software engineers and developers will learn the terminologies, practices, and strategy necessary to successfully incorporate AI into your business intelligence estate. Jen Stirrup, CEO of AI and BI leadership consultancy Data Relish, and (   Читать дальше...   )Жанр: Business Intelligence Tools, Data Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D559D1F816E481CCD1CDDF4AC29FA81108A33224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850066   (1053994) от 26.01.2026
-
-Aaron Guilmette, Darryl Kegg, Ed Fisher | Microsoft 365 Administration Inside Out. 3rd Edition (2023) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Conquer Microsoft 365 administration, from the inside out!
-
-Dive into Microsoft 365 administration and harness the full power of cloud scaling, automation, and availability in Microsoft 365! This supremely well-organized reference packs hundreds of time-saving solutions, tips, and workarounds; all you need to continually enhance organizational agility, productivity, (   Читать дальше...   )Жанр: Client-Server Networking Systems, Software Suite Books, Microsoft Office GuidesЯзык: АнглийскийИздательство: Microsoft PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39E63F0F0D36C48D5BE5216AC0C4CBBF76728AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850065   (1053993) от 26.01.2026
-
-В.С. Мхитарян, В.Ф. Шишов, А.Ю. Козлов | Анализ данных в MS Excel. Учебное пособие. Основные сведения о MS Excel. Статистические таблицы и графики. Статистические функции. Пакет анализа (анализ дан ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит подробное описание «Статистических функций» и средств анализа данных (инструментов) «Пакета анализа», входящих в настоящее время в MS Excel. В пособии также изложены сведения по основам работы в Excel, представлению первичной статистической информации в виде статистических таблиц и графиков; рассмотрены теоретические основы статистических (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: КУРСФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A9A29D66C65CB169E09CE057FB2AF2260D4A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850030   (1053992) от 26.01.2026
-
-Womanizer (2024) [Ru/Multi] (Build 20905236/dlc) Repack Let'sРlay [18+]
+Maelstrom: The Battle for Earth Begins (2026) [Ru/Multi] (1.3.0) Repack FitGirl [Enhanced]
 
 >>Win Игры
->>Adventure/Quest
+>>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Способен соблазнить любую девушку одним лишь взглядом, но перед ним стоит почти невыполнимая задача. Обаятельный сердцеед поспорил с лучшим другом, что в течение недели уложит в постель пятерых девушек из городской сборной по художественной гимнастике, недавно выигравшей национальные соревнования. Смогут ли звёздные спортсменки устоять перед опытным ловеласом?Тип издания: RepackРазработчик: kamtiЖанр: Приключeние, Визуальные новеллыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+За какие-то пятьдесят лет, Земля, стремившаяся к манящему будущему, оказалась в шаге от гибели, охваченная экологическими катастрофами, глобальной войной и распадом человеческой цивилизации. Именно в это время происходит действие Maelstrom. В этом разоренном мире, угасание ресурсов планеты разделило то, что осталось от человечества надвое: городских борцов за свободу, (   Читать дальше...   )Тип издания: RepackРазработчик: KDV GamesЖанр: СтратегииЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BC04400B5CA5767F9F59506BB460F973F63C56E
+magnet:?xt=urn:btih:D43EA3E959F9D6E5FF056EB34E8F36F42A9F3548
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,25 +104,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850005   (1053991) от 26.01.2026
+###  Публикация: 1851920   (1055654) от 06.02.2026
 
-Three Kingdoms Story: Conussia (2020) [Ru/Multi] (Build 17653291/dlc) Repack Let'sРlay [18+]
+Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.04.02.26) [Ru]
 
->>Win Игры
->>Adventure/Quest
+>>ОС Windows
+>>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055654.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"История трех королевств: Конуссия" - это история о Герое, оказавшемся втянутым в дворцовые интриги королевства Конуссия. Король пропал, Принцесса должна стать Королевой, но похоже этого не случится. Армия и маги уничтожены, жрецы и благородные претендуют на то, чтобы быть лучшими правителями, чем Принцесса. И все они в серьезной опасности, Силы тьмы непрерывно (   Читать дальше...   )Тип издания: RepackРазработчик: kamtiЖанр: Приключeние, Визуальные новеллыЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
+Сборка сделана на основе оригинального образа от MSDN:
+ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886.iso
+
+   Интегрированы важные и рекомендуемые обновления по Октябрь 2025 года.(   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73519BF5798FF021FF2C27C9AC0007480A1231CA
+magnet:?xt=urn:btih:F250497E05CC5575DE6BF0C401D8348911468F8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,25 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850055   (1053990) от 26.01.2026
+###  Публикация: 1852180   (1055653) от 
 
-Максим Данилов | Одиночка (2025) [MP3, Роман Ефимов]
+Сандокан: Принц пиратов / Sandokan (2025) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] (сезон 1, серии 1-8 из 8) Кравец-Рекордз
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Зарубежные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Олег - простой парень, любящий машины и красивую беззаботную жизнь. Закоренелый холостяк, циничный, эгоистичный и дерзкий торговый в одночасье теряет всё под безжалостным шквальным ракетным огнём. Очнувшись от переживаний в избушке на опушке глухого леса, парень пытается выжить, изменяя свои жизненные принципы. Получится ли у городского пижона выжить на просторах (   Читать дальше...   )Жанр: Боевая фантастика, ПостапокалипсисИздательство: Аудиокнига своими рукамиПродолжительность: 10:22:46
+Отважный малазийский пират Сандокан и его верная команда живут по своим законам, промышляют грабежами и нападают на британский корабли. Они действуют слаженно и бесстрашно, вступая в схватки с вооружёнными до зубов солдатами. Во время очередной вылазки Сандокан встречает дочь британского консула Марианну Гийонк. Между свободолюбивой аристократкой и дерзким разбойником (   Читать дальше...   )Производство: Италия, Франция, Lux Vide, Rai Fiction, FremantleЖанр: боевик, драма, приключенияРежиссер: Ян Микелини, Никола АббатанджелоАктеры: Джан Яман, Эд Вествик, Джон Ханна, Оуэн Тил, Люси Гаскелл, Алессандро Прециози, Алана Блур, Matt McCooey, Мадлен Прайс, Анжелика ДевиПеревод: Многоголосый (Кравец-Рекордз)Язык озвучки: Русский, ИтальянскийСубтитры: Русские, Английские (Forced), Итальянские (Forced, Full)Продолжительность: ~01:00:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56957D0D4FF023AF8246D38619993459DD903663
+magnet:?xt=urn:btih:A908D137F9FB5D855627F8218825BB5560CAE20A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,28 +159,137 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850037   (1053989) от 26.01.2026
+###  Публикация: 1852183   (1055652) от 06.02.2026
 
-Poppy - Empty Hands (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Metalcore, Electronic>
+Joe Bonamassa - B.B. King's Blues Summit 100 (2026) (2CD) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  How Blue Can You Get (4:27)
+02.  You Upset Me Baby (2:31)
+03.  Ghetto Woman (5:07)
+04.  Night Life (5:11)(   Читать дальше...   )Жанр: Blues
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5423315B0BF38D42411F7A8D88D6081E20BB198B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852184   (1055651) от 06.02.2026
+
+VueScan Pro 9.8.51 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055651.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа предназначена для замены стандартного интерфейса сканера на собственный, функционально более богатый и предоставляющий массу дополнительных возможностей в зависимости от конкретной модели сканера. В большинстве случаев, стандартный драйвер устройства имеет крайне ограниченные возможности по регулировке параметров сканирования. Используя зачастую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12142EE39F8667E5C57D90ECE447286428106A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852186   (1055650) от 06.02.2026
+
+Кино - 46 (1983) Reissue, Remastered, 2026, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055650.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Демонстрационная запись «46»
+CD2 - Сессия в МДТ & Акустика
+CD3 - «Квартирник» у Павла КраеваЖанр: RockПродолжительность: 02:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD2648F7D4C1D8E037772CE76F310F9E2AD4B5ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852185   (1055649) от 06.02.2026
+
+Кровь на границе / Frontier Crucible (2025) WEBRip [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опытный наемник, солдат в прошлом, Меррик должен доставить важный медицинский груз. Путь его ведет через опасные земли, где кровь льется рекой, а пули летят чаще, чем капли дождя с неба. Встретив разношерстную компанию вояк, он решает помочь прекрасной незнакомке и ее раненому мужу. Но не всем по вкусу такое благородство, и вот за Мерриком начинается настоящая охота.Производство: США / Bonfire Legend, Dwarven Breastplate, Renegade Entertainment, Running Wild Films, Voltage PicturesЖанр: Триллер, драма, вестернРежиссер: Трэвис МиллсАктеры: Майлз Клоэсси, Арми Хаммер, Мэри Стикли, Райан Массон, Уильям Х. Мэйси, Томас Джейн, Илай Браун, Зейн Холц, Эдди Спирс, Juwan LakotaПеревод: Дублированный (Кинопоиск HD), многоголосый профессиональный (заКАДРЫ)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A73FEFBE287DBB6427AA79E30BAF5CF392E4183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852190   (1055648) от 06.02.2026
+
+Epinikion - The Force Of Nature (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055648.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Public Domain [00:04:00]
-02. Bruised Sky [00:03:40]
-03. Guardian [00:03:14]
-04. Constantly Nowhere [00:00:28](   Читать дальше...   )Жанр: Alternative-Metal, Metalcore, ElectronicПродолжительность: 00:38:36
+01. The Moon, the Sun and the Stars (02:09)
+ 02. The Force of Nature (04:23)
+ 03. Lessons in Life (Are for Free) (03:59)
+ 04. Come into My World (04:09)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:58:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3E200C54957DD7EF4709B0B2D3BA40DDD07D95B
+magnet:?xt=urn:btih:BEF5D946D77A6568EA52AE41EC368DB59DA7B738
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,28 +297,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850035   (1053988) от 26.01.2026
+###  Публикация: 1852162   (1055647) от 06.02.2026
 
-Ai - No name compilation part 46 Slow Pop Rock Ballad (2026) [MP3|320 Kbps] <Slow Pop Rock Ballad>
+Голубой гром / Blue Thunder (1983) BDRip [H.264]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055647.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Love Wasn’t Wrong (I Was)
-02 - All Your Love
-03 - You Whispered Forever
-04 - Midnight Caress    After the Lights Go Low(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 00:40:46
+Полицейский пилот Фрэнк Мерфи получает новый экспериментальный вертолет "Голубой гром". Любопытство и чувство долга помогают ему раскрыть истинную цель авторов проекта, которых заботит отнюдь не обеспечение безопасности жителей Лос-Анджелеса. А поскольку за всем стоят высокопоставленные чиновники военного министерства, Мерфи понимает, что играть ему придется (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Rastar PicturesЖанр: драма, криминал, боевик, триллерРежиссер: Джон БэдхэмАктеры: Рой Шайдер, Эд Бернар, Кэнди Кларк, Малкольм МакДауэлл, Уоррен Оутс, Пол Роблинг, Джо Сантос, Дэниэл Стерн, Дэвид Шейнер, Джейсон Бернард (I), Марио Мачадо, Джеймс Мерто, Элизабет Хоффман, Пэт МакНамара, Джек МёрдокПеревод: профессиональный двухголосый (ОРТ; НТВ), авторский (Володарский; Горчаков)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:49:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7328AC30A97698F808926E3B32DC411D50BFA8BF
+magnet:?xt=urn:btih:BA5527323B707DD05D3A4447DD8F48B1E70835C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,28 +323,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850033   (1053987) от 26.01.2026
+###  Публикация: 1852189   (1055646) от 06.02.2026
 
-VA - No name compilation part 45 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance>
+Голубой гром / Blue Thunder (1983) BDRip [H.264/720p]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Adex - Broken Code
-02 - Dova Music - Fading Winter Love
-03 - Hamidshax - You Are Gone
-04 - A-Sultan - Here I Am(   Читать дальше...   )Жанр: Electronic, Eurodisco, EurodanceПродолжительность: 01:52:31
+Полицейский пилот Фрэнк Мерфи получает новый экспериментальный вертолет "Голубой гром". Любопытство и чувство долга помогают ему раскрыть истинную цель авторов проекта, которых заботит отнюдь не обеспечение безопасности жителей Лос-Анджелеса. А поскольку за всем стоят высокопоставленные чиновники военного министерства, Мерфи понимает, что играть ему придется (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Rastar PicturesЖанр: драма, криминал, боевик, триллерРежиссер: Джон БэдхэмАктеры: Рой Шайдер, Эд Бернар, Кэнди Кларк, Малкольм МакДауэлл, Уоррен Оутс, Пол Роблинг, Джо Сантос, Дэниэл Стерн, Дэвид Шейнер, Джейсон Бернард (I), Марио Мачадо, Джеймс Мерто, Элизабет Хоффман, Пэт МакНамара, Джек МёрдокПеревод: профессиональный двухголосый (ОРТ; НТВ), авторский (Володарский; Горчаков; Живов), любительский одноголосый (Попов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:49:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7210E10252E0BF7F2FDF09A01871730FE9AAFE19
+magnet:?xt=urn:btih:693361E865A2F70F39E51128299246A274A81040
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,28 +349,347 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850032   (1053986) от 26.01.2026
+###  Публикация: 1852191   (1055645) от 06.02.2026
 
-VA - No name compilation part 44 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance>
+Saviorless (2024) [Ru/Multi] (1.1.0) License GOG
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055645.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Nezon - New Horizon
-02 - Lynoria - After You
-03 - Mr Salama - Lies
-04 - Nezon - Future Love(   Читать дальше...   )Жанр: Electronic, Eurodisco, EurodanceПродолжительность: 01:35:56
+Saviorless – это стильный мрачный экшн-платформер в жанре фэнтези с прекрасной ручной графикой и анимацией, в котором два главных персонажа пытаются сбежать из проклятых земель, известных как Улыбчивые острова. Погрузитесь в глубокий сюжет, сразитесь с необычными врагами, познакомьтесь с множеством персонажей – все это в платформере, полностью отрисованном вручную. (   Читать дальше...   )Тип издания: LicenseРазработчик: Empty Head GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:751C9842A9A9EB8533A1BD6AB9EC1BD6802C0B63
+magnet:?xt=urn:btih:8D6EE07FBF124D1AFE63B270EBCBDE33241287B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852192   (1055644) от 06.02.2026
+
+Минтранс — Тест-драйв Geely Coolray 2022 (24.01.2026) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тест-драйв Geely Coolray 2022. Какие самые слабые места у популярной модели?
+Лайфхак: как убрать воду из бензобака, не навредив мотору?
+Урок от инструктора. Можно ли ехать в крайней левой полосе?
+Безотказный способ. Как заехать на гору, чтобы не скатиться вниз?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC6B31BB447BD84B28A36F04770DCCC024F4220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852197   (1055643) от 06.02.2026
+
+Induction - Love Kills! (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virtual Insanity (03:22)
+ 02. War Of Hearts (03:45)
+ 03. Dark Temptation (03:30)
+ 04. Steel And Thunder (04:02)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B4227655215EF76695E9C4253480D93E70E84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852198   (1055642) от 06.02.2026
+
+Imagine 2.4.1 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюерам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF748E097F690C9E147D60E23D4A64B343A8E13D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852199   (1055641) от 06.02.2026
+
+Минтранс — Тест-драйв Exeed TXL 2022 (31.01.2026) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юридические нюансы. Что будет, если переписать договор о продаже на наследника умершего покупателя?
+Тест-драйв Exeed TXL 2022: что огорчит, а что обрадует водителя?
+Лайфхак: как выбрать автомобильную щетку?
+С иностранными номерами. Можно ли управлять автомобилем в России, если машина зарегистрирована в другой стране?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D354803E9BAEC4A01959541E06609B660C85C4DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852196   (1055640) от 06.02.2026
+
+Старший сын (1975) WEBRip [H.264/1080p] (2 серии)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055640.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной пьесе Александра Вампилова "Старший сын"
+Два ловеласа-неудачника Владимир и Семён опаздывают на последнюю электричку и застревают в маленьком городе. В поисках места, где можно переночевать, они придумывают невероятную аферу: постучавшись в дом местного жителя, они говорят, что Владимир — его внебрачный сын.Производство: СССР / ЛенфильмЖанр: драма, экранизацияРежиссер: Виталий МельниковАктеры: Евгений Леонов, Николай Караченцов, Наталья Егорова, Владимир Изотов, Михаил Боярский, Светлана Крючкова, Игорь ГорбачевСубтитры: русскиеПродолжительность: 01:03:33 + 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91B7E72D786501F75D4DF1790AA67E3A2514D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852203   (1055639) от 06.02.2026
+
+НХЛ 2025-2026. Нэшвилл Предаторз - Вашингтон Кэпиталз (05.02.2026) WEB-DL [H.264/720p] [60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055639.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 февраля 2026 пятница 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 347 зрителей (99% при вместимости 18 573). Главный судья: Джастин Кеа (Вудвиль, Канада).Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FA12E37FBA51CE75CBEE3B057687AF6FA1FF2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852204   (1055638) от 06.02.2026
+
+Доминика / Dominique (2024) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональная убийца Доминик приезжает в Южную Америку, чтобы начать новую жизнь. Она оказывается в небольшом городе, которым управляют картели. В баре она знакомится с полицейским Хулио и останавливается у его семьи — добрых людей, никак не связанных с криминалом. Но вместе с собой Доминик привозит и свое прошлое, которое неумолимо настигает ее.Производство: Колумбия, США / Ágora Films, Green Dog Films, Reigning EntertainmentЖанр: боевикРежиссер: Майкл С. ОйедаАктеры: Морис Комт, Оксана Орлан, Чейз Коулмэн, Аланна де ла Роса, Мария дель Розарио, Ски Карр, Хосе Конехо Мартин, Себастьян Карвахал, Дерек Окампо, Дэвид Эм Сандовал мл.Перевод: Дублированный (Zone Vision)Язык озвучки: Русский, испанский, английскийСубтитры: Русские (Forced), английские (Forced, Full, SDH)Продолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A0B25A1BCF5486A4A1E5EF645C4FACD17F8DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852205   (1055637) от 06.02.2026
+
+Доминика / Dominique (2024) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональная убийца Доминик приезжает в Южную Америку, чтобы начать новую жизнь. Она оказывается в небольшом городе, которым управляют картели. В баре она знакомится с полицейским Хулио и останавливается у его семьи — добрых людей, никак не связанных с криминалом. Но вместе с собой Доминик привозит и свое прошлое, которое неумолимо настигает ее.Производство: Колумбия, США / Ágora Films, Green Dog Films, Reigning EntertainmentЖанр: боевикРежиссер: Майкл С. ОйедаАктеры: Морис Комт, Оксана Орлан, Чейз Коулмэн, Аланна де ла Роса, Мария дель Розарио, Ски Карр, Хосе Конехо Мартин, Себастьян Карвахал, Дерек Окампо, Дэвид Эм Сандовал мл.Перевод: Дублированный (Zone Vision)Язык озвучки: РусскийСубтитры: Русские (Forced) - отдельноПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D706B55CEF80B37BCB72E488DD9A2F17E37D94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852194   (1055636) от 06.02.2026
+
+Эмилия Перес / Emilia Perez (2024) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квалифицированный адвокат Рита работает в крупной мексиканской компании, которая больше заинтересована в отмывании денег от преступников, чем в служении правосудию. Неожиданно Рита получает интригующее предложение, от которого трудно отказаться. Грозный босс картеля, Хуан Дель Монте, хочет выйти из своего криминального бизнеса и исчезнуть навсегда, для чего он решил (   Читать дальше...   )Производство: Франция, Мексика, Бельгия / Canal+ fr, Casa Kafka PicturesЖанр: мюзикл, комедия, криминалРежиссер: Жак ОдиарАктеры: Зои Салдана, Карла Гаскон, Селена Гомес, Адриана Пас, Эдгар Рамирес, Марк Иванир, Эдуардо Аладро, Emiliano Edmundo Hasan Jalil, Emiliano Hasan, Gaël Murgia-Fur, Tirso PietrigaПеревод: Многоголосый (Red Head Sound)Язык озвучки: Русский, французскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C982AE5C0DCF2BCB379693CBFEF3724DA9D8BC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852193   (1055635) от 06.02.2026
+
+Эмилия Перес / Emilia Perez (2024) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квалифицированный адвокат Рита работает в крупной мексиканской компании, которая больше заинтересована в отмывании денег от преступников, чем в служении правосудию. Неожиданно Рита получает интригующее предложение, от которого трудно отказаться. Грозный босс картеля, Хуан Дель Монте, хочет выйти из своего криминального бизнеса и исчезнуть навсегда, для чего он решил (   Читать дальше...   )Производство: Франция, Мексика, Бельгия / Canal+ fr, Casa Kafka PicturesЖанр: мюзикл, комедия, криминалРежиссер: Жак ОдиарАктеры: Зои Салдана, Карла Гаскон, Селена Гомес, Адриана Пас, Эдгар Рамирес, Марк Иванир, Эдуардо Аладро, Emiliano Edmundo Hasan Jalil, Emiliano Hasan, Gaël Murgia-Fur, Tirso PietrigaПеревод: Многоголосый (Red Head Sound)Язык озвучки: Русский, французскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EC0EEC848134040462B7CC53CD6BAEAEC31594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852169   (1055634) от 06.02.2026
+
+Эффект парадокса / Paradox Effect (2023) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завязавшая наркоманка становится свидетельницей убийства. Она вынуждена сотрудничать с убийцей, бороться со временем, полицией и преступным миром, чтобы спасти единственного человека, который что-то значит для нее.Производство: США / Iervolino & Lady Bacardi EntertainmentЖанр: боевикРежиссер: Скотт ВейнтробАктеры: Ольга Куриленко, Харви Кейтель, Оливер Тревена, Элис Эстонс, Мередит Микельсон, Талия Ассераф, Андреа Гарофало, Романо Реджани, Малич Сиссе, Стелла АддариоПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Forced) - отдельноПродолжительность: 01:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D6223BC1DED33442CDBAB8CF3E54FB3DB17560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852168   (1055633) от 06.02.2026
+
+Эффект парадокса / Paradox Effect (2023) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завязавшая наркоманка становится свидетельницей убийства. Она вынуждена сотрудничать с убийцей, бороться со временем, полицией и преступным миром, чтобы спасти единственного человека, который что-то значит для нее.Производство: США / Iervolino & Lady Bacardi EntertainmentЖанр: боевикРежиссер: Скотт ВейнтробАктеры: Ольга Куриленко, Харви Кейтель, Оливер Тревена, Элис Эстонс, Мередит Микельсон, Талия Ассераф, Андреа Гарофало, Романо Реджани, Малич Сиссе, Стелла АддариоПеревод: Дублированный (Мосфильм-Мастер), многоголосый (TVShows, HDRezka)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английскиеПродолжительность: 01:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BCBE6617BDFF6F81EB5D5660EAC4FB67A6F663
 ```
 
 https://mybot314.ru/tekegram_catalog/

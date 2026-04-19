@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_933867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933867.jpg" />
 </div>
 
 

@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1860018   (1061577) от 
+###  Публикация: 1863811   (1063221) от 06.04.2026
+
+Mauro Farina - ∞ (2026) 3XCD, Compilation [FLAC|Lossless|tracks] <Italo-Disco, Eurobeat, Euro House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mauro Farina - Итальянский продюсер, певец, музыкант и аранжировщик, автор текстов и композитор, приложивший руку к удивительно большому количеству хитов, часто в союзе с Джулиано Кривелленте. Один из основателей S.A.I.F.A.M. Records. Mauro Farina являлся величественной фигурой итальянской диско музыки, а Radiorama один из его самых удачных проектов, где он выступал (   Читать дальше...   )CD1:
+01. Caravan – You And Me Tonight Written-By – O. Bernardi, G. Monetto, A. Saitta, M. Farina 5:45
+02. Danny Keith– Keep On Music Written-By – I. Zanet, M. Farina 6:39
+03. Family Number One– Lara De Bahia Written-By – G. Panariello, M. Farina 3:52(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Euro HouseПродолжительность: 03:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B50DB5A4F333F6B5D57937B2876E2308D76E450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860018   (1061577) от 18.03.2026
 
 Lian Ross - V (2025) [FLAC|Lossless|image + .cue] <Euro-Disco>
 
@@ -112,6 +141,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605410   (1044851) от 18.01.2023
+
+Rüdiger Meng (Roger Meno) - Rhythm And Energy (1991) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm And Energy (3:04)
+02. Blanch A Voil (3:20)
+03. Aspects Of Sport (3:23)
+04. Speed Up (3:42)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B654D47A2EAE7BFB3A79F71F2DF7640F8B5CC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605408   (1044846) от 18.01.2023
+
+Rüdiger Meng (Roger Meno) - Disco Groovin' (1988) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synchronity (3:22)
+02. Turbolights (2:10)
+03. Its Just Illusion (4:04)
+04. Disco Groovin' (3:10)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6716BBA7A86A9B79DD5C78CEC28789D87AE0470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606361   (1044541) от 21.01.2023
 
 Re-Tide - Adventures With The Right Groove (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
@@ -134,6 +221,64 @@ Re-Tide - Adventures With The Right Groove (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32BB43F82D5C238468BA9E247A0D671E82F86CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606166   (1044527) от 21.01.2023
+
+RSF - Metropol Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Night In Brazil (with Andy Bell & Boy George) (4:56)
+02. Crazy Wold Of Love (with Scarlet Fantastic) (4:04)
+03. The River (with Rago & Farina) (5:43)
+04. Far From Here (4:28)(   Читать дальше...   )Жанр: Italo-Disco, ItalodanceПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7DB99D6F6BC5339C05C32FC0BDE61A30B5539C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606400   (1044389) от 22.01.2023
+
+VA - Disco Nights (The Collection) (2009) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musique - In the Bush (3:32)
+02. Shalamar - The Second Time Around (3:41)
+03. Sharon Redd - In the Name of Love (4:10)
+04. Bumblebee Unlimited - Love Bug (3:36)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 07:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36F570793C961B4A363FEB08A8D85DE31CB0159
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,151 +743,6 @@ Mark Ashley - Christmas for My Fans (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20D90C779B2ED7E8E5C730684E306073D32FCE22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443593   (1035457) от 29.01.2021
-
-Mark Ashley - Greatest Hits 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tragedy of Love (Maxi Version) (6:05)
-02. Hot Like Fire (Maxi Version) (6:03)
-03. Face on the Wall (Maxi Version) (6:02)
-04. Loving Tonight 2020 (Multi Dance Maxi) (7:36)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 02:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29A45B2E1BF0966670DE073BC66CE306F5E6B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617281   (1035260) от 06.03.2023
-
-VA - We Love Italo (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Circle - Touch in the Night (5:19)
-02. D.White & DimaD. - 600 KM (4:17)
-03. Boys Next Door - Lady of the Night (The Night Affair Mix) (4:58)
-04. Bruce & Bongo - Geil (Ben Liebrand Mix) (7:09)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A3B54E42B92936A106C29410E98E8B7677DF22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443712   (1035215) от 30.01.2021
-
-Birizdo I Am - eRETROshock (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:58)
-02. Cannot Buy Happiness (5:54)
-03. Senorita (4:15)
-04. Diamond of My Heart (5:38)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEE11E7D52E327DA4255CAB4A1166AB24D9B3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443713   (1035208) от 30.01.2021
-
-Birizdo I Am - Sound of Yesteryear (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Say I Love You (Maybe Baby 2) (4:38)
-02. Indiana Jones (6:13)
-03. Sound of Yesteryear (5:46)
-04. If I Could... (7:00)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16FF36635BD7C09FC5A2DFFE7442A815F802A139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443711   (1035194) от 30.01.2021
-
-Birizdo I Am - Mademoiselle (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mademoiselle (Analogue Dance Mix) (6:20)
-02. Time To Shine (EP Version) (5:39)
-03. Love Is Love (Analogue Dance Mix) (6:34)
-04. Maybe Baby (Analogue Dance Mix) (6:39)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059EDA1053BAAC254F8144A622B26A9CA6A46781
 ```
 
 https://mybot314.ru/tekegram_catalog/

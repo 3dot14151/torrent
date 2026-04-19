@@ -1,3 +1,177 @@
+###  Публикация: 1262653   (293522) от 16.11.2018
+
+VA - Whore House Loves Tech House (2018) [MP3|320 Kbps] <House, Tech-House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Ourselves & Us - Good Vibrations [5:33]
+02. Mescal Kids - Got Me Spinning [6:35]
+03. Kevin Andrews - Say Mumma [6:21]
+04. Monkeye - Invisible Man [6:00](   Читать дальше...   )Жанр: House, Tech-House, FunkyПродолжительность: 04:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C61687D39C125073F42C0C46E9EBC60D11E40A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185297   (293477) от 21.11.2017
+
+Purple Disco Machine - Soulmatic (2017) [MP3|320 Kbps] <House, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Disco Machine feat. Lorenz Rhode - Music in You (4:31)
+02. Purple Disco Machine - Body Funk (4:17)
+03. Purple Disco Machine & Boris Dlugosch feat. Karen Harding - Love for Days (3:16)
+04. Purple Disco Machine feat. CeeLo Green - Pray for Me (5:42)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8152C1D4D727DE0D3563C6D879AF006926600A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079595   (292140) от 05.12.2016
+
+VA - 5 Years Of Drugstore Records (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MadMal/Rokka Animal - Brutal Style (original mix) 05:33
+02. Kill Eat Ratz - Goosebumps (original mix) 05:15
+03. Victor Bascu - Hello Man (original mix) 06:00
+04. Ralph Le Beat - Mexican Legends (MinimalFlex remix) 06:46(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 03:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074BF7F03527700F6695CFE1D6457FC771263A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185671   (291728) от 22.11.2017
+
+VA - Christmas Mega Dance 2017 [MP3|320 Kbps] <House, Electro House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Da Angerboyz - Infinity 03:25
+02. DJ 4Real - Together 02:46
+03. DJ Johan Weiss - Bitches 06:29
+04. DJ Luciano - Burn That House (Candy Mix) 03:06(   Читать дальше...   )Жанр: House, Electro House, DanceПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A820066A5AEA8A11823F0061085133974861FC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334861   (291670) от 31.10.2019
+
+VA - Halloween Night EDM Party (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - On & On (Radio Edit) 2:55
+02. FLGTT - Don't Go 2K20 (Radio Edit) 3:08
+03. Teknova - Dragostea Din Tei 2K19 (Original Mix) 3:16
+04. Teknova - Rhythm Is A Dancer 2K19 (Melbourne Bounce Mix) 3:36(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3AF7C6879B54DDF2FA8F221F7B8CCCC2115225D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262921   (291562) от 17.11.2018
+
+VA - Club Royale: Vocal House (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milkbar Rockers - My Universe (Extended Mix)
+02. Blue Drift - Don't Believe (Berlin Club Mix)
+03. Nothing but the Beat - Never Coming Back (Extended Tropical Mix)
+04. Sugapop - Elysion (Alex Phunk Remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75CAFAE077CAEBC19D3E6A498AF04B0C9B34A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262954   (291069) от 17.11.2018
 
 VA - The Underground Guide, Vol. 10 (2018) [MP3|320 Kbps] <Electro House, Progressive House, Tech House>
@@ -568,180 +742,6 @@ VA - Vocal House Dance Music Experience 2016 Vol.01 (Mixed By Jora Mihail) (2016
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A55647CDD81DB2EC6F9AD36389C6670FF18A4D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081934   (280905) от 11.12.2016
-
-VA - Armada Music: Best Of (2016) [MP3|320 Kbps] <House, Trance, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies - Beautiful Life (feat. Sandro Cavazza) 2:42
-02. Major Lazer & Showtek - Believer 3:44
-03. Armin van Buuren - Heading Up High (feat. Kensington) 3:53
-04. Gareth Emery - Reckless (feat. Wayward Daughter) 3:22(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 02:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3B9038C4113575474604791231A1261200C825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964581   (280792) от 12.12.2015
-
-VA - Armada Deep Best Of (2015) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robosonic feat. STAG - WURD (Radio Edit) (02:41)
-02. Autoerotique - Count On You (Radio Edit) (02:52)
-03. Lonely Boy - Everything (Radio Edit) (02:29)
-04. Low Steppa - Take Me Up (Radio Edit) (03:27)(   Читать дальше...   )Производство: Armada DeepЖанр: Deep HouseПродолжительность: 00:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F4A679E5716E7F9A167A9057FA78499B9CE0D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187499   (280768) от 28.11.2017
-
-VA - Soulful Ibiza Sound (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lank - Something Is Missing 07:53
-02. Guimaraes - Etrusko 06:41
-03. Santiago Cortes - Panther 07:00
-04. Jbam - Burn The Sea Green 07:18(   Читать дальше...   )Жанр: HouseПродолжительность: 03:28:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3947E53548CEBB5990354801A3EBC60EEFAE8095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264475   (279570) от 24.11.2018
-
-VA - Ibiza Lounge House: For DJs Only (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolkenlos - Pure (Ibiza Mix)
-02. Sugapop - You and Me (Cheap Sunglasses Dub Mix)
-03. Sounds of Summer - Daft Disco (Extended Mix)
-04. Dshyll - Be Mine (Saxo Mike Extended Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8265D92C6371CF5B9974736799DB7D73A3F85EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264718   (279524) от 24.11.2018
-
-VA - WeArmada 2019 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren;Sam Martin - Wild Wild Son
-02. Loud Luxury;Anders - Love No More
-03. Lost Frequencies;The NGHBRS - Like I Love You
-04. Afrojack;Jewelz & Sparks - One More Day(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4C6D606E8396CCBE70D65CC122139FC02EB4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082366   (279291) от 12.12.2016
-
-VA - Best of Christmas Deephouse (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azeotrop - Aftermath 05:56
-02. Spiced Boogie - Deep Shiver 06:19
-03. The Spectaphiles - Echoplex (Christian Hornbostel Cut) 08:11
-04. Flash Is Fast - Flanged Needle 08:15(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14B47526D1DF220748A2AB405CD82AE09957449
 ```
 
 https://mybot314.ru/tekegram_catalog/

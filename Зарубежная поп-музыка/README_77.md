@@ -1,3 +1,61 @@
+###  Публикация: 1672070   (170351) от 27.10.2023
+
+VA - Indie Disco Hits (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Synth Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Kristina Mailana - Come Around (Original mix)
+02. Tomas Rivera - Make Me Alive (Original mix)
+03. Mike Hosking - Its Allright (Original mix)
+04. Justin Young - Stereo (Original mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Synth FunkПродолжительность: 01:06:43 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C779079EECC850881511516D555BD6852F5FB987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672166   (170316) от 27.10.2023
+
+VA - Hit News Vol. 3 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Premier & Co feat. Marquise - Mr. Vain
+02. Def Dames Dope - Havin' A Good Time (7' Rap Edit)
+03. D.J. Bobo - Somebody Dance With Me (Club Mix)
+04. 2 Unlimited - Maximum Overdrive (Extended Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD734721E9D4E6ECBA95DE8A9E669AB541731F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672173   (170253) от 27.10.2023
 
 Prince & The New Power Generation - Diamonds and Pearls (1991) Super Deluxe Edition, 2023, Warner Records [MP3|320 Kbps] <Contemporary R&B, New Jack Swing, Funk, Minneapolis Sound>
@@ -687,64 +745,6 @@ VA - Let´s Go Dancing All Night (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96176F30E7A2F5C771173F6B9FAAC1EBC97C10F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674661   (160646) от 07.11.2023
-
-VA - Hit News Vol. 8 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superfly - Is It Love
-02. Two Boys - Calling For Affection
-03. Essono - I Can't Understand
-04. Twenty 4 Seven - Keep On Goin'(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C810E63242815CDF924C294C2D7D63A22F567F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674876   (160641) от 07.11.2023
-
-VA - Party Tracks (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz - Sugar (feat. Francesco Yates) (03:39)
-02. David Puentez - Baby Steps (02:23)
-03. Anne-Marie - FRIENDS (03:22)
-04. Tones and I - Dance Monkey (03:29)(   Читать дальше...   )Жанр: Dance, Club, Pop, ElectronicПродолжительность: 03:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C942C85D6DC6E623A242992D8FBD581A4313F613
 ```
 
 https://mybot314.ru/tekegram_catalog/

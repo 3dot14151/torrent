@@ -1,3 +1,32 @@
+###  Публикация: 1362584   (948416) от 24.02.2020
+
+Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack) (2013) [MP3|320 кб/с]<Soundtrack, Synthwawe>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948416.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:47| 01. Doll
+|03:41| 02. Haunted
+|01:02| 03. Double Trouble
+|02:46| 04. Bells(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaweПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3A587138523EE9C7AAADD119377D3D05C51F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362576   (948315) от 24.02.2020
 
 Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -722,35 +751,6 @@ Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Orig
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2886131B078C56912139153582BBE1D9AF109798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366602   (922234) от 12.03.2020
-
-Voidoid - The Greatest Movie Anthems of All Time (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922234.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:18| 01. Aquaman
-|02:34| 02. Ant-Man and the Wasp
-|01:31| 03. Deadpool 2
-|02:02| 04. Incredibles 2(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F63F9ADFA0404E980F5FDEE1B0D348E630C4344
 ```
 
 https://mybot314.ru/tekegram_catalog/

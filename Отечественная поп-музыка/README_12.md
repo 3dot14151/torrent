@@ -1,3 +1,32 @@
+###  Публикация: 1032171   (647526) от 06.07.2016
+
+Guru Groove Foundation - Over You (2016) EP [MP3|320 Kbps] <Dancepop, Funk, Neo Soul>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bomb
+02. Over You
+03. As Much As You Say
+04. When HeЖанр: Dancepop, Funk, Neo SoulПродолжительность: 00:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423727F6458B7D8B3CEA82BF18836B14461E94CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516946   (647145) от 01.07.2012
 
 Ранетки - Верните Ранеток!!! (2012) [MP3|320 kbps] <Pop>
@@ -743,35 +772,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530B92DF2AF51AE9A9D5F78E0326F14013EB7EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909445   (628350) от 17.06.2015
-
-Банума - По венам моим - океаны (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По венам моим - океаны (04:22)
-02. With u (При уч. Кот Балу) (03:45)
-03. Стоп мысли (04:38)
-04. Не хватает фраз (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E024F049A05968AD3BF7B31B9D372F8DF235A7B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

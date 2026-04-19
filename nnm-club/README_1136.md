@@ -1,22 +1,74 @@
-###  Публикация: 1445420   (1033789) от 05.02.2021
+###  Публикация: 1443394   (1035698) от 28.01.2021
 
-One Switch 1.18 [En]
+Жеребенок (1959) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035698.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименного рассказа Михаила Шолохова. В одном из казачьих эскадронов Красной Армии, у лошади, принадлежащей красноармейцу Трофиму, родился жеребенок. Вскоре во время боя он отстал от матери и только на следующий день вместе с белоказаками догнал отряд красноармейцев. Услышав зов матери с другого берега, жеребенок бросается в реку, но сил бороться с быстрым (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Драма, КороткометражныйРежиссер: Владимир ФетинАктеры: Евгений Матвеев, Леонид Пархоменко, Галина Карелина, Сергей Полежаев, Аркадий Трусов, Павел КлёновСубтитры: ОтсутствуютПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B13767905460AB440F2E0B9970A3987A98F72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443363   (1035697) от 28.01.2021
+
+В.Ф. Корсун и др. | Фитотерапия для детей. Травы жизни (2019) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035697.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге, написанной высококвалифицированными, опытными специалистами в области фитотерапии, на основании многолетних клинических наблюдений приведены научные сведения об использовании препаратов растительного происхождения в педиатрии. Дано описание биологически активных веществ, методологии применения фитопрепаратов в лечении ряда детских заболеваний. Даны (   Читать дальше...   )Жанр: Здоровье, МедицинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7AE52CEC0AF512BDB44F3135E604AF7927FBE24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443279   (1035696) от 28.01.2021
+
+PDF Reader Pro Edition 2.7.6.1 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-One Switch - это крошечное приложение, разработанное для повышения вашей эффективности благодаря быстрому доступу к нескольким важным коммутаторам. Его можно открыть в строке меню, и он позволяет переключать определенные функции системы всего парой кликов.Тип издания: macOS SoftwareРелиз состоялся: 03.02.2021Разработчик: FireballПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.01.2021Разработчик: PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6D6C57CD1C1C40E80746EDBE9404818CC7FCD73
+magnet:?xt=urn:btih:643F128420625CB350D1ECA8C835471972E059AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445303   (1033788) от 05.02.2021
+###  Публикация: 1443350   (1035695) от 28.01.2021
 
-The Flying Caravan - I Just Wanna Break Even (2021) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock>
+Ольга Елисеева | Аллергия. Истинные причины. Лечение (2020) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Научная и техническая литература
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD - 1:
-01. Get Real
-02. Flying Caravan
-03. Upstream To Manonash(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:38:20
+Дорогие читатели, после нескольких лет перерыва общения с вами опыт врача-практика вновь заставил меня взяться за перо. Принимая каждый день пациентов, измучившихся от своих аллергий и безуспешных походов по поликлиникам, я поняла, что не могу не писать. Я должна попытаться помочь вам разобраться в причинах ваших аллергий. И помочь вам не в поиске и диагностике пресловутых (   Читать дальше...   )Жанр: Здоровье, МедицинаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84D40080ECC033559EAB2114C0B790BA9BFA999C
+magnet:?xt=urn:btih:55BFE81179555734FFD1CBBEEE37B94A72779282
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +102,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445316   (1033787) от 05.02.2021
+###  Публикация: 1443081   (1035694) от 28.01.2021
 
-NCH DreamPlan Plus 6.05 [En]
+Криштиану Роналду. Португальский гений / Cristiano Ronaldo: The Portugese Prodigy (2012) IPTVRip [H.264]
 
->>Архив торрентов
->>Архив 4Apple
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Визуализируйте и спланируйте дом своей мечты с помощью реалистичной 3D-модели дома.
-• Создайте план дома, квартиры или квартиры
-• Настраиваемые цвета, текстуры, мебель, украшения и многое другое
-• Планируйте идеи внешнего озеленения и садовых пространствТип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
+В 17 лет он уже забивал в чемпионате Португалии, к 22-м собрал все трофеи в Англии, а к 24-м вписал себя в историю, как самый дорогой футболист планеты...
+Сегодня он не просто талантливый мальчик, каким был в 2003-м. Сегодня Криштиану Роналду - это бренд. Человек с ценником в 90 миллионов евро...
+Созидатель, творец, артист и, безусловно, значительное явление в современном (   Читать дальше...   )Производство: Worldwide EntertainmentЖанр: Документальный, спортРежиссер: Scott FosterПеревод: Одноголосый профессиональный (Igmar)Субтитры: отсутствуютПродолжительность: 00:52:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F9F4BFBE2C4685C5801504E99810A631F09CFD7
+magnet:?xt=urn:btih:10C318B3AF7942AF8E7E24D949877EED627A47EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,26 +130,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445268   (1033786) от 05.02.2021
+###  Публикация: 882692   (1035693) от 28.01.2021
 
-Affinity Publisher 1.9.0 [Multi/Ru]
+Fix8:Sed8 (Fïx8:Sëd8) - Discography 6 Releases (2005-2009) Dependent [FLAC|Lossless|WEB|tracks]<EBM, Electro, IDM, Industrial>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Реализуйте свое видение с помощью Affinity Publisher, самого современного профессионального программного обеспечения для публикации от разработчиков отмеченных наградами приложений Affinity Designer и Affinity Photo.
-Это невероятно плавное, интуитивно понятное приложение дает вам возможность комбинировать изображения, графику и текст, чтобы сделать красивые макеты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+01. Enigma (07:13)
+ 02. Prognosis (06:17)
+ 03. Human Harvest (05:13)
+ 04. Tremors (feat. Emke) (04:57)(   Читать дальше...   )Тип издания: WebЖанр: EBM, Electro, IDM, Industrial •Продолжительность: 06:57:08 • Источник: bandcamp
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AECC060770BE058E0B9107B26E1945071CEB9E05
+magnet:?xt=urn:btih:2B4FBDAAFA1C55ACC9D5A082100228DE4C256421
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,28 +159,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444945   (1033785) от 05.02.2021
+###  Публикация: 1443215   (1035692) от 28.01.2021
 
-Kald Kriger - A Season of Pagan Sorrow (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+Книжная серия | Music Legends & Idols [14 книг] (2017-2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035692.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серии выходят книги, посвященные прославленным на весь мир музыкантам и группам. Среди них — как автобиографии, так и издания, написанные известными критиками.
+Среди вышедших в серии — мемуары «Тина Тернер. Моя история любви». В них американская певица, более чем десятикратная обладательница «Грэмми» рассказывает о музыкальной карьере, тайнах собственной семейной (   Читать дальше...   )Жанр: Биографии и мемуары, Музыка, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E6334F0A05B757238E89826D6682431657460B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443426   (1035691) от 28.01.2021
+
+Accept - Too Mean To Die (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ulfhednar
-02. The Doom of the Gods
-03. Smite the Cross
-04. Heaven Impaled(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:53:54
+01. Zombie Apocalypse (5:35)
+02. Too Mean To Die (4:21)
+03. Overnight Sensation (4:24)
+04. No Ones Master (4:10)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD0823951914E554F57E92C9823F905A795D08BE
+magnet:?xt=urn:btih:9ED9A5421367C2710CA01E2FF64FC7E3550790AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,311 +215,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445346   (1033784) от 05.02.2021
+###  Публикация: 1443265   (1035690) от 28.01.2021
 
-Adobe InCopy 2021 v16.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe InCopy - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
-Adobe InCopy  входит в состав Creative Cloud. Поэтому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: февраль 2021Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE82EE3EA46807190DBA4EBBEB0DFEB13D01492F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445304   (1033783) от 05.02.2021
-
-ON1 Resize 2021 v15.1.0.10035 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033783.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Resize (ранее известный как Perfect Resize Standard) - это простое приложение для изменения размера изображений, которое предоставляет набор инструментов, предназначенных для подготовки ваших фотографий к печати. Организовать и изменить размер. ON1 Изменение размера стало намного лучше. NEW ON1 Resize теперь включает в себя один из самых быстрых способов просмотра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27859D70C65AEF41F02DA28A763E2DAF6E27B450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445435   (1033782) от 05.02.2021
-
-Aesop Rock - Spirit World Field Guide (2020) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello From The Spirit World (2:01)
-02. The Gates (3:51)
-03. Button Masher (3:45)
-04. Dog At The Door (1:28)(   Читать дальше...   )Производство: Rhymesayers Entertainment – RSE0314-2Жанр: Hip-HopПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4916DD50FFC53EFD27558F94C6A9892FDA92FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445444   (1033781) от 05.02.2021
-
-Ras Kass - I'm Not Clearing Shxt (2020) Limited Edition [FLAC|Lossless|tracks + .cue] <Hip-Hop, Boom Bap, Hardcore Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuck Berry (2:49)
-02. Mando (feat. Pimptight, Piranha & Wais) (4:16)
-03. Parkour (feat. Casual & Cortez) (4:05)
-04. Say No (4:23)(   Читать дальше...   )Производство: Blackhouse Records – BH999130Жанр: Hip-Hop, Boom Bap, Conscious, Hardcore Hip-HopПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80721887996D2CB64B7A6F5AB18D9B06B409CFED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445238   (1033780) от 05.02.2021
-
-VA - Liquid Drum & Bass Sessions 2019 Vol 6 (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seba - Shades Of Me & You (Original Mix) (06:15)
-02. Kubiks, Lomax - Find A Way (Blu Mar Ten Remix) (06:05)
-03. Tali, RoyGreen & Protone, DRS - Paper Wasp (Lenzman Remix) (04:57)
-04. Komatic - Seasons Sleep (05:39)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4864602D77F56A9903C7B69202F8B395E4802173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445227   (1033779) от 05.02.2021
-
-VA - Liquid Drum & Bass Sessions 2019 Vol 4 (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vanguard Project - Flying Away (Digital Bonus) (05:30)
-02. Villem, McLeod, Leo Wood - Gifted Lover (06:02)
-03. Redeyes - Separated (04:50)
-04. Dreazz, Emery - Starlove (06:21)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4BD26FD7ADC76160A60A5FCE47751CBDE2544BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445234   (1033778) от 05.02.2021
-
-VA - Liquid Drum & Bass Sessions 2019 Vol 5 (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tali, Macca, Vector - Situations (05:45)
-02. Anthony Kasper - Departure (Technimatic Remix) (05:03)
-03. Dreazz, Mackadena, Emery - Too Fly (05:57)
-04. Need for mirrors - Speedy Boarding (05:13)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E123931C616B6FF22F1232A2CBEF8207485AA2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445262   (1033777) от 05.02.2021
-
-Affinity Designer 1.9.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное приложение для графического дизайна для Mac.
-Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7752366C3611E8E02388212B30F352822C29BD42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445375   (1033776) от 05.02.2021
-
-Koherent - Ripple Effect (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koherent - Endless Haze (04:55)
-02. Koherent - Rave Chatter (04:08)
-03. Koherent, Riya - Talk to Me (04:53)
-04. Koherent, Monrroe - Need U (04:35)Жанр: Drum & BassПродолжительность: 00:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BBDDCA806A5F7454C40BA312150F8EE7D1D7DB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445246   (1033775) от 05.02.2021
-
-VA - Liquid Drum & Bass Sessions 2020 Vol 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Command Strange - Rock Steady (Lenzman Remix) (05:17)
-02. The Vanguard Project, Pat Fulgoni - Still Together (05:36)
-03. Maduk - Approaching Me (Original Mix) (04:55)
-04. Melinki, Macca, Maverick Soul - It's Over (05:37)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D21DCFFE7668414CF4C4991EA267DB5C65391B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445239   (1033774) от 05.02.2021
-
-John Coltrane - Impressions (1963) 1987, Impulse! [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Modal Music>
+VA - Electric Blues Bands (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. India (Coltrane) - 14:11
-02. Up 'Gainst the Wall (Coltrane) - 3:15
-03. Impressions (Coltrane) - 14:56
-04. After the Rain (Coltrane) - 4:13(   Читать дальше...   )Жанр: Avant-Garde Jazz, Modal MusicПродолжительность: 00:47:15
+01. The Robert Cray Band - Cry for Me Baby - [3:06]
+ 02. The Paul Butterfield Blues Band - Double Trouble - [5:37]
+ 03. Canned Heat - I'm a Hog for You, Babe - [2:40]
+ 04. Little Feat - Tripe Face Boogie - [3:14](   Читать дальше...   )Жанр: BluesПродолжительность: 01:38:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E30C2023C5F69DB232B13511BAF5CE466BCF633
+magnet:?xt=urn:btih:CDAA5207BD8B3306C4DEB8CD73A740F1C9086D05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,28 +244,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445248   (1033773) от 05.02.2021
+###  Публикация: 1443353   (1035689) от 28.01.2021
 
-VA - Liquid Drum & Bass Sessions 2020 Vol 8 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+Курихара Норихико и др. | Занимательная манга. Геодезия (2021) [PDF]
 
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+>>Комиксы и Артбуки
+>>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maduk, Nymfo - Motions (Original Mix) (04:59)
-02. Physics, Dreazz, Emery - Good Groove (05:41)
-03. Phaction - Fantasy (SpectraSoul Remix) (04:54)
-04. Unknown Artist - Re-Thinkable (06:01)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:03:14
+Перед 18-летним принцем Исааком стоит нелегкая задача: построить замок и восстановить легендарную страну своих предков Гостляндию. А поскольку за обучение принца взялся знаменитый профессор Гогенхайм, успех гарантирован!
+Вместе с героями манги читатель изучит основные принципы геодезической съемки, узнает, как измерять расстояние на местности при помощи рулетки, (   Читать дальше...   )Жанр: Комиксы, Манга, Артбуки, Образовательные комиксыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:793F4377866B69B8FA96F9B3D38C777715045110
+magnet:?xt=urn:btih:D001897FA5C8EE5BF6CCA30D73B9F8827B213B9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,28 +271,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445220   (1033772) от 05.02.2021
+###  Публикация: 1443257   (1035688) от 28.01.2021
 
-VA - Unexpected Paradox: Deep House Electro Compilation (2021) [MP3|320 Kbps] <Deep House, Electro>
+Lindsey Stirling - Warmer In The Winter (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Classical Crossover, Modern Classical>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ночь это особая атмосфера, исчезает негатив и лишняя суета,  дышать становится как- то легче. Причем ночной город одинаково прекрасен со всех сторон, неважно, гуляешь по нему или наблюдаешь за ним с балкона. И особый антураж этой атмосфере придаёт соответствующая музыка.001. 5th Avenue - Alright
-002. Fd Project - Timing
-003. Raspberry Area - Storm On The Asia
-004. Tony Bentley - Euphosonic(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 07:45:51
+01. Dance Of The Sugar Plum Fairy
+02. You’re A Mean One, Mr. Grinch (feat. Sabrina Carpenter)
+03. Christmas C'mon (feat. Becky G)
+04. Carol Of The Bells(   Читать дальше...   )Жанр: Pop, Classical Crossover, Modern ClassicalПродолжительность: 00:49:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC57419D0346820F59816693BAF08E8A443B0410
+magnet:?xt=urn:btih:EEAE6D041A307FA342993715E294A9FAD4345652
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,25 +300,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445265   (1033771) от 05.02.2021
+###  Публикация: 1443379   (1035687) от 28.01.2021
 
-Affinity Photo 1.9.0 [Multi/Ru]
+Ржев (2019) BDRip [H.264/720p-LQ] [GER Transfer]
 
->>Архив торрентов
->>Архив 4Apple
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Serif (Europe) LtdПоддерживаемая ОС: OS X 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+1942 год. Ржевская битва. После боёв под селом Овсянниково от роты советских солдат осталась только треть. Бойцы пытаются продержаться до прихода подкрепления. Но из штаба поступает приказ удержать деревню любой ценой. Значит, отступать нельзя… Каждый из героев понимает, что выбраться живыми из этого переплёта почти невозможно. В этот момент в Овсянниково, едва не (   Читать дальше...   )Производство: Россия / 3xMedia, KinoallianceЖанр: Военный, Драма, ИсторияРежиссер: Игорь КопыловАктеры: Сергей Жарков, Иван Батарев, Олег Гаянов, Арсений Семёнов, Александр Горбатов, Александр Бухаров, Григорий Некрасов, Игорь Грабузов, Александр Аравушкин, Дан РозинСубтитры: ОтсутствуютПродолжительность: 01:57:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:547695156F4885192335466FAB9B3EEB7F0469DE
+magnet:?xt=urn:btih:034DFF86D25194C814A7C1A1A32908C624B6DD59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,28 +326,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445362   (1033770) от 05.02.2021
+###  Публикация: 1443107   (1035686) от 28.01.2021
 
-The 5th Galaxy Orchestra - Adventures in Sci-Fi (2013) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Cillwave, Lounge>
+Виктор Третьяков - Лучшие песни, Части 1-3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Авторская песня>
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 3000 Feet Over Paris (5:11)
-02. Cindy Praying for the Sky (7:47)
-03. Forgotten Island (3:07)
-04. Crystal Teardrops (4:21)(   Читать дальше...   )Жанр: Electronic, Balearic, Cillwave, LoungeПродолжительность: 00:51:02
+01. Август (3:19)
+02. Единственная (3:14)
+03. Белая птица (3:45)
+04. Званый вечер (3:48)(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 05:01:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05F818F07A8DA31786904FC6FF7D3FB740DD680E
+magnet:?xt=urn:btih:4BBD32B606245A3BC4A8DF2A3B1E7C51D884F857
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,25 +355,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445204   (1033769) от 05.02.2021
+###  Публикация: 1443368   (1035685) от 28.01.2021
 
-Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Индианаполис 2 / AMA Supercross Championship. Indianapolis 2 WEB-DL [H.264/720p-LQ]
+Роковой патруль / Doom Patrol (2020) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 2, серии 1-9 из 9) Кубик в Кубе, TVShows, LostFilm, NewStudio, IdeaFilm
 
->>Спорт и активный отдых
->>Авто, Мото
+>>Зарубежные сериалы
+>>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:14:08
+Разбившийся в аварии гонщик, получивший заряд радиации пилот, девушка с 64 личностями, изуродованная актриса, парень-киборг и во главе этого всего - сумасшедший учёный. Эти неудачники и жалкие ничтожества становятся супергероями. Они находят своим сверхспособностям применение, а себе — новый смысл жизни. Теперь они — Роботмен, Негативный Человек, Безумная Джейн, (   Читать дальше...   )Производство: США / DC ComicsЖанр: фантастика, боевик, драма, комедия, детективРежиссер: Крис Мэнли, Дермотт Даунс, Гарри ЖиержианАктеры: Дайан Герреро, Эйприл Боулби, Мэтт Бомер, Брендан Фрейзер, Тимоти Далтон, Джоиван Уэйд, Райли Шэнэхэн, Мэттью Зук, Алан Тьюдик, Фил МоррисПеревод: Двухголосый (Кубик в Кубе, IdeaFilm), Многоголосый (TVShows, LostFilm, NewStudio)Субтитры: Русские, английскиеПродолжительность: ~00:58:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6BB2C0AA5A9D0114ADF51CB88AAD8BFADDF08A8
+magnet:?xt=urn:btih:862050B96EEF97DE3F243CA3436D116CC81420E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,28 +381,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445330   (1033768) от 05.02.2021
+###  Публикация: 1443343   (1035684) от 28.01.2021
 
-VA - Liquid Drum & Bass Sessions Vol 11 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+Д. Рублева (ред.) | Здоровые сосуды. Нет гипертонии и гипотонии (2018) [FB2]
 
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+>>Научная и техническая литература
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Minos, Messiah - Down The Drain (05:44)
-02. Edlan, Djah, Smote - Heathen (Give Me More) (03:33)
-03. Melinki, Sam Harris - The Conquest (05:40)
-04. Dreazz, ZaR, Emery - Keep Going (05:12)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:51:37
+В книге «Здоровые сосуды» рассматриваются актуальные проблемы повышенного и пониженного артериального давления. Максимально полно освещена тема фитотерапии при повышенном и пониженном артериальном давлении. Книга написана доступным языком и обращена к самому широкому кругу читателей, она будет полезна практикующим врачам и тем, кто хочет помочь себе самостоятельно.Жанр: ЗдоровьеФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7463E15321B221AF8ADCDA8CC8C427AE673064BF
+magnet:?xt=urn:btih:A484528FB76AF981ABC2EDEC966795862C2F8038
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,26 +407,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445309   (1033767) от 05.02.2021
+###  Публикация: 1434786   (1035683) от 28.01.2021
 
-Sketch 70.4 [En]
+Смертельный декабрь / Deathcember (2019) WEB-DLRip [H.264/1080p-LQ] [PR]
 
->>Архив торрентов
->>Архив 4Apple
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sketch от Bohemian Coding — один из лучших векторных редакторов под macOS!
-Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Bohemian CodingПоддерживаемая ОС: 10.14.4 or laterЯзык интерфейса: Английский и другие
+Альманах из 24 короткометражных фильмов, которые показывают тёмную сторону праздничных дней.Производство: Германия / Deathcember, Magna Mana Production, United Creative Studio eGЖанр: ужасыРежиссер: Лазар Бодрожа, B.J. Colangelo, Джон Кук ЛинчАктеры: Барбара Крэмптон, Кларк Вульф, Тиффани Шепис, Райан Фишер, Джеффри Реддик, Danny Plotner, Джулия Марчезе, Логан Эллисон, Sami Kolko, Макс Трэтта и др.Перевод: Многоголосый профессиональный (Звук с онлайн-кинотеатра IVI)Субтитры: НетПродолжительность: 02:17:00Реклама: отсутствуют
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F33EBBD243DF86BF00F798EB2DC2C05714F4832A
+magnet:?xt=urn:btih:AB9E9CE09DE893FACA1FA426105EBDE3AA9A0800
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,25 +433,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445356   (1033766) от 05.02.2021
+###  Публикация: 1443347   (1035682) от 28.01.2021
 
-Лидия Сычёва | Мёд жизни (2019) [FB2]
+Фудзитаки Кадзухиро, Сато Юити | Занимательная манга. Источники питания (2020) [PDF]
 
->>Художественная литература
->>Современная поэзия и проза
+>>Комиксы и Артбуки
+>>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Мёд жизни» – новая книга Лидии Сычёвой, чья проза отмечена Большой литературной премией Союза писателей России, Международной премией «Югра», Международной премией им. А. Дельвига и другими наградами. Читателя ждёт встреча с ярким, образным языком, а также самобытными героями и сюжетами, рождёнными временем и судьбой. «Мёд жизни» – книга, которую вы будете перечитывать.Жанр: Современная русская прозаФормат: FB2
+Простой, последовательный, наглядный и необременительный путь изучения элементов питания!
+Старшеклассники Сусуму и Юри волей случая открывают для себя музей батарей и знакомятся с его гостеприимной владелицей. Она расскажет друзьям, какого типа бывают батареи и какие из них где используются, а также поможет самостоятельно собрать источник питания.
+Вместе с героями (   Читать дальше...   )Жанр: Комиксы, Манга, Артбуки, Образовательные комиксыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C59C4441C3ECDBB411329060BEDB64DC65EC90F5
+magnet:?xt=urn:btih:84A8563126CCF75A03B3934BD2E93B25CA169AC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,28 +461,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445355   (1033765) от 05.02.2021
+###  Публикация: 1443297   (1035681) от 28.01.2021
 
-The 5th Galaxy Orchestra - Music Through the Years (2008) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Chillout, Lounge>
+Андрей Коптелов | Управление по целям или как построить идеальную компанию (2017) WEBRip
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 2000 Feet Over Paris (5:32)
-02. Rockin Chair (4:49)
-03. Music Through the Years (4:40)
-04. A Russian Spy in Shanghai (4:21)(   Читать дальше...   )Жанр: Electronic, Balearic, Chillout, LoungeПродолжительность: 01:00:56
+Курс не имеет аналогов в России и построен на практике и экспертизе одного из ведущих специалистов в области корпоративного управления.
+
+- Вы получаете не только знания и готовые технологии для внедрения, но и навыки для изменения ситуации в своей компании.
+- Программа обязательна как для основателей стартапов, так и для управляющих состоявшихся компаний, планирующих (   Читать дальше...   )Производство: СинергияЖанр: ВидеокурсыПродолжительность: ~07:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C3AB3B80FAEBBDB849E7A960B4347FB57412B23
+magnet:?xt=urn:btih:87F0482943D7D2E4C5C2AF9164D05126F43B9191
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,26 +490,212 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445384   (1033764) от 05.02.2021
+###  Публикация: 1443269   (1035680) от 28.01.2021
 
-AnyTrans for iOS 8.8.1 [Multi]
+Родина / Homeland (2013) BDRip [H.265/1080p] [10-bit] (сезон 2, серии 1-12 из 12) LostFilm, Пифагор, Кубик в Кубе
 
->>Архив торрентов
->>Архив 4Apple
+>>Зарубежные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+Аналитик ЦРУ Кэрри Мэтисон во время операции в Ираке выясняет, что американский военнопленный завербован Аль-Каедой. Вскоре после этого отряд спецназа Дельта во время зачистки обнаруживает сержанта морской пехоты Николаса Броуди, который числился пропавшим без вести с 2003-го года. Понимая, что доказать виновность Броуди будет практически невозможно, Кэрри обращается (   Читать дальше...   )Производство: США / Cherry Pie Productions, Fox 21, Keshet Broadcasting, ShowtimeЖанр: триллер, драма, криминал, детективРежиссер: Лесли Линка Глаттер, Майкл Куэста, Дэниэл ЭттиэсАктеры: Клэр Дэйнс, Мэнди Пэтинкин, Руперт Френд, Мори Стерлинг, Ф. Мюррэй Абрахам, Дэмиэн Льюис, Морена Баккарин, Джексон Пэйс, Морган Сэйлор, Диего КлаттенхоффПеревод: Многоголосый профессиональный (LostFilm, Пифагор), двухголосый профессиональный (Кубик в Кубе)Субтитры: русские, английскиеПродолжительность: ~00:49:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3071A8600FDEB7B0ED341BD2AE63A090FD36181
+magnet:?xt=urn:btih:8EC921BA4F8F63F65A9AB3C91E4A4888BCD69F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443274   (1035679) от 28.01.2021
+
+Идиот (2003) WEBRip [H.264/720p-LQ] (серии 1-10 из 10)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа Федора Михайловича Достоевского "Идиот" .
+Князь Мышкин возвращается в Россию из Швейцарии, где он проходил лечение в психиатрической клинике. В поезде, по дороге в Петербург, князь знакомится с Парфеном Рогожиным, который рассказывает ему о своей страстной любви к Настасье Филипповне, бывшей содержанке миллионера Тоцкого. В Петербурге (   Читать дальше...   )Производство: Россия / ТелефильмЖанр: Драма, экранизацияРежиссер: Владимир БорткоАктеры: Евгений Миронов, Владимир Машков, Лидия Вележева, Ольга Будина, Инна Чурикова, Олег Басилашвили, Владимир Ильин, Александр Лазарев мл., Андрей Смирнов, Анастасия Мельникова и др.Субтитры: английскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106E77D00DDDE62C267C488D2BC6689A3F0C9B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377788   (1035678) от 28.01.2021
+
+Pantone Color Manager 2.3.5 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pantone Color Manager это: Полный набор электронных библиотек Pantone, включающий свыше 11 тысяч цветов.
+PANTONE® Color Manager предоставляет доступ и возможность обновления всех актуальных на сегодняшний момент библиотек PANTONE®, которые вы сможете с легкостью использовать в дизайнерских приложениях Adobe® и Quark®. PANTONE® Color Manager поможет достичь беспрецедентного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.04.2020Разработчик: Pantone LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4095A413CE6E9E33C1A776245DABBEA41294DA4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443270   (1035677) от 28.01.2021
+
+Puzzle Agent (2010) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на все запросы Белого дома Scoggins Eraser Co. отвечает лишь загадками, на дело отправляется Нельсон Тетерс из Следственного отдела головоломок ФБР. Для расследования странных событий в городе Скоггинс понадобится каждый грамм опыта Тетерса и вся его смекалка, ведь испытания ждут на каждом шагу: лабиринты, логические головоломки, загадки и многое другое.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF935197F5EE9857902B655CB089E13126AE2BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442793   (1035676) от 28.01.2021
+
+VA - Ladies Sing & Play The Blues Vol. 3 (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dani Wilde - Where Blue Begins - [4:31]
+ 02. Karen Lovely - Low Road - [3:28]
+ 03. Kathie Boye & The DTG Gang - Crazy 16 Blues - [6:23]
+ 04. Sena Ehrhardt - Chilled to the Bone - [4:00](   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611979042428BD2EF1A6DD689C894D48083BE7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443266   (1035675) от 28.01.2021
+
+Человек-паук 2 / Spider-Man 2 (2004) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихоня Питер Паркер балансирует на грани двух своих жизней: супергероя Человека-паука и обычного студента колледжа. Его отношения со всеми, кто ему дорог, в опасности или зашли в тупик. А жизнь приготовила ему новое испытание. Он должен использовать все свои суперспособности, чтобы одолеть жестокого безумца доктора Отто Октавиуса.Производство: США / Columbia Pictures, Marvel Enterprises, Laura Ziskin ProductionsЖанр: Фантастика, боевик, приключенияРежиссер: Сэм РэймиАктеры: Тоби Магуайр, Кирстен Данст, Джеймс Франко, Альфред Молина, Розмари Харрис, Дж.К. Симмонс, Донна Мерфи, Дэниэл Гиллис, Дилан Бейкер, Билл НаннПеревод: Дублированный, двуголосый профессиональный, авторскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 02:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03A56AEBDA7A8DD61010DC1B2AEA024CC10DFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443336   (1035674) от 28.01.2021
+
+Рассвет мертвецов / Dawn of the Dead (1978) BDRip [H.265/1080p] [10-bit] [Extended Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кошмар продолжается. Убежав от ужаса мертвых на вертолете, четверо путешественников вынуждены приземлиться на крышу торгового центра. Там они находят пищу, приют и неприятности - многоэтажный магазин сверху донизу забит глупыми ходячими трупами. Развлекаясь отстрелом мертвецов, люди и не подозревают, что всего через несколько часов один из них станет тем, кого они (   Читать дальше...   )Производство: США, Италия / Laurel Group, Dawn AssociatesЖанр: ужасы, триллерРежиссер: Джордж А. РомероАктеры: Дэвид Эмджи, Кен Фори, Скотт Х. Рейнигер, Гэйлен Росс, Дэвид Кроуфорд, Дэвид Ерли, Ричард Франс, Ховард Смит, Дэниэл Дитрих, Фред БэйкерПеревод: Многоголосый профессиональный, авторскийСубтитры: Русские, английскиеПродолжительность: 02:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D9F796B34D7704D41F2EDFE4E20A93AD705F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443316   (1035673) от 28.01.2021
+
+Молодое вино (2019) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая и уверенная в себе Мила пытается найти жениха тихой и застенчивой Любе. Однажды вечером они едва уносят ноги от местной шпаны и оказываются в уютном домике местного парня Славы. Здесь же их находит любимец женщин Коля, с которым у Милы когда-то был роман. В итоге незаметная и неудачливая Люба уводит любимого человека у яркой и успешной Милы и уезжает с ним (   Читать дальше...   )Производство: Россия / ООО «ХитФильм продакшн» при поддержке Министерства культуры РФЖанр: ДрамаРежиссер: Петр ОлевскийАктеры: Катерина Шпица, Валерия Бурдужа, Нил Кропалов, Данила Рассомахин, Екатерина Волкова, Александр Яценко, Анастасия Стежко, Анна Любименко, Майя Чухланцева, Денис СвистунСубтитры: ОтсутствуютПродолжительность: 01:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8988EBED4958402805F3B0FD08DBED583D2FF632
 ```
 
 https://mybot314.ru/tekegram_catalog/

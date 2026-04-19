@@ -1,3 +1,235 @@
+###  Публикация: 1592237   (184275) от 21.11.2022
+
+V.A. - Yoga Music Session, Vol. 4:  Relaxation & Meditation (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sour – Calm Before the Storm
+02. Sami Sivananda – Tao Tunes (Original Mix)
+03. La Estación Del Mar – Bajo Un Sombrero De Paja
+04. Filalete – Sakura(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8C570DFA2E0B66904996BE82F74A0B9A2DA407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664944   (182996) от 29.09.2023
+
+Richard Clayderman - When a Man Loves a Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Lounge>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Always Love You (4:09)
+02. When A Man Loves A Woman (2:56)
+03. Goodnight Girl (3:31)
+04. Streets of Philadelphia (3:29)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, LoungeПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D092CD1ABE8B939A554D4FB14AE4240351BF78D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427804   (181460) от 30.11.2020
+
+North Americans - Roped In (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory of Lunch
+02. Rivers That You Cannot See
+03. Furniture In The Valley
+04. American Dipper(   Читать дальше...   )Жанр: FolkПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E2F253288A8E5BE31BE03AACBC368BB8A4B3C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592648   (181024) от 26.11.2022
+
+Bjarla - Bifröst (Bifrost) (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient folk, Pagan folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Arrows [00:03:17]
+02. Óðinn feat. Fuimadane [00:04:12]
+03. Sjaund [00:06:13]
+04. Medieval [00:03:49](   Читать дальше...   )Жанр: Ambient folk, Pagan folkПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F893F08FAD8373DFFB327C800C2620F1FFBCD671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 808001   (180650) от 26.11.2022
+
+Daft Punk - Трон: Наследие / TRON: Legacy (Original Motion Picture Score) (Recording Sessions) (2010) [FLAC|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy Open (1:40)
+02. Bedtime Story (1:33)
+03. Creation of Tron (by Jeff Bridges) (0:05)
+04. News Report (1:42)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:603149A2D82FF324BC65320C6BE2B8E90EC8F133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665612   (180169) от 03.10.2023
+
+VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EASTERN WIZARD - The Mystic Lady (Mikhail Catan Remix) (6:56)
+02. Michael Simon - Umami (6:45)
+03. Michael Simon - Canzul (6:28)
+04. Mikhail Catan - Solace (OneRec Remix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638D67D18CE40A7F2589E0DDCE17300908839C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666184   (180151) от 03.10.2023
+
+VA - The Orient Collective: Vimana (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hansonic - Streets of Khartoum (6:40)
+02. Ibrahim Babayev - Summer Memories (4:32)
+03. DaDa Sound Project - Obuada (6:55)
+04. 2 Sides Of Soul - Oriental Coffee (7:42)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF685A32DF8AA8E5105DCABEFB069D79EE72DC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666235   (180112) от 03.10.2023
+
+VA - The Orient Collective: Ethereal Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FIN Project - Vision (JosSync Remix) (6:15)
+02. Ali Termos - Qartaba (5:38)
+03. Tamer ElDerini - Fagr (5:42)
+04. Kakura - Savannah (7:25)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCD4FB9AC4E8D48B4ACA98A7AD6C4A6766E99FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666125   (180108) от 03.10.2023
 
 VA - The Orient Collective: Agharta (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -512,237 +744,6 @@ VA - Геннадий Гладков. Обыкновенное Чудо (2002) �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7873FFF54448D54E1BC1D74CC8E6C1F2533DB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162682   (172542) от 17.10.2023
-
-Геннадий Гладков - Джентльмены удачи (1971) Переиздание 2002 [MP3|320 kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление (00:56)
-02. Джентльмены удачи (01:17)
-03. Палатка археологов (00:21)
-04. Подозрительная личность (01:06)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7031F7FEF1E2AEEBDDC2C0932A46078204F183CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670490   (171714) от 22.10.2023
-
-Malte Marten, Yatao, Leander Greitemann - To the Stars (Studio Live Sessions) (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpan>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Stars (Live)
-02. Dance through the Sky (Live)
-03. Two Suns (Live)
-04. Golden Times (Live)(   Читать дальше...   )Жанр: Meditative, HandpanПродолжительность: 01:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB4ECF692B644B03D87B852AE0290DFD35A7B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671963   (170836) от 26.10.2023
-
-Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 20th Century Fox Fanfare [00:00:25]
-02. Somebody To Love (Remastered 2011) [00:04:55]
-03. Doing All Right (...Revisited) [00:03:16]
-04. Keep Yourself Alive (Live At The Rainbow) [00:03:56](   Читать дальше...   )Жанр: OSTПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAD018914B7D8EBFECED9CF7A4CEF2296B77E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430263   (170613) от 10.12.2020
-
-Emma Swift - Blonde On the Tracks (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Alternative Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Jane Approximately [04:36]
-02. I Contain Multitudes [05:07]
-03. One of Us Must Know (Sooner or Later) [06:19]
-04. Simple Twist of Fate [04:20](   Читать дальше...   )Жанр: Folk Rock, Alternative CountryПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDA5B18D0D8A3C9E7A7CC497872E2E78558BCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343964   (170532) от 10.12.2019
-
-Оседлать льва / Yamraaj (Original Motion Picture Soundtrack) - EP (1998) [MP3|320 Kbps] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zahid Nazaam & Praveen Saba - Chabake Panwa Tune
-02. Lakha Singh & Jaspinder Narula - Hai Hai Mere Dilki
-03. Altaf Raja - Hum Hai Aise Chor
-04. Vinod Rathod feat. Udit Narayan & Bela Sulakhe - Hum Karenge Aish(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A3B327E45F0032CE71333342B0E7A6970EA55C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322251   (170462) от 10.12.2019
-
-VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня бензопилой: Начало (2006) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free - All Right Now
-02. The Ides of March - Vehicle
-03. The Dixon Brothers - A Church At The Foot Of The HillЖанр: SoundtrackПродолжительность: 00:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5CE58F38588D6C0F27CAE7826658F347DFC1AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344453   (170423) от 10.12.2019
-
-Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystics Monks (4:24)
-02. Morphos (5:30)
-03. Lux Aeterna (4:47)
-04. Portal of Peace (5:17)(   Читать дальше...   )Жанр: New Age, Enigmatic, RelaxПродолжительность: 01:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAD49E7D1BA747DDDE7A27B61DD0E57D24D2C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515087   (170355) от 06.12.2021
-
-VA - Гармонь России (2005) [FLAC|Lossless|tracks + .cue] <Фольклор, Русские народные песни>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Митрофановна - Никто тебя не любит так, как я (3:19)
-02. Митрофановна - Все татары, кроме я (2:08)
-03. Валентина Гуряшина - Одуванчик (2:23)
-04. Валентина Гуряшина - Ягода-смородина (3:23)(   Читать дальше...   )Жанр: Фольклор, Русские народные песниПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA37C175577DD4F4CC0963EB94F108B21E3A5C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

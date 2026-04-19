@@ -1,3 +1,186 @@
+###  Публикация: 948883   (379470) от 22.10.2015
+
+VA - Vocal Deep House Vol.2 (Compiled by Zebyte) Russian Version (2015) [MP3|256-320 кб/с]<House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jama - Spring (Sergey Franc & Dmitriy Brain Remix) [04:24]
+02. Катя Лель - Долетай (Low Deep Mix) [04:09]
+03. D.I.P. - Время Ню (Mastadont Deep Mix) [06:34]
+04. Мохито - Я Не Могу Без Тебя (Tvkiller Radio Edit) [03:30](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE94F8A9DBEC12D91AF325DF921F48F33FD143D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 720472   (379164) от 08.11.2013
+
+Yello - 25 Best Songs (2012) [MP3|~245 кб/с (V0)]<Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Expert 2009
+02. The Race 1988
+03. Fat Cry 1994
+04. Dialectical Kid 2010(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFCB955A1DA86AD61E9113693E19E1860F1E4A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573660   (379122) от 11.11.2012
+
+VA - Trancern 38.1: Official Compilation (November 2012) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379122.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trancern 38.1: Official Compilation (November 2012) (2012)
+Год: 2012
+Жанр: Trance, Vocal Trance, Uplifting Trance
+Продолжительность: 03:01:58Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Alexander Popov - Attractive Force (Original Mix)
+002. Andy Tau & Sean Truby - Rapture (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB93E1617FCAABC0BBD7C91D321802858797DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253708   (378927) от 11.10.2018
+
+VA - Options Remake 150 Tracks (2018 September) (2018) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378927.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eimear - Wake Up (Talamanca Remix)
+002. Capa (Official) - Blue Llama (Original Mix)
+003. Jay FM - Mirage
+004. Tom Bro - The Ocean (Spark Remix)(   Читать дальше...   )Жанр: House, Tech, Progressive, Club, DanceПродолжительность: 17:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF486CEF710AC9C39C611DA84519792DEF88225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573803   (378827) от 11.11.2012
+
+VA - Euphoric Emotions Vol.40 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378827.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shogun - Skyfire (Alex M.O.R.P.H. Remix)
+002. Ron Hagen & Al-Exander - Now Is The Time (Original Mix)
+003. Susana feat. Julian Vincent - Fall In Deep (Alexander Popov Remix)
+004. The Blizzard & Omnia - My Inner Island (Yuri Kane Remix)
+005. Victor Dinaire & Bissen feat. Peter Finley - 2nite U R Perfect (Steve Brian Remix)
+006. Triple A - Winter Stayed (Alex M.O.R.P.H. Mix)
+007. Tom Colontonio ft. CiBon - The Sun
+008. The Waves - Sakura (Luigi Lusini & Thomas Schwartz Mix)
+009. Sophie Sugar & Sunlounger - Lost Together (Armin van Buuren Mash Up)
+010. Will Holland feat. Jeza - Start Again (Original Intro Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5805D90C08A04295779C1A20D712445784740B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175343   (378805) от 18.10.2017
+
+VA - Sound Clinic (2017) [MP3|320 Kbps] <House, Tech House , Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alana Brazda – Nice To Meet You
+02. Caique Carvalho – Wanna (Original Mix)
+03. Martin Switch – Morpho (Original Mix)
+04. Bontan – Personal Question (Original Mix)(   Читать дальше...   )Жанр: House, Tech House , Future HouseПродолжительность: 05:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338B3269252C2E6890845B79945B44D98A617E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175612   (378795) от 18.10.2017
 
 VA - Лучшие Клубные Новинки Vol.1 (Октябрь) (2017) [MP3|320 Kbps] <House, Progressive, Trance>
@@ -592,180 +775,6 @@ VA - Beatport Top 100 Progressive House August (2017) [MP3|192-320 Kbps] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:903E98F434D080D65E0B6AE73B86CF5F7083A87B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069033   (375965) от 03.11.2016
-
-VA - Beatport Top 100 02.11. (2016) [MP3|320 Kbps] <House, Tech House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375965.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cari Golden, Reinier Zonneveld - Things We Might Have Said (Original Mix)
-002. Solardo - Tribesmen (Original Mix)
-003. Groove Armada - Superstylin' (Riva Starr Edit)
-004. RUFUS - Innerbloom (Sasha Remix)(   Читать дальше...   )Жанр: House, Tech House, DanceПродолжительность: 10:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E33892460E13832E2B28233BAB93C72640D56B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949715   (375244) от 24.10.2015
-
-VA - Macarize Autumn Essentials (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voxy P - Soaked in Blue - Original Mix
-02. Andycap - Can You Feel Me - Andycap Remix
-03. H4z3 - Dusk - Original Mix
-04. Alex O'Rion - Koi Koi - Deep Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4207C632735BA2164D8A6994676AC70734E27059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949751   (375110) от 24.10.2015
-
-VA - Extra Trance (episode 8) (2015) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driftmoon feat. Kim Kiona - Who You Want To Be (Effervescence) (30k FB Free Giveaway) (06:46)
-02. Paul Miller - Everytime (Original Mix) (07:00)
-03. Emporium - First Contact (Original Mix) (06:04)
-04. Robert Holland & Iris Dee Jay ft. Maria Opale - Alive (Original Mix) (06:19)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88242D7DED532E71F1C6037FD865E6CC20F0FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949868   (375094) от 24.10.2015
-
-VA - Beatport Trance Top 100 October (2015) [MP3|320 кб/с]<Trance, Progressive Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375094.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tiesto - Suburban Train (Jordan Suckley Remix) 06:28
-002. Andrew Bayer - Nobody Told Me (Original Mix) 06:57
-003. Faithless - Salva Mea 2.0 (Above & Beyond Remix) 07:03
-004. Sebastien Feat. Satellite Empire - Escape (Heatbeat Remix) 05:05(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 10:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B529D0CF52B52DBC0ECC40AE6D48F1323A4CD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949691   (374966) от 24.10.2015
-
-VA - Vocal Drum & Bass Vol.6 (Compiled by Zebyte) (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic feat. Kate Louise Smith - Open Your Eyes (Drum & Bass Mix) [07:09]
-02. Fliwo Feat. Charlotte Haining - The Siren [05:34]
-03. Moko - Ceremony [04:36]
-04. Jakwob Feat. Rationale - No Place Like Home (Extended Mix) [03:48](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763D50119CA736E6B47DCD82090BC144E87613C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254176   (374842) от 13.10.2018
-
-VA - Afterdark Trance (2018) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ashley Smith - The Shade (Original Mix)
-002. Fila Ft. Jwaydan - We Control The Sunlight
-003. Alex Sonata - Ill Be Your Light
-004. Aly & Fila - In Your Memory(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 09:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FEBB254C0EBC01CFA668756BBC4819050963B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

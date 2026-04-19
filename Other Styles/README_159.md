@@ -1,3 +1,235 @@
+###  Публикация: 1599495   (159619) от 24.12.2022
+
+Mountain Silence - Harmonia Coeli (Sri Chinmoy, Шри Чинмой) (2008) [FLAC|Lossless|tracks + .cue] <New Age, World, Christian>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jishu Khristo
+02. Father we love
+03. Jishu nam
+04. My God(   Читать дальше...   )Жанр: New Age, World, ChristianПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5359963BEA59C97876B2C601970AAB8AE4D7AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599528   (159593) от 24.12.2022
+
+Paul Mauriat - Dans Les Yeux D'Emilie (1978) Remastered, 2019, Vocalion [OGG Vorbis|480 Kbps] <Pop, Light Music>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnolis for Ever
+02. Jai Oublie de Vivre
+03. Lettre a Helene
+04. How Deep is Your Love(   Читать дальше...   )Жанр: Pop, Light MusicПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71675EBC1BBF8D842DC79278ED4CD4EEBF4D9E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967339   (158717) от 20.12.2015
+
+Rainbow Suzy - Nature's Treasures (2015) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction 1
+02. Butterfly Wings
+03. Introduction 2
+04. Positive Mantras(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC3D41F209F7E27119AD8D0DAEEE01B7CA85BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967128   (158487) от 21.12.2015
+
+Bernward Koch - Silent Star (2011) [APE|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The New Day (4:06)
+02. Softly Awakening (4:49)
+03. Le Petit Jardin (3:52)
+04. She (5:00)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1EB87056A99C6176887AAAD34AF7F1AAE11722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 272626   (158335) от 21.12.2015
+
+The Mystic Sound Orchestra - Pharaoh: Sound of Mystery (1998) 2CD [MP3|320 kbps]<New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Egypt Nature - Desert Sunrise                         (04:10)
+02. Egypt Nature - Mystery Oasis                          (05:55)
+03. Egypt Nature - Caravan Procession                 (05:38)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1478AE326C24E0D7EA15776C1253ECF8B699A5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968109   (158234) от 22.12.2015
+
+Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'era Una Volta Il West (3:11)
+02. The Mission: Gabriel's Oboe (2:17)
+03. C'era Una Volta In America: Deborah's Theme (4:11)
+04. L'Ereditа Ferramonti (1:54)(   Читать дальше...   )Жанр: Soundtrack |Продолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF08A9588CBE59050B68BF3F497120E0CF41946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967999   (158223) от 22.12.2015
+
+David Arkenstone - Native Dreams (2015) [MP3|320 кб/с] <Native american, Ethnic, Folk, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Roads (05:04)
+02. Wind and Stone (04:48)
+03. Mother Sky (06:00)
+04. Mesa Morning (04:51)(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74120E850B00DAAECF2958497499CBCA4B5FB72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194208   (157901) от 24.12.2017
+
+Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Across the Seasons 04:27
+02. Freya [00:06:57]
+03. Carol of the Bells 04:44
+04. Yuletide 04:54(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7FD1F2AD336D65BCB7CBFF6B03E09EB4F64AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193477   (157892) от 24.12.2017
 
 Maury Laws & Jules Bass - Сумасшедшая вечеринка чудовищ / Mad Monster Party (1967) 1998 [MP3|320 Kbps] <Soundtrack>
@@ -517,238 +749,6 @@ Kari Arnett - Midwestern Skyline (2015) [FLAC|Lossless|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5508C62C689094E6AB03510A5BAF1D68523FF7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194522   (154104) от 26.12.2017
-
-Pistol Annies - Hell on Heels (2011) [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hell on Heels (3:14)
-02 - Lemon Drop (2:43)
-03 - Beige (3:24)
-04 - Bad Example (2:52)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB01DB08C00D97D9D3251FB508119F524FB1BC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346985   (154081) от 22.12.2019
-
-Гангстер. История любви / Gangster. A Love Story (Original Motion Picture Soundtrack) (2006) [MP3|320 Kbps] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K.K. - Tu hi meri shab hai
-02. James - Bheegi Bheegi
-03. Abhijeet - Lamha Lamha
-04. Kavita Seth - Mujhe mat roko(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20079987102DFCBC73B1036596297338D389F7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270662   (154031) от 21.12.2018
-
-Оркестр КУШ - Второе издание (2018) [MP3|320 Kbps] <New Russian Music, Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время (Ч.1)
-02. Время (Ч.2)
-03. Время (Ч.3)
-04. Испанские страдания(   Читать дальше...   )Жанр: New Russian Music, Instrumental, Easy ListeningПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A0183D8E3EEC5C3B5376C49FBB78F1574B61B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270700   (154009) от 21.12.2018
-
-Оркестръ КУШ (Оркестр КУШ) - Первое издание (2013) Reissue, 2016 [MP3|320 Kbps] <New Russian Music, Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление (Intro, Вальс, Майский жук)
-02. Каприз
-03. Огни Баку
-04. Советская(   Читать дальше...   )Жанр: New Russian Music, Instrumental, Easy ListeningПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1861A5EE1639532D5823C1E30AC0F49EF05A3FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086001   (153878) от 23.12.2016
-
-Paul Haslinger - Resident Evil: The Final Chapter / Обитель зла: Последняя глава (Original Motion Picture Soundtrack) (2016) Japanese Release [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is My Story (02:18)
-02. A Force so Evil (02:12)
-03. Return to the Hive (02:54)
-04. The Turbine Sequence (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D9DB4A6F6CB3133C5437B1EC467CD562C5826F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194450   (153877) от 26.12.2017
-
-Gilead - Medieval Groove (2017) [FLAC|Lossless|image + .cue] <Medieval folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (3:01)
-02. Medieval Groove (3:52)
-03. Unda (5:12)
-04. Omnia Sol Temperat (3:46)(   Читать дальше...   )Жанр: Medieval folkПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2B2186F14CB1C220B2211CB848A0C1C5A7B0F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968338   (153264) от 24.12.2015
-
-Kenio Fuke - Spirit Of Nature (2012) [FLAC|image + .cue|WEB-DL] <New Age, Piano, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Shine
- 02. Secrets of Life
- 03. Dolphin Island
- 04. Paradise Calling(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556C2878445144FA34A5EDFEC0DE405D006B29E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086222   (152861) от 24.12.2016
-
-Dario Marianelli - Kubo and the Two Strings / Кубо. Легенда о самурае (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Impossible Waves (2:37)
-02. Kubo Goes to Town (1:25)
-03. Story Time (2:10)
-04. Ancestors (2:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190DC2D800233909211B36EF1B594E5E8FD45B60
 ```
 
 https://mybot314.ru/tekegram_catalog/

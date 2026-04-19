@@ -1,3 +1,56 @@
+###  Публикация: 1149369   (600955) от 10.07.2017
+
+Проекты - Motion Array - Photo Exhibition - 36779 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотовыставка - это роскошный и стилизованный шаблон After Effects.
+Расположенный в очаровательно оформленной арт-галерее с элегантными подвесными, экстравагантными золотыми рамами.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E27D05CDC5C844263AE722DEC2883FDB129EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914244   (599697) от 01.07.2015
+
+Проекты - VideoHive - Fast Dynamic Summer Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F9EF34889F25EEEA6A65E9EE839CE18D5FB0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038937   (599278) от 30.07.2016
 
 Проекты - VideoHive - Photo Stunt II - 7032807 [AEP]
@@ -628,62 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32F8E800C3B5BF87BD0C734E46D87B394E1A2AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040037   (588258) от 03.08.2016
-
-Проекты - VideoHive - Epic Opener - 16916919 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epic Opener - это кинематографическое слайд-шоу, для создания начального видео в эпическом стиле. Идеально подходит для  ТВ-шоу, фото-видео слайдшоу, и даже для специальных мероприятий.
-Очень удобный и хорошо организованный шаблон. Вы можете легко изменить цвет всего за один простой шаг. Измените текст , добавьте аудио и приступайте к  визуализации.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB6428AC9218312C5A85DFC6540166432DB0AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809149   (588236) от 31.07.2014
-
-VideoHive - Rolling Slide Show - 7263805 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классный динамичный проект, синхронизованный под замечательную музыку Driving In My Car от Soundroll'а (новый микс 320 кБ/с - в раздаче).
-
-ОТ автора:
-This project can present your story in a simple and unique way. Whether it comes to the holidays, movie trailer, fashion, or the introduction to your business. You are in the right place. The project is about 1.37 minutes (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2040E0C070B18DF506E143092835A8C37E8B7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

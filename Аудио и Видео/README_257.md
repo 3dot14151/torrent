@@ -1,3 +1,206 @@
+###  Публикация: 1515261   (169703) от 07.12.2021
+
+VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 4 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamw41ker - Lullaby (2:06)
+02. Openzone Bar - Caribbean Nights (3:45)
+03. T2'n - Ataraxia Rouge (2:14)
+04. Living Room - Wisdom & Freedom (2:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF09F955FDE43276A7ADAA837C606858D4B4EA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515333   (169698) от 07.12.2021
+
+VA - Heart of Electronica (Chillwave Downtempo Moods) (2019) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sofa Groovers - Stop Here (Chill Trip Mix) (2:56)
+02. Influenzer - Lofi Smoke (1:46)
+03. Roleystone, Rebel Angel - First Day (Enigmatic Dubstep Chill Mix) (4:04)
+04. Substrata - High Love (Chillax Mix) (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAF075D87710A4D8A860F384B2928C675A19083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515564   (169697) от 07.12.2021
+
+VA - Finesse Jazz, Vol.3 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderphazz - Stories And Lies (4:04)
+02. Gary Rosenblatt - Nightmoves (Guitarras de Luna Mix) (4:22)
+03. Smooth Jazzerz - Look to the Future (Night Lounge Mix) (4:54)
+04. Redundant Mankind - Alpaca (Chillax Saxy Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0365B3CF50BC88285C2E5A583F9D6C48FCC8C9E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515293   (169692) от 07.12.2021
+
+VA - Best of Smooth Lounge, Vol. 2 (A Finest Selection of Chill & Modern Bar Tracks) (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CiYou - Downtown Nights (4:39)
+02. Soundset City - Bar Nights (3:31)
+03. Audiozoom - Lounging Keys (4:46)
+04. Jean Mare - Adlipi (2:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2585ABFF76217B631515FBA4AD10E0DE80E43DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430710   (169687) от 11.12.2020
+
+Владимир Высоцкий - Оригинал седьмой (октябрь 1974 года, дополнение 1971 г. дома у Высоцкого) (2020) [AAC|~234 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Очи чёрные. Погоня (2:46)
+02. Очи чёрные. Старый дом (2:58)
+03. Инструкция перед поездкой за рубеж, или Полчаса в месткоме (5:08)
+04. Куплеты Бенгальского (2:11)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AED4552B5FF2AFCAA887CA1E2D13D5D8DD0BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515503   (169682) от 07.12.2021
+
+VA - Urban Soulful Grooves, Vol. 3: Urban Vibes for Urban People (2021) [AAC|~309 Kbps] <Chill Out, Downtempo, Soulful House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy Legend - Shallow Dive (Original Mix) (4:17)
+02. Soul Trend - Before It Gets Too Late (4:47)
+03. Lounge Groove Avenue - Thoughts (Original Mix) (4:32)
+04. Fl!p - Oh, and I Like You (Simply Chill Remix) (4:35)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Soulful House, Deep HouseПродолжительность: 01:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAECF4F6FF37EFA0BC1C31FF3196DA523127A58D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430691   (169677) от 11.12.2020
+
+Сплин - Вира и майна (2020) [AAC|~332 Kbps] <Rock, Alternative>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Призрак (4:14)
+02. За семью печатями (3:22)
+03. Беги, моя жизнь (4:29)
+04. Джин (4:01)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A810D0E57229F5EB7DE7AB465B3BD7D021FA1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515504   (169672) от 07.12.2021
 
 VA - Urban Soulful Grooves, Vol. 4: Urban Vibes for Urban People (2021) [AAC|~323 Kbps] <Chill Out, Downtempo, Soulful House, Deep House>
@@ -533,209 +736,6 @@ VA - Finesse Jazz, Vol.1 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~337 Kbps] <Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2EFEE9127CF998D059016BE04A13B7C90DCD922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515437   (169569) от 07.12.2021
-
-VA - Best of Chill Jazz 7 (2020) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. eJazz Artistry - I Can't Stop Loving You (4:22)
-02. Kool&Klean - River Flows in You (4:37)
-03. Chillaxing Jazz Kollektion - The Quiet Lakes (4:27)
-04. Love Suggestions - It’s Our Time (5:46)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82040127D13748158CD9EBB31662DC849AC5140B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515429   (169564) от 07.12.2021
-
-VA - Best of Chill Jazz 2 (2019) [AAC|~343 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Blue Water (4:00)
-02. eJazz Artistry - Angel (4:41)
-03. Kool&Klean - Beautiful Surprise (4:25)
-04. eJazz Artistry - How Will I Know (4:24)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E6EF69D601438A5ECB90D2F6AB4F2629E97C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515428   (169562) от 07.12.2021
-
-VA - Best of Chill Jazz 1 (2019) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Like a River (5:23)
-02. Love Suggestions - Clarity (4:36)
-03. Chillaxing Jazz Kollektion - You and I (4:11)
-04. Kool&Klean - Lost (4:33)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED111849EDF21F79E5B7F8290C3553893143BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515225   (169552) от 07.12.2021
-
-VA - A Tribe Called Kotori 6 (2021) [AAC|~329 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thds - Luz (5:14)
-02. Saive - Woodwind (6:01)
-03. Be Svendsen - Flint (Extended Remix) (6:43)
-04. Bákayan - Dilber (7:24)(   Читать дальше...   )Жанр: Progressive House, Deep House, Downtempo, Afro HouseПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD60563FEB018A4905E2660A20605B1AAC80CCB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515620   (169541) от 07.12.2021
-
-Tool - 10,000 Days (2006) [AAC|~311 Kbps] <Hard Rock, Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vicarious (7:06)
-02. Jambi (7:29)
-03. Wings for Marie, Pt 1 (6:11)
-04. 10,000 Days (Wings, Pt 2) (11:14)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 01:15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626EDA5D4BB0BC1EF66553F385338D4139E1C5C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515425   (169537) от 07.12.2021
-
-Loft - New World (2021) [AAC|~345 Kbps] <Dance, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Summer 2k21 (Experience of Music Radio Mix) (4:04)
-02. Hold on 2k21 (Bmonde & Angleman Radio Mix) (3:28)
-03. Mallorca 2k21 (Bmonde Radio Mix) (3:56)
-04. Techno Party (Greg & Angleman Radio Mix) (3:47)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C3A4390C5D4F915DF0B21CCCFFDA782E91E117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515278   (169531) от 07.12.2021
-
-VA - Eurodance Power Hits for Workout Sessions 2022 (2021) [AAC|~342 Kbps] <Dance, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corona, Zooom - Baby I Don't Care (2K21 Dolls Eurorappin' Remix) (4:06)
-02. Eurotronic, Zooom - This Beat Is Eurotronic (Mykotank Radio Mix) (4:20)
-03. Maxxima - Let Me Be Free (Airplay Mix) (3:29)
-04. Loft - Hold on 2k21 (Bmonde & Angleman Radio Mix) (3:28)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2AA2BEC3E7972055921695655C3921F4CA3C9EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

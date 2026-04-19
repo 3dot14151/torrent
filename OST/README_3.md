@@ -1,3 +1,32 @@
+###  Публикация: 1366602   (922234) от 12.03.2020
+
+Voidoid - The Greatest Movie Anthems of All Time (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922234.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:18| 01. Aquaman
+|02:34| 02. Ant-Man and the Wasp
+|01:31| 03. Deadpool 2
+|02:02| 04. Incredibles 2(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F63F9ADFA0404E980F5FDEE1B0D348E630C4344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366622   (922135) от 12.03.2020
 
 Игорь Вдовин - Вторжение (Оригинальный Саундтрек) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -710,35 +739,6 @@ VA - Притяжение (Официальный Саундтрек) (2017) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF19EF67D8466DBABF4C51ECF729B1E05595E034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106771   (871220) от 20.02.2017
-
-VA - Ёлки 5 (Музыка к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Секрет - На любой стороне земли (03:44)
-02. Павел Есенин - The Beginning (01:40)
-03. Павел Есенин - The Arctic Life (00:50)
-04. Павел Есенин - Vova & Varya (00:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3C855C2D2AC03333B148A3C7FDF50613DBD538
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1464807   (1019650) от 23.04.2021
+
+Total Video Player 3.1.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Video Playerr Pro является мощным, полнофункциональным HD медиа-плеером, поддерживающего разрешение 1080p, видео форматы - AVI, MKV, MP4, H264, Mov, FLV, WMV, 3GP и множество других популярных видео, а также аудио -  Mp3, Wma, Ogg, Mpeg-1,Mpeg-2 и  др. Нет проблем с воспроизведением Blu-ray, DVDs, VCDs, SVCDS и DVB. Нет необходимости устанавливать какие-либо (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.04.2021Разработчик: eTinySoft Inc.Поддерживаемая ОС: macOS 10.9 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B90357DB08B4D90E82AADCBD5222DFB33612340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465107   (1019512) от 24.04.2021
 
 File List Export 2.6.3 [En]
@@ -650,32 +676,6 @@ AutoMounter 1.7.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165819623BA6AFFFA4901FEA952668D86A1326E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466828   (1018282) от 01.05.2021
-
-The Unarchiver 4.3.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018282.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Unarchiver - бесплатная замена встроенному в macOS нативному архиватору с более широкими возможностями и гораздо лучшей интеграцией в Finder. Поддерживаются все форматы архивов, включая Zip, Tar-GZip, Tar-BZip2, RAR, 7-zip, LhA, WinZip Zipx, LBR, DiskDoubler, 7z и многие другие.Тип издания: macOS SoftwareРелиз состоялся: 30.04.2021Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A624F028374BA5C58572D24AB36172198401AD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

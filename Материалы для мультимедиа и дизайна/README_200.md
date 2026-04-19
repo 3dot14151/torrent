@@ -1,24 +1,22 @@
-###  Публикация: 1310594   (544374) от 27.06.2019
+###  Публикация: 1238540   (546147) от 30.07.2018
 
-Векторный клипарт - Vector Girls Collection #57 [AI]
+Экшены - GraphicRiver - Soft Painting Photoshop Action - 22157385 [ATN]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Девушки
-50 AI + PreviewФормат: AI
+Soft Painting - картина маслом, простой в использовании экшен фотошоп превратит ваши фото в шедевр художественного полотна. Лёгкость в настройках для улучшения конечного результата.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1D9F8808C1E3F43D04F7C3AD1B36A07462CEE23
+magnet:?xt=urn:btih:75FC633BB5778EF73F30ED2BCE7CCB0ABE688766
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,27 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310598   (544373) от 27.06.2019
+###  Публикация: 1238542   (546145) от 30.07.2018
 
-Векторный клипарт - Vector Insect Collection #13 [AI]
+Экшены - GraphicRiver - Concept Mix Photoshop Action - 22263860 [ATN, ABR]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Насекомые
-50 AI + PreviewФормат: AI
+Concept Mix - Я с гордостью представляю еще один шедевр в стиле концепт-арта. Штриховка, шероховатая или чистая версия, множество вариаций брызг, красок, все, включая отдельные цвета, находится под контролем для обогащения вашего изображения. (от автора, google translate)Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C4322344CC73E7025C4939B45CF4FAA1B861C7B
+magnet:?xt=urn:btih:3F81E8335524008639B5939AB6D8452672830BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,27 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310586   (544372) от 27.06.2019
+###  Публикация: 1049035   (545668) от 03.09.2016
 
-Векторный клипарт - Vector Frames Collection #33 [AI]
+Экшены - GraphicRiver - Smoke Action [ATN]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Рамки
-50 AI + PreviewФормат: AI
+Smoke - экшен для Вашего творчества.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4E3E408233DD6DA5702C0D017038DD74EB70074
+magnet:?xt=urn:btih:E64F4BDC8933B34C79435AFF9C6C224732698006
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,27 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310681   (544370) от 27.06.2019
+###  Публикация: 1048984   (545639) от 03.09.2016
 
-Векторный клипарт - Vector School #18 [AI]
+Экшены - Heavy Smoke Effect Photoshop Actions [ATN, ASL, PAT]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545639.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Школа
-25 AI + PreviewФормат: AI
+Heavy Smoke Effect - экшен для Вашего творчества.Формат: ATN, ASL, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09FE6E6494C34DB343B3D74B85BBD3B0B2834E45
+magnet:?xt=urn:btih:412F0B87EE5C3693B9E82D9E06B5250C3DAB368E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,27 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310587   (544369) от 27.06.2019
+###  Публикация: 694839   (545476) от 30.08.2013
 
-Векторный клипарт - Vector Frames Collection #34 [AI]
+Векторный клипарт - Дизайн футболок 2 / T-Shirt Design 2 [EPS,AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Рамки
-50 AI + PreviewФормат: AI
+Дизайн футболокФормат: EPS,AI и превью в JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EB3AF0310CF553AD3DFC483F4621CCDC9A7A873
+magnet:?xt=urn:btih:1625A7307A233373DE8FB1D81FD0077BD4AA4427
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,27 +128,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310589   (544363) от 27.06.2019
+###  Публикация: 1048810   (545275) от 03.09.2016
 
-Векторный клипарт - Vector Frames Collection #39 [AI]
+3D модели - Evermotion - Archmodels Vol. 155 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Рамки
-50 AI + PreviewФормат: AI
+Очередной сборник 3d моделей от Evermotion!
+
+В данный сборник вошли 40 комплектов декораций.Формат: V-Ray|*.max
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85FD614AF38B497A00C4487A94ECAB269A22DB72
+magnet:?xt=urn:btih:6E40EE117F3C31A1900F2FC74007C239982A55D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,25 +156,157 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310730   (544362) от 27.06.2019
+###  Публикация: 1049131   (544709) от 04.09.2016
 
-Растровый клипарт - Nature stock photo set [JPG]
+Экшены - GraphicRiver - AfterBurn Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544709.jpg" />
+</div>
+
+
+###  Подробнее
+
+AfterBurn - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010F241B29E82C4B948A7E0A811CAB3894139B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049343   (544705) от 04.09.2016
+
+Экшены - GraphicRiver - Blades Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blades - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CCFBEE05D853E6D433FCE24C491B8C5782BCB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049132   (544618) от 04.09.2016
+
+Векторный клипарт - Fashion Accessories Set [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544618.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 наборов аксессуаров одежды  в векторе. Многие оценят их по достоинству.
+11 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70902E0B34532B6592BED6050ECB16507A5D3975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049138   (544547) от 04.09.2016
+
+Векторный клипарт - Bright backgrounds [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544547.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 фонов в векторе. Многие оценят их по достоинству.
+15 AI | + JPG PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33882F9CF2995C4D50F33397B52009AC2A917554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049335   (544540) от 04.09.2016
+
+Экшены - GraphicRiver - Animated Smoke Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Animated Smoke - добавляет на фото удивительный и реалистичный эффект дыма. Вы можете добавить статический дым, и затем  этот дым анимировать. Отлично работает с любой фотографией.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CF87EC4925ED83672CD8D8E7D6297190D690F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310720   (544536) от 27.06.2019
+
+Растровый клипарт - Delightful dahlias closeup [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красивая природа, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3508x2480-6000x4242
+Восхитительные георгины крупным планомФормат: JPGРазрешение файлов: 3080x5472-5472x3648
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CC371059C4704C0C27C5E51A3F18BBF2E3010CC
+magnet:?xt=urn:btih:90098B34ECB69F40E1C54FB1CEF6C6AE7B4EFBEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,27 +314,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310590   (544275) от 27.06.2019
+###  Публикация: 1310731   (544533) от 27.06.2019
 
-Векторный клипарт - Vector Frames Collection #40 [AI]
+Растровый клипарт - Altonaer Volkspark - dahlias [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Георгины, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5472x3080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9B4FAF279D0DEFF2C484C8C53BB30C3EA59266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310592   (544527) от 27.06.2019
+
+Векторный клипарт - Vector Fruits Collection #28 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544527.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Рамки
+Фрукты
 50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:699FB7F20E443245330DFDEFD630EB6FB3409F27
+magnet:?xt=urn:btih:305D51D3853BF77C0EC895512730E0549913CBAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,27 +368,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310725   (544273) от 27.06.2019
+###  Публикация: 1310591   (544520) от 27.06.2019
 
-Векторный клипарт - Seamless Floral Borders 100 [AI]
+Векторный клипарт - Vector Fruits Collection #27 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544520.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Бесшовные цветочные разделители.
-3 AI +TIFF PreviewФормат: AI
+Фрукты
+25 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23A3C04216745278A1861B698807D000C667FDCD
+magnet:?xt=urn:btih:B6F489E892B816FF7C92DFC51BFEED0CD211F8F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,26 +396,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049122   (544258) от 04.09.2016
+###  Публикация: 1049110   (544477) от 04.09.2016
 
-Шаблоны - GraphicRiver - Abstract Smoke Photo Template [PSD]
+Фоны - 10 Pixel Backgrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544477.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 фонов под стиль компьютерный пиксель для вашего творчества.Формат: JPGРазрешение файлов: 3000х2000 / 72 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F522C1EFED8C6830E90D81458743A9F62950AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 695320   (544464) от 31.08.2013
+
+Шаблоны - 3D Текст-эффекты / 3D Text-Effects [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Abstract Smoke - шаблон для Вашего творчества.
-Дайте вашим фотографиям удивительный абстрактный взгляд.Формат: PSDРазрешение файлов: 2480x3508 / 300dpi
+3D Текст-эффекты для Adobe Photoshop
+
+При затруднениях в использовании, смотрим папочку "Tutorials & Instructions"
+(   Читать дальше...   )Формат: PSDРазрешение файлов: 2000х2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C88BAB3BEF98F2292F965D6B361D8B87593D0966
+magnet:?xt=urn:btih:BC1496D61C1E6AB5CC12FCCD1FC70F27B7345721
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -275,27 +451,105 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310601   (544223) от 27.06.2019
+###  Публикация: 1049107   (544461) от 04.09.2016
 
-Векторный клипарт - Vector Professions #23 [AI]
+Фоны - Galaxy background [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544461.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 небесных фонов для вашего творчества.Формат: JPGРазрешение файлов: 3000х3000 - 4000х4000 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8EAB13C5F126606DA490799E45191721900A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310732   (544456) от 27.06.2019
+
+Растровый клипарт - Anthurium Raster Graphics [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антуриум, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 1000x563-4912x3264
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03772F1971DE794173CE9FEBFC8B1866D5B50E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310722   (544452) от 27.06.2019
+
+Растровый клипарт - Woman with flowers, spring bouquet [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая девушка, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 8000x5311-8000x7074
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7C65499C383CCEA430430771077B76E4E1AB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310593   (544450) от 27.06.2019
+
+Векторный клипарт - Vector Fruits Collection #29 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544450.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Профессии
+Фрукты
 50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75440B2B78ED3705CCB180111AF66BBFB51E9A8C
+magnet:?xt=urn:btih:82A4011D061C75E44DAC3E4B4078E4B9EDF6DD25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,15 +557,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310715   (544190) от 27.06.2019
+###  Публикация: 1310708   (544445) от 27.06.2019
 
-Векторный клипарт - Vector School #27 [AI]
+Векторный клипарт - Vector School #22 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544445.jpg" />
 </div>
 
 
@@ -323,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5664B83625A84D10F550AF56D316AFB5FC1C516
+magnet:?xt=urn:btih:F43A492D81563AB3826A0D39BC2E5EC1EBE2508E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,27 +585,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310727   (544186) от 27.06.2019
+###  Публикация: 1238820   (544430) от 01.08.2018
 
-Векторный клипарт - Floral Ornaments Set 37 [AI]
+Экшены - GraphicRiver - Illustrator - Vector Art Photoshop Action - 22222983 [ATN, PAT, GRD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Illustrator - Vector Art - этот экшен фотошоп преобразует фотографию с помощью различных методов и приемов в векторные эскизы с множеством опций для настройки и улучшения.
+Чтобы получить наилучший результат, вам следует использовать изображения с высоким разрешением. Рекомендуемое разрешение 2500px - 4000px.Формат: ATN, PAT, GRD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B1D9659B3D0B814E3F9C21BFDB7FBBCC06CC55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049112   (544415) от 04.09.2016
+
+Шаблоны - Фотокнига - Здравствуй, школа! [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотокнига посвященная школе: "первый раз - в первый класс!".
+Автор:Формат: PSDРазрешение файлов: 5906x2953 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542BDE4FBC36E238ABF4C20B6EB9EE71A8745C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310711   (544377) от 27.06.2019
+
+Векторный клипарт - Vector School #24 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544377.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Набор цветочных орнаментов.
-3 AI +TIFF PreviewФормат: AI
+Школа
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FDB2CA3C74F7C74EDD77F1CBAADC05CDFB33E87
+magnet:?xt=urn:btih:0BCB86547F8BC64D8EB0B1CB813605218145FF9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,337 +667,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049589   (543679) от 05.09.2016
+###  Публикация: 1310709   (544376) от 27.06.2019
 
-Экшены - CreativeMarket - Century Photoshop Action [ATN]
+Векторный клипарт - Vector School #23 [AI]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Century - экшен для Вашего творчества.Формат: ATN
+Векторный клипарт для дизайна.
+Школа
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9FEC51D31097EE10A964090F9FD65E6D319BCBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049595   (543669) от 05.09.2016
-
-Экшены - CreativeMarket - Inspiration V4 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inspiration V4 - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DA3A252E569761F7529D497947DB951942986F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049524   (543667) от 05.09.2016
-
-Экшены - GraphicRiver - Acrylic Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acrylic - данный экшен превратит ваши фотографии в красивое произведение искусств. Действия включают реалистичные краски, брызги и подтёки. Также в архив входит несколько фоновых текстур, для придания произведению особого эффекта.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AC84944FDD181721A9A11498487D43366DEAC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310733   (543609) от 28.06.2019
-
-Растровый клипарт - Fotolia - Beautiful bouquets, roses, tulips, poppies [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые букеты, розы, тюльпаны, маки с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3304x3999-7067x8000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474720C1828F8C9756416E3B52F84FB8F439108E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310853   (543608) от 28.06.2019
-
-Растровый клипарт - Dahliengarten Hamburg [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далиенгартен Гамбург, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 1324x2228-5472x3080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD186C943B5651DF0E85DDE9F39C02E61E21A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310790   (543606) от 28.06.2019
-
-Растровый клипарт - Fotolia - Beautiful girl with roses and tulips [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая девушка с розами и тюльпанами с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3495x3365-8141x5310
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86BBAAC05E9ACB9F2E7CF791ED3E46A36BD4511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310844   (543605) от 28.06.2019
-
-Растровый клипарт - Fotolia - Chocolate [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоколад с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4433x3565-5720x5023
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52B20E98759F482D2F13A30EBCD28CFB36B2B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310828   (543604) от 28.06.2019
-
-Растровый клипарт - Fotolia - Beautiful model woman with hairstyle and perfect make-up [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая девушка с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3996x2359-6012x4205
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F4208FC865BAA351698BACA682B6FD703789C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310841   (543603) от 28.06.2019
-
-Растровый клипарт - Berries and fruits stock photo set [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ягоды и фрукты, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3312x2200-7000x4687
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B92A5ECDEF2137A4ABFFA71DE186E96E845E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049662   (543599) от 05.09.2016
-
-Экшены - GraphicRiver - Geometric Haze Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geometric Haze - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D1354A09B756BBA86BA4C359B86BAFBBD0E08B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049561   (543594) от 05.09.2016
-
-Экшены - GraphicRiver - Acrylic 2 Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acrylic 2 - экшен для Вашего творчества.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04981A5F6084AB73E51590F3CCC11508548FD93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238953   (543548) от 02.08.2018
-
-Плагины - GraphicRiver - 3D Map Generator - Atlas - From Heightmap to real 3D map - 22277498 [ABR, ASL, JSX, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543548.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D Map-Generator - Atlas использует встроенный 3D-движок Photoshop и теперь, наконец, соответствует его названию. Вместе с передовыми инструментами своего предшественника TERRAIN в сочетании с высотными картами он является идеальным 3D-генератором карт.Формат: PSD, PNG, JPG, ABR, ASL, JSX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842A75CF9F763E8417B1655E52B65B1602810430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310792   (543535) от 28.06.2019
-
-Растровый клипарт - Fotolia - Beautiful model woman with hairstyle and perfect make-up and jewelry [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая девушка с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2800x1839-7952x5304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419C5A281E7EC678AD745DEDF8141FFA9391648C
+magnet:?xt=urn:btih:558F1D6BD722603B01A603E848D716665196E060
 ```
 
 https://mybot314.ru/tekegram_catalog/

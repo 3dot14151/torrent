@@ -1,3 +1,88 @@
+###  Публикация: 1303717   (567449) от 24.05.2019
+
+MRUKS - MRUKS REMIXES (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SKURM - Baa (Long Away) (MRUKS Remix)
+02. SKURM - VIT16 (MRUKS Remix)Жанр: Funky, RetrowaveПродолжительность: 00:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CA597B385026B2585231EF1E6B1995B8ADDE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304037   (567445) от 24.05.2019
+
+Com Truise - Persuasion System (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worldline
+02. Persuasion System
+03. Gaussian
+04. Ultrafiche Of You(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF9725313F5A17976848C17EC59C8A1583077E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235149   (564085) от 09.07.2018
+
+Nickolay Fedorenko - Eco (2015) [FLAC|Lossless|image + .cue] <Electronic, Synth-Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eco
+02. 1000 Silver Moons
+03. Summer dance
+04. Winter dance(   Читать дальше...   )Жанр: Electronic, Synth-PopПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23703F15C1F9FF520DBDED6C6ED4A574DFB09073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304530   (561990) от 27.05.2019
 
 Tamaryn - Dreaming the Dark (Limited Edition) (2019) [FLAC|Lossless|image + .cue] <Synthpop, Dream Pop, Ethereal Wave>
@@ -658,93 +743,6 @@ A Flock Of Seagulls - Inflight - The Extended Essentials (2019) Remix [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BD9DB2A3DA54186BFAF9B3D52F23B32E7B4C1AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930313   (516194) от 22.08.2015
-
-Alphaville - So8os (Soeighties) Presents - Curated By Blank & Jones (2014) [FLAC|image + .cue] 2CD Remastered<Synth-pop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big In Japan (Extended Re-Mix) 07:26
- 02. Sounds Like A Melody (Special Long Version) 07:43
- 03. Forever Young (Special Dance Version) 06:10
- 04. Jet Set (Jellybean Mix) 06:32(   Читать дальше...   )Жанр: Synth-pop, ElectronicПродолжительность: 02:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCEF8D0D01E930571C60358EBF2FB6838B01C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314980   (516050) от 17.07.2019
-
-Drab Majesty - Modern Mirror (2019) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop, Post-Punk>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dialogue (04:22)
-02. The Other Side (06:04)
-03. Ellipsis (05:06)
-04. Noise Of The Void (05:32)(   Читать дальше...   )Жанр: New Wave, Synthpop, Post-PunkПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D73326840ABAEB43210B6A128022A94EDE950681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315255   (513897) от 19.07.2019
-
-BELLATRIX - Cosmic Dust (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacepop, Spacesynth, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulse (7:59)
-02. Cosmic Dust (6:59)
-03. Cyber Angel (7:18)
-04. Highway To The Unknown (6:31)(   Читать дальше...   )Жанр: Spacepop, Spacesynth, DiscoПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26536CF740474E75A6C4FC0F498EDE5C9DF29DC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1580195   (332007) от 30.09.2022
+
+Down 'n' Outz - This Is How We Roll (2019) [OGG Vorbis|484 Kbps] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Man's War
+02. This Is How We Roll
+03. Goodnight Mr. Jones
+04. Creatures(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9AA7E74D6763BD2E4C3570EA968392110B4846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580373   (330889) от 01.10.2022
 
 Roadhouse - Roadhouse (1991) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
@@ -717,41 +746,6 @@ Esabuc - Taciturn (2020) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82ABFD97CCAC8B0FA3CC1822F0759459F2B60E2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407892   (319872) от 28.11.2013
-
-Toh Kay - 2 альбома (2010-2011) [MP3|320 kbps] <Rock, Acoustic, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319872.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче представлены 2 студийных альбома Toh Kay (Tomas Kalnoky), участвовавшего в создании песен в группах Catch 22, Bandits of the Acoustic Revolution, Streetlight Manifesto[03:38] 01 - Watch It Crash
-[03:15] 02 - Somewhere in the Between
-[03:20] 03 - Forty Days
-[06:46] 04 - We Will Fall Together
-[04:06] 05 - Dear Sergio
-[03:03] 06 - Would You Be Impressed?
-[03:13] 07 - Sick and Sad
-[04:22] 08 - A Moment of Silence
-[05:13] 09 - The Big Sleep
-[06:06] 10 - A Better Place, A Better TimeЖанр: Folk / AcousticПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

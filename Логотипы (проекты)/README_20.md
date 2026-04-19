@@ -1,3 +1,107 @@
+###  Публикация: 1024143   (719831) от 07.06.2016
+
+Проекты - VideoHive - Arcade Lights Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arcade Lights Logo - Три анимации логотипа с высокой энергией оттенков 80-х годов. Отлично подходит для игрового шоу аркады, казино, дискотеки и т.д. Цвета могут быть легко изменены.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0AEF4490A2BADD2BB4EC518F1B43B9D0F44094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024153   (719824) от 07.06.2016
+
+Проекты - VideoHive - LED Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719824.jpg" />
+</div>
+
+
+###  Подробнее
+
+LED Logo - яркая, цветная, плавная анимация для вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3159EA9E41334C84B74D9657F0451A085A86D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024038   (719707) от 07.06.2016
+
+Проекты - VideoHive - Quick Clean Bling Logo 3 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quick Clean Bling Logo 3 - чистая графика движения, которая дает наибольшее внимание вашему логотипу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0ED0C59E57D7F6E4CEAA9E0A1BA50E6C4424CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023987   (719699) от 07.06.2016
+
+Проекты - VideoHive - Intro Identity for Company Logo - 7067411 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации чистого и свежего корпоративного логотипа. Хорошо подойдет для интро компании или веб-сайта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7206503F2FC1ED708E9215C24BB0608413BD5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024019   (719608) от 07.06.2016
 
 Проекты - VideoHive - Social Logos and Lower Third - 10139777 [AEP]
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:083F3A053692F2F489A3785B3CFC9255A3E8A960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025320   (711672) от 11.06.2016
-
-Проекты - VideoHive - Luxury Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа или слогана в голливудском стиле.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79BADE6B116E534424F6863FD22A025BACA7389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025353   (711648) от 11.06.2016
-
-Проекты - VideoHive - Particle Effect vol.3 (3 in 1) [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа. Вы можете быстро и легко изменить размер, форму и число частиц, цвет, включить или отключить дрожание камеры или изменить длительность.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE87A6AA4E1BD774E956E9E4CA43830C38DF3A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025357   (711633) от 11.06.2016
-
-Проекты - VideoHive - 90's tv opener [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионный проект для демонстрации Вашего логотипа или слогана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01207E4E0207AF59C87E7F978B1DDA979C2BA970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025132   (711604) от 11.06.2016
-
-Проекты - VideoHive - Clean White Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой и стильный проект для демонстрации Вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE0A3A378998CF581797BDF00119AB10151A7DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

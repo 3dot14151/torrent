@@ -1,3 +1,32 @@
+###  Публикация: 918914   (584881) от 17.07.2015
+
+Maria Muldaur - Meet Me At Midnight (1994), Reissue/2005, Shout! Factory LLC/ [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble With My Lover (03:28)
+02. Meet Me At Midnight (04:03)
+03. Send The Man Back Home (05:09)
+04. Sweet Simple Love (03:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206DD942DE18649338BDC997A27E516C3918358B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919049   (584873) от 17.07.2015
 
 Jimmy Page - Les Genies du Rock - Freight Loader (1994) [MP3|320 кб/с]<Blues, Blues Rock>
@@ -734,35 +763,6 @@ J.J. Cale - Дискография (26 альбомов)(1967-2011)[MP3|320 kbps
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044185   (567295) от 19.08.2016
-
-Harvey Mandel - Cristo Redentor (1968) Remastered 2003, Raven Records [MP3|320 Kbps] <Blues, Psychedelic Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wade In The Water
-02. Lights Out
-03. Bradley's Barn
-04. You Can't Tell Me(   Читать дальше...   )Жанр: Blues, Psychedelic RockПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD731A613A33FEB469F3A8CC2FBB0713FEC38B26
 ```
 
 https://mybot314.ru/tekegram_catalog/

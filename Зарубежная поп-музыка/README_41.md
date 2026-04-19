@@ -1,3 +1,67 @@
+###  Публикация: 1151098   (574341) от 18.07.2017
+
+John Paul Young - Greatest Hits (1997) CD [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is In The Air - 1978 (3:28)
+02. Lost In Your Love - 1978 (3:11)
+03. Here We Go - 1978 (3:40)
+04. Hot For Your Baby - 1980 (4:09)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AB2422674AE927B8467E6A5BBA246347F07398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527499   (574306) от 27.07.2012
+
+Adriano Celentano - The Best (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574306.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Soli (3:59)
+ 2. Pay, Pay, Pay (4:14)
+ 3. Amore No (5:08)
+ 4. Qua La Mano (3:59)
+ 5. Stivali E Colbacco (4:12)
+ 6. Un Poґ Artista Un Poґno (4:56)
+ 7. L'orologio (4:42)
+ 8. Il Tempo Se Ne Va (3:46)
+ 9. Una Parola Non Ci Scappa Mai (4:17)
+ 10. Conto Su Di Te (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EB501ACF8C191EF767D1817ED3E45B9692ADFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921935   (573794) от 26.07.2015
 
 Fear of Tigers - Zoipa (2014) EP [MP3|320 кб/с]<Electronic, Indie Pop>
@@ -716,64 +780,6 @@ VA - Acoustic Love Songs (2018) [MP3|320 Kbps] <Pop, Folk, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54FA8E110E66CCA9EB1E5717AD9B42784618C580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152844   (563299) от 24.07.2017
-
-Rosebud - Discoballs (A Tribute To Pink Floyd) (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have A Cigar (4:20)
-02. Free Four (3:31)
-03. Summer 68 (3:56)
-04. Interstellar Overdrive (4:43)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F506173B365C27DB91ECFA1BE65669B91CFB9F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045024   (562979) от 21.08.2016
-
-Britney Spears - Glory (2016) Deluxe Version [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invitation (3:18)
-02. Make Me... (feat. G-Eazy) (3:51)
-03. Private Show (3:54)
-04. Man On The Moon (3:46)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF82A9E6ACF1AC5ADB9689C8F6603600CF7DE12D
 ```
 
 https://mybot314.ru/tekegram_catalog/

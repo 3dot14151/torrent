@@ -1,3 +1,32 @@
+###  Публикация: 1141195   (652127) от 09.06.2017
+
+Noize MC - Чайлдфри (2017) Single [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652127.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Чайлдфри
+2. Чайлдфри (версия Монеточки)
+3. Марафон
+4. Чайлдфри (инструментал)(   Читать дальше...   )Жанр: Rap, Hip-Hop, RockПродолжительность: 00:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5277D059BDEAE0E66F1B28B5645D79CAA3B9800F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227296   (648480) от 25.05.2018
 
 Billy Milligan - Геном (2018) [MP3|320 Kbps] <Rap, Hip-hop>
@@ -712,35 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A6B42BC5D5FCDA325F0F077677EF334A89C931D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236865   (553764) от 20.07.2018
-
-MiyaGi & Эндшпиль - Hajime, Pt. 3 (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колизей
-02. Дама
-03. Я хочу любить
-04. Фея(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17022D7481DB49661AEB70F19156AB1640F785B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

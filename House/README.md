@@ -1,26 +1,26 @@
 https://t.me/izofen
-###  Публикация: 1862930   (1063707) от 
+###  Публикация: 1865764   (1065510) от 17.04.2026
 
-VA - A-Mase - Youtube Hits (2026) [MP3|320 Kbps] <Deep House, Progressive House>
+VA - Ibiza Nights 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A-Mase & Alysia Sun - Drift Away (Original Mix) [5:21]
-02. A-Mase & Alysia Sun - My Desire (Original Mix) [4:59]
-03. A-Mase & Sharliz - Catch You (Extended Mix) [6:25]
-04. A-Mase & Natune - My Way (Album Version) [4:36](   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:33:21
+01. KMÖBA - Go Home 04:05
+02. Cristian Ferrer - Perfect Storm 06:09
+03. Fleanger - Pure Odyssey 04:32
+04. Nikita Marasey - Stay Human 04:13(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:58:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DFBCBDAB26F26AEAAB63EEA1FB74F7CD0FC7576
+magnet:?xt=urn:btih:A18B16B7024E7B50658E6CFC5EC9A892AD986721
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,28 +28,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863083   (1063685) от 
+###  Публикация: 1865749   (1065509) от 17.04.2026
 
-VA - Sirup Ibiza 2026 (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Afro House>
+VA - Black Hole House Music 04-26 (2026) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ivan Pogrebniak - Event Horizon (Extended Mix) [5:24]
-02. Dorothy - Starlight (Extended Mix) [4:43]
-03. Levasseur - Intentions (Extended Mix) [5:46]
-04. Joston - Hypnotized Heartbeat (Extended Mix) [5:16](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Afro HouseПродолжительность: 02:02:30
+01. JES - Everybody Wants To Rule The World (Extended Mix) 05:13
+02. Robbie Rivera & Joe Delgado - Esta Noche (Extended Mix) 07:02
+03. Christian Burns - Darker Days (Avenue One Extended Remix) 06:14
+04. Cosmic Gate & Pretty Pink - Bloom (Extended Mix) 05:29(   Читать дальше...   )Жанр: House, Progressive House, Melodic House & TechnoПродолжительность: 02:08:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4FBFD58BC3C43EE2A7C121A0BC98835BA6A6687
+magnet:?xt=urn:btih:2DEEC33561ACC9358C7CB0AF35756B4BE3BEE7C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -57,7 +57,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862096   (1063035) от 
+###  Публикация: 1862096   (1064362) от 28.03.2026
 
 VA - Milk & Sugar Miami Sessions 2026 (2026) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
@@ -65,7 +65,7 @@ VA - Milk & Sugar Miami Sessions 2026 (2026) [MP3|320 Kbps] <House, Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064362.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862080   (1063034) от 
+###  Публикация: 1862080   (1064361) от 28.03.2026
 
 VA - Playa Del Carmen 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
 
@@ -94,7 +94,7 @@ VA - Playa Del Carmen 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064361.jpg" />
 </div>
 
 
@@ -115,7 +115,94 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861235   (1062601) от 
+###  Публикация: 1862930   (1063750) от 02.04.2026
+
+VA - A-Mase - Youtube Hits (2026) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase & Alysia Sun - Drift Away (Original Mix) [5:21]
+02. A-Mase & Alysia Sun - My Desire (Original Mix) [4:59]
+03. A-Mase & Sharliz - Catch You (Extended Mix) [6:25]
+04. A-Mase & Natune - My Way (Album Version) [4:36](   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DFBCBDAB26F26AEAAB63EEA1FB74F7CD0FC7576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863083   (1063729) от 02.04.2026
+
+VA - Sirup Ibiza 2026 (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Afro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Pogrebniak - Event Horizon (Extended Mix) [5:24]
+02. Dorothy - Starlight (Extended Mix) [4:43]
+03. Levasseur - Intentions (Extended Mix) [5:46]
+04. Joston - Hypnotized Heartbeat (Extended Mix) [5:16](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Afro HouseПродолжительность: 02:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4FBFD58BC3C43EE2A7C121A0BC98835BA6A6687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863526   (1063409) от 04.04.2026
+
+VA - Nine Years of Deep Error56 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Msindo De Serenade & Amani RSA - Gimme Joy 06:06
+02. Chama Villian - SeaWeed Script (Unleashed Mix) 07:25
+03. Stixx Manana - Orthodox (013 Unleashed Mix) 07:14
+04. Tonic 83 & 1:A.M - African Roots 05:25(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 02:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF3A29C310E8D417DF93D7AC4BF00F9A0C55EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861235   (1062601) от 24.03.2026
 
 VA - A-Mase - Melodic Wave (2026) [MP3|320 Kbps] <Melodic House, Progressive House>
 
@@ -144,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860667   (1062060) от 
+###  Публикация: 1860667   (1062060) от 21.03.2026
 
 VA - A-Mase - Deep Relax, Vol. 2 (2026) [MP3|320 Kbps] <Deep House, Melodic House, Progressive House>
 
@@ -173,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860115   (1061506) от 
+###  Публикация: 1860115   (1061506) от 19.03.2026
 
 VA - A-Mase - Deep Relax (2026) [MP3|320 Kbps] <Deep House, Organic House, Progressive House>
 
@@ -202,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859224   (1061085) от 
+###  Публикация: 1859224   (1061085) от 15.03.2026
 
 VA - Chill & Deep House Anthems 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
 
@@ -231,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859387   (1061039) от 
+###  Публикация: 1859387   (1061039) от 15.03.2026
 
 VA - The Sound of 2026, Chapter 2: Barcelona (Night Mix) (2026) [MP3|320 Kbps] <Melodic House & Techno, Trance>
 
@@ -260,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859383   (1061038) от 
+###  Публикация: 1859383   (1061038) от 15.03.2026
 
 VA - The Sound of 2026, Chapter 2: Barcelona (Day Mix) (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Trance>
 
@@ -659,93 +746,6 @@ Cosmic Gate - Perspectives (Extended Mixes) (2026) [MP3|320 Kbps] <Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:473888DB4BFE0DBFBE571A0FB188EAC424B5728A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853512   (1056839) от 13.02.2026
-
-VA - Chill House Classics (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin, Nezhdan & Note U - Casablanca 05:55
-02. Anton Ishutin & Note U - Summer Jam 06:52
-03. Anton Ishutin & Nikita Malinin - D.N.A 05:36
-04. Sharapov - Keep On Rising 05:25(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC84176C369703AC0EEC29C9ED1D3B27C76048B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853449   (1056838) от 13.02.2026
-
-VA - Black Hole House Music 02-26 (2026) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PARAFRAME & PUROFY - Feel The Silence (Extended Mix) [5:17]
-02. Andy Duguid - 11 Things (Extended Mix) [5:18]
-03. Robbie Rivera & Pax Paloma - Can We Go Back (Extended Mix) [3:55]
-04. Kiholm, Kris O'Neil, FACTORe & SCHROEDS feat. Luke Coulson - Going Under (Kiholm & Kris O'Neil Extended Mix) [5:41](   Читать дальше...   )Жанр: House, Progressive House, Melodic House & TechnoПродолжительность: 02:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BACDDDD0BE6925E22EB21E1A0221AA78C366A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853246   (1056507) от 12.02.2026
-
-VA - Winter Hits Dance Selection 2026 Vol. 2 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FaraoN & Giulia Mihai - Need Your Love 04:33
-02. Padukov - Take My Hand 03:44
-03. FaraoN - Heaven 04:34
-04. FaraoN - Can't Stop Us 03:37(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6150240593E6588A06CA082EADAD6155EFE97A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

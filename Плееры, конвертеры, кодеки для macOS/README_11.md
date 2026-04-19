@@ -1,3 +1,29 @@
+###  Публикация: 1649986   (227840) от 30.07.2023
+
+Omni Downloader 1.4.4 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omni Downloader — простое и интеллектуальное приложение под macOS для TikTok Downloader, YouTube Downloader, YouTube to MP3 Converter, iPhone Ringtone Maker и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 25.07.2023Разработчик: © 2023 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAF6C056360D64C3C830921D5E7694E2FC0B086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342475   (223965) от 02.12.2019
 
 Aimersoft Video Converter 6.1.0 [En]
@@ -661,32 +687,6 @@ WinX HD Video Converter – многофункциональный програ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED020F0C93CF456CFA6D376E6C011284D4BC9F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671793   (171016) от 26.10.2023
-
-OmniPlayer Pro - Media Player 2.1.2 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171016.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2023Разработчик: © 2021 Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.13+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535AEF7D3BF7DDC9CF67F48FEC7D1D7E4530A6EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

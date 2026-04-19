@@ -1,3 +1,61 @@
+###  Публикация: 1591609   (185214) от 20.11.2022
+
+Various - Greatest Hits Of The 90's (2004) 8 CD Box [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maxi Priest - Close To You (3:59)
+02. Dignity - Talk To Me (4:27)
+03. Shara Nelson - Uptight (5:08)
+04. Carleen Anderson - Mama Said (4:06)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Reggae, PopПродолжительность: 08:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365CDDCA45DE567A3BB6616F792603E28E0E1EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426755   (185108) от 26.11.2020
+
+Caroline Vreeland - Notes On Sex & Wine (2020) [MP3|320 Kbps] <Pop, Jazz, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185108.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stay Drunk With Me (3:51)
+2. Madonna Whore (3:11)
+3. Love Is Here (4:00)
+4. Drinking For 2 (4:11)(   Читать дальше...   )Жанр: Pop, Jazz, BluesПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CFA821C574BD18EF199D8B963AFDFBA39F2CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592340   (184326) от 21.11.2022
 
 Ola Hakansson (pre Secret Service) - 3 Albums (1976-1979) LP [MP3|320 Kbps] <Pop, Rock, Disco>
@@ -686,64 +744,6 @@ DJ Shadow - Action Adventure (2023) [MP3|320 Kbps] <Hip-Hop/Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6283FE242B1D99912BF04769F2808AA3D8104E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672070   (170351) от 27.10.2023
-
-VA - Indie Disco Hits (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Synth Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Kristina Mailana - Come Around (Original mix)
-02. Tomas Rivera - Make Me Alive (Original mix)
-03. Mike Hosking - Its Allright (Original mix)
-04. Justin Young - Stereo (Original mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Synth FunkПродолжительность: 01:06:43 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C779079EECC850881511516D555BD6852F5FB987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672166   (170316) от 27.10.2023
-
-VA - Hit News Vol. 3 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Premier & Co feat. Marquise - Mr. Vain
-02. Def Dames Dope - Havin' A Good Time (7' Rap Edit)
-03. D.J. Bobo - Somebody Dance With Me (Club Mix)
-04. 2 Unlimited - Maximum Overdrive (Extended Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD734721E9D4E6ECBA95DE8A9E669AB541731F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

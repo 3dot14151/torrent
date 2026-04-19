@@ -1,92 +1,31 @@
-###  Публикация: 470686   (97315) от 20.03.2012
+###  Публикация: 480252   (98991) от 08.04.2012
 
-VA - TMP: Clear Sky 065 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunar Motion - Aozora (Benjani Remix)
-02. Koele Vaten - Boom (Michael Paterson & Warner Powers Remix)
-03. Leonid Gnip - City On Clouds (Original Mix)
-04. Gabriele Menten - Pacific Guitare (Original Mix)
-05. JOOP & Raneem - Plur
-06. Lukas K - Puesta Del Sol (Drops Remix)
-07. Laker & Mihailov - Rainy Day (Original Mix)
-08. James Dymond - Shallop (Original Mix)
-09. Ferry Corsten - Sublime (Thrillseekers Remix)
-10. Igor Dyachkov & U-Jeen - Traffic (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6A93A85520676A86003FAB7F8B2F54F9827768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470615   (97314) от 20.03.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (19.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271098DC39B4D7D40D664DD9B6511506569E9487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470658   (97313) от 20.03.2012
-
-Meshuggah - Koloss (2012) [MP3|~245 кб/с (V0)]<Progressive Post-Thrash / Math Metal>
+Bennie Green - Mosaic Select (Box Set 3CD) (2003) [MP3|320 кб/с]<Jazz>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Am Colossus (4:43)
-02. The Demon's Name Is Surveillance (4:40)
-03. Do Not Look Down (04:43)
-04. Behind The Sun (6:14)
-05. The Hurt That Finds You First (5:33)
-06. Marrow (05:37)
-07. Break Those Bones Whose Sinews Gave It Motion (6:57)
-08. Swarm (5:27)
-09. Demiurge (6:16)
-10. The Last Vigil (4:32)2012Жанр: Progressive Post-Thrash / Math MetalПродолжительность: 00:54:46
+Disc 1:
+1. I Love You
+2. Melba's Mood
+3. Just friends
+4. You're Mine You
+5. Bennie Plays The Blues
+6. Green Street
+7. The Shouter
+8. Green Leaves
+9. This Love Of Mine(   Читать дальше...   )2003Жанр: JazzПродолжительность: 01:17:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F9581A028D278682979458DA39FBA7D4828ED72
+magnet:?xt=urn:btih:1BED3953C2AB5F00750F4340DB4D77ACB8432B7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -94,25 +33,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471012   (97310) от 20.03.2012
+###  Публикация: 478416   (98990) от 08.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls Pack (21.03.12)
+Sector F - Рядом с улицей Бога (2007) [MP3|320 кб/с]<rap>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+1. Интро
+2. Улицы Кипят (feat.Killa M)2007Жанр: rapПродолжительность: 01:16:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:150E71BA4B6C0C140AB7BAD0CAAA04F930012933
+magnet:?xt=urn:btih:F980EE6D5FE56528B226193D224B64655D15F927
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -120,27 +60,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470982   (97309) от 20.03.2012
+###  Публикация: 480032   (98987) от 08.04.2012
 
-Обмен Бытовой Техники. Выпуск №1 (2012.03.19) SATRip
+Величайшие автомобили: Packard / Great Cars: Packard (2004) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эрудиция против экспроприации: за правильные ответы Алексей Куличков дарит крутую бытовую технику, а за неправильные — отнимает вашу!
-Правильный ответ — и навороченная кофеварка или новенькая плазма остаются у игрока, ошибка — и в безразмерный фургон отправляются его собственные электрочайники, ноутбуки и холодильники. Впрочем, команда "О.Б.Т." забирает старую вещь в любом случае. Вопрос в том, сумеет ли участник получить взамен что-то лучше.
-В первом раунде на кону техника помельче: кофемолки, микроволновки, тостеры... Чтобы её "прокачать", достаточно ответить на три вопроса, при этом один раз можно ошибиться. Второй раунд жёстче: пять вопросов, одна ошибка и одна возможность позвонить другу или выйти в Интернет. Зато и призы солиднее: телевизоры, музыкальные центры, пылесосы.Жанр: ТВ-ШоуПродолжительность: ~ 00:23:40
+Сотни автомобильных компаний появлялись и исчезали. Но лишь немногие оставляли после себя такое же наследие как - Packard. Эти машины любили президенты, дипломаты, голливудские звезды и просто состоятельные люди, которым нужно было все лучшее. У этой марки до сих пор сохранились преданные поклонники. Packard оставил неизгладимый след в автомобильной истории и затем исчез.....Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0512AD7B2B1BE6D0B5FC62F85431B421A459DEE2
+magnet:?xt=urn:btih:EB1F16DB29C72054C9816C7EC7CBDE497CF09B76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -148,29 +86,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471014   (97307) от 20.03.2012
+###  Публикация: 480169   (98985) от 08.04.2012
 
-[Wallpapers] Flower Wallpapers Pack 1
+[Wallpapers] Avto Wallpapers №2
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Flower Wallpapers Pack 1
-Название: Flower Wallpapers Pack 1
+[Wallpapers] Avto Wallpapers №2
+Название: Avto Wallpapers №2
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 2560х1600
+Разрешение файлов: 1920x1200
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDD69F0F64B9CB9949D6D5B8029C9D81B2FF2CD4
+magnet:?xt=urn:btih:697C277ACE5819164E9F97F1E1B50ECDAB9FED70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -178,29 +116,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471069   (97306) от 20.03.2012
+###  Публикация: 479731   (98983) от 08.04.2012
 
-[Wallpapers] Best Wallpapers Pack 9
+[Wallpapers] Desktop Wallpapers №10
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Best Wallpapers Pack 9
-Название: Best Wallpapers Pack 9
+[Wallpapers] Desktop Wallpapers №10
+Название: Desktop Wallpapers №10
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
+Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9673A6B8635DBEAC7AA19AEFFD6EA8DD554B709B
+magnet:?xt=urn:btih:D75EF90A2AACC949790F04DFBF32C87673186AB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,25 +146,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470618   (97305) от 20.03.2012
+###  Публикация: 480167   (98981) от 08.04.2012
 
-[Wallpapers] Abstract HD Wallpapers (19.03.12)
+[Wallpapers] HD Wallpapers №8
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+[Wallpapers] HD Wallpapers №8
+Название: HD Wallpapers №8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:318A1AF41A7EE14D37D72FB3F920CDDE7A552344
+magnet:?xt=urn:btih:1B5E75DE50E126C88EB28D1C96C0E1E9F3E38C44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,85 +176,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470711   (97303) от 20.03.2012
+###  Публикация: 480184   (98980) от 08.04.2012
 
-[Wallpapers] Gilrs Wallpaper Collection (20.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4D8CB0C8DB0CF2818AE189FA5632399C4AE4CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470622   (97302) от 20.03.2012
-
-[Wallpapers] Cars HD Wallpapers (19.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835CA12CD4B0CD63DBB32E126916A6C1848B1011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470191   (97299) от 20.03.2012
-
-Nike Beats - Instrumental vol.4 (2012) [MP3|320 кб/с]<Instrumental>
+Tiёsto - Club Life 262 (07-04-2012) [MP3|192 кб/с]<Trance ,Progressive House, Electro House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mongrel
-02. Mexico
-03. 1001 night
-04. Chasm
-05. I shall love
-06. Fragments of a diary
-07. Lullaby of the fairy
-08. Cypress hil
-09. Fists2012Жанр: InstrumentalПродолжительность: 00:24:32
+Hour 1
+Swedish House Mafia - Greyhound
+Tiesto - Chasing Summers
+Calvin Harris feat. Ne-Yo - Let's Go
+Tiesto & Mark Knight feat. Dino - Beautiful World (Gina Star Remix)
+Basto! & Yves V - Cloudbreaker (Basto! Remix)
+Hotlife - Laguna
+Norman Doray - Leo
+Parachute Youth - Can't Get Better Than This (Patrick Hagenaar Remix)
+Sebastien Drums feat. Mitch Crown - Fly Again(   Читать дальше...   )07-04-2012Жанр: Trance ,Progressive House, Electro HouseПродолжительность: 01:58:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E44F9CB5B01C267322E217847F3AF14D0C0519C8
+magnet:?xt=urn:btih:D6C7A02C615C611746F130C3993240E0DD70E026
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,25 +211,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470937   (97292) от 20.03.2012
+###  Публикация: 479755   (98979) от 08.04.2012
 
-[EN] Вонючка / Muckman (2009) DVDRip
+Blue Steel - International Hu$$la (2012) [MP3|320 кб/с]<Dirty South>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Согласно сведениям очевидцев, в лесах и болотах Пенсильвании обитает скверно пахнущий аналог снежного человека, которого местные жители ласково кличут Вонючкой. Найти и запечатлеть этого легендарного монстра на плёнку — последний шанс на продолжение карьеры для тележурналиста Микки. А это значит, что Микки и его съёмочная группа должны отыскать Вонючку во что бы то ни стало, даже если его не существует.Жанр: УжасыРежиссер: Бретт ПайперАктеры: А.Дж. Кхан, Элисон Уитни, Йен Пайпер, Джаред Уоррен, Даниэль ДонахьюПеревод: ОтсутствуетПродолжительность: 01:20:02
+01. Intro
+02. Redlight Greenlight
+03. Live Large
+04. Fast Life (Feat. Floda Fresh)
+05. Power Up
+06. Do Me
+07. Baller Fan (Feat. Iceberg)
+08. Every Nigga Aint Real
+09. Drop It Low (Feat. Quis)
+10. Freezy(   Читать дальше...   )Жанр: Southern RapПродолжительность: 00:49:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C1F3E8314116F5E0B165BFBD15ED6A4340E43BC
+magnet:?xt=urn:btih:5C8634DE8B784FB586B780E1F04B4ED5CFE79E6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,25 +246,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471011   (97291) от 20.03.2012
+###  Публикация: 480041   (98976) от 08.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls (21.03.12)
+Величайшие автомобили: MG / Great Cars:MG (2004) SATRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Классические родстеры MG подарили радость управления легким, резвым автомобилем миллионам людей по всему миру.Эта машина была послушной, создавала ощущение скорости и оправдывала каждый доллар вложенный в нее. MG продолжает доказывать что удовольствие от вождения может быть не дорогим, не нужно быть богатым чтобы выехать на дорогу на MG.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49B2F5589A5CD15536EBE9DAEC1C1787916CD09D
+magnet:?xt=urn:btih:B8E741161D36C25D9C87C687EE27C067480BE4F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,21 +272,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470220   (97290) от 20.03.2012
+###  Публикация: 479028   (98973) от 07.04.2012
 
-Бамбу / Bambou (2009) DVD5
+Паутина (3-й сезон, серии 1-12(12)) (2009) 2 х DVD 9
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ален — служащий банка, очень любит свою жену, мечтает о полноценной семье и ребенке. Анна — жена Алена — не готова становиться домохозяйкой. Она поглощена своей музыкальной карьерой. Однажды в их доме появляется щенок по кличке Бамбу. «Личный враг» Алена скоро становится самым верным его другом, а Анна — будущей счастливой мамой и известной пианисткой.Жанр: КомедияРежиссер: Дидье БурдонАктеры: Дидье Бурдон, Энн Консиньи, Пьер Ардити, Эдди Мичелл, Анни Дюпре, Аксель Аббади, Эрик Фратичелли, Жан-Пьер ТальяферриПеревод: Многоголосый закадровыйПродолжительность: 01:33:18
+В новом сезоне легендарному оперу майору Туманову предстоит распутать очередные хитросплетения преступного мира. И в этом ему помогут капитан Греков и криминалист Мушкаренко они — команда. Друзья по жизни напарники в деле, люди для которых честь мундира не просто пафосная фраза.Жанр: ДетективРежиссер: Андрей ХрулевВ ролях: Александра Солянкина, Владислав Резник, Олег Филипчик, Оксана Тимановская, Эдуард Марцевич, Юлия Михайлова, Юрий Брешин, Владимир Никитин, Дмитрий Митюрич, Рашит БиляловФормат: DVD-Video
 
 ## Скачать торент
 ```bash
@@ -398,25 +298,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470716   (97288) от 20.03.2012
+###  Публикация: 479633   (98969) от 07.04.2012
 
-[Wallpapers] Best HD Wallpapers Pack (20.03.12)
+McAfee Avert Stinger Portable 10.2.0.574 [англ]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98969.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+McAfee Avert Stinger - это бесплатный, не требующий установки антивирусный сканер, предназначен для выявления и удаления с компьютера вирусов, троянов, интернет-червей и прочего вредоносного ПО. Антивирусная база программы постоянно обновляется. McAfee Avert Stinger не имеет постоянного монитора и предназначен для пользователей, имеющих дело с уже зараженной вирусами системой.Название программы: McAfee Avert Stinger PortableЯзык интерфейса: (англ)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:034547BFE923DB0EE4F66B9AF9DA553BD1220ED3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,29 +324,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470984   (97287) от 20.03.2012
+###  Публикация: 479692   (98966) от 07.04.2012
 
-[Wallpapers] HD Wallpapers Pack 2
+BWMeter v6.2.0 [английский]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 2
-Название: HD Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+BWMeter это мощный Измеритель скорости, монитор, контроллер движения и брандмауэр, который измеряет, отображает и контролирует весь трафик к / от компьютера или в локальной сети. В отличие от других продуктов, он может анализировать пакеты данных (откуда они, где они идут, какой порт и протокол они используют). Программа позволяет различать локальный  интернет-трафик, например. BWMeter может также использоваться для управления движением, установив ограничение скорости для всех видов соединений или ограничивать доступ приложений к определенным сайтам Интернета. Программа создает статистику для всех компьютеров в вашей сети, измеряет и отображает весь входящий и исходящий трафик. Вы даже можете определить фильтры, которые показывают ваши передачи с определенных адресов Интернета. BWMeter идеален как для домашних пользователей, так и для больших предприятий.Название программы: BWMeterЯзык интерфейса: английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38135ED9BB938218C94DD9B060E01F1191A91FD8
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,25 +350,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471030   (97286) от 20.03.2012
+###  Публикация: 479358   (98962) от 07.04.2012
 
-[Wallpapers] Best HD Wallpapers Pack (21.03.12)
+Сумасшедший дом / Madhouse (1990) DVDRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Марку и Джесси везет в жизни. У них есть все, о чем можно мечтать: счастливый брак, прекрасная работа, и недавно приобретенный дом в Санта-Монике почти на берегу океана, в котором они могут наслаждаться одиночеством вдвоем. Но вот один за другим к ним на постой потянулись многочисленные родственники, число непрошеных гостей достигает критической точки, и уютное семейное гнездышко превращается в настоящий «сумасшедший дом».
+Супруги не только должны спать на кухонном полу и терпеливо дожидаться позволения войти в собственную ванную — они даже не могут побыть наедине друг с другом. И когда один из гостей приводит в дом слона, терпение Марка и Джесси окончательно лопается: вооружившись подручными средствами, они открывают против своих незваных гостей боевые действия…Жанр: КомедияРежиссер: Том РопелевскиАктеры: Джон Ларрокетт, Кёрсти Элли, Alison La Placa, Джон Дил, Джессика Ланди, Брэдли Грегг, Дэннис Миллер, Роберт Гинти, Уэйн Типпит, Пол АйдингПеревод: Многоголосый закадровыйПродолжительность: 01:26:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE8360E46310E8B9BA1433536CE0EFEB046AC2A9
+magnet:?xt=urn:btih:FB1E9FD877932A1AF371DED652E9A0B5E1FCC63C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,25 +377,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471028   (97285) от 20.03.2012
+###  Публикация: 479424   (98960) от 07.04.2012
 
-[Wallpapers] Nature Wallpapers (21.03.12)
+XS [Ru] (RePack) 1996 | Pilotus, saslazoid
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Взрывоопасный трехмерный боевой симулятор:
+Революционно улучшенный искусственный интеллект противников, истинно многоуровневый трехмерный мир, реалистичная анимация персонажей -
+Взятое в совокупности, все это делает ХС могильщиком традиционных спрайтовых 3D игр и позволяет вести понастоящему свободный бой даже в режиме single play. Самое близкое приближение к Deathmatch! Готовьтесь к гладиаторским боям будущего, где вы встретите ожесточенное сопротивление 60 безжалостных искуссных оппонентов и более 20 насыщенных боями уровней. Режим сетевой игры конечно тоже есть.Тип издания: RePackЖанр: Трехмерный шутер от первого лица (sci-fi)Язык озвучки: АнглийскийЯзык интерфейса: Русский (GSC)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F398CC1D2919493682A653306DD499FE3908648
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,29 +405,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471070   (97284) от 20.03.2012
+###  Публикация: 478837   (98951) от 07.04.2012
 
-[Wallpapers] HD Wallpapers Pack 5
+[Wallpapers] Wallpaper Sexy Girls 0.3
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 5
-Название: HD Wallpapers Pack 5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Обои с красивыми девушками на рабочий стол.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC10CDAE3E9787ECF4FCD42CD5FBFDC4CA15F1A9
+magnet:?xt=urn:btih:51AE4B354B8CBD299FBEC4964A266DC6B247E573
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,25 +431,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470262   (97282) от 20.03.2012
+###  Публикация: 479631   (98948) от 07.04.2012
 
-[Wallpapers] Cityscapes HD Wallpapers (18.03.12)
+WinUtilities Pro 10.5 RePack by от loginvovchyk [Русский]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+WinUtilities - системный набор для настройки вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно.
+
+ В программу входят различные инструменты, включая Чистильщик Мусорных файлов, Чистильщик реестра, Оптимизатор памяти, Системный информатор, Инструмент для резервирования реестра, Шифровальщик файлов, Деинсталлятор, Инструмент для поиска дупликатов файлов, Уничтожитель файлов и многие другие. Программа также включает в себя инструмент для удаления следов интернет серфинга. В целом, программа предлагает широкий спектр инструментов для обслуживания вашей системы, которые не так-то легко найти в одном наборе.Название программы: WinUtilities ProЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3D9D649278E8773194D4317FD331DA42E44C2A7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,29 +459,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471010   (97281) от 20.03.2012
+###  Публикация: 479568   (98945) от 07.04.2012
 
-[Wallpapers] Nature Pictures №33
+Титаник с Леном Гудманом / Titanic with Len Goodman (2012) HDTVRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №33
-Название: Nature Pictures №33
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Телеведущий Лен Гудман утверждает, что многие истории с гибелью "Титаника" только начались. Чтобы подтвердить эту мысль, он отправляется на родину "Титаника" - судоверфи в Белфасте. Так начинается удивительное путешествие, в котором причудливо переплетается прошлое и настоящее...Жанр: Документальный, ТелепередачаРежиссер: Эдвард ХартПеревод: Одноголосый закадровый, любительскийЯзык субтитров: Английский (Red Bee Media Ltd.)Продолжительность: 00:28:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E6C61E8D03082F53F54E93518BFB94381A51412
+magnet:?xt=urn:btih:08831C383F5C5CBAAFD74151556B78CD3A7DCC64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,25 +485,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471009   (97279) от 20.03.2012
+###  Публикация: 478906   (98943) от 07.04.2012
 
-[Wallpapers] Computer Desktop Wallpapers Collection (21.03.12)
+До мозга костей / Skin Deep (1989) DVDRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Немолодой писатель-алкоголик по имени Зак, который страстно хочет вернуть свою бывшую жену. Но для этого ему нужно прекратить свои бесконечные любовные похождения, а это совсем непросто!Жанр: КомедияРежиссер: Блейк ЭдвардсАктеры: Джон Риттер, Винсент Гардения, Элисон Рид, Джоэл Брукс, Джулианна Филлипс, Челси Филд, Питер Донат, Дон Гордон, Нина Фош, Дениз КросбиПеревод: Авторский одноголосый (Михалёв)Продолжительность: 01:40:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAC5608541E078AB6BB2AEEC7DA82D8260EDE267
+magnet:?xt=urn:btih:A5D1E0098A93EEC9A9EC944CC8C94B9793F25668
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,34 +511,69 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467132   (97278) от 20.03.2012
+###  Публикация: 479654   (98942) от 07.04.2012
 
-Artёm Puchkoff & Sasha Fresh - Jam Sation vol.1 (2012)/2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House>
+Data Flow Accelerator 3.4.2.24 Portable [русский, английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Data Flow Accelerator - бесплатный менеджер закачек, с функцией мультисекционной закачки с файлообменников.
+
+Основные особенности:
++ Ускоренная закачка с использованием многосекционности (закачка одного файла с нескольких серверов)
++ Многопоточность
++ Ручная установка реферер-ссылок
++ Мультиязычность
++ Интеграция в браузеры: Google Chrome, Opera, FireFox, Internet Explorer
++ Фрагментация скачиваемых файлов
++ Русскоязычная поддержка(   Читать дальше...   )Название программы: Data Flow AcceleratorЯзык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479197   (98937) от 07.04.2012
+
+DJ Tiesto - Club Life 258(03.2012) [MP3|320 кб/с]<Trance ,Progressive House, Electro House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Erick Decks & DJ Sign feat. Felice - Running 2012 (Original Erick Decks Extended Mix)
-02 - A. Romeo & Plage & Alateya - Summer Night (Dabruck & Klein Remix)
-03 - Moguai - Mpire (Original Mix)
-04 - Nadia Ali, Starkillers & Alex Kenji - Pressure (Alesso remix)
-05 - Yves Larock & Jesus Luz & Liliana Almeida - Running Man (Hard Rock Sofa Remix)
-06 - Hardwell - Cobra (Official Energy Anthem 2012)
-07 - Tommy Trash - Cascade (Original Mix)
-08 - Ce Ce Rogers & Syke 'n' Sugarstarr - I Believe (Max Lean Remix)
-09 - Vitodito & Oza - Kawaii (Dirty Club Mix)
-10 - Neon Hitch - F U Betta (Chuckie Club Remix)(   Читать дальше...   )2012Жанр: Progressive HouseПродолжительность: 01:09:23
+Час 1
+[00:00] 01. Club Life – Intro (Hour 1)
+[00:31] 02. Dada & Harris feat. Ana Diaz – Talk To Me (Vocal Mix)
+[05:52] 03. Jupiter Ace – Wheel Of Life
+[10:03] 04. Kaskade feat. Skylar Grey – Room For Happiness (Feenixpawl Remix)
+[15:03] 05. Michael Woods – Airborne
+[20:03] 06. Sander van Doorn & Adrian Lux vs. Inpetto – No More Serious Eagles (Jacob van Hage Mashup)
+[24:32] 07. Tiesto feat. Emily Haines & Ali Wilson – Shakedown & Knock You Out (Tigran Oganezov Mashup)
+[29:48] 08. Adrian Lux feat. Lune – Fire (R3hab Remix)
+[34:39] 09. Afrojack & Shermanology vs. Bassjackers & Angger Dimas – Can’t Stop Me RIA (Hardwell Mashup)(   Читать дальше...   )10.03.2012Жанр: Trance ,Progressive House, Electro HouseПродолжительность: 01:57:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E26455219E571A7EB96933669653FC767DE684A
+magnet:?xt=urn:btih:A71877A09A84AC6DA3DB0F9101E6E53D5349E66B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,34 +581,63 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468054   (97277) от 20.03.2012
+###  Публикация: 479805   (98936) от 07.04.2012
 
-VA - The Dance Cube XXXX 2CD (2011) [MP3|320 кб/с]<Trance>
+[Wallpapers] Desktop Wallpapers Pack 42
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98936.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 42 
+Название:  Desktop Wallpapers Pack 42 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1440х900 - 4016х2616
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C52374D5B2D899FA5BF21C2496954F7B8FE0C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478797   (98934) от 07.04.2012
+
+Can - Sacrilege (2CD) (1997)[FLAC|Lossless]<Trip Hop, Abstract, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 Продолжительность: 01:10:48
-====================================
-01 - Mat Zo - Bipolar (Original Mix)
-02 - Robbie Rivera Feat. Jes - Turn It Around Feat Jes (David Solano & Landis Remix)
-03 - Tigran Oganezov - Kronos (Original Mix)
-04 - Cathy Burton - Reach Out To Me (Chris Schweizer Dub)
-05 - Tigran Oganezov - Brainbug (Original Mix)
-06 - DJ Madwave & Steve Sanders - Nooza (Damian Wasse Remix)
-07 - DJ Munder - Fly Away (Original Mix)
-08 - Solis & Mike Danis - Eleven (Broning Remix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:26:19
+CD One - 00:49:24
+01. Pnoom (Moon Up Mix) [00:54]
+02. Spoon (Sonic Youth Mix) [06:05]
+03. Blue Bag (Inside Paper) (Toroid Mix) [06:52]
+04. Tango Whiskeyman (A Guy Called Gerald Mix) [05:10]
+05. TV Spot (Bruce Gilbert Mix) [03:50]
+06. Vitamin C (U.N.K.L.E. Mix) [08:17]
+07. Halleluhwah (Halleluwa Orbus 2) [09:18]
+08. Oh Yeah (Sunroof Mix) [08:55]1997Жанр: Trip Hop, Abstract, AmbientФормат: 2xCD, AlbumПродолжительность: 01:42:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FFE9BDF572A927D24A25AD226CE3AC2C91C9BA6
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,55 +645,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471016   (97276) от 20.03.2012
+###  Публикация: 479360   (98931) от 07.04.2012
 
-[Wallpapers] Flower Wallpapers Pack 2
+Степанъ Рункевичъ | Александро-Невская лавра 1713-1913 [1913] [PDF]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Flower Wallpapers Pack 2
-Название: Flower Wallpapers Pack 2
+Историческое исследование доктора церковной истории Степана Григорьевича Рункевича, охватывает двухвековой период существования Александро-Невского мужского православного монастыря в Санкт-Петербурге, основанного Петром I в 1710 г., в память победы Александра Невского над шведами в Невской битве 1240 г., который в 1797 г. переименован в Александро-Невскую лавру. По своему значению монастырь был поставлен выше других монастырей России. В 1720 г. открыта типография, в 1726 г. - славяно-греко-латинская семинария, в 1809 г. - духовная академия. В архитектурный ансамбль лавры входят: Благовещенская церковь (1717-22 гг., архитектор Д. Трезини, Т. Швертфегер), Федоровская церковь (1742-50 гг., архитектор П. Трезини), монументальный в стиле классицизма Троицкий собор (1778-90 гг., архитектор И. Е. Старов) и др. В Александро-Невской лавре похоронены М. В. Ломоносов, А. В. Суворов, Д. И. Фонвизин, Н. М.Карамзин, И. А. Крылов, М. И. Глинка, М. П. Мусоргский, П. И. Чайковский, Ф. М. Достоевский, В. В. Стасов и др. деятели (   Читать дальше...   )1913Жанр: Раритеты, научная литература, историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45AB34018C766ABECE89577EE1BEF60C33177C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479438   (98928) от 07.04.2012
+
+Вверх и вниз по лестнице (2 сезон, 1 серия из 6) / Upstairs Downstairs (2012) WEB-DLRip
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сентябрь 1938 года. После смерти Мод и рождения её второго ребенка, Агнес рада поддержке со стороны младшей сестры Бланш Мод Моттерсхед. Тем не менее, не все довольны ее постоянным пребыванием в Итон-плейс. Появляется и новая служанка Берилл Баллард, и секрет мистера Притчарда раскрывается. Возрождение популярного сериала 70х годов. События происходят в 1936 году, несколькими годами после того как семья Беллами покинула знаменитый дом по адресу 165 Итон Плейс. Особняк простоял пустым несколько лет и вот в него вселяется молодая супружеская пара дипломат сэр Халлем Холланд, его супруга леди Агнес и мать сэра Халлема, леди Мод Холланд. Гувернантка Роуз Бак возвращается в Лондон после долгого отсутствия и судьба опять приводит ее в 165 Итон Плейс в котором она служила семейству сэра Беллами 40 лет. Приближающая смерть Короля и укрепление фашизма в Европе отражается на семье дипломата.Жанр: ДрамаРежиссер: Хейди ТомасАктеры: Кили Хоуз, Алекс Кингстон, Нэйл Джексон, Эд Стоппард, Блэйк Ритсон, Арт Малик, Эдриан СкарбороПеревод: Любительский многоголосый закадровый (Baibako)Продолжительность: ~ 60:00 мин серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479403   (98921) от 07.04.2012
+
+Третий гвоздь / The Third Nail (2008) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несправедливо осужденный парень выходит из тюрьмы с мечтой забыть кошмарное тюремное прошлое и начать новую жизнь. Священник в церкви говорит ему, что третий гвоздь в теле распятого Христа означает прощение. Но простить не удается — его начинает преследовать банда бывших сокамерников, единственный друг отказывает в помощи, кто-то похищает и убивает его обожаемую дочь, и он попадает под подозрение. Вместо прощения главный герой сам должен найти и покарать убийцу девочки.Жанр: Драма, КриминалРежиссер: Кевин ЛьюисАктеры: Хантли Риттер, Джэйк Максворфи, Чарльз С. Даттон, Кирсти Хинчклифф, Лизетт Бросс, Том Бэйли, Хлоя Грейс Морец, Роберт Миано, Эмилио Ривера, Грегори Браун, Криста Аллен, Крис Эллис, Эдит Дэвис, Брайан Бун, Кон Шелл, Рашад Эль-АминПеревод: Профессиональный двуголосый - (НТВ+)Продолжительность: 01:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:565CF216127C4B604A3BDD2737EEA214E308E69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479628   (98917) от 07.04.2012
+
+[Wallpapers] Wallpapers Mix 27 (1600x1200- 5599x3715)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98917.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Wallpapers Mix 27 (1600x1200- 5599x3715)
+Название: Mix 27 (1600x1200- 5599x3715)
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Разрешение файлов: 1600x1200- 5599x3715
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5D173E7876C3CFAA959A6B245F140421B14EF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470623   (97275) от 20.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (19.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7695ABA69FAFB895C16F5C90ED17DEC2C911432
+magnet:?xt=urn:btih:B52F85A1D1278F304C8576468E9BB89104321FB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

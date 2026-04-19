@@ -1,218 +1,22 @@
-###  Публикация: 1262653   (293522) от 16.11.2018
+###  Публикация: 1261477   (298603) от 13.11.2018
 
-VA - Whore House Loves Tech House (2018) [MP3|320 Kbps] <House, Tech-House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Ourselves & Us - Good Vibrations [5:33]
-02. Mescal Kids - Got Me Spinning [6:35]
-03. Kevin Andrews - Say Mumma [6:21]
-04. Monkeye - Invisible Man [6:00](   Читать дальше...   )Жанр: House, Tech-House, FunkyПродолжительность: 04:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C61687D39C125073F42C0C46E9EBC60D11E40A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962336   (293521) от 05.12.2015
-
-Александр Щелоков | Переворот [сборник] (1995) [PDF, DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Щелоков — автор бестселлера «Черный трибунал», лидера ноябрьского хит-парада газеты «Книжное обозрение» за 1994 год. Его новая книга — это очередной прорыв к темам, связанным с самыми животрепещущими проблемами современности. Одной из таких тем является борьба за власть в России. Эту борьбу ведут не только политики, деятели силовых ведомств, но и группы (   Читать дальше...   )Жанр: Отечественный мужской детектив, ПовестиФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599B4559DFBA8F053D1F7F85C3AFB43C023A4EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262584   (293520) от 16.11.2018
-
-Фигурное катание. Гран-при 2018-2019. 4-й Этап. NHK Trophy 2018. Хиросима (Япония). Танцы на льду. Произвольный танец (11.11.2018) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293520.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 2018 года, воскресенье. 05:30 МСК
-Турнир «NHK Trophy 2018» — 4-й Этап Гран-при по фигурному катанию сезона 2018-2019.
-Танцы на льду. Произвольный танец
-Арена: Префектурный спортивный центр Хиросимы (Хиросима, Япония)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF5B9BE00ED59ADCC1F772BD179C390163894A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262531   (293519) от 16.11.2018
-
-iFinance 4.4.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293519.jpg" />
-</div>
-
-
-###  Подробнее
-
-iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2018Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34858F52117BCB3B122ADF4A125702AA6C3D5BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262606   (293518) от 16.11.2018
-
-Фигурное катание. Гран-при 2018-2019. 4-й Этап. NHK Trophy 2018. Хиросима (Япония). Показательные выступления (11.11.2018) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293518.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 2018 года, воскресенье. 09:05 МСК
-Турнир «NHK Trophy 2018» — 4-й Этап Гран-при по фигурному катанию сезона 2018-2019.
-Показательные выступления
-Арена: Префектурный спортивный центр Хиросимы (Хиросима, Япония)Телекомпания: Первый каналЖанр: Спорт, ШоуЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ACD464A0FA12B84CED2110699A38822DC7069AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962757   (293517) от 05.12.2015
-
-Право знать! (05.12.2015) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293517.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Право знать!" – общественно-политическое ток-шоу без купюр и без протокола, о людях и событиях, которые меняют нашу жизнь.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BB839066EAAA3F9A6181D3E8E5000017793744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262790   (293516) от 16.11.2018
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Driftmoon & Robert Nickson Pres. Astrosphere - Fire Which Burns Us All (Extended Mix)
-02.Daxson - Blackcard (Extended Mix)
-03.Markus Schulz & JES - Calling for Love (Hazem Beltagui Extended Remix)
-04.Fisherman - The Mission (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07499CE6C3EAE8DD6182836319B06A15442B5AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962212   (293515) от 05.12.2015
-
-А. Г. Ковалев | Психология литературного творчества (1960) [DJVU]
+А.С. Бортаковский, А.В. Пантелеев | Аналитическая геометрия в примерах и задачах (2005) [PDF]
 
 >>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге рассматриваются основные вопросы психологии литературно-художественного творчества, а именно: предмет и методы исследования, особенности художественного отражения действительности, личность и творчество, основные этапы творческого процесса и, наконец, вопросы восприятия и понимания художественных произведений читателями.
-
-Книга предназначена для научных работников (   Читать дальше...   )Жанр: История, психология, литературоведение, эстетикаФормат: DJVU
+Приведены основные понятия, теоремы и методы решения задач по всем разделам курса: векторной алгебре, системам координат, преобразованиям плоскости и пространства, уравнениям линий и поверхностей первого и второго порядков. Описаны некоторые приложения аналитической геометрии в механике, теории оптимизации и математическом анализе. В каждом разделе кратко изложены (   Читать дальше...   )Жанр: МатематикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27FE4D72E67B91CB7F0F8AEC848ADCBC47472AF0
+magnet:?xt=urn:btih:4F5FB79283D1047B436138164419BDE801613F40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,28 +24,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262575   (293514) от 16.11.2018
+###  Публикация: 1262104   (298602) от 13.11.2018
 
-VA - Trance 2019 (2018) [MP3|320 Kbps] <Trance>
+NGW: Дикая природа Перу: арена боев – Анды. Добро пожаловать в джунгли / Wild Peru: Andes Battleground (2018) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует три Перу: одна часть представляет собой дождевые леса, другая - предгорья Анд, а третья - пустынное побережье Тихого океана. В течение двух часов вы познакомитесь со всеми этими такими различными средами обитания.
+В юго-восточном Перу есть регион под названием "Мадре-де-Дьос", который представляет собой огромный ливневый лес. Но несмотря на то, (   Читать дальше...   )Производство: Новая Зеландия, Natural History New Zealand, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Лорн ТаунендПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9EA8D977E5B30329BCA8C6D075F3446F68AA06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015399   (298601) от 13.11.2018
+
+Deep Space Network | I.F. | DSN. - Discography 7 Releases (1992-2004) [FLAC|Lossless|tracks+.cue] <Ambient, IDM, Electro, Downtempo>
 
 >>Electronic
->>Trance
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jaren & Saad Ayub - Hurt (Original Mix)
-02. Alex Leavon - When The Sun Goes Down (Original Mix)
-03. Danny Claire & Tom Boldt - Don't Forget Our Love (Original Mix)
-04. 4 Strings - Beautiful Light (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:44:37
+01. Brother Mingus (06:24)
+ 02. Airing Dew (07:19)
+ 03. Raise This Flap (05:06)
+ 04. Singlenote (05:39)(   Читать дальше...   )Тип издания: CDЖанр: Ambient/Electro/ExperimentalПродолжительность: 00:53:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97A2FE11F99EB51BD28168F78C651807B7C1536F
+magnet:?xt=urn:btih:5749CF7339F17056EDDB334DA0F9F926ED197C3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -249,28 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 962515   (293513) от 05.12.2015
+###  Публикация: 1261855   (298600) от 13.11.2018
 
-VA - Ethereal Dreams, Vol. 1 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
+Welshly Arms - No Place Is Home (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Blues Rock, Indie Rock>
 
->>Other Styles
->>New Age/Meditative/Relax
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crab Nebula - Indira Bula
-02. Ishtar's Song - Barenan
-03. Aldebaran Eye of the Taurus - Gita Davi
-04. The Pleiads - Sarala Rati(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:13:50
+01. All The Way Up
+02. Indestructible
+03. Sanctuary
+04. How High(   Читать дальше...   )Жанр: Alternative Rock, Blues Rock, Indie RockПродолжительность: 00:50:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF590ED2A910EC6E5185EBAD021D5F6C3A33D75F
+magnet:?xt=urn:btih:0BE72CDA01949BEBC70664C7EA646F7EE3BE0E13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,28 +109,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262754   (293512) от 16.11.2018
+###  Публикация: 1261928   (298599) от 13.11.2018
 
-Шорт-трек. Кубок Мира 2018-2019. Солт-Лейк Сити (США). 2-й Этап. Финалы (2018) IPTV [H.264/1080p-LQ]
+Александр Войкин | Оруженосец (2018) [FB2]
 
->>Спорт и активный отдых
->>Прочие зимние виды спорта
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кубок мира по шорт-треку сезона 2018-2019. Солт-Лейк Сити (США). 2-й Этап.
-10 ноября 2018 года - 11 ноября 2018 года.
-Финалы
-Арена: Олимпийский овал Юты (Солт-Лейк Сити, США)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:15:02 - 03:38:11
+Он пришел в этот мир человеком, но оказался зараженным, день за днем теряя остатки жизни в погоне за светом. Чтобы выжить, ему предстоит стать воином, не знающим пощады, вкусившим горечь потерь и поражений. Боги недружелюбного мира ненавидят его, но Смерть сделала ставку на одинокого воина, а прошлое позволит ему добиться силы. Или же вновь бросит в пучину забвения? (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B14F11AEBE6C7C4CEB01AE001CB7484A210339D8
+magnet:?xt=urn:btih:DC8CFA90F10364BCA5EA2883FC61E103B255ABAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,26 +135,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 962555   (293511) от 05.12.2015
+###  Публикация: 1261859   (298598) от 13.11.2018
 
-Курт Частка | От Заморы до Яшина. Знаменитые вратари мира (1970) [PDF]
+Эдвард Сент-Обин | Патрик Мелроуз. Книга 1 [сборник] (2018) [FB2]
 
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В предлагаемой читателю книге известного австрийского футбольного специалиста и журналиста читатель найдет спортивные биографии выдающихся вратарей разных стран, разных поколений.
-Автор описывает их футбольные подвиги, а также интересные матчи многих известных команд.Жанр: Вратари в футболеПеревод: М. М. ШайберФормат: PDF
+«Цикл романов о Патрике Мелроузе явился для меня самым потрясающим читательским опытом последнего десятилетия», – писал Майкл Шейбон. Ему вторили такие маститые литераторы, как Дэвид Николс («Романы Эдварда Сент-Обина о Патрике Мелроузе – полный восторг от начала до конца. Читать всем, немедленно!»), Алан Хол лингхерст («Эдвард Сент-Обин – вероятно, самый блестящий (   Читать дальше...   )Жанр: Современная зарубежная литератураФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33BE79EA2C92555ADF32ED23BFD0F75CE48B9C57
+magnet:?xt=urn:btih:EF4F78DA5015BAEAB3F8D8D7F4DA014CAEBD2818
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,28 +161,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262654   (293510) от 16.11.2018
+###  Публикация: 1261953   (298597) от 13.11.2018
 
-VA - Ambient Silver Sounds (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
+VA - Reverence: Deep House Exrta Mixes (2018) [MP3|320 Kbps] <Deep House, Electro>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298597.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dj Rostej - Call Me Helen (Original Mix)
-002. Alex Brynskich - Rain (Original Mix)
-003. Guitamar - Selva Negra (Original Mix)
-004. Mytron & Ofofo - Medicine Man (Original Mix)(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 10:06:21
+001. Demax - Galantis
+002. The Coachella - Give Me Love (Original Mix)
+003. Markwood - Goodbye
+004. Gagoled - Sunbath(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:31:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05E90BDC6BBFE702D127416656F3BD1137E3C7D4
+magnet:?xt=urn:btih:CAE51F4FC4EACB605A595F0B6FF422E1B6817E86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,25 +190,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 962718   (293509) от 05.12.2015
+###  Публикация: 1261965   (298596) от 13.11.2018
 
-Постскриптум с Алексеем Пушковым (05.12.2015) SATRip
+VA - Progressive House Project (2018) [MP3|320 Kbps] <Progressive House, Electro>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Еженедельная аналитическая программа, посвящённая важнейшим событиям, происходящим в России и за её пределами. Гостями автора и ведущего программы Алексея Пушкова становятся видные российские и зарубежные политики, общественные деятели, представители науки и культуры. Программу отличают взвешенность оценок и выводов, компетентность экспертов, точность фактов и анализа. (   Читать дальше...   )В этом выпуске: "Главное для нас - Россия!". Послание президента Федеральному Собранию. Активизация Запада в Сирии - что мешает созданию широкой коалиции? Наша оценка. А также... Франция и Россия: можем ли мы стать подлинными союзниками против ИГИЛ? Специальный репортаж из Парижа. Умеренная сирийская оппозиция - способна ли она воевать? Смотрите программу "Постскриптум" (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:59:16
+001. Tigran Oganezov - Sexciter
+002. Deljoi - Take It Back Jack
+003. Douglas Greed - Down Here
+004.  Klangdeko - Haubutze(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 09:51:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75718D97C7219CCF7C5DC178E439AAFE9AB8ED98
+magnet:?xt=urn:btih:4F74E3F0F446C4B5E1B85EBCD966323D93B1E280
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,52 +219,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 962115   (293508) от 05.12.2015
+###  Публикация: 1175095   (298595) от 13.11.2018
 
-У. И. Франкфурт (сост.) | Творцы физической оптики (1973) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник посвящен истории оптики. Он содержит отрывки из трактатов и книг, а также статьи выдающихся ученых — основоположников учения об оптике (Декарт, Гюйгенс, Ньютон, Юнг, Френель, Майкельсон и др.). Эти фрагменты и статьи перемежаются статьями современных советских и зарубежных ученых и историков науки. Все это в целом создает картину истории развития оптики от (   Читать дальше...   )Жанр: Физика, оптикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FAAA53668559F3A832E310091EEC5FF54D13961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262579   (293507) от 16.11.2018
-
-E-Light - Controversy (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+Kiasmos - Discography 9 Releases (2009-2018) Erased Tapes Records [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Tech House, Modern Classical, Deep House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Controversy (Original Mix)
-02. At Low Cost (Original Mix)Жанр: Progressive HouseПродолжительность: 00:14:49
+01. Zebra (03:43)Тип издания: CD, WebЖанр: Tech House/Modern ClassicalПродолжительность: 00:03:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6872FFDE84813CB28CF3A7F3719175536522F331
+magnet:?xt=urn:btih:75A13744B1D2566ADA9461393483699EA04B0D10
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,28 +245,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 962445   (293506) от 05.12.2015
+###  Публикация: 1262077   (298594) от 13.11.2018
 
-P J Harvey - On Tour Please Leave Quietly (2006) DVD9
+Дэн Симмонс | Песнь Кали (2018) [MP3]
 
->>Театр и Музыкальное видео
->>Концерты (DVD)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Meet Ze Monsta	4:17
-2. Dress	3:24
-3. Uh Huh Her	3:13
-4. Taut	3:37(   Читать дальше...   )Жанр: Indie Rock, Punk, RockПеревод: Отсутствует
+Журналист и поэт Роберт Лузак получил от редакции своего журнала задание отправиться в Индию, где должен получить для публикации в Америке рукопись поэмы М. Даса. Лузак человек образованный, предрассудки и суеверия ему чужды. Но первый же день, проведённый в Калькутте полностью выбил его из колеи... А дальше события вокруг рукописи и личности самого Даса, который (   Читать дальше...   )Жанр: МистикаПродолжительность: 08:38:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BB65288DAC3FF20ED3EDD918EB44A64AFD44CF6
+magnet:?xt=urn:btih:D57A44256C7AB6A41D7C9ABA5F48E27906F830A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,28 +271,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262780   (293505) от 16.11.2018
+###  Публикация: 1262111   (298593) от 13.11.2018
 
-VA - Pure Trance 7 (Mixed by  Kristina Sky & Solarstone & Lostly) (2018) [MP3|320 Kbps] <Trance>
+NGW. Голый землекоп: Самый странный супергерой в природе / Naked Molerat. Nature's Weirdest Superhero (2017) HDTVRip [H.264/1080p-LQ]
 
->>Electronic
->>Trance
+>>Зарубежные TV-бренды
+>>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Neptune Project & Christopher Lovell – Elixir of Life feat. Christopher Lovell (Original Mix)
-02. Mike Saint-Jules – Parachuting (Original Mix)
-03. Paul Sawyer – Meridian (Original Mix)
-04. Elfsong – Crenshinibon (Dub Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:05:31
+Внешний вид - это еще не все. Несмотря на свою неприглядную наружность, голому землекопу можно позавидовать. Он живет до преклонного возраста, никогда не болеет и практически не чувствителен к боли.Производство: Германия, Taglicht Media, ZDF and ARTE, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Герберт ОствальдПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E638A70F7F4BD27E8930C83D25BFEBBB48D93D6A
+magnet:?xt=urn:btih:1EF5CFDCDB5ACA64920E7EFCE87F93947C9AD1C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,83 +297,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 962523   (293504) от 05.12.2015
+###  Публикация: 1261390   (298592) от 13.11.2018
 
-VA - Ethereal Dreams Vol. 2 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jekha - Light of Fire
-02. Albena - Alnasi
-03. Sangmo - Chort
-04. Dalai Surama - Mystic Gold(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB3B73E35B110DDC53D48159F35C90A82654D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262800   (293503) от 16.11.2018
-
-Suidakra - Cimbric Yarns (2018) [MP3|320 Kbps] <Folk Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293503.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Echtra
-2. Serpentine Origins
-3. Ode To Arma
-4. A Day And Forever(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA737F537F45F2F076E92C55FF875E580D186CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262635   (293502) от 16.11.2018
-
-С. И. Ковалев | Александр Македонский (1937) [DJVU]
+Марк Розин | Как спасти или погубить компанию за один день. Технологии глубинной фасилитации для бизнеса (2018) [FB2]
 
 >>Разное (категория книг)
->>Публицистика
+>>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящая книга в живой доступной форме и на большом конкретном материале, основанном на последних достижениях исторической науки, излагает историю одного из величайших полководцев и государственных деятелей древнего мира - Александра Македонского.Жанр: История, биография, публицистика, археологияФормат: DJVU
+Сложные ситуации возникают в компаниях и в моменты кризиса, и в периоды роста. Руководителям и сотрудникам не всегда удается найти общий язык и прийти к консенсусу. В этот момент на помощь приходят фасилитаторы – люди, которые помогают наладить диалог в компании. Благодаря фасилитаторам участники дискуссии наконец слышат друг друга и приходят к конструктивному решению. (   Читать дальше...   )Жанр: Управление и подбор персоналаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BED6FD3BCC74FBB5E9629CD4771FC80C8324E32
+magnet:?xt=urn:btih:1EEDA96FDDD3BBB33D093CC8D876C218D32225A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,26 +323,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262589   (293501) от 16.11.2018
+###  Публикация: 1262100   (298591) от 13.11.2018
 
-Cherry (UA) - Hello (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+Tanita Tikaram - Tanita Tikaram (Acoustic) (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop. Acoustic>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hello (Original Mix)
-02. Noi (Original Mix)Жанр: Progressive HouseПродолжительность: 00:11:42
+01 – My Love (Acoustic)
+02 – Valentine Heart (Acoustic)
+03 – Wonderful Shadow (Acoustic)
+04 – Only the Ones We Love (Acoustic)(   Читать дальше...   )Жанр: Pop. AcousticПродолжительность: 00:31:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:982FC83DE91D480F11A9D46CC6D69D1882A850C0
+magnet:?xt=urn:btih:0D5C48BCC71F83DE8868B69AEEB456FA7480E905
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,107 +352,355 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262571   (293500) от 16.11.2018
+###  Публикация: 1262023   (298590) от 13.11.2018
 
-Jacob Singer - Elohim (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elohim (Original Mix)
-02. The Book Of Enoch (Original Mix)Жанр: Progressive HouseПродолжительность: 00:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FA980DB4F96820799092268BA6D046CEE4D5AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262717   (293499) от 16.11.2018
-
-Pichi 1.0.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pichi оптимизирует и изменяет размеры ваших изображений.Тип издания: macOS SoftwareРелиз состоялся: 15.11.2018Разработчик: CreatableПоддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F4D1F9161738EFBBC1714F5F152F84E8E2ADBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262582   (293498) от 16.11.2018
-
-VA - British Punk and New Wave (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvis Costello – Sulky Girl 05:07
-02. Echo And The Bunnymen – Crocodiles 02:41
-03. Dr Feelgood – Back In the Night 03:18
-04. Gang of Four – I Found That Essence Rare 03:14(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0D502A4B7BCAD151FE1A0F2EC3CF2BD7338956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262775   (293497) от 16.11.2018
-
-SQLPro Studio 1.0.320 [En]
+Skype 8.34.0.78 [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SQLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 15.11.2018Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A01924B577BF1FF443E2E866A57F7934527B54A
+magnet:?xt=urn:btih:9669E653F7D53CBE52CC8E6AEE3B5E0A8CE5863E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262036   (298589) от 13.11.2018
+
+VA - Disco 80's Rare & Special Versions Vol. 1-2 (2016) 2CD, Compilation [MP3|320 Kbps] <Euro-Disco, Italo-Disco, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy - Touch By Touch (Extra Long Version) (6:00)
+02. Koto - Theme From Koto (Special Version) (3:46)
+03. Divine - Shoot Your Shot (Unreleased Version) (4:24)
+04. Wow - Bring On The Man (US Special Remix) (4:09)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, EurodanceПродолжительность: 02:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0C8E579CEEAD28E2C314E7CC263CB4E632EFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261867   (298588) от 13.11.2018
+
+Napoleon Solo - Open Channel D (2018) [MP3|320 Kbps] <Jamaican Ska, Reggae, Rhythm & Blues>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Need
+02.   5 9
+03. Hot as Ice
+04. Nobody Told Me(   Читать дальше...   )Жанр: Jamaican Ska, Reggae, Rhythm & BluesПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:102620D8904B7703CDE4F5F4D3FAD591F199A941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262030   (298587) от 13.11.2018
+
+VA - Disco 80's Rare & Special Versions Vol. 1 (2016) Compilation [FLAC|Lossless|tracks + .cue] <Euro-Disco, Italo-Disco, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy - Touch By Touch (Extra Long Version) (6:00)
+02. Koto - Theme From Koto (Special Version) (3:46)
+03. Divine - Shoot Your Shot (Unreleased Version) (4:24)
+04. Wow - Bring On The Man (US Special Remix) (4:09)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, EurodanceПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98CF702695EAB94E36B91D0F1A37B2471C4FA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261957   (298586) от 13.11.2018
+
+VA - 200 Popular November Songs (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298586.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ewa Farna - Interakcja
+002. 5 Seconds Of Summer - Killer Queen
+003. Jason Derulo - Make Up Feat Ava Max
+004. Paula Biskup - Wyliczanka(   Читать дальше...   )Жанр: PopПродолжительность: 12:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE510E4D2C85EF734EDA7ACE7C82C2571773D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332394   (298585) от 27.10.2019
+
+Максим Кузнецов | Российское неоязычество. История, идеи и мифы (2018) [DJVU, PDF, FB2, DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор этой книги - Максим Николаевич Кузнецов, сотрудник Миссионерского отдела Рязанской епархии, более 7 лет изучающий неоязычество. В этой книге он рассказывает об истории появления неоязыческого движения в России, рассматривает идеи и способы неоязыческой пропаганды, а также приводит разбор наиболее тиражируемых мифов неоязычества. По словам издателей, книга может (   Читать дальше...   )Жанр: РелигиоведениеФормат: DJVU, PDF, FB2, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FD29DB9CA5E6586E75C4F30A44041DD9AF6CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333976   (298584) от 27.10.2019
+
+Любовь слепа / Love Is Blind (2019) WEB-DLRip [H.264/720p-LQ][MVO] [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элизабет страдает от селективного восприятия: она не видит собственную мать и думает, что та умерла. Ее психотерапевт предлагает ей в качестве лечения проводить время с Расселом, парнем с суицидальными наклонностями. Рассел влюбляется в Элизабет, вот только проблема в том, что она его тоже не видит.Производство: США / Locomotive, Regency EnterprisesЖанр: Драма, комедияРежиссер: Монти Уайтблум, Энди ДеланиАктеры: Шеннон Тарбет, Эйдан Тёрнер, Бенджамин Уокер, Мэттью Бродерик, Клоэ Севиньи, Марк Блум, Джейсон Фукс, Кэбби Бордерс, Сторми Эзра Бир Уайтблум, Катрина ЛенкПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:32:54Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334086   (298583) от 27.10.2019
+
+Экшены - GraphicRiver - Nebula Photoshop Action - 24837553 [ATN, ABR]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nebula - этот профессиональный экшен фотошоп даёт вашим изображениям, фотографиям удивительный эффект разноцветной туманности. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333944   (298582) от 27.10.2019
+
+Канарские острова / Die Kanarischen Inseln / The Canary Islands (2016) BDRip [H.264/1080p] (серии 1-2 из 2) [PR]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Северо-Западная Африка, тысячи километров голой, выжженной пустыни. У этого побережья находится небольшой, удаленный архипелаг, окруженный Атлантическим океаном. Семь вулканических островов, и каждый из них – отдельный мир. Здесь теплые экваториальные течения смешиваются с холодными водами северной Атлантики. Планктон поднимается с глубины и собирается у поверхности (   Читать дальше...   )Производство: Австрия, Дания, Швеция, Science Vision Filmproduktions, Danmarks Radio, Sveriges TelevisionЖанр: Документальный, природа, флора, фаунаРежиссер: Майкл ШламбергерПеревод: Одноголосый профессиональныйПродолжительность: 2 x ~00:50:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334122   (298581) от 27.10.2019
+
+Helene (Hélène) Rolles - A force de solitude (1997) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ça fait si longtemps (4:26)
+ 02. C'est parce que je t'aime (3:17)
+ 03. Le bonheur (3:35)
+ 04. Je sais qu'un jour (2:35)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C8D64DC45CE820516B0F4F7EA656E8FF467834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334070   (298580) от 27.10.2019
+
+Экшены - Creative Market - The Phoenix - Fire Explosion - 4108857 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298580.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Phoenix - Fire Explosion -  это действие Photoshop преобразует ваши фотографии в профессиональный взрыв с эффектами вспышки огня. Очень подробный результат, много возможностей для легкой настройки и улучшения. Это действие специально сделано для фотографов, графических дизайнеров и художников.. Каждый раз, когда вы запускаете действие, вы получите уникальный результат, (   Читать дальше...   )Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C36BB4EB59DFD3BE2178A3BCC2D544A451CC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333997   (298579) от 27.10.2019
+
+Экшены - GraphicRiver - Modern Artist Photoshop Action - 23353213 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Modern Artist - экшен фотошоп превратит ваши изображения в красочное художественное полотно в стиле модерн. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E32C24B4985C191A812F8A464E9E0CBC05C80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333744   (298578) от 27.10.2019
+
+VA – Super Instrumental Vol.3 (2002) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F. Goya - Historia De Un Amor
+02. R. King - Love Story
+03. Space - Secret Dreams
+04. F. Duval - Mandala(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEBCFACA884D7FA89177392596FB5B72494FEA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

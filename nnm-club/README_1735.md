@@ -1,24 +1,245 @@
-###  Публикация: 1467043   (1018113) от 02.05.2021
+###  Публикация: 1464170   (1020017) от 21.04.2021
 
-Юлия Кузнецова | Дом «П» (2020) [MP3]
+Rage - Unity (2002) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Юлия Кузнецова – популярный автор книг для детей и подростков, лауреат литературных премий «Заветная мечта», «Книгуру» и Международной детской премии имени В. Крапивина.
+01. All I Want
+02. Insanity
+03. Down
+04. Set This World On Fire(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619E67F7B329FEF9A637DE69B8798A08B988C988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464172   (1020016) от 21.04.2021
+
+Rage - Soundchaser (2003) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orgy Of Destruction
+02. War Of Worlds
+03. Great Old Ones
+04. Soundchaser(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16E5232DBF2E5E82E5A50D2C5DC2212763653CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464152   (1020015) от 21.04.2021
+
+Rage - 10 Years In Rage: The Anniversary Album (1994) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertigo
+02. She Killed And Smiled
+03. Destination Day
+04. Take My Blood(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B8A9DA5D1646BEB63A48EA29C56C46FE9532DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464128   (1020014) от 21.04.2021
+
+Capture One 21 Pro Pro Beta1 v14.2.0.85  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.04.2021Разработчик: Phase OneПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670831BCE7A2098B20CE5EE04691B2BDED0BAEB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464123   (1020013) от 21.04.2021
+
+Bennie Moten - Kansas City Breakdown: The Victor Recordings, Vol.2 (1928 - 1929) 1999, Frog [FLAC|Lossless|tracks + .cue] <Big Band, Early Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justrite-3 [2:38]
+02. Slow Motion [2:42]
+03. Tough Breaks [2:53]
+04. It's Hard to Laugh or Smile [2:44](   Читать дальше...   )Жанр: Big Band, Early JazzПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09689CD62A27E9D8F51AFA3B6F11B3B5A70DE6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464260   (1020012) от 21.04.2021
+
+Елена Агинская | Страна детства. Приключения бельчонка (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается красочная книга Елены Агинской о бельчонке Юлике с красочными иллюстрациями Сергея Самсоненко.Жанр: Детская литература/СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B127ACB377C21B96C479FF05A5F65FCBDED5520E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464267   (1020011) от 21.04.2021
+
+Ирина Котовская (сост.) | Тренажёр по чтению. И я читаю! Лиса и журавль (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш ребёнок успешно освоил «Букварь». Что дальше? Как помочь ему полюбить читать не только слова, а целые книги? Идеальный вариант для маленьких читателей, переходящих от чтения слогов к чтению полных слов, а от них к целым предложениям, — книги удобного формата из серии «И я читаю!». Здесь много рисунков, но они не отвлекают малыша от чтения. Повествование ведётся (   Читать дальше...   )Жанр: Детская литература/Обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098FFA7A87742CD887F13CF17C2F341A358493B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464173   (1020010) от 21.04.2021
+
+Завтра, третьего апреля (1969) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020010.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-ое апреля — всем известный день розыгрышей и вранья. И вот ученики одной из ленинградских школ решили устроить «День правды» — и уточнили дату — 2-е апреля. А что у них из этого вышло…Производство: СССРЖанр: ДрамаРежиссер: Игорь МасленниковАктеры: Аксель Энекен, Людмила Волынская, Виктор Ильичев, Павел Луспекаев, Александр Демьяненко, Вячеслав Горошенков, Алексей Кожевников, Лариса Малеванная, Евгений Малянцев, Владимир ПирожковПродолжительность: 01:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4D47278154B2BA26B044440394AAA5DD2F0EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464242   (1020009) от 21.04.2021
+
+Анатолий Онегов | Почемучкины книжки. Что на озере растет? (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга замечательного писателя-натуралиста Анатолия Сергеевича Онегова поближе познакомит тебя с растениями, которые ты наверняка встречал на берегу озера.
 
-Повесть «Дом П» – история обычной большой семьи. Бабушка Женя очень любит сына и внуков и больше всего на свете боится их огорчить. Однажды друг отца семейства рассказывает ему, что теперь он директор (   Читать дальше...   )Жанр: Детская литература/Приключения/ПрозаПродолжительность: 04:43:13
+Ты узнаешь об опасной траве осоке, о растении с удивительным названием рдест, о том, как же на самом деле выглядит камыш. И ещё о многих других интересных, красивых и полезных растениях тебе расскажет эта книга. (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:349C5A17416162D9AF4927639E12EE138635A8C1
+magnet:?xt=urn:btih:57C6692EF76D5839B963A8E4009B020D4D94B9CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,111 +247,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467064   (1018112) от 02.05.2021
+###  Публикация: 1464144   (1020008) от 21.04.2021
 
-Serial Box & SerialSeeker 05.2021 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018112.jpg" />
-</div>
-
-
-###  Подробнее
-
-База серийных номеров проекта iSerial.
-В ней содержится информация по активации (серийные номера, информация о других методах активации) как для программ платформы PowerPC, так и Intel.
-База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете.Тип издания: macOS SoftwareРелиз состоялся: 01.05.2021Разработчик: iSerialПоддерживаемая ОС: OS X 10.5 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67E5EDBA87641AB45FC3E96E3771CDAE2228043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467105   (1018111) от 02.05.2021
-
-DiskCatalogMaker 8.3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018111.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiskCatalogMaker  - простая утилита для управления и каталогизации дисков. Приложение умеет сканировать содержимое восьми типов архивов и создавать предпросмотр для графических, видео и текстовых файлов.  Поиск по каталогам можно проводить по различным параметрам, но высокой скоростью он не отличается. Присутствует интеграция с Roxio Toast (новый диск после записи (   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 01.05.2021Разработчик: Fujiwara SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F06E64FEF11B22A70091E1FCF89B34F9FCBC55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466954   (1018110) от 02.05.2021
-
-Siggi Schwarz - Тhе Firе Insidе (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spend The Night With Me
-02. Activated
-03. Badass
-04. Give It To Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEE366498DA09C21ACBA20FD26D09C7E3DB0502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466791   (1018109) от 02.05.2021
-
-Albert Bouchard (ex-Blue Oyster Cult) - Re Imaginos (2020) [FLAC|Lossless|tracks + .cue] <Classic Rock>
+MaterialEyes - Тhrее Оf А Кind (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Quandary
-01. I Am The One You Warned Me Of
-02. Del Rio Song
-03. In The Presence Of Another World(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:04:49
+01. Adrenaline High
+02. Fabulist
+03. I Have Loved The Stars Too Long
+04. When Tomorrow Comes Around(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA46B105C7481293D012265D6BFE0EA6705586C7
+magnet:?xt=urn:btih:382194070ECEE0C62273C109F85BE95865C480F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,28 +276,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467068   (1018108) от 02.05.2021
+###  Публикация: 1464069   (1020007) от 21.04.2021
 
-Fleesh - 4 Albums (2019-2021) [MP3|320 Kbps] <Progressive Rock>
+Beastcraft - The Nechronology of Ungodly Beastial Craft 2004-2017 (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Holy Land [00:05:58]
-02. Red Rain [00:06:10]
-03. I Wish It Would Rain Down [00:05:18]
-04. Stay On These Roads [00:04:38](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 4CD, 07:26:27
+01. The Horned God Rises
+02. Burnt at His Altar
+03. Enter the Chasm
+04. Satanic Fiend(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15F6BF5F9C34F8C5F3223909A4E7B770C292CD7F
+magnet:?xt=urn:btih:D403E0AD200A36A2142EC380395C92CAF55BFC02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,28 +305,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467120   (1018107) от 02.05.2021
+###  Публикация: 1464089   (1020006) от 21.04.2021
 
-VA - Continental Drift (2021) IDEAL EUROPA [FLAC|Lossless|WEB-DL|tracks] <Leftfield, IDM, Ambient>
+Благовест (изд.) | Лампада №7 (235). Православный журнал (2018) [PDF, DJVU]
 
->>Electronic
->>IDM (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Apparat - Daniel (03:47)
- 02. Rone & Cubenx - Conifera (04:13)
- 03. Cee feat. Abdullah Siddiqui - Nonconfine Dub (04:20)
- 04. The Field - Soft Numbers IV (06:59)(   Читать дальше...   )Жанр: Leftfield, IDM, AmbientПродолжительность: 01:12:37
+Православный журнал «Лампада». Ежемесячное приложение к Православной газете «Благовест».
+
+Журналу «Лампада» присвоен Гриф «Одобрено Синодальным информационным отделом Русской Православной Церкви», свидетельство № 049 от 20 января 2011 года.Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1D0D04837157C9642381F4F5ECA0B7E3C34EE69
+magnet:?xt=urn:btih:61E7694BD3DF537DB04798BDC037D0997CBEB5E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,170 +333,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467079   (1018106) от 02.05.2021
+###  Публикация: 1464237   (1020005) от 21.04.2021
 
-Electric Gypsy - Electric Gypsy (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes
-02. Hit And Run
-03. Shoot 'Em Down
-04. Modern Love(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7E3A3ED437F168B6BD4745BD214E6E65557CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466869   (1018105) от 02.05.2021
-
-VA - EDC Radio: Beat Dance Set (2021) [MP3|320 Kbps] <EDM, Dance, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот микс изначально нацелен на клубный драйв, нежели на прослушивание в наушниках дома за чашкой кофе. Однозначно, придется по вкусу любителям заводных ритмов и тем, кто до без ума от воскресных тусовок.001. Relanium - Home Alone
-002. Munez - Tonight
-003. Stompy & Eazyvibe - I Just Wanna Party
-004. Laconic - Laconic & Deanna(   Читать дальше...   )Жанр: EDM, Dance, House, ElectroПродолжительность: 08:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337E473D7DBB835689DF3170B9A47075A7892D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466781   (1018104) от 02.05.2021
-
-Vienna Circle - Secrets Of The Rising Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Sunset Roulette (10:04)
-02. Ghost Town Hideaway (2:21)
-03. Carnival (2:04)
-04. That Night (4:31)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15CE12A1B49A78E25972A02AFE6C1E581994CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467095   (1018102) от 02.05.2021
-
-Melodic Malady - My Inner Pain (2021) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Inner Pain [00:05:23]
-02 - Gambit [00:04:48]
-03 - Hope Dies Last [00:04:23]
-04 - Devourer [00:04:21](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA3F417EF0775F5474E9F96F5A213C5F769D609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466866   (1018101) от 02.05.2021
-
-VA - Electropop Dance Party (2021) [MP3|320 Kbps] <Pop Dance, Electropop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лёгкий, незаезженный саунд, стильная атмосфера, оригинальное и запоминающееся звучание, красивый вокал почти в каждом треке – всё вместе звучит очень круто и небанально – как минимум в рамках нашего портала. Настроение во время прослушивания этого микса поднимается на максимум! А это значит, что автор подборки постарался на славу!001. Andrew Spencer - It's A Rainy Day 2021
-002. Carlosh Garzat - Obrigado
-003. Lonnel & Brsg - Alone
-004. Cirrel Sneer - Blue Monday(   Читать дальше...   )Жанр: Pop Dance, ElectropopПродолжительность: 07:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A7B107459FC59C4A74F609F424AF2C59313FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467080   (1018100) от 02.05.2021
-
-Альбина Нури | Гости из тьмы (2021) [MP3, Татьяна Винтер]
+Нора Робертс | Без следа (2020) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Магда едва выжила после аварии, пережила клиническую смерть и совсем не помнит того, что случилось в тот день. Но самое страшное еще впереди: вкусы Магды меняются, появляются воспоминания о том, что ей никак не может быть известно, к тому же она начинает видеть призраков, и те пытаются дотянуться до нее из небытия! Знания и видения приходят внезапно, управлять ими (   Читать дальше...   )Жанр: Мистика, Современные детективы, ТриллерыПродолжительность: 06:50:37
+Трейс О'Харли уже давно хотел уволиться из спецслужб, но неожиданно стал единственной надеждой для очаровательной Джиллиан, у которой был похищен брат, видный ученый, и его маленькая дочь. В отчаянии девушка мечется, не зная, как убедить опытного, со множеством связей агента Международной системы безопасности помочь ей отыскать брата и племянницу…Жанр: Зарубежная прозаПродолжительность: 10:05:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F50E04C0F3C2C076E94EFA8FCBE3E3A0AE55A3A
+magnet:?xt=urn:btih:B4C9DC9A17D044CE08C920EF7C1C0AE87157A6BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,28 +359,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467006   (1018099) от 02.05.2021
+###  Публикация: 1464114   (1020004) от 21.04.2021
 
-Мономах & Красная площадь - Русский Хард-Рок (1990/ 2014) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hard'n' Heavy>
+Отчий дом (изд.) | Архимандрит Павел (Груздев) [Документы к биографии. Воспоминания о батюшке. Избранные записи из дневниковых тетрадей] (2006) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство сочло необходимым и правильным дать возможность читателям узнать о жизни архимандрита Павла (Груздева), основываясь на официальных документах, на воспоминаниях очевидцев — тех людей, которым посчастливилось знать батюшку, пользоваться его советом и поддержкой, на собственных рассказах отца Павла о себе и его многолетних записях. Этой целью и обусловлена (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A383197CBE1491DCF95D5BFB5069BE2F82E31C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463901   (1020003) от 21.04.2021
+
+Bennie Moten - Justrite: The Victor Recordings, Vol.1 (1926 - 1928) 1999, Frog [FLAC|Lossless|tracks + .cue] <Big Band, Early Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thick Lip Stomp-1 [2:47]
+02. Thick Lip Stomp-2 [2:44]
+03. Harmony Blues-1 [3:29]
+04. Harmony Blues-2 [3:10](   Читать дальше...   )Жанр: Big Band, Early JazzПродолжительность: 01:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4880918223E78274F21DF6448A4E6434B6A0CE05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464261   (1020002) от 21.04.2021
+
+Vidmore Video Enhancer 1.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vidmore Video Enhancer позволяет вам легко увеличивать разрешение видео, настраивать ненасыщенные и блеклые цвета, удалять высокий уровень шума, создавая потрясающий шедевр с революционными интеллектуальными алгоритмами.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: VidmoreПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30554F10FEF82427234B1F0C6AB56C9A76036DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464274   (1020001) от 21.04.2021
+
+W&W - Rave Culture Live 001 (2021-04-17) [MP3|320 Kbps] <Electro House, Hard Dance, Big Room>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W&W - ID
+02. NWYR - Take Me Higher
+03. ID - ID
+04. Ludwig van Beethoven - Moonlight Sonata (Blasterjaxx Remix)(   Читать дальше...   )Жанр: Electro House, Hard Dance, Big RoomПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D570512176D40DA1C5CCCE14AF2A9626CE51FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464167   (1020000) от 21.04.2021
+
+Rage - Welcome To The Other Side (2001) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-МОНОМАХ / Monomakh
-01. Our God is with Us (4:48)
-С Нами Наш Бог
-02. We'll Fly with You (5:22)(   Читать дальше...   )Жанр: Hard Rock, Hard'n' HeavyПродолжительность: 01:09:14
+01. Trauma
+02. Paint The Devil On The Wall
+03. The Mirror In Your Eyes
+(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 01:04:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B7FA97DEABB5CD568B83BCAFE2BE144C99ED132
+magnet:?xt=urn:btih:B1FA6671A13D75F271D02A8B1ABA61470376E3B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,28 +498,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466831   (1018098) от 02.05.2021
+###  Публикация: 1464166   (1019999) от 21.04.2021
 
-VA - Beast Mode Latin (2021) [MP3|320 Kbps] <Pop, Latin, Other>
+Rage - Ghosts (1999) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Duki - Chico Estrella (2:50)
-02. Bhavi, Pi’erre Bourne - CINEMA (3:04)
-03. Daddy Yankee - EL PONY (3:32)
-04. Sech - 911 (3:35)(   Читать дальше...   )Жанр: Pop, Latin, OtherПродолжительность: 05:21:08
+01. Beginning Of The End
+02. Back In Time
+03. Ghosts
+04. Wash My Sins Away(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:55:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F138D24F88C6FD9D425E651287F4D328D9F39C1
+magnet:?xt=urn:btih:19C7FF9671FA6DF6E0ABD2D21A241D429221BFE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -425,28 +527,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467042   (1018097) от 02.05.2021
+###  Публикация: 1464225   (1019998) от 21.04.2021
 
-Strange Affair - Strange Affair (1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+Citizen Gang - Citizen Gang (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 
 >>Pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bad Connection (6:20)
-02. No, No, No (5:54)
-03. Love Is A Strange Affair (5:50)
-04. Medley - I'm Ready & Disco Star (6:53)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:31:54
+01. Womanly Way (6:49)
+02. Too Late... You Lied (5:52)
+03. Back To Liberty (3:36)
+04. Guys (4:29)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:28:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C164CAEC4C76762B4FEE8FAD8245B7F4F3B166F1
+magnet:?xt=urn:btih:2FD82BC90B914EBF74C0B86974006BC6C60B0A4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,25 +556,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467088   (1018096) от 02.05.2021
+###  Публикация: 1464112   (1019997) от 21.04.2021
 
-Своя игра (02.05.2021) WEBRip [H.264/1080p-LQ]
+Ирис Ленская | Наследство Мираль (2021) [MP3]
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: РусскиеПродолжительность: 00:40:57
+Разве я могла предположить, что встречу настоящую любовь совсем в другом мире? Неожиданное наследство открыло мне туда дорогу. С говорящим попугаем-выскочкой на одном плече и скрипкой на другом я оказалась в плену могущественного мага, который объявил меня своей наложницей. Вокруг плетутся интриги, оживают древние легенды, а моя сила только просыпается… вместе с (   Читать дальше...   )Жанр: Книги про волшебников, Любовное фэнтези, ПопаданцыПродолжительность: 08:48:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25F99A3A3B01006B511470818DD300B6FD66EC06
+magnet:?xt=urn:btih:D49E3DF5AC4CCE27EE2DE10863E6979D17609A75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,25 +582,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467027   (1018095) от 02.05.2021
+###  Публикация: 1464176   (1019996) от 21.04.2021
 
-Серия Индикар. Сезон 2021. Этап 3. Техас 1 / NTT Indycar Series 2021. Round 3. Genesys 300 (02.05.2021)  WEB-DL [H.264/720p-LQ]
+Завтра, третьего апреля (1969) DVDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019996.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-ое апреля — всем известный день розыгрышей и вранья. И вот ученики одной из ленинградских школ решили устроить «День правды» — и уточнили дату — 2-е апреля. А что у них из этого вышло…Производство: СССРЖанр: ДрамаРежиссер: Игорь МасленниковАктеры: Аксель Энекен, Людмила Волынская, Виктор Ильичев, Павел Луспекаев, Александр Демьяненко, Вячеслав Горошенков, Алексей Кожевников, Лариса Малеванная, Евгений Малянцев, Владимир ПирожковПродолжительность: 01:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1589688735A18481693500A77C2E74741D58C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464085   (1019995) от 21.04.2021
+
+Firefox Developer Edition for Mac 89.0 Beta [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Developer Edition — первый браузер для веб-разработчиков. Mozilla представила редакцию браузера Firefox, выпущенную специально для веб-разработчиков. Новая редакция браузера заменяет тестовую редакцию браузера — Firefox Aurora. Внешне браузер отличается темной темой оформления, построенной в стиле Firefox Developer Tools.Тип издания: macOS SoftwareРелиз состоялся: 20.04.2021Разработчик: MozillaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53CD30476CD08BCBF6A95DEED385565D37236E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464086   (1019994) от 21.04.2021
+
+Серия Кубков NASCAR 2021. Этап 9. Тайота Овнерс. Гонка / NASCAR Cup Series 2021. Toyota Owners 400 (2021)  WEB-DL [H.264/720p-LQ]
 
 >>Спорт и активный отдых
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия Индикар — главная серия гонок на машинах с открытыми колёсами в Северной Америке. Чемпионат был создан под именем Indy Racing League владельцем Индианаполис Мотор Спидвей Тони Джорджем, как более дешёвая и полностью американская альтернатива серии CART. Чемпионат проводится с 1996 года.Жанр: СпортПродолжительность: 02:26:06
+Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Жанр: СпортПродолжительность: 02:33:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDF53425C58949064C0D48F1E22EE3654AB4CAF4
+magnet:?xt=urn:btih:499864017CD8E7BB9AD42F075B37738296532983
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,222 +660,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467056   (1018094) от 02.05.2021
+###  Публикация: 1463690   (1019993) от 21.04.2021
 
-New Canyons - Heavy Water (2021) [FLAC|Lossless|WEB-DL|tracks] <shoegaze, synthpop, synthwave>
+SIMAGA - Ренессанс (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вечно молодой
+02. Выбирай сам
+03. Следом за мечтой
+04. Всё на оборот (feat Nik'Mac)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02192F7FCEA3A41D121B65EB565E00BE57DDE361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464257   (1019992) от 21.04.2021
+
+Electric Dark Souls - Planet 0712 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Electropop>
 
 >>Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dark Times [00:00:46]
-02. Post Nothing [00:04:03]
-03. Blackest [00:03:11]
-04. No Shame [00:03:58](   Читать дальше...   )Жанр: shoegaze, synthpop, synthwaveПродолжительность: 00:43:53
+01. Waiting Line (5:53)
+02. SOS from Planet 0712 (5:34)
+03. Zero Gravity (Pt.1) (0:59)
+04. Space Rangers (4:48)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectropopПродолжительность: 00:46:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:409C4E292E83D6069C2D43B84B926E23F8B17BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467112   (1018093) от 02.05.2021
-
-VA - Verve JazzClub: I Love Jazz (2008) Box Set, 3 CD [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018093.jpg" />
-</div>
-
-
-###  Подробнее
-
-На известном трекере данный бокссет уже почти 11 лет находится в розыске в разделе Verve Jazzclub, а мы представляем одноклубникам его первыми в российском сегменте музыкальных клубов. Конечно, он заслуживает большого интереса не только для тех, кто уже полюбил джаз, но и для всех любителей хорошей и спокойной музыки. Может быть и новых имен в нем не так уж много, (   Читать дальше...   )CD1:
-01. Louis Armstrong - I Love Jazz  (2:24)
-02. Ella Fitzgerald - 'Deed I Do  (2:43)
-03. Antônio Carlos Jobim - Agua De Beber  (2:50)(   Читать дальше...   )Жанр: Jazz, CoolПродолжительность: 03:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B37935DC6BFBB5CA6210318A711201AC4BE534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467021   (1018092) от 02.05.2021
-
-Сто к одному (02.05.2021) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C08DCEB836B36E6CF27E2C35AFC9E03FEB8C443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466921   (1018091) от 02.05.2021
-
-Threestyle - Perfect Combination (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steppin´up (4:07)
-02. Keep It Simple (4:23)
-03. Giant (4:38)
-04. Lovin on Next to Nothin (4:10)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB1C88870E4162AE803210D85715B997D329899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466863   (1018090) от 02.05.2021
-
-VA - Deep House: Luxe Mood Electro Sound (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятно мелодичная музыка в сочетании с элементами красивого вокала заставит погрузиться Вас в состояние эйфории, отбросив все условности окружающей реальности. Новые треки апрельского выпуска сборника "Deep House: Luxe Mood Electro Sound" уже ждут Вас и готовы пополнить Вашу музыкальную коллекцию!001. Metro DJ - New Age Funk
-002. Laurence Guy - Love Theme
-003. Dwayne Pinnock - Obsession
-004. Thulane Da Producer - Deep Incarnate(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C90129892EFD740306F2B2898C6E94F74D2885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466989   (1018089) от 02.05.2021
-
-Первая передача на НТВ. Автомобильная передача (02.05.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожар тушат — осколки летят на припаркованные машины. Кто и как возмещает сопутствующий ущерб, причиненный пожарными? Новые уловки автомошенников: как они вымогают деньги у водителей? Пересечение железнодорожных переездов: что поменялось в правилах с 1 мая? Правда ли, что оригинал ПТС в руках продавца автомобиля не гарантирует, что машина не находится в залоге? Как (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D68EF30C65B33CB66F25A28EB151762B6FCAB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466865   (1018088) от 02.05.2021
-
-Paul Stanley - 3 Albums, 4CD (1978-2021) [FLAC|Lossless|image + .cue] <Hard Rock, Rock, Funk, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пол Стэнли – известный на весь мир рок-гитарист, вокалист и один из основателей группы Kiss. Он вошел в историю рока как Пол «The Starchild» («Звёздное дитя»). Любимчик миллионов покорил сердца слушателей своим талантом к созданию настоящих рок-шедевров. Пол Стэнли был включен в Музыкальный зал славы в Лонг-Айленде в 2006 году, получил звание шоумена года присужденной (   Читать дальше...   )--------------------------
-
-01. Could It Be I’m Falling in Love (4:02)
-02. I Do (3:12)(   Читать дальше...   )Жанр: Hard Rock, Rock, Funk, Soul |Продолжительность: 02:33:21 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24320F638D7FCDEF24502ABB0B5528C458D16E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467060   (1018087) от 02.05.2021
-
-Radiant (2019) | Радиан [ТВ-2] [2019, TV, 21 из 21] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сет — начинающий волшебник с Холмов Помпо. Как и другие волшебники, он выжил после контакта с Немезидами и теперь является заражённым. Немезиды — это падающие с небес существа, разрушающие всё на своём пути, которых нельзя одолеть обычным оружием, и даже простое прикосновение к ним смертельно в 99,99% случаев. Обладающий иммунитетом в результате заражения Сет мечтает (   Читать дальше...   )Производство: LercheЖанр: Приключения, фэнтези, cёнэнРежиссер: Киси СэйдзиСубтитры: Русские, АнглийскиеПродолжительность: 21 серия по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3EB832FED093839EC8D02680DE1FA6DE59B3D1
+magnet:?xt=urn:btih:05B84BE2214B910A64B2C9DC46BBEDBBAE91F2C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

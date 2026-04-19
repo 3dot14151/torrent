@@ -1,3 +1,32 @@
+###  Публикация: 1639841   (196956) от 15.06.2023
+
+Windows 7 (6in1) x86-x64 by Updated Edition (14.06.2023) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 7
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка создана на базе оригинальных образов от MSDN:ru_windows_7_professional_with_sp1_vl_build_x86_dvd_u_677853.iso
+ru_windows_7_enterprise_with_sp1_x86_dvd_u_677692.iso
+ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso
+ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774.iso(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1C51C0D3CB18A25BF37EF755A43784E55B2B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644554   (196070) от 05.07.2023
 
 Windows 7 SP1 5in1 (x64) Elgujakviso Edition (v.05.07.23) [Ru]

@@ -1,3 +1,29 @@
+###  Публикация: 1242287   (516247) от 21.08.2018
+
+Обои - Wallpapers Full HD / Кошачьи #8 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05A760C85C49BD024CAF77CB7F77A66B858D0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242279   (516240) от 21.08.2018
 
 Обои - Wallpapers Full HD / Кошачьи #6 [JPG]
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68889D04AEADD7B76BCE66264B16D5E303472658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930854   (513963) от 24.08.2015
-
-Обои - Настроения 2 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему настроенияФормат: JPGРазрешение файлов: 1024x768 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4AC48F706E0DEBCAD7BECF10F27EEDC4671EE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

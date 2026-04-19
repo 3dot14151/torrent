@@ -1,3 +1,29 @@
+###  Публикация: 1270899   (154221) от 21.12.2018
+
+Обои - Desktop Wallpapers Full HD. Part (354) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C985DF0EA32994D3FB3923FE1D1681D8C387B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270894   (154209) от 21.12.2018
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (202) [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34AF617CBF21A0DC4DA03FE380FDC243199C5EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347258   (153796) от 22.12.2019
-
-Картинки - NNM-Club - Календарь 2020 (РФ) №27 от РОЗА123 - 1347258 [PNG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календарь на 2020 год.Формат: PNGРазрешение файлов: 1920x1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C97208EB21F85EE4540E29F460BE91AA46BA676
 ```
 
 https://mybot314.ru/tekegram_catalog/

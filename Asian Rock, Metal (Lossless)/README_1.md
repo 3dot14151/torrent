@@ -1,3 +1,32 @@
+###  Публикация: 1548913   (596271) от 04.05.2022
+
+Nocturnal Bloodlust - Argos (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596271.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Devastated World
+2. Red Soil
+3. Straight to the sky (feat. Luiza)
+4. Life is Once(   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85E29CB8A917A63EB5D610857C12B046F8A12A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553385   (581885) от 26.05.2022
 
 Tears Of Tragedy - & (Acoustic) (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic Power Metal>
@@ -737,32 +766,6 @@ ZONE - 4 albums (2002-2006) Discography [FLAC|Lossless]<J rock,girl.band>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579478   (336413) от 27.09.2022
-
-The Art of Mankind - Archetype (2018) 2CD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Melodic Death MetalПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A46EC58244140806D3F8857A1C2269DD31342E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

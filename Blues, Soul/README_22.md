@@ -1,3 +1,38 @@
+###  Публикация: 532323   (538674) от 07.08.2012
+
+VA - Bar Room Blues: A 12-Track Program (2004) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538674.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tommy Castro - Rip This Joint (3:28)
+2. Tab Benoit - I Got Loaded (4:26)
+3. Charlie Musselwhite - Cold Grey Light Of Dawn (2:56)
+4. Kenny Neal - Whiskey Tears (5:23)
+5. Doug Wainoris - If The Sea Was Whiskey (4:21)
+6. Troy Turner - Later Than You Think (2:33)
+7. Junior Wells - Last Hand Of The Night (3:27)
+8. Sam Lay - Pure Grain Alcohol (2:41)
+9. Bob Margolin - My New Baby Owns A Whiskey Store (3:36)
+10. Tinsley Ellis - Feelin' No Pain (8:03)(   Читать дальше...   )Жанр: Blues
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B973304B3B412D2ED0C62C4C876F9DB54979F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532343   (538554) от 07.08.2012
 
 Divin' Ducks - 5 albums (1992 - 1998) [MP3|224-320 кб/с]<Hard Blues Rock>
@@ -726,35 +761,6 @@ Jimmy Lloyd Rea & The Switchmasters - Cruzin` For A Bloozin` (2007) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2E7AA662159DDD95AAA1B8611CB173E2DFBC391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242801   (513059) от 24.08.2018
-
-Erin Harpe & The Delta Swingers - Big Road (2017) [MP3|320 Kbps] <Electric Blues, Jump Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kokomo (05:35)
-02. Lonely Leavin' Town (05:55)
-03. Big Road (04:13)
-04. Frankie (03:42)(   Читать дальше...   )Жанр: Electric Blues, Jump BluesПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1DDC947BFE3FC61290B00A49CCCBBE2030863B
 ```
 
 https://mybot314.ru/tekegram_catalog/

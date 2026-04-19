@@ -1,3 +1,90 @@
+###  Публикация: 1048106   (547093) от 01.09.2016
+
+25/17 п.у. ГРОТ - Солнцу навстречу (2016) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Солнцу навстречу (25/17)
+02 - Ранен (25/17)
+03 - Солнцу навстречу (25/17 п.у. ГРОТ)
+04 - Строго белые (25/17 п.у. ГРОТ, Саграда, МС 1.8)(   Читать дальше...   )Жанр: RapПродолжительность: 00:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE00C95F8E2CEC24FDDAC984345F2285C43CFC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310682   (545926) от 25.06.2019
+
+Miyagi - Buster Keaton (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:30)
+02. Captain (3:34)
+03. Мы не одни (2:22)
+04. Angel (3:35)(   Читать дальше...   )Производство: Hajime recordsЖанр: Rap, Hip-HopПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AF097DB1CC0334641B79C889821B579EF3340D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238793   (544651) от 01.08.2018
+
+Rickey F - FLASHFORWARD (2018) EP [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flashforward_Intro (Starfounder & XWinner prod.)
+02. Ветер (XWinner prod.)
+03. Fuck Cash (XWinner prod.)
+04. Молчи со мной (XWinner prod.)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F28629E50644495D2474CA765DBC1FBBD642F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 817895   (544030) от 01.09.2014
 
 Рем Дигга - Людоед (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
@@ -664,93 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC74AE622369461091615D33D7CF19D975F996AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405224   (484895) от 29.08.2020
-
-Toni Braxton - Spell My Name (2020) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance (03:52)
-02. Do It (03:25)
-03. Gotta Move On (04:18)
-04. Fallin' (02:57)(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9138D62192D2A4CB1855F5A6ABB950EC50F193C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244274   (483877) от 31.08.2018
-
-Beastie Boys - Licensed to Ill (1986) 1999, Def Jam Recordings [FLAC|Lossless|tracks + .cue] <Hip Hop, Boom Bap, Punk>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhymin & Stealin (4:08)
- 02. The New Style (4:36)
- 03. She's Crafty (3:35)
- 04. Posse In Effect (2:26)(   Читать дальше...   )Жанр: Hip Hop, Boom Bap, PunkПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8078EDA39A4B12FEC0E5B0FDE78FA79A91429187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244228   (483755) от 31.08.2018
-
-Eminem - Kamikaze (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ringer (05:37)
-02. Greatest (03:46)
-03. Lucky You (Feat. Joyner Lucas) (04:04)
-04. Paul (Skit) (With Paul Rosenberg) (00:35)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C11C202A30A054949A88FF60BC8E1649A23719
 ```
 
 https://mybot314.ru/tekegram_catalog/

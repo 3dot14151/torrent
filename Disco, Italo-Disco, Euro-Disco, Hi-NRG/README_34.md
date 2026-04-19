@@ -1,3 +1,61 @@
+###  Публикация: 954666   (339594) от 08.11.2015
+
+Gazebo - Reset (2015) [MP3|~245 кб/с (V0)]<Italo Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evil [03:33]
+02. Reverie [05:37]
+03. M Like huMan [04:29]
+04. Blindness [04:09](   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B60BA42DD80A031A27FF2BE2A5C5B00F2B1924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954677   (339466) от 08.11.2015
+
+Secret Service - Disco Collection (2001) [MP3|320 кб/с]<Synthpop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Susie (03:37)
+02. Cry Softly (Time Is Mourning) (03:31)
+03. Ten O'Clock Postman (03:38)
+04. Let Us Dance Just A Little Bit More (04:25)(   Читать дальше...   )Жанр: Synthpop, DiscoПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2658F0F0542E8C03AC950AEC9B2F533AFF14A836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954779   (339246) от 08.11.2015
 
 Boney M - Greatest Hits (2008) [MP3|320 кб/с]<Pop, Disco, Retro>
@@ -692,64 +750,6 @@ VA - Italian Style Everlasting Italo Dance Compilation Vol.8 (2017) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCA713D4D93F309D5FEE4E4CEA8F9E764583C5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332184   (316666) от 19.10.2019
-
-Blue Sunbeam - Sweetest Girls (1988) [MP3|320 Kbps] <Electronic, Italo-Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Dreams (4:01)
-02. Sweetest Girl (4:27)
-03. Say It (3:45)
-04. I Just Want To Say (3:55)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Hi NRGПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964E8D8F72B8DCF2D173FF8616AF0280925D6E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076040   (315987) от 24.11.2016
-
-Boris Zhivago - Memories (2016) [MP3|320 Kbps] <Euro Disco, Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories 5:29
-02. Love Is a Memory Away 7:56
-03. Russian Fantasy 5:25
-04. The Girl That Saved My Life 7:02(   Читать дальше...   )Жанр: Euro Disco, Italo DiscoПродолжительность: 01:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A4CDB70E7646ADFFD55CB9F00F51BB295BB47F
 ```
 
 https://mybot314.ru/tekegram_catalog/

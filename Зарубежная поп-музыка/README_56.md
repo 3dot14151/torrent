@@ -1,3 +1,67 @@
+###  Публикация: 1176345   (372174) от 21.10.2017
+
+Bat & Ryyd - Ehtaa Tavaraa (1989) Reissue CD, Snap Records, 2000 [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ehtaa Tavaraa (4:15)
+02. Stadissa (Osa 1) (4:37)
+03. Ryyd Rap (3:47)
+04. Stadissa (Osa 2) (2:14)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805B1E389D46C25FEDF57F27134B162274ECCAE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574979   (370897) от 14.11.2012
+
+Eros Ramazzotti - Noi (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noi
+ 02. Un Angelo Disteso Al Sole
+ 03. Questa Nostra Stagione
+ 04. Io Sono Te (feat. Giancarlo Giannini)
+ 05. Fino All'Estasi (feat. Nicole Scherzinger)
+ 06. Abbracciami
+ 07. Balla Solo La Tua Musica
+ 08. Infinitamente
+ 09. Polaroid
+ 10. Sotto Lo Stesso Cielo(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5EE60573323584F509A31D72846F3CA1E0B4AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576116   (370837) от 12.09.2022
 
 Svenne & Lotta - 6 Albums (1973-1983) Collection [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Schlager>
@@ -711,64 +775,6 @@ Kelly Clarkson - Meaning Of Life (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A729784BAE3A93D314690143B731D5FEB06BA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256444   (356791) от 21.10.2018
-
-Alexandra Stan - The Best (2018) [MP3|320 Kbps] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Saxobeat
-02. Get Back (ASAP)
-03. 1.000.000 (feat. Carlprit)
-04. Lemonade(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184775586E6ADCEC56CD3940E29801B61D3D0CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178718   (353012) от 29.10.2017
-
-Ирина Билык - 17 альбомов (1990-2017) [MP3|320 Kbps] <Рор>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирина Николаевна Билык  — украинская певица и композитор. Народная артистка Украины. Одна из самых талантливых и популярных певиц на современной украинской эстраде. Ирина Билык работая над новыми песнями, выступая с гастролями, также часто появляется в качестве приглашенной звезды или специально приглашенного эксперта на различных шоу-проектах. В разные годы артиста (   Читать дальше...   )1990 - Кувала зозуля (переиздание 2008г.)
-1994 - Я розкажу (переиздание 2008г.)
-1995 - Нова (переиздание 2008г.)
-1996 - Так просто (переиздание 2008г.)Жанр: РорПродолжительность: 16:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09E8AC99EEF3F7917D75A5A3DBED6D877A40E47
 ```
 
 https://mybot314.ru/tekegram_catalog/

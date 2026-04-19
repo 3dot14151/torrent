@@ -1,3 +1,61 @@
+###  Публикация: 1224400   (666063) от 10.05.2018
+
+VA - Elite Session Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Inc - Strong (Original Mix)
+02. Etasonic - When You're Gone (Intro Mix)
+03. Frainbreeze feat. Vika - Better Day
+04. Anton Greco - Endless Love (Kiyoi & Eky Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 09:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C824AEA7FFE927C3613441E2A4B8B02527A82727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137887   (665713) от 28.05.2017
+
+VA - Velociraptor: Tech House Party (2017) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665713.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Miki Stentella - Born 3:10
+002. Robbie Rivera - Grand Piano 3:19
+003. Chris Sammarco - Can U Hear Me 3:32
+004. Erika Lopez - Let's Party 4:31(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDB522CB410F3112C653ECB246ED5C01F6086AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137932   (665661) от 28.05.2017
 
 VA - Parametric Algorithm: Psy Trance Edition (2017) [MP3|206-320 Kbps] <Psychedelic Trance>
@@ -78,6 +136,35 @@ VA - Sensual Piano Chill Out Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40FC3A0D41140231B1E562A03D9FFC88E2E6DF65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901109   (665475) от 24.05.2015
+
+VA - Vocal Drum & Bass Vol.1 [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Zhu - Faded (Delta Heavy Bootleg) [04:06]
+02.Flame - Believer [05:18]
+03.Bcee Ft. Philippa Hanna - Back To The Street [04:55]
+04.Avizura - Alien Girl [05:03](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7978D8EFFA55F108D076E09B8E6E5D72DC9D172
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,93 +751,6 @@ VA - Sexy Trance #86 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EE0E9D0EEBE2FE407C20DA2D861EBECF47AD1A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539371   (658207) от 25.03.2022
-
-VA - Urban Glow: March Techno Set (2022) [MP3|320 Kbps] <Techno, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необычные идеи техно музыки и авторские инновации воплотились в реальный продукт под названием "Urban Glow", который мы предлагаем вам сегодня. Этот сборник соответствует всем современным критериям хорошей музыки в стиле Melodic Techno. Убедитесь в этом и вы!001. Egotot - Shaku
-002. Michele Mausi - Aletheia
-003. Hackster - Groove T1
-004. Hybrasil - Stellar Variation(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A1C1F9DCB885BC5337D23E51A474C9D065DA59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539373   (658201) от 25.03.2022
-
-VA - Urban Glow: March Trance Set (2022) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вашему вниманию отличный сборник транс прогрессива, который собран исключительно из самых последних новинок этого жанра. Треклист состоит из 100 композиций, среди которых обязательно найдутся близкие Вам по душе!001. Madwave - Departure
-002. Freeman - Explorations
-003. Pakka vs. Denise Rivera - Dream World
-004. Speed DJ - Elisir(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 10:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C61A760A454194D5150D6B93EC756D00A45B2D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902767   (658081) от 31.05.2015
-
-VA - Black (2015) [MP3|320 кб/с]<Techno, Electro, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658081.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tom Nihil - 5MeO (6:38)
-2. KATA - Hole Mole (5:22)
-3. SKuRR - Sledgehammer (6:17)
-4. PSyD - Step In To The Darkness (3:13)(   Читать дальше...   )Жанр: Techno, Electro, DubstepПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F289DED8B6F4E456D5DD96E96E1342103535E40
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1069309   (375675) от 03.11.2016
+
+Luv' - 7 Albums (1978-1993) [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голландская группа "Luv'" была создана в 1977 году на волне успеха таких диско-коллективов как "Pussycat", "ABBA" и "Baccara". В составе этого трио были очаровательные девушки.  "Luv'" ушли со сцены, имея в своём активе более 10-ти хитов, попавших в TOP30. Для многих европейцев они стали символом десятилетия: это был (   Читать дальше...   )Список альбомов:
+1978 - With Luv'
+1979 - Lots of Luv'
+1979 - True Luv'(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 04:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3382254F471690130613375758AB1FC3B89425C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575650   (375391) от 10.09.2022
+
+Van Hinton - Remember Me (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On Down And Rock Me (7:03)
+02. Stay With Me (4:29)
+03. Search Find (5:25)
+04. We're Gonna Work It Out (4:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1174CEA26E0BA88591C229518A8D4FF1FAEB55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575623   (375382) от 10.09.2022
 
 Sophie - My World (1989) [OGG Vorbis|485 Kbps] <Electronic, Italo-Disco, Eurobeat>
@@ -687,64 +745,6 @@ The Hues Corporation - Your Place Or Mine (1978) LP [MP3|320 Kbps] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88C4B8AAA573D457E71FE4616165291C0480DE25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329347   (354589) от 04.10.2019
-
-Easy Going - Fear (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Strip You (8:25)
-02. Fear (7:55)
-03. To Simonetti (10:06)
-04. Put Me In The Deal (7:56)Жанр: Electronic, DiscoПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E535DC6A6563246428E74DF578EE6B2BF5F9A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329379   (354588) от 04.10.2019
-
-Stratavarious - Stratavarious (1976) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes It Is (4:21)
-02. Let Me Be Your Lady Tonight (9:32)
-03. I Got Your Love (8:10)
-04. Nightfall (8:29)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEAA4A79D0AACC5E9AE8A341DA6283D2A032C62
 ```
 
 https://mybot314.ru/tekegram_catalog/

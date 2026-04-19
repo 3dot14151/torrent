@@ -1,3 +1,61 @@
+###  Публикация: 1558182   (533654) от 19.06.2022
+
+Midnight Magic - Do It 'N Dance (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runnin' Machine (4:35)
+02. Freakin' Out (Freak No. 1) (5:32)
+03. Do It 'N Dance (3:53)
+04. Just For You (4:35)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C122E54B32365081D76B05BEBF0185463F91536F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239928   (533352) от 08.08.2018
+
+VA - The Sound Of Indie Dance Vol.12 (2018) [MP3|320 Kbps] <Indie Dance, NuDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St Jean - Chicago (Yamilet Vivas Remix) 4:31
+02. KS French - She's Dance (Original Mix) 7:30
+03. Otheo - Technotheo (Tronik Youth Remix) 5:16
+04. Mark Lower feat. Yota - Jump Into This Fire (Original Mix) 5:48(   Читать дальше...   )Жанр: Indie Dance, NuDiscoПродолжительность: 02:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04061488EAC22BF3EEBE5A405D5D762F15F6D2C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240010   (533245) от 08.08.2018
 
 B.B. And Band - Wee Thee People (1982) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -690,65 +748,6 @@ Bad Boys Blue - 25-The Long Mixes (2022) [MP3|320 Kbps] <Disco, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49108438C0B73AAA2A6D3C47862090D9218D7FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054189   (494209) от 19.09.2016
-
-Boris Midney - 11 Albums (1978-1999) Reissue CD (2012-2014) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boris Midney - Борис Мидный - американский диско-продюсер, композитор, маэстро, аранжировщик, дирижер и мульти-инструменталист родом из России. Является одним из главных архитекторов звука Eurodisco. Одним из первых стал использовать весь потенциал 48-дорожечной записи.
-Изначально классически обученный композитор, обратившись к диско, он обнаружил свое истинное призвание. (   Читать дальше...   )Список альбомов:
-1978 - Beautiful Bend - Make That Feeling Come Again!
-1978 - USA-European connection - Come Into My Heart
-1979 - Caress - Caress(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 07:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272283DBCD7C9D9FCDD57C9A01BF19801BDD1AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243229   (494126) от 26.08.2018
-
-Peter Wilson - The Passion and The Flame (2018) 2CD [MP3|320 Kbps] <Italo-Disco, Synth-pop, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Careless Nights (3:55)
-02. Diamond Eyes (4:34)
-03. Angel Of Love (3:52)
-04. Take Me Over (3:24)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, EuropopПродолжительность: 02:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DF9773F8F1DE1279026D1B9B8FE711F141B93D
 ```
 
 https://mybot314.ru/tekegram_catalog/

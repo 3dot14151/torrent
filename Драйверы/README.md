@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1861300   (1062575) от 
+###  Публикация: 1861300   (1062575) от 25.03.2026
 
 NVIDIA GeForce Desktop Game Ready 595.97 WHQL + DCH [Multi/Ru]
 

@@ -1,3 +1,61 @@
+###  Публикация: 1372326   (242111) от 03.04.2020
+
+Corine - Un air de fete (2018) [MP3|320 Kbps] <Dance-Pop, Disco, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop ou encore
+02. Un air de fete
+03. Maquillage
+04. Rene, Maurice et tous les autres(   Читать дальше...   )Жанр: Dance-Pop, Disco, ChansonПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34ED9D800BC0AC5B60AEB47E7E380F56FF46897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372268   (242082) от 03.04.2020
+
+Poom - 2016 (2016) [MP3|320 Kbps] <Synthpop, Dance-Pop, Post Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Licorne & Me
+02. De la vitesse a l'ivresse
+03. Les Voiles
+04. Bye Bye(   Читать дальше...   )Жанр: Synthpop, Dance-Pop, Post DiscoПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C35C7F14DA76748ED047B592F36D092F0EF14F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372161   (242050) от 03.04.2020
 
 VA - Female Pop Hits (2020) [MP3|320 Kbps] <Pop>
@@ -686,64 +744,6 @@ VA - Acoustic Delight (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C0B406E2DEC028211E197DEDEF978BCF53E032B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636929   (238795) от 01.06.2023
-
-VA - Certified Love Songs (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Die For You
-02. Baby Bash, Frankie J - Suga Suga
-03. Nelly, Kelly Rowland - Dilemma
-04. Tory Lanez - Say It(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 02:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947C64A7DFD08653E1521D6BB7B1F22EF0BC622A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636921   (238770) от 01.06.2023
-
-VA - Chill Vibes 2023 (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metro Boomin - Creepin'
-02. Post Malone - Chemical
-03. Rema - Calm Down
-04. Karol G - TQG(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 04:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829EBDE29BBD2BE37C861CA05DD582B7F73FCB75
 ```
 
 https://mybot314.ru/tekegram_catalog/

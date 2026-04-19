@@ -1,3 +1,203 @@
+###  Публикация: 1246006   (467658) от 08.09.2018
+
+VA - The Best Of Mystera (2001) 2CD [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Era - Ameno
+02. Enigma - Sadness Part 1
+03. Highland - Veni, Vedi, Vici
+04. Vangelis - Conquest Of Paradise(   Читать дальше...   )Жанр: NewAgeПродолжительность: 02:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6AB81156D9A1986A2DCD27BDBF84FD67381E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161253   (467372) от 28.08.2017
+
+VA - Magic Is The Moonlight/ South Sea Island Favorites (2000) [MP3|320 Kbps] <Instrumental, Vocal, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467372.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Francis Goya & His Golden Guitar - Magic Is the Moonlight (2:50)
+2. The Islanders - Hawaiian Wedding Song (2:52)
+3. Louie King & His South Sea Islanders - My Isle of Golden Dreams (2:51)
+4. Kalua Beach Boys; Lotus Blossoms, Vocal - Down Among the Sheltering Palms (2:49)(   Читать дальше...   )Жанр: Instrumental, Vocal, Easy ListeningПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DEA1F3135F9463A66AD40AC6285574FED2ECD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548433   (466764) от 18.09.2012
+
+ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная аудиопрограмма>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Психоактивная аудиопрограммаПродолжительность: 00:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC1BEC724F23CE3EF9E6F5239FE3D87D6B7B908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940731   (466746) от 25.09.2015
+
+The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC|Lossless]<Instrumental, Easy listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+02. Tonight I Celebrate My Love
+03. Body Talk
+04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417C6CCC4DE995D3C92BA9AAF04AB03361C860EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407419   (466398) от 07.09.2020
+
+The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Your Arms Again
+02. Lies
+03. Born To Be Blue
+04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43D449F042CE44C44752F8602AE03C55BE953A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407299   (466396) от 07.09.2020
+
+The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Sitiera
+02. Recuerdos
+03. No Vale la Pena
+04. Poder Vivir(   Читать дальше...   )Жанр: Latin, Country, TejanoПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC35407B8D019938034182567EEFB738C983FD76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407418   (466395) от 07.09.2020
+
+The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Your Arms Again
+02. Lies
+03. Born To Be Blue
+04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A099F83FA7C38A13098746D355E7C53964240B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161473   (465644) от 29.08.2017
 
 Ottmar Liebert - Slow (2016) [MP3|320 Kbps] <New Age>
@@ -540,209 +740,6 @@ Traces - The Rivers Of Belief (2002) [APE|Lossless|image + .cue] <New Age, Enigm
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20D5502C23D95C6A2242D951901BFF27B130B8A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059376   (461823) от 04.10.2016
-
-Oliver Scheffner - Oasis of Dreams (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oasis of Dreams [00:06:06]
-02. Desert Winds [00:02:46]
-03. Epic World [00:06:23]
-04. Sand Temple [00:04:54](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C87C985ECF857C1B410305BD6AA372A2C9934E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246682   (461479) от 11.09.2018
-
-Michael Whalen - Kiss the Quiet (2018) [MP3|320 Kbps] <New Age, Piano, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss the Quiet
-02. Heart so Filled with Joy
-03. Full Moon Dance
-04. Almost Touching Heaven(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B451CB3B100A5947FA4A5665E4A46336A377B628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941759   (460057) от 28.09.2015
-
-Dario Marianelli - Everest (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Call
-02. Setting Off From Kathmandu
-03. First Trek: Base Camp
-04. Arriving At The Temple (feat. The Monks Of Tharig Monastery)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0529A82C2E2BC88C5060A436FAF6291655999752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568718   (459623) от 09.08.2022
-
-The Studio London Orchestra & Singers - Memory - 20 Love Themes (1985) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
-02. Tonight I Celebrate My Love
-03. Body Talk
-04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29F21CBC21CCFF5153BC32737E8FEDB7CD97DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246839   (459168) от 12.09.2018
-
-Evgeny Grinko - Evgeny Grinko (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Valse
-02 Serenade
-03 Faulkner's Sleep (D-Moll)
-04 Field(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D559BFFAB296EFE38205C72FEE8D161D5ED7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162340   (458912) от 01.09.2017
-
-Тюргэн Кам - Ahoi (2011) [MP3|320 Kbps] <Rock, Folk, Modern Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Легенда
-02. Энесай (Ahoi)
-03. Самагалдай
-04. Моя тайга(   Читать дальше...   )Жанр: Rock, Folk, Modern EthnicПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75BC3E69794625E5324AEB03F72679FF86303B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408279   (458008) от 11.09.2020
-
-Christopher Phillips - Piano Chill: Songs of the Eagles (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best of My Love (4:12)
- 02. Peaceful Easy Feeling (4:08)
- 03. Hotel California (4:29)
- 04. Take It to the Limit (3:33)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905EEABC3110A3A5E51347826F11B0E144EEB1F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

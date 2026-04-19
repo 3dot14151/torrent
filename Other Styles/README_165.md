@@ -1,3 +1,235 @@
+###  Публикация: 1696488   (119484) от 03.02.2024
+
+Владимир Девятов - Матушка Россия (2024) [MP3|320 Kbps] <Folk, Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Развяжите мои крылья (Духовный стих) [00:03:12]
+02 - Матушка Россия [00:04:07]
+03 - Калинка [00:03:12]
+04 - Курень [00:03:22](   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42CD29EC06A1C9EDCF18DCAF12B1442E8279AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696377   (119360) от 04.02.2024
+
+Paul Mauriat - Love Sounds Journey (1988) [OGG Vorbis|480 Kbps] <Jazz, Pop, Classical, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  36 North 140 East
+02.  Poupee De Soie
+03.  Oh La La Osaka
+04.  La Baie Des Lumieres(   Читать дальше...   )Жанр: Jazz, Pop, Classical, Easy ListeningПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB51F5CE3B954AA8D3A70429B85527204F9A1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696170   (119359) от 04.02.2024
+
+Paul Mauriat - Nagekidori (1987) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Bird of Wounds (Nagekidori)
+02.  Didn't We Almost Have it All
+03.  Camp Fire
+04.  Back to Pyramids(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0AE3654E221A3D9F89B99D4BA0DDED44F84EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696696   (119358) от 04.02.2024
+
+Paul Mauriat - Iberia (1990) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Amor De Mis Amores
+02.  Iberia, Siempre Iberia
+03.  Andalucia
+04.  Jeux Interdits(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBC83D142CCA272720F92DCBF928D5E4465F5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696361   (119356) от 04.02.2024
+
+Paul Mauriat - Souvenirs D'Ete (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Classical, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  L.Amour Est Blue
+02.  Une Belle Histoire
+03.  Perle Fisher
+04.  Love Story(   Читать дальше...   )Жанр: Jazz, Pop, Classical, Easy ListeningПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200B824FB246B3EC264EB8D6738A40BFF88F8AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696719   (119346) от 04.02.2024
+
+Paul Mauriat - Bossa Nova Wave (1991) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Amigo
+02.  Viagem
+03.  Vazio (Esta faltando uma ciisa em mim)
+04.  Somos todos iguais esta noite (E O Circo de Novo)(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A4D164FA785D90D8A9FF22491A23C94211EF83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698824   (118327) от 10.02.2024
+
+Sex Music Zone - Night Sexual Trap: Erotic Chill Trap Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillout Shots (3:50)
+02. Mystical Space (3:56)
+03. Sensual Vibes (3:15)
+04. Totally Relax (3:15)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A642C5D01B535C66D735BAECCE3CF4317821BE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697689   (118275) от 10.02.2024
+
+VA - Sensual Piano Jazz: Restaurant Week 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tamara Erotique - Sexy Music Lounge (Go to the Club) (3:08)
+02. Jazz Erotic Lounge Collective - Sensual Massage (Erotic Games) (5:31)
+03. Sexting Jazz Music - Erotic Lounge (4:32)
+04. Tamara Erotique - French Kiss (Paradise) (3:51)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F80CBDB5B5A8B4BCE58736FDF237D23F6B6D131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698404   (117976) от 12.02.2024
 
 VA - B-Tribe - Inner Meditation Journey (2024) [MP3|320 Kbps] <Native American, New Age, Electro>
@@ -513,237 +745,6 @@ Johnny Whitehorse - Riders of the Healing Road (2009) [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24918B763C369A44FB5D03D5C4F93CAFCD4B776F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706950   (113192) от 19.03.2024
-
-Лёдъ - Ни чужих, ни своих (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дорогой мёртвых… [00:02:24]
-02. Скёль [00:03:34]
-03. В чащу не ходи [00:03:17]
-04. Проклятье сов [00:04:18](   Читать дальше...   )Жанр: Dark Folk, NeofolkПродолжительность: 00:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1C8D8C29B8D4B28C49AFC9A35F0392165F7809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708552   (112986) от 22.03.2024
-
-Хельга Алирин - Ведьмин лес (2024) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ведьмин леc [00:04:24]
-02. Песнь русалки [00:03:34]
-03. Песнь Сирин [00:03:12]
-04. Ведьма и толпы [00:02:59](   Читать дальше...   )Жанр: Neo Folk RockПродолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC9132FDCBB54C20492ADED48C7FC179BC7A1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710388   (112682) от 27.03.2024
-
-Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka (1980) [FLAC|Lossless|WEB-DL|tracks] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivanku (3:18)
-02. Dearest Mother Of Mine (5:23)
-03. Youth Does Not Return (2:49)
-04. The Young Eagles (2:15)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D5FAAD4D5AA61DEE6541E2C0703ABD25C025EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710392   (112653) от 27.03.2024
-
-Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka Two Colors (1989) [FLAC|Lossless|WEB-DL|tracks] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Are You Now? (3:40)
-02. Spring's Song (4:16)
-03. A Dance (2:39)
-04. The Cherry Orchard's Brook (3:08)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB24290BD0807F6498328BC31084C1C46C02F14E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711354   (112484) от 30.03.2024
-
-Spiritual Seasons - Metal Age (2017) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaman (Shaman's Mix)
-02. Foggy Dew
-03. Hungarian (live)
-04. I Riden Se...(   Читать дальше...   )Жанр: FolkПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B01FCCEE2DA9014ECDF428EF6B95AD6A5DE34F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711357   (112475) от 30.03.2024
-
-Spiritual Seasons - Villeman (2022) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hungarian (New Version)
-02. Tri Martolod (New Version feat. Viktoria Dubrovina)
-03. Branle Des Chevaux
-04. Tourdion (Song feat. Viktoria Dubrovina)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5CC89F6DA4C61CE5DA9006E5F58394A2E4989B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711355   (112473) от 30.03.2024
-
-Spiritual Seasons - Medieval Time (2019) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galician Capoeira
-02. Pipes Jig
-03. Ai Vis Lo Lop
-04. Branle d'Ecosse  - Douce Dame Jolie(   Читать дальше...   )Жанр: FolkПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B176D60114CF901E5781B7A995CE97A20AFD27F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713117   (111824) от 07.04.2024
-
-VA - Tibetan Incantations: The Meditative Sound of Buddhist Chants (1998) [FLAC|Lossless|tracks + .cue] <Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song Huei Liou & Ya Ging Ging - Om Mani Padme Hum
-02. Song Huei Liou & Ya Ging Ging - Mantra of Avalokiteshvara
-03. Sheng Horng - Om Mani Padme Hum (Alternate Version)Жанр: MantrasПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD6BA2636B70AB129504B454E268CD206E8B4D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

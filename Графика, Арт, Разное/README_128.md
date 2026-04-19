@@ -1,3 +1,29 @@
+###  Публикация: 497933   (253740) от 17.05.2012
+
+[Графика] Томаш Марек Жедрушек (Tomasz Marek Jedruszek) - фэнтези художник-иллюстратор (2012)
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томаш Марек Ендрушек (Tomasz Marek Jedruszek) - фэнтези художник-иллюстратор
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2313DAD259DE762A1116FE8A420351BAD8D66D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497993   (253668) от 17.05.2012
 
 [Wallpapers] Hi-Tech Wallpapers (17.05.2012)
@@ -691,32 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0DCBE20B5CCDC7A22F2A7F2D8B6F667628B8D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492186   (247953) от 05.05.2012
-
-[Wallpapers] Hi-Tech Wallpapers (04.05.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A29761D3E0DC3BEEF06C0E916AA36A911298E5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

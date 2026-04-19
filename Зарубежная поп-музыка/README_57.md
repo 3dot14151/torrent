@@ -1,3 +1,61 @@
+###  Публикация: 1256444   (356791) от 21.10.2018
+
+Alexandra Stan - The Best (2018) [MP3|320 Kbps] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Saxobeat
+02. Get Back (ASAP)
+03. 1.000.000 (feat. Carlprit)
+04. Lemonade(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184775586E6ADCEC56CD3940E29801B61D3D0CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178718   (353012) от 29.10.2017
+
+Ирина Билык - 17 альбомов (1990-2017) [MP3|320 Kbps] <Рор>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирина Николаевна Билык  — украинская певица и композитор. Народная артистка Украины. Одна из самых талантливых и популярных певиц на современной украинской эстраде. Ирина Билык работая над новыми песнями, выступая с гастролями, также часто появляется в качестве приглашенной звезды или специально приглашенного эксперта на различных шоу-проектах. В разные годы артиста (   Читать дальше...   )1990 - Кувала зозуля (переиздание 2008г.)
+1994 - Я розкажу (переиздание 2008г.)
+1995 - Нова (переиздание 2008г.)
+1996 - Так просто (переиздание 2008г.)Жанр: РорПродолжительность: 16:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A09E8AC99EEF3F7917D75A5A3DBED6D877A40E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 578367   (352347) от 21.11.2012
 
 Thomas Anders - Christmas For You (2012) [MP3|320 кб/с]<Pop>
@@ -699,64 +757,6 @@ Bjork - Vulnicura Strings (2015) [MP3|320 кб/с]<Pop, Experimental, Acoustic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D61FF050EFCB33B7E373BBBE68DDEB34CC54D1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419058   (342048) от 27.10.2020
-
-VA - Dance Club 2020.03 (2020) [MP3|320 Kbps] <Dance, Pop, Deep House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn feat. Nea & Bryn Christopher - No Therapy [2:52]
-02. twocolors - Lovefool [3:10]
-03. VIZE & Tom Gregory - Never Let Me Down [2:33]
-04. Tujamo x VIZE & MAJAN - Lonely [2:49](   Читать дальше...   )Жанр: Dance, Pop, Deep HouseПродолжительность: 01:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F006FAB4F05B66D2384B3393B7553A42986BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180205   (341966) от 03.11.2017
-
-Maroon 5 - Red Pill Blues (2017) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341966.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Best 4 U
-2. What Lovers Do (Feat. SZA)
-3. Wait
-4. Lips On You(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407882739C32D914AA327771F00410497B32C5FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

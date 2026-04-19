@@ -1,3 +1,61 @@
+###  Публикация: 1158601   (491990) от 16.08.2017
+
+VA - Smash Hits The 90's (2017) (3CD) [MP3|320 Kbps] <Pop, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491990.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01.  Robbie Williams - Millennium (Radio Edit)  3:45
+02.  Christina Aguilera - Genie In A Bottle  3:39
+03.  Natalie Imbruglia - Torn  3:47(   Читать дальше...   )Жанр: Pop, RnB, DanceПродолжительность: 03:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:408A5581E26F9E9E1947A76955C084763F01E6F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565805   (490339) от 25.07.2022
+
+Bucks Fizz - 5 Albums (1981-1986) 4LP+1CD Collection [MP3|320 Kbps] <Disco, Europop, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bucks Fizz - британская поп-группа, победившая на конкурсе Евровидение в 1981 году, одна из наиболее популярных групп Великобритании 1980-х годов. Название коллектив получил по наименованию популярного лондонского коктейля, включающего в себя в качестве ингредиентов шампанское и апельсиновый сок.Список альбомов:
+1981 - Bucks Fizz
+1982 - Are You Ready?
+1983 - Hand Cut(   Читать дальше...   )Жанр: Disco, Europop, Pop Rock, Synth-popПродолжительность: 03:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5259C73C046B319569595C6E963DC9729552F64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243643   (490227) от 28.08.2018
 
 VA - Big Room Sessions, Vol. 3 (2018) [MP3|320 Kbps] <Club, Funky, Progressive, Groove, Tribal>
@@ -687,64 +745,6 @@ Jasmine Thompson - Another Bundle of Tantrums (2014) [MP3|320 кб/с]<Indie Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1F113C9A095831D7A1FDD18BD7E544C78E0D1EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160687   (474141) от 25.08.2017
-
-VA - Festivalbar '78  (1978) 2LP [MP3|320 Kbps] <Electronic, Disco, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umberto Tozzi - Tu (4:02)
-02. Leano Morelli - Cantare Gridare... (3:31)
-03. Lina Savona' - Maya (3:50)
-04. El Pasador - Mucho Mucho (3:04)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 01:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A340E049436904EDB1BF9BF65BD151508469E44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058252   (470947) от 30.09.2016
-
-Craig David - Following My Intuition (2016) Deluxe Edition [MP3|320 Kbps] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain’t Giving Up (Feat. Sigala)
-02. When the Bassline Drops (Feat. Big Narstie)
-03. Don’t Go
-04. 16(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D935654E7C3A11B149FB3978850F5D577636013
 ```
 
 https://mybot314.ru/tekegram_catalog/

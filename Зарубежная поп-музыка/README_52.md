@@ -1,3 +1,61 @@
+###  Публикация: 1570711   (427419) от 24.08.2022
+
+Dido - Still On My Mind (2019) [OGG|485 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricanes (05:17)
+02. Give You Up (03:21)
+03. Hell After This (03:27)
+04. You Don't Need a God (03:31)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B4268486642F4116D971F8BE77A12782A837D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324280   (427409) от 08.09.2019
+
+VA - Bravo Hits Jesień 2019 (2019) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427409.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Sam Smith - How Do You Sleep_
+02. Ariana Grande & Social House - Boyfriend(   Читать дальше...   )Жанр: PopПродолжительность: 02:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858E0CCB09B6D4067F0E624D86E3EB21C137C094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250361   (426769) от 27.09.2018
 
 Cher - Dancing Queen (2018) [MP3|320 Kbps] <Pop>
@@ -684,61 +742,6 @@ Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M (2005) CD [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8728FEF74777C0FD8DBFBBCF46F49D7A493504C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168179   (412895) от 22.09.2017
-
-Love Committee - 2 Albums (1978, 1980) [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диско - вокальный квартет из США. В 60-е годы начинали работать под названием - The Ethics. Выпустили под проектом "Love Committee" только эти два альбома и в дальнейшем несколько новых синглов.01. Law And Order (8:46)
-02. Tired Of Being Your Fool (2:56)
-03. If You Change Your Mind (3:43)
-04. Cheaters Never Win (3:58)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 01:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926C04ABE1B9D822618C14AC43F9356393B274F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563170   (410800) от 20.10.2015
-
-Ace Of Base - 25 Best Songs (2012) [MP3|320 кб/с]<Pop,Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop,EurodanceПродолжительность: 01:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F96B1D8829D5F31A7B6F37F627EACF3A1114BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 361015   (577206) от 10.07.2011
+
+Medina - Addiction (2011) HDRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый клип на песню Addiction-2011 в исполнении знаменитой датской певицы Медины (Medina), чилийского происхождения , которая в 2009 году одержала победу на премии «MTV Europe Music Awards 2009» в Берлине в номинации «Лучший датский исполнитель».Жанр: ВИДЕОКЛИПРежиссер: N/AАктеры: MedinaПеревод: ОтсутствуетПродолжительность: 00:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0B04764A63ADD8A73F4E927BE0C1CA8E7C5E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361313   (576939) от 10.07.2011
+
+David Guetta ft Nicki Minaj & FloRida – Where Them Girls At (2011) HDRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами премьера нового клипа David Guetta на его трек – “Where Them Girls At“, с участием Flo Rida и Nicki Minaj. Трек является первым синглом его грядущего альбома  - “Nothing But The Beat“, дата выхода которого назначена на 29 Августа 2011 года.Жанр: ВИДЕОКЛИПРежиссер: N/AАктеры: David Guetta ft Nicki Minaj & FloRidaПеревод: ОтсутствуетПродолжительность: 00:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499006106782AD024067052B31BDB21FA04749ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528495   (573474) от 28.07.2012
 
 Steve Brian - La Playa (2012) [H.264/720р] WEBRip
@@ -642,58 +694,6 @@ Ebru Gundes - Sen Yoluna Ben Yoluma (2012) [H.264/1080р] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:124E153E451F7F0D34429AD3CED7CCE68B40E624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536836   (509763) от 23.08.2012
-
-DJ Rhiannon - All The Girls Do It (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88733AED3086F82FFBA11B6504784EAC24381C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536833   (509754) от 23.08.2012
-
-Wisin & Yandel ft. Chris Brown ft. T-Pain - Algo Me Gusta De Ti (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF9B55488C159AC32C7FC09FB6C29CDF0E865B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

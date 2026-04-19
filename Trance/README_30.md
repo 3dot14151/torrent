@@ -1,3 +1,90 @@
+###  Публикация: 1572303   (423384) от 26.08.2022
+
+VA - A State Of Trance, Ibiza 2022 (Mixed by Armin van Buuren) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Maia Wright - One More Time (Mixed) (Worakls Remix) (3:03)
+02. This Culture - Your Love (Mixed) (2:24)
+03. Armin van Buuren & Shapov - Welcome Home (Mixed) (4:15)
+04. Vintage Culture & Three Drives - Greece 2000 (Mixed) (2:51)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C420B4BF2A7943A756966BEC7C1612EDC7F806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412049   (423151) от 27.09.2020
+
+VA - Aly & Fila - FSOE Top 20: September (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Dymond & Sam Laxton - Outbound (Extended Mix)
+02. Ahmed Romel - Dystopia (Alex Di Stefano Extended Remix)
+03. Cold Blue - Ocean Breeze (Extended Mix)
+04. Bryan Kearney - From The Inside (Original Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFED41E1E2BD25A79011C86C3CF4DD1CC6B3DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166888   (421600) от 18.09.2017
+
+VA - Internal Sign CMPL (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solar Activity - Salva Et Serva (Air Project remix) (06:43)
+02. Victor Special - Earth 2.0 (original mix) (08:14)
+03. SVM - Excalibur (original mix) (06:29)
+04. Al Sebastian - Crucifix (Syntouch remix) (07:14)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A34B2753193E411DEC7328AE7E9956C6219E58A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166892   (421440) от 18.09.2017
 
 Aly & Fila - Beyond The Lights (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -658,93 +745,6 @@ VA - Recoverworld Radio 013 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance, Upl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADAB89C2B3C6104DFAB165FAC2DEBC9AD1DAA52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169814   (399819) от 01.10.2017
-
-VA - 2 Years Suanda True (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  LTN & Attila Syah - Padma (Original Mix)  7:18
-02.  CubeTonic & Dilara Gadel - So Strong (Mark W Radio Edit)  3:21
-03.  Aurosonic & Nicol Cache - Tell Me Why (Mhammed El Alami Radio Edit)  3:18
-04.  F.G. Noise & Tom Exo - Skyworld (Radio Edit)  3:50(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:18:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1BCB645CB6D15859E326EB55286FA7B7E8315B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169821   (399812) от 01.10.2017
-
-VA - Festival Hits (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aly & Fila feat. Paul Thomas - UV (Original Mix)  3:30
-02.  The Thrillseekers - In These Arms (The Thrillseekers pres. Hydra Remix)  3:50
-03.  Dan Stone & Ferry Tayle - Vona (Original Mix)  3:54
-04.  Sam Laxton - Never Alone Again (Original Mix)  3:45(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75736910F618D64AA0979FD65C45B55E98F717E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169815   (399804) от 01.10.2017
-
-VA - ADE Trance Anthems (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aurosonic feat. Katty Heath - My Good Place (Original Mix)  4:09
-02.  Raz Nitzan feat.  Maria Nayler - Nothing Breaks Like A Heart (Omnia Remix)  3:15
-03.  Daniel Van Sand feat.  Nina Sung - Slipping Within (Original Mix)  3:30
-04.  4 Strings - Beneath The Stars (Radio Edit)  2:49(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276864CD3AC91FE741B4402F32CBFF4E267FFA79
 ```
 
 https://mybot314.ru/tekegram_catalog/

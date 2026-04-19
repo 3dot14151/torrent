@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1861058   (1062187) от 
+###  Публикация: 1865439   (1065195) от 15.04.2026
+
+Windows 10 22H2 x64 by OneSmiLe [19045.7184] [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x86_dvd_683e5cb1
+Установлены обновления по 15.04.2026
+Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2246802F3D10E83532CB2820D178A338CCA30CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861058   (1062187) от 26.03.2026
 
 Windows 10 3in1 x64 22Н2 (build 19045.7058) by ivandubskoj 23.03.2026 [Ru]
 
@@ -25,7 +54,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859528   (1061137) от 
+###  Публикация: 1859528   (1061137) от 16.03.2026
 
 Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 03.2026
 
@@ -681,33 +710,6 @@ Windows 10 Enterprise 2019 LTSC with Update [17763.1697] AIO 4in2 (x86-x64) by a
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4987AEC5C7AC4F9239FE03579B3490B1E60399C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440461   (1038613) от 17.01.2021
-
-Windows 10 20H2 (Build 19042.746) (40in2) x86/x64 by Sergei Strelec [Ru]
-
->>След.
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ Windows 10 с интегрированными обновлениями по 16.01.2021
-Интегрированы обновления исключительно средствами DISM.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E3B31F6CE7F60BB42F7A6F87426A1946CBBCC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1849385   (1053514) от 22.01.2026
+
+VA - Solid Gold Hits (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053514.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Goo Goo Dolls - Iris - 04:50
+002. Bruno Mars - Just the Way You Are - 03:41
+003. Madonna - La Isla Bonita - 04:02
+004. Tina Turner - The Best - 05:30(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740DBB9F47C931AFFF867019581EFC80D14F83AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848945   (1053357) от 20.01.2026
+
+VA - Hit Parade - From the 70s, 80s & 90s (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053357.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dreams (2018 Remaster) - Fleetwood Mac  - (04:17)
+ 002. Iris - THE GOO GOO DOLLS  - (04:50)
+ 003. La Isla Bonita - Madonna  - (04:02)
+ 004. Right down the Line - Gerry Rafferty  - (04:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0CFA845DF9F0866532500994646CC6109FED2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848946   (1053356) от 20.01.2026
+
+VA - 80s: 100 Remixes (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Hip Hop, Soul, Disco, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053356.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cyndi Lauper - Girls Just Want to Have Fun (12_ Version) - (06:02)
+ 002. Dead or Alive - You Spin Me Round (Like a Record) (Performance Mix) - (07:26)
+ 003. Wham! - Freedom (Long Mix) - (07:06)
+ 004. Rick Astley - Never Gonna Give You Up (Cake Mix) - (05:47)(   Читать дальше...   )Жанр: House, Hip Hop, Soul, Disco, Soft RockПродолжительность: 10:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB8793DCA31CE54C0C1A3FD29872D12B5CA2C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849071   (1053229) от 21.01.2026
+
+Воровайки - Какие наши годы (2026) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Pop-Chanson>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ой, тётя [00:03:00]
+02. Судьба жестокая [00:03:00]
+03. Марго [00:03:51]
+04. Дайте звука [00:02:52](   Читать дальше...   )Жанр: Pop-ChansonПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62A11D94381893FA5189AD685A6AA9E671AAE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849194   (1053220) от 21.01.2026
+
+VA - Summer Hits of the 70's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seals and Crofts - Summer Breeze (3:26)
+02. Rod Stewart - Da Ya Think I'm Sexy (5:31)
+03. The Doobie Brothers - What a Fool Believes (3:40)
+04. Frankie Valli & The Four Seasons - Who Loves You (4:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365E31416428424B17A4BD0FFA7395ADE54698DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848975   (1053182) от 20.01.2026
+
+Christina Aguilera - Stripped (2002) [FLAC|Lossless|image + .cue] <Pop, Soul, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stripped - четвёртый студийный альбом американской певицы Christinы Aguilerы, вышедший 22 октября 2002 года лейблом RCA Records. Стремясь отойти от подросткового поп-стиля своего дебютного альбома (1999), Aguilera взяла на себя полный творческий контроль над Stripped, как в музыкальном, так и в лирическом плане, она также создала свой новый публичный имидж. В музыкальном (   Читать дальше...   )01. Stripped (intro) (1:39)
+02. feat. Lil’ Kim - Can’t Hold Us Down (4:15)
+03. Walk Away (5:47)
+04. Fighter (4:05)(   Читать дальше...   )Жанр: Pop, Soul, R'n'BПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23B6E37434FB2524A906626A9D69CDD37AFBBB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848799   (1053096) от 18.01.2026
 
 VA - Today’s Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
@@ -571,180 +745,6 @@ VA - Modern Synth Pop (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:445DD0BAA776A439EB37431FADFE67959FD0CDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846477   (1051517) от 08.01.2026
-
-VA - Modern Synth Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charli XCX - Talk Talk (2:42)
-02. Kenya Grace - Strangers (2:53)
-03. Chappell Roan - Sugar High (3:40)
-04. Twenty One Pilots - Vignette (3:23)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 01:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B73DD12AC1169FE10C5C8255A85A66772270E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846452   (1051515) от 08.01.2026
-
-Bee Gees - Still Waters (1997) [FLAC|Lossless|image + .cue] <Pop, Disco, Soft rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Still Waters — двадцать первый и предпоследний студийный альбом группы Bee Gees , выпущенный 10 марта 1997 года в Великобритании лейблом Polydor Records.01. Alone - 4:51
-02. I Surrender - 4:18
-03. I Could Not Love You More - 3:44
-04. Still Waters Run Deep - 4:10(   Читать дальше...   )Жанр: Pop, Disco, Soft rockПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DC63C2432B8962EB1A4D6D7B6B0AB5549A9CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846277   (1051364) от 07.01.2026
-
-VA - AM Gold 1970 (1990) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Rock & Roll, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diana Ross - Ain't No Mountain High Enough
-02. Sugarloaf - Green-Eyed Lady
-03. Bread - Make It With You
-04. Elton John - Your Song(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Rock & Roll, Pop RockПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F28FDDA437D9CC8AD3748A339B078BE05585A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846325   (1051363) от 07.01.2026
-
-VA - AM Gold 1971 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Jones - She's A Lady
-02. Dawn - Knock Three Times
-03. Tommy James - Draggin' The Line
-04. Jonathan Edwards - Sunshine(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft Rock, BalladПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435C3C0329D31DA043231569E3DE94866F6E2CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846326   (1051362) от 07.01.2026
-
-VA - AM Gold 1972 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Dog Night - Black And White
-02. Jim Croce - You Don't Mess Around With Jim
-03. Johnny Nash - I Can See Clearly Now
-04. Al Green - I'm Still In Love With You(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB30492469AD4587A9F1B8B2F90430CB7C6BAF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846110   (1051246) от 06.01.2026
-
-VA - AM Gold 1967 (1991) [OGG Vorbis|480 Kbps] <Rock & Roll, Folk Rock, Soft Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fifth Dimension - Up-Up And Away
-02. The Turtles - Happy Together
-03. The Monkees - Daydream Believer
-04. The Mamas & The Papas - Dedicated To The One I Love(   Читать дальше...   )Жанр: Rock & Roll, Folk Rock, Soft Rock, Pop RockПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22F554A06D60F5AE7EA4BA32E1EB1A3AC58A0638
 ```
 
 https://mybot314.ru/tekegram_catalog/

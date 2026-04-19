@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1862131   (1063008) от 
+###  Публикация: 1862131   (1064337) от 28.03.2026
 
 Lilly Palmer - Bigger Than Techno (2026) [MP3|320 Kbps] <Techno>
 
@@ -7,7 +7,7 @@ Lilly Palmer - Bigger Than Techno (2026) [MP3|320 Kbps] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064337.jpg" />
 </div>
 
 

@@ -1,3 +1,177 @@
+###  Публикация: 917649   (589019) от 12.07.2015
+
+Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kiss — американская рок-группа, основанная в Нью-Йорке в январе 1973 года и известная сценическими макияжами её участников, а также концертными шоу, сопровождающимися различными пиротехническими эффектами.01. Modern Day Delilah
+02. Cold Gin
+03. Let Me Go, Rock 'N'
+04. Firehouse(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3227C356DAC347206F8C31E6454636639B37F732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917927   (588621) от 13.07.2015
+
+Megadeth - Countdown To Extinction - Live  (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый концертный релиз американской группы Megadeth.  Концерт записан в Помоне (Калифорния, США) в декабре 2012.01. Intro: Prince Of Darkness
+02. Trust
+03. Hangar 18
+04. Public Enemy(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, Speed Metal, Hard RockПродолжительность: 01:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB5586C6861F47A19E9E318E729A3B900E85D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917945   (588607) от 13.07.2015
+
+Status Quo - Pictures - Live At Montreux (2009) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588607.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2009, Британская рок-группа Status Quo, дала концерт в Montreux (Швейцария). Группа привезла набор горячих хитов и классических произведений из всех эпох своей карьеры, включая не менее 18 - входивших в разное время в Top 20 UK. Тур "Pictures" - признаётся многими знатоками, как один из лучших в истории коллектива.01. Caroline
+02. The Wanderer
+03. Rain
+04. Don't Drive My Car(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F7147D3DA821740C80770816F1E048A289A2A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357096   (587790) от 30.06.2011
+
+The Prodigy - World's on Fire (2011) [1080i] BDRemux
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587790.jpg" />
+</div>
+
+
+###  Подробнее
+
+World’s on Fire ( Мир в огне) — видеоконцерт и первый концертный альбом британской электронной группы The Prodigy, выпущенный на blu-ray 24 мая 2011 года. Фильм-концерт демонстрировался в кинотеатрах. Съёмки проходили на фестивале Warrior’s Dance, организованном участниками коллектива в городе Милтон-Кинс 24 июля 2010 года.1. Intro (Live)
+2. Breathe (Live)
+3. Omen (Live)
+4. Colours (Live)
+5. Thunder (Live)
+6. Warriors Dance (Live)
+7. Firestarter (Live)
+8. Run With The Wolves (Live)
+9. Weather Experience (Live)
+10. Voodoo People (Live)(   Читать дальше...)Жанр: Electronic, BreakbeatРежиссер: Liam HowlettАктеры: The ProdigyПеревод: Не требуется, нет диалогов и комментариевПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584615   (586673) от 15.07.2015
+
+Linkin Park - Rock in Rio (2012) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative - RockПродолжительность: 01:32:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300929   (586050) от 10.05.2019
+
+Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) Blu-ray [H.264/1080p] [EN]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586050.jpg" />
+</div>
+
+
+###  Подробнее
+
+The iconic duo's acclaimed production, first presented at the Royal Opera House in 2016 over four sold-out shows, was reprised at the venue for a further four nights in July 2018 as part of their 'Super' tour. Staged by long-term PSB designer Es Devlin and choreographer/director Lynne Page, the show was filmed by director David Barnard. Filmed on 27 and 28 July 2018, (   Читать дальше...   )Производство: Великобритания, Pet Shop Boys Partnership LimitedЖанр: Synth-pop, Dance-pop, New waveРежиссер: David BarnardПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:15 + 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21BCEB820F947EC0F658BF8B6BDE79D310B957C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300917   (585992) от 10.05.2019
 
 Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) BDRemux [H.264/1080p] [EN]
@@ -575,174 +749,6 @@ Aerosmith - Rock For The Rising Sun (2013) BDRemux [1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C3EAFF105BB2C7F3815EC7EE9C204109ADCAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922093   (571594) от 27.07.2015
-
-U.D.O. – Steelhammer - Live from Moscow (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт записан в клубе “Arena Moscow” 28 сентября 2013 года. Релиз состоялся 23 мая 2014 года в форматах DVD+2CD, BD+2CD и 3 винила цвета российского флага. Россия имеет особое значение для Удо Диркшнайдера (Udo Dirkschneider) и его группы U.D.O. Они были одним из первых иностранных коллективов, отправившихся на гастроли по всей необъятной территории России, и их (   Читать дальше...   )01. Intro
-02. Steelhammer
-03. King Of Mean
-04. Future Land(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9189F4D34CA10D5113AECF5AF6D305B3948D334B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922129   (571426) от 27.07.2015
-
-Blackmore's Night - A Knight In York (2012) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Blackmore's Night возник на фоне постоянного интереса Ричи Блэкмора к музыке. Дебютный альбом, "Shadow of the moon", вышедший летом 1997 года, произвёл эффект разорвавшейся бомбы - так музыку Средневековья ещё не играл никто! Практически все западные музыкальные издания окрестили "Blackmore's night" открытием 1997 года. Концерт Blackmore’s (   Читать дальше...   )01. Locked Within The Crystal Ball
-02. Guilded Cage
-03. The Circle
-04. Journeyman(   Читать дальше...   )Жанр: Celtic, Folk, Neo-MedievalПродолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0077DFE621C192A651AC03796A792ABC6B8808E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922419   (569821) от 28.07.2015
-
-Styx - The Grand Illusion / Pieces of Eight Live (2010/2012) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Styx — первая группа, четыре альбома которой подряд были признаны мультиплатиновыми. Группа была основана в Чикаго в 1961 как «The Tradewinds» и играла в местных барах в окрестностях Чикагского Государственного Университета. В это время состав группы включал братьев Чака Паноззо и Джона Паноззо на гитаре и ударных соответственно и вокалиста, пианиста, клавишника (   Читать дальше...   )1. The Grand Illusion
-2. Fooling Yourself (Angry Young Man)
-3. Superstars
-4. Come Sail Away(   Читать дальше...   )Жанр: RockПродолжительность: 01:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA11B3440909D86AFF4BB3A4AD39CEEDA773B8BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922355   (568060) от 29.07.2015
-
-Fare Thee Well - Weekend One / Grateful Dead Live Jun 27 & 28, 2015 at Levi's Stadium, Santa Clara, CA, USA (2015) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два концерта Grateful Dead в г. Санта Клара (Калифорния, США), состоявшиеся 27 и 28 июня 2015 года в рамках мини-тура Fare Thee Well, посвящённого пятидесятилетию группы и двадцатой годовщине со дня смерти её лидера Джерри Гарсия.Производство: СШАЖанр: Psychedelic RockПеревод: ОтсутствуетПродолжительность: 04:29:33 + 03:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5355095A896047964BD910C9465CDAEF6E7C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690216   (565954) от 17.08.2013
-
-Shakira - Oral Fixation Tour (2007) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565954.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
- 2. Estoy Aqui
- 3. Te Dejo Madrid
- 4. Don't Bother(   Читать дальше...   )Жанр: PopРежиссер: Ник ВикманАктеры: Shakira bandПеревод: ОтсутствуетПродолжительность: 01:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10436D271678EEE762FE958EE2A01982BBEB6D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234902   (565837) от 08.07.2018
-
-Квартирник на НТВ у Маргулиса. Маша и Медведи (07.07.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565837.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла группа "Маша и Медведи", российская рок-группа, образованная в 1997 году Марией Макаровой. Участники коллектива исполнили полюбившиеся многим хиты и рассказали интересные истории из жизни.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46E66ED7049C2B7FEB2FA9521FAE9BFFF703C0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

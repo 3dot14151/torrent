@@ -1,3 +1,93 @@
+###  Публикация: 628391   (46652) от 16.08.2024
+
+Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это было время когда рок концерты были как визуальный стимулятор, поскольку были на слуху, время взрывающейся пиротехники, не покоряющихся тяжести гитаристов и певцов пропитывающих потом кровь и душу всего освещённого пятна сцены. В те дни одна группа правила как короли зрелищности и технически точной музыкальности, группа, которая полностью владеет сценой  - это (   Читать дальше...   )01. The More Things Change
+02. Push Push
+03. Sick For The Cure
+04. Make Your Own Way(   Читать дальше...   )Жанр: RockФормат: DVD videoКачество: DVD9Продолжительность: 01:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6515EC24E1EEDCBED3BAE2B9BA1B20397CF55588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285534   (46651) от 16.08.2024
+
+Grand Funk & Mark Farner (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46651.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом диске собраны ранее не издававшиеся видео материалы, а также пиратские записи концертов и выступлений (бутлеги).Жанр: RockУчастники: Mark Farner
+Don Brewer
+Mel Schacher
+Craig Frost(   Читать дальше...   )Продолжительность: 0:55:17 + 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA45CC4AD4F07714EFF97A8144F5A690B7B457DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602816   (46641) от 16.08.2024
+
+Styx -Counght In The Akt- 1984 (2007) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Styx - Caught In The Act: Live 1983 (2007):
+01. Kilroy Was Here(Short Film)
+02. Mr.Roboto
+03. Rockin'The Paradise(   Читать дальше...   )Жанр: Hard Prog RockВ ролях: Dennis DeYoung
+Chuck Panozzo
+John Panozzo
+Tommy Shaw(   Читать дальше...   )Формат: DVD videoКачество: DVD9Продолжительность: 01:27:41 + 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2F0EC619FD6225A9386EAD54EFDC9E883AEED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 72966   (46635) от 16.08.2024
 
 LIVING LOUD - Live Sydney Fox Studios (2004) DVD
@@ -655,90 +745,6 @@ Markus Grosskopf - BassФормат: DVD videoКачество: DVD9Продол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DED26CEECAFB7DFAC9ACF1CA034A5D4CE0BCEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 25895   (45111) от 31.08.2024
-
-Doro - 20 Years a Warrior Soul DVD (2006)
-
->>След.
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальное юбилейное издание, оно включает в себя два DVD диска: - Первый диск отведен под два практически равных по продолжительности фильма. Первый из фильмов посвящён турне в поддержку последнего на тот момент альбома Доро - "Warrior Soul" и представляет увлекательное путешествие с командой, в котором вы побываете в различных европейских странах, посмотрите (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 05:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C74B028133F6B3D7681F2BC56BE36FB6E63D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226570   (45083) от 31.08.2024
-
-Halford - Live In Anaheim (2010) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45083.jpg" />
-</div>
-
-
-###  Подробнее
-
-PART I:
- DOCUMENTARY AND CONCERT (approx. 35 mins)
-including 4 songs performed at Shibuya Kokaido Tokyo, Japan
-01. Heretic (Live In Japan)(   Читать дальше...   )Жанр: Heavy MetalРежиссер: John BaxterФормат: DVD videoКачество: DVD9Продолжительность: 02:06:38+бонус
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276A704E587ED985B73F3804B00E982499C3C000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163517   (43505) от 15.09.2024
-
-B.B.King - The jazz channel presents (2000) DVD5 <Jazz>
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот DVD представляет собой запись живого концерта в «Black EntertainmentTelevisionStudio» в Вашингтоне.01. Two I Shoot Blues
-02. Let The Good Times Roll
-03. I'll Survive
-04. Bad Case Of Love(   Читать дальше...   )Жанр: Jazz, Муз.видеоРежиссер: Bet On JazzУчастники: Би Би Кинг & CoПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3ABEB30C8CA170545A43AD7EB6DE16297464841
 ```
 
 https://mybot314.ru/tekegram_catalog/

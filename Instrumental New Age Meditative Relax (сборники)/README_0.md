@@ -1,3 +1,32 @@
+###  Публикация: 1357897   (971729) от 05.02.2020
+
+VA - Music Collection Vol.2 (2019) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971729.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2illusions - Rainy Day (Original Mix)
+002 AA-Shaa - Wonder
+003 Acud - Fliegepeter (Radio Mix)
+004 Afterlife Feat. Cathy Battistessa - Speck Of Gold(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, Ambient, Relax, ElectronicПродолжительность: 16:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2C0861044C5934F823A35AC028EA927A18770D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975883   (970939) от 16.01.2016
 
 VA - Lounge Music For Your Soul (2016) [MP3|320 кб/с] <Downtempo, Lounge, ChillOut, New Age>
@@ -707,32 +736,6 @@ VA - Lounge Barroom Music (2016) [MP3|320 kbps] <Lounge, Downtempo, Relax, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C31B63291F4350BBE40A0CEC35D36D08D5528FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177619   (926199) от 24.02.2010
-
-Испанская Гитара - Лучшие Хиты 2CD - VA - Spanish Guitar Best Hits Vol.2 (2001) [MP3|320 kbps] <World, Flamenco, Salsa>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: World, Flamenco, SalsaПродолжительность: 02:31:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

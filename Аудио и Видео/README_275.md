@@ -1,3 +1,192 @@
+###  Публикация: 1520917   (139259) от 30.12.2021
+
+VA - The Collection 2021 Electronic Tree (2021) [AAC|~330 Kbps] <Progressive House, Deep House, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audio Noir - Life (Celebrate) (7:27)
+02. Flux Flow Project - On a Trip (7:13)
+03. Alter Alex - Solar Asia (7:54)
+04. Nir Yooz - Vayu (8:22)(   Читать дальше...   )Жанр: Progressive House, Deep House, DowntempoПродолжительность: 06:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DF07A852E28991A7121E103B2E602C5FE25EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349107   (139087) от 30.12.2019
+
+Джокер / Joker (2019) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: США, Канада / Warner Bros., Village Roadshow Pictures, DC Entertainment, DC Comics, 22 & Indiana PicturesЖанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Фрэнсис Конрой, Бретт Каллен, Шей Уигэм, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (Forced x2, full x2), английские (full, SDH)Продолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0662433D8402040DB5A2E023C2A8353D4719F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520846   (139042) от 30.12.2021
+
+Зятёк / Son in Law (1993) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Худший кошмар всякой тёщи? Определенно, её зять. Но даже в страшном сне мадам Уоррен не предполагала, насколько худо всё обернется, пока впервые не увидела жениха своей дочери Ребекки. Существо, прибывшее в дом Уорренов на День Благодарения и представленное дочкой, как её жених Кроул, мгновенно произвело на потенциальных родичей неизгладимое впечатление. Средоточие (   Читать дальше...   )Производство: США / Hollywood Pictures, Touchwood Pacific Partners 1Жанр: Драма, мелодрама, комедияРежиссер: Стив РэшАктеры: Поли Шор, Карла Гуджино, Лейн Смит, Синди Пикетт, Мейсон Эдамс, Патрик Ренна, Деннис Бёркли, Тиффани Тиссен, Дэн Готье, Риа ПавиаПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, английскиеПродолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67D144A8B55CF52BC7DC12B3D279A1B048B23AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520742   (139000) от 30.12.2021
+
+Армейские приключения / In the Army Now (1994) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закадычные друзья Боунз и Джек вовсе не думали становиться героями. Они записались в резервисты американской армии, чтобы заработать денег и открыть собственный магазин. Но тихой службы в тылу не получилось. Свободный мир опять в опасности, и вот уже бравые вояки отправляются сражаться в Африку.
+Это совсем не входило в планы Боунза и Джека, которых по уровню героизма (   Читать дальше...   )Производство: США / Hollywood PicturesЖанр: Комедия, военныйРежиссер: Дэниел Питри мл.Актеры: Поли Шор, Энди Дик, Лори Петти, Дэвид Алан Грир, Эсай Моралес, Линн Уитфилд, Арт ЛаФлёр, Фабиана Уденио, Гленн Моршауэр, Биу БиллингслиПеревод: Профессиональный многоголосый, авторский одноголосый, профессиональный двухголосыйСубтитры: АнглийскиеПродолжительность: 01:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6A8D63D10C2B26A8382D1A215EE36FAA98E30C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273072   (138791) от 30.12.2018
+
+Черное зеркало: Брандашмыг / Black Mirror: Bandersnatch (2018) WEB-DL [1080p] ATV [MVO]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138791.jpg" />
+</div>
+
+
+###  Подробнее
+
+1984 год. Молодой программист Стефан с многолетним чувством вины за смерть матери пытается написать компьютерную игру по фантастическому роману. Вскоре реальность искажается, создавая невообразимую путаницу в и без того нездоровом сознании парня.Производство: США / House Of Tomorrow, NetflixЖанр: Фантастика, Триллер, Драма, ДетективРежиссер: Дэвид СлэйдАктеры: Финн Уайтхед, Крэйг Паркинсон, Элис Лоу, Азим Чаудхри, Уилл Поултер, Таллула Роуз Хэддон, Катриона Нокс, Пол Брэдли, Джонатан Арис, А.Дж. ХотонПеревод: Любительский многоголосый (ColdFilm)Субтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95551E02621C3208271D4D5DBE3DB64EFF15442D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196029   (138193) от 31.12.2017
+
+Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: СШАЖанр: Боевик, комедия, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Украинские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C2C27B984B299124EDF639CFDE4A3A74A8C981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520994   (138183) от 31.12.2021
+
+VA - New Day: Urban Chillout Vibes (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Kisses in the Rain (4:00)
+02. Chris le Blanc, Alison Degbe - Moon over Paradise (3:22)
+03. Digby Jones, Lushlo - Shimmer (Original Mix) (3:31)
+04. Schwarz & Funk - Only Tears (Original Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD0BCAFCA98FAC54FB4B775C01E5BE2E1A9F676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521047   (138174) от 31.12.2021
 
 VA - Steyoyoke Gems Nocturnal 10 (2021) [AAC|~330 Kbps] <Progressive House, Deep House, Downtempo>
@@ -513,209 +702,6 @@ VA - In The Mood For Love (2022) [AAC|~308 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F26C4A60220FA4812DE4C45C2EAD9BE62C3CBB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524734   (130340) от 18.01.2022
-
-DoMi Sakurazawa - Friendship (2022) [AAC|~366 Kbps] <Jazz, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friendship (DoMi Sakurazawa Remix) (6:16)
-02. Searching For You (DoMi Sakurazawa Remix) (4:34)
-03. Signs Of You (DoMi Sakurazawa Remix) (4:53)
-04. Please Wait (DoMi Sakurazawa Remix) (2:56)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2517B25271E011B4C93F9663FF70AD994F9085B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524910   (130333) от 18.01.2022
-
-VA - Best Restaurant Background Music 2022 (2022) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Chuchaqui (5:47)
-02. Kieloval - Space Thoughts (5:53)
-03. The Crispy Galaxy - Cream Soda (6:09)
-04. Eulenspiegel - An Unspoken Thing (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0208A9DB688749C25D211F67E177215641E83E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524743   (130323) от 18.01.2022
-
-VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Yeah Uhhh Oui (3:00)
-02. Weber & Weber - Speaking Without Words (4:49)
-03. Svendaq - Blue Bossa (6:01)
-04. Chillson, Marc Hartman - A Lifetime (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C334A7071945C4C8F38830289D2F2AC12C360B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524745   (130319) от 18.01.2022
-
-VA - Oriental Lounge Affair (Exotic Arabian and Indian Moods) (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Lo-Fi>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krishna Singh - The Spirit Of Buddha (Heart Chakra Mix) (4:57)
-02. Ragi - Double Dream (Vocal Mix) (2:43)
-03. Sarod Sapla Glee - Two Spirits (India Radio Cut) (2:39)
-04. Green Taboo - Oriental Vibes (Original Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo-FiПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199452276BFC100B31F7270A9B94683003A9078E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524908   (130315) от 18.01.2022
-
-VA - Pure Deluxe 4 (2014) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Schlolaut, Frank Doberitz - Can't You Hear Me (Enigmatic Vocal Chillout Mix) (5:02)
-02. Artenovum, Emma Laveigh - Cosmic Fade (5:01)
-03. Richard Bonnee - Ma Vie (Short Electronic Deep Mix) (3:25)
-04. Nightzoom - Silence (Ambient Mix) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98F00CBECAB742218D18C45131A77CE60119DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524904   (130312) от 18.01.2022
-
-VA - Pure Deluxe 1 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karen Gibson Roc, Johannes Huppertz - Fly Light (4:13)
-02. Marie Therese - Lost Somewhere (4:04)
-03. Ann Grace - Sentimenti (5:31)
-04. Mare et Monti - Sans Soucis (5:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96FFE9240AE24DE30D86FAFC7CED42A1FAB773C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524864   (130310) от 18.01.2022
-
-VA - Sun & Chill, Vol. 1 (2012) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Neville - Sun Is Coming (Smooth Jazz Mix) (6:47)
-02. Soundset City - Sweep Along (Groovy Lounge Mix) (4:07)
-03. For Found Future - Drops of the Future (Smooth Ambient Mix) (6:35)
-04. Marie Therese - Call of Sirens (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8BBAFF9740FA6E2DB6377E168914A23F6806A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

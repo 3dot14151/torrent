@@ -586,7 +586,7 @@ VA - XXXL Диско 80-х часть 1 (2011) [MP3|256 kbps]<Pетро>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_859754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_859754.jpg" />
 </div>
 
 

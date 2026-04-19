@@ -1,3 +1,61 @@
+###  Публикация: 1365632   (929008) от 08.03.2020
+
+Алексей Стёпин - 3 Альбома (1995-2002) [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поезда
+02. Озеро лебедей
+03. Дорога да гитара
+04. За свободу!(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638C3CAD5C035DA6BA853609FE54E9DC04FB2BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094750   (927649) от 19.01.2017
+
+Вика Цыганова - С любовью к России (2017) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Балалайка
+02. Гуляй, анархия
+03. Лёнька Пантелеев
+04. Дело было на Арбате(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43841AA12A0C8C2F9D7154765E691F406FB88001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365948   (927007) от 09.03.2020
 
 Группа Запретка - Кореша встречайте (2020) [MP3|320 Kbps] <Шансон>
@@ -696,62 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25DAA259BA1D6BFE7D84644B42488438D57903BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103423   (885474) от 12.02.2017
-
-Макс Эллар Фартушный - Мост череz Vечность (2017) Single, Авторская раздача [MP3|320 Kbps] <Plugged Metal, Country Blues>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885474.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мы вышли из тьмы - 05:43
-2. Пирожок Blues - 04:07Жанр: Plugged Metal, Country BluesПродолжительность: 00:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6BEFFC5B733CCC5746424488F713C9AF9726AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103358   (885453) от 12.02.2017
-
-Tony Carreira - Le coeur des femmes (2017) [FLAC|Lossless|tracks] <French Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Carreira & Lara Fabian - Um Amor Assim (je t'aime)
-02. Tony Carreira & Chico & The Gypsies - Quero Viver (comme d'habitude)
-03. Tony Carreira & Daniel Guichard - A Ternura (la tendresse)
-04. Tony Carreira & Mickael Dos Santos - Pobre Diabo (pauvres diables-vous les femmes)(   Читать дальше...   )Жанр: French Chanson, PopПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D65D7A7070636641BDD4F7E919807E76C14B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

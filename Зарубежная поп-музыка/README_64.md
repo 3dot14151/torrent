@@ -1,3 +1,61 @@
+###  Публикация: 964265   (283653) от 10.12.2015
+
+Bebe Rexha - I Don't Wanna Grow Up (2015) EP [OGG|489-533 кб/с]<Power Pop, Electropop, EDM>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Wanna Grow Up
+02. Sweet Beginnings
+03. I'm Gonna Show You Crazy
+04. Pray(   Читать дальше...   )Жанр: Power Pop, Electropop, EDMПродолжительность: 00:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D234CB842383F9A68FEC0F72E6A4D3099125B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187248   (282539) от 27.11.2017
+
+Miss Li - A Woman's Guide to Survival (2017) [MP3|320 Kbps] <Indie Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awgts (01:16)
+02. Pressure (02:58)
+03. Aqualung (03:35)
+04. You Only (03:00)(   Читать дальше...   )Жанр: Indie Rock, PopПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4A2D625B3F12271ECE9B50FD4B6EA102DEAB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964465   (282421) от 11.12.2015
 
 Blue - Colours (2015) [OGG|455-528 кб/с]<Pop, Soul>
@@ -692,64 +750,6 @@ Mireille Mathieu - Made in France (2017) [MP3|320 Kbps] <Pop, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0CCCA3C1CE0B311B2B4DB1013DA4FEFEEE8E632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265487   (274127) от 28.11.2018
-
-VA - Future Trance - Return to the Millennium 2000er (2018) 3CD [MP3|320 Kbps] <Italo Dance, Hardstyle, Hard Trance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274127.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Gigi D'Agostino - L'Amour Toujours (Small Mix)
-02. Scooter - Weekend!
-03. Groove Coverage - Moonlight Shadow(   Читать дальше...   )Жанр: Italo Dance, Hardstyle, Hard TranceПродолжительность: 03:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3CA6DD37E77F391D1910448F9C006399884654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188909   (273332) от 03.12.2017
-
-VA - 100 Superhits From the 80's (1998) 5CD, Compilation [MP3|320 Kbps] <Electronic, Hip Hop, Rock, Reggae, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - The Reflex (4:22)
-02. Afrika Bambataa & Ub40 - Reckless (3:52)
-03. Tracey Ullman - They Don't Know (2:58)
-04. Harold Faltermeyer - Axel F (3:00)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Reggae, DiscoПродолжительность: 06:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A21F40446E46AD51D595D1CAB90F6502F7A8DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
